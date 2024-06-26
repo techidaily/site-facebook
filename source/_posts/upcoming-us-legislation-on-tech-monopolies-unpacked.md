@@ -1,7 +1,7 @@
 ---
 title: Upcoming US Legislation on Tech Monopolies Unpacked
-date: 2024-06-20 12:17:13
-updated: 2024-06-23 10:46:23
+date: 2024-06-25T14:00:11.049Z
+updated: 2024-06-26T14:00:11.049Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/b344d8db48d6d42211b0b57079da5753b23f49ded
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/1719151766914-breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram.</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognize-privacy-breaches-pc-and-email-monitoring/"><u>Recognize Privacy Breaches: PC & Email Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacktivism-halts-facebooks-happy-scores-sets-stars-at-1/"><u>Hacktivism Halts Facebook's Happy Scores, Sets Stars at 1</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151494245-favorite-social-hub-share-your-choice/"><u>Favorite Social Hub: Share Your Choice!</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/rapid-transition-techniques-for-different-facebook-accounts/"><u>Rapid Transition Techniques for Different Facebook Accounts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-vivo-t2x-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Vivo T2x 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-infinix-note-30-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Infinix Note 30 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-tactical-techniques-for-stunning-instagram-puzzle-displays-for-2024/"><u>[Updated] Tactical Techniques for Stunning Instagram Puzzle Displays for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-ultimate-rankings-exceptional-free-auditory-slicing-applications-online/"><u>2024 Approved Ultimate Rankings Exceptional Free Auditory Slicing Applications Online</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-add-adjustment-layer-clip-in-davinci-resolve-for-2024/"><u>Updated How to Add Adjustment Layer (Clip) in DaVinci Resolve for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/factory-reset-on-iphone-15-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-oneplus-nord-ce-3-lite-5g-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset OnePlus Nord CE 3 Lite 5G Without Password | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone X | Dr.fone</u></a></li>
+</ul></div>

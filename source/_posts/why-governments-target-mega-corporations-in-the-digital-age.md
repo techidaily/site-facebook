@@ -1,7 +1,7 @@
 ---
 title: Why Governments Target Mega-Corporations in the Digital Age
-date: 2024-06-21 16:36:23
-updated: 2024-06-23 10:46:15
+date: 2024-06-25T14:27:35.719Z
+updated: 2024-06-26T14:27:35.719Z
 tags:
   - facebook
 categories:
@@ -35,39 +35,33 @@ thumbnail: https://thmb.techidaily.com/4278a11dc73e1c0d6c218af281491c5ebbfcb593f
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-## Big Tech Companies Use Data for Profit
-
-![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
+## Big Tech Companies Use Data for Profit ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
- A[study by Security.org](https://www.security.org/blog/how-much-would-you-sell-your-social-media-data-for/) found the average U.S. citizen would sell their social media data for $2,000\. However, they cannot decline to give sites their information while still using the respective services.
+ A [study by Security.org](https://www.security.org/blog/how-much-would-you-sell-your-social-media-data-for/) found the average U.S. citizen would sell their social media data for $2,000\. However, they cannot decline to give sites their information while still using the respective services.
 
  These reasons and others cause people in power to point out that Big Tech regularly mishandles people’s data. Even if those companies do not experience breaches, third parties' applications for user information raise eyebrows and strengthen the arguments to lessen their power.
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-## Big Tech Fails to Catch Misleading Ads
-
-![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+## Big Tech Fails to Catch Misleading Ads ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
- A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
+ A [Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
-## Big Tech Limits the Market Access of Smaller Companies
-
-![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
+## Big Tech Limits the Market Access of Smaller Companies ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
- In 2023, the[U.S. Department of Justice announced](https://www.justice.gov/opa/pr/justice-department-sues-google-monopolizing-digital-advertising-technologies) that it sued Google for its alleged monopolization of numerous digital advertising practices. The associated complaint alleges the Big Tech company has a 15-year history of “a course of anti-competitive and exclusionary conduct,” making it harder for competitors in the industry.
+ In 2023, the [U.S. Department of Justice announced](https://www.justice.gov/opa/pr/justice-department-sues-google-monopolizing-digital-advertising-technologies) that it sued Google for its alleged monopolization of numerous digital advertising practices. The associated complaint alleges the Big Tech company has a 15-year history of “a course of anti-competitive and exclusionary conduct,” making it harder for competitors in the industry.
 
- It's also worrisome that some people are concerned about[Big Tech censorship](https://www.makeuseof.com/what-is-big-tech-censorship/) , where these companies act as gatekeepers of the internet. That’s especially true with Google and Facebook using highly advanced algorithms that impact what you see while browsing online or scrolling through social media. That technology could restrict smaller companies’ market visibility, especially if they don’t have massive advertising budgets.
+ It's also worrisome that some people are concerned about [Big Tech censorship](https://www.makeuseof.com/what-is-big-tech-censorship/) , where these companies act as gatekeepers of the internet. That’s especially true with Google and Facebook using highly advanced algorithms that impact what you see while browsing online or scrolling through social media. That technology could restrict smaller companies’ market visibility, especially if they don’t have massive advertising budgets.
 
- Another recent case occurred when the[European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
+ Another recent case occurred when the [European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
@@ -75,27 +69,23 @@ thumbnail: https://thmb.techidaily.com/4278a11dc73e1c0d6c218af281491c5ebbfcb593f
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
 
- Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
+ Furthermore, there are ways that you can [help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-## Big Tech Can Impact Government Decisions and Operations
-
-![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+## Big Tech Can Impact Government Decisions and Operations ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
  However, in February 2021,[Politico reported](http://www.politico.eu/article/data-at-risk-amazon-security-threat/) that three high-level whistleblowers warned the public that Amazon does not keep its cloud-stored data sufficiently safe. Such shortcomings affect government clients and all other people who store information with the company. In addition, sources say the company has grown so fast that representatives have no idea what information Amazon holds or where to find all of it.
 
- An[investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
+ An [investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
-## Big Tech Companies Have Incredible Influence
-
-![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+## Big Tech Companies Have Incredible Influence ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
- Plans from Google and Apple to develop health services or collect patient data also show the growing influence of these companies. Such growth often blurs the lines between once-distinctive industries. For example, people in select areas can pay for parking and transit fares through Google Maps. Apple wants to break into the electric self-driving car market with the[Apple Car](https://www.makeuseof.com/previewing-the-apple-car/) , although we don't have much news about what's coming.
+ Plans from Google and Apple to develop health services or collect patient data also show the growing influence of these companies. Such growth often blurs the lines between once-distinctive industries. For example, people in select areas can pay for parking and transit fares through Google Maps. Apple wants to break into the electric self-driving car market with the [Apple Car](https://www.makeuseof.com/previewing-the-apple-car/) , although we don't have much news about what's coming.
 
  Starting in 2017, Facebook assisted employers with publishing job openings via the platform. Amazon worked on an internal hiring algorithm that ultimately showed bias against women. These entrances into multiple markets and industries back up government officials’ claims that Big Tech has too much power.
 
@@ -132,3 +122,26 @@ thumbnail: https://thmb.techidaily.com/4278a11dc73e1c0d6c218af281491c5ebbfcb593f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/safety-first-selecting-a-secure-site/"><u>Safety First: Selecting a Secure Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-archived-social-networks-on-fb/"><u>Accessing Archived Social Networks on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-administrators-with-next-gen-social-network-tools/"><u>Empowering Administrators with Next-Gen Social Network Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-behind-facebooks-invisible-mode/"><u>What Hides Behind Facebook's Invisible Mode?</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-swapping-of-separate-facebook-login-credentials/"><u>Swift Swapping of Separate Facebook Login Credentials</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/efficient-tools-for-xmlssattml-to-srt-conversion/"><u>Efficient Tools for XML/SSA/TTML to SRT Conversion</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-11-proplus-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme 11 Pro+ Device</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sharing-the-spotlight-involving-viewers-in-your-journey/"><u>[New] Sharing the Spotlight  Involving Viewers in Your Journey</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo Y28 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-funimate-playbook-strategies-for-success/"><u>[New] Funimate Playbook  Strategies for Success</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-ultimate-screen-snaps-for-mac-users-max-156-chars/"><u>In 2024, Ultimate Screen Snaps for Mac Users (Max 156 Chars)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-best-small-drone-models-today/"><u>In 2024, Best Small Drone Models Today</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/sustaining-an-engaged-online-community-the-facebook-way/"><u>Sustaining an Engaged Online Community  The Facebook Way</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-streamline-your-audio-workflow-top-audio-converter-software/"><u>New In 2024, Streamline Your Audio Workflow Top Audio Converter Software</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-exclusive-access-prime-video-downloader-picks/"><u>2024 Approved  Exclusive Access  Prime Video Downloader Picks</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: UK Football Faction Steps Away From Social Media to Combat Hate Speech
-date: 2024-06-22 19:22:17
-updated: 2024-06-23 11:57:11
+date: 2024-06-25T13:53:10.279Z
+updated: 2024-06-26T13:53:10.279Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,24 @@ thumbnail: https://thmb.techidaily.com/29b1b2904297da87da55ea288cd0a44b14a4d2e98
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/is-there-a-risk-of-leaked-numbers-in-my-social-media-activity/"><u>Is There a Risk of Leaked Numbers in My Social Media Activity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-success-lessons-from-sheryl-sandbergs-facebook-experience/"><u>Crafting Success: Lessons From Sheryl Sandberg’s Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-exposure-have-my-personal-and-phone-numbers-been-shared-on-facebook/"><u>Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-groups-admins-whos-next-for-legal-action-from-amazon/"><u>Facebook Groups Admins: Who's Next for Legal Action From Amazon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-modifying-your-facebook-handle/"><u>Step-by-Step Guide to Modifying Your Facebook Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-purchasing-on-fb-unveiled-for-fridays/"><u>Live Purchasing on FB Unveiled for Fridays</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-stepwise-guide-backing-up-and-exporting-mobile-camera-images-for-social-media/"><u>2024 Approved  Stepwise Guide  Backing Up & Exporting Mobile Camera Images for Social Media</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-scripts-that-define-movie-industrys-variety/"><u>[New] Scripts That Define Movie Industry's Variety</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/joining-the-metaverse-comedy-club-top-20plus-memes-and-techniques/"><u>Joining the Metaverse Comedy Club  Top 20+ Memes & Techniques</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-vivo-y56-5g-frp-by-drfone-android/"><u>How Can We Bypass Vivo Y56 5G FRP?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-learn-the-ropes-of-tiktok-filming-from-basic-shots-to-cinematic-scenes/"><u>2024 Approved  Learn the Ropes of TikTok Filming  From Basic Shots to Cinematic Scenes</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-secure-and-fast-instagram-to-mp4-conversion-for-windowsmac-users/"><u>[New] Secure & Fast Instagram to MP4 Conversion for Windows/Mac Users</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/validating-your-visual-story-on-instagram-for-2024/"><u>Validating Your Visual Story on Instagram for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-basic-video-editing-software-for-non-pros/"><u>Updated 2024 Approved Basic Video Editing Software for Non-Pros</u></a></li>
+</ul></div>

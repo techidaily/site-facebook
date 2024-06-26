@@ -1,7 +1,7 @@
 ---
 title: Facebook's Metaverse Project Seeks Global Talent Pool of 10K.
-date: 2024-06-22 19:28:11
-updated: 2024-06-23 12:19:42
+date: 2024-06-25T14:08:57.394Z
+updated: 2024-06-26T14:08:57.394Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
 
 ## Facebook Is Betting Big on EU Tech Talent
 
- In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
+ In an October 17 post on the [Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
 
  According to the post, “This investment is a vote of confidence in the strength of the European tech industry and the potential of European tech talent.”
 
@@ -78,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-uninterrupted-music-with-spotify-in-facebook/"><u>Achieve Uninterrupted Music with Spotify in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-(securityfbcom)-reliable/"><u>Facebook Safety Account Verification: Is <security@fb.com> Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-aggressive-stance-against-eus-facebook-insta/"><u>Understanding Meta's Aggressive Stance Against EU’s Facebook, Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-profiles-and-ppages-why-brands-thrive-with-the-right-choice/"><u>Comparing Profiles & Ppages: Why Brands Thrive with the Right Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-headlines-the-most-important-unspoken-tech-news/"><u>Beyond the Headlines: The Most Important Unspoken Tech News</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-social-media-and-streaming-services-for-spotify/"><u>Bridging Social Media and Streaming Services for Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-surge-in-telegram-users-during-facebook-shutdown/"><u>Unveiling the Surge in Telegram Users During Facebook Shutdown</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Oppo Find N3 Flip? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-easy-to-use-drones-kids-edition/"><u>[Updated] Top 10 Easy-to-Use Drones - Kids Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-premier-media-transformer-mp4-)-fb/"><u>[New] In 2024, Premier Media Transformer  MP4 -> FB</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-trim-videos-like-a-pro-a-step-by-step-guide-to-kapwing-editor/"><u>Updated 2024 Approved Trim Videos Like a Pro A Step-by-Step Guide to Kapwing Editor</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-secrets-for-snatching-unmarked-tiktok-content-on-iphones/"><u>[New] In 2024, Secrets for Snatching Unmarked TikTok Content on iPhones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-step-by-step-building-a-viral-instagram-film-empire/"><u>2024 Approved  Step-by-Step  Building a Viral Instagram Film Empire</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-evaluating-top-screen-capture-software-which-is-superior-obs-or-fraps/"><u>[New] 2024 Approved  Evaluating Top Screen Capture Software  Which Is Superior, OBS or Fraps?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tips-and-tricks-for-streamlining-color-grading-with-luts-in-adobe/"><u>2024 Approved  Tips and Tricks for Streamlining Color Grading with LUTs in Adobe</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-free-to-focused-financial-goals-the-journey-of-ajays-youtube-success-for-2024/"><u>From Free to Focused Financial Goals  The Journey of Ajay’s Youtube Success for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-enhancement-the-top-tactics-for-better-storytelling-for-2024/"><u>[Updated] Instagram Enhancement  The Top Tactics for Better Storytelling for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Keeping Your FB Memories Private: Exclusion Tactics"
-date: 2024-06-20 19:45:14
-updated: 2024-06-23 12:43:27
+date: 2024-06-25T14:26:09.388Z
+updated: 2024-06-26T14:26:09.388Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  Journalist Julia MacFarlane, for instance, got an unpleasant reminder of one of the scarring experiences in her life:
 
- Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer[wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
+ Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer [wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
 
 > Those of us who lived through the death of loved ones, or spent extended time in the hospital, or were hit by divorce or losing a job or any one of a hundred crises, we might not want another look at this past year. To show me Rebecca's face and say "Here's what your year looked like!" is jarring. It feels wrong, and coming from an actual person, it would be wrong. Coming from code, it's just unfortunate. These are hard, hard problems. It isn't easy to programmatically figure out if a picture has a ton of Likes because it's hilarious, astounding, or heartbreaking.
 
@@ -47,9 +47,7 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
-## How to Block Dates or Date Ranges in Facebook Memories
-
-![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+## How to Block Dates or Date Ranges in Facebook Memories ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
@@ -60,19 +58,17 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  That's it, memories from that particular date range won't show up.
 
-## How to Turn Off Facebook Memories Notifications
+## How to Turn Off Facebook Memories Notifications ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
 
-![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-
- You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
+ You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
 1. On a computer browser, click on**Memories** on the left-hand side of your Facebook home screen.
 2. Click**Notifications** .
 3. Choose from**All Memories** ,**Highlights** or**None** .
 
- That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
+ That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for [Facebook Memories](https://www.facebook.com/memories/) .
 
- If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
+ If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's [Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 ## Learn to Live with Your Past
 
@@ -93,3 +89,27 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-high-point-of-facebook-is-it-there-yet/"><u>The High Point of Facebook – Is It There Yet?</u></a></li>
+<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-the-scam-tips-for-facebook-security-hygiene/"><u>Spot the Scam: Tips for Facebook Security Hygiene</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-standard-bot-to-metaai/"><u>The Evolution: From Standard Bot to MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-some-people-want-to-make-instagram-instagram-again/"><u>Why Some People Want to Make Instagram Instagram Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-against-cyber-threats-with-effective-use-of-2fa-on-gmail-and-outlook/"><u>Safeguarding Against Cyber Threats with Effective Use of 2FA on Gmail & Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-every-like-post-and-comment-youve-made-on-facebook/"><u>How to See Every Like, Post, and Comment You've Made on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-cryptocurrencys-steadfastness-stablecoins/"><u>A Closer Look at Cryptocurrency's Steadfastness: Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-depart-with-dignity-ungrouping-on-facebook/"><u>How to Depart with Dignity: Ungrouping on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-7-shooter-games-you-must-play-today-for-2024/"><u>[Updated] Top 7 Shooter Games You Must Play Today for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-compress-iphone-videos-how-to-shorten-without-quality-loss/"><u>2024 Approved  Compress iPhone Videos  How to Shorten Without Quality Loss</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/noise-reduction-for-better-video-experiences-on-youtube/"><u>Noise Reduction for Better Video Experiences on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-step-by-step-walkthrough-of-google-docs-text-conversion/"><u>2024 Approved  Step-by-Step Walkthrough of Google Docs Text Conversion</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-realme-gt-5-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-symphony-silhouette-audio-studio-mac-for-2024/"><u>[New] Symphony Silhouette  Audio Studio Mac for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-best-6-video-dubbing-software-for-pc-for-2024/"><u>Updated Best 6 Video Dubbing Software for PC for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/boost-your-tiktok-presence-advanced-mac-video-techniques-for-2024/"><u>Boost Your TikTok Presence  Advanced Mac Video Techniques for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>In 2024, A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-key-facts-on-youtube-lives-visual-identity/"><u>In 2024, Key Facts on YouTube Live's Visual Identity</u></a></li>
+</ul></div>

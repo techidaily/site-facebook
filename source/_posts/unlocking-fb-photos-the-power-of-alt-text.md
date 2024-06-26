@@ -1,7 +1,7 @@
 ---
 title: "Unlocking FB Photos: The Power of Alt-Text"
-date: 2024-06-20 22:57:53
-updated: 2024-06-23 11:32:22
+date: 2024-06-25T14:39:48.184Z
+updated: 2024-06-26T14:39:48.184Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/3d668bfb6eaaff582ac6a3ef0ec269ab4610d6df4
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App
-
-![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -56,13 +54,11 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web
-
-![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
-1. Log in to[Facebook](https://www.facebook.com) on your browser.
+1. Log in to [Facebook](https://www.facebook.com) on your browser.
 2. Click on**Photo/Video** at the top of your Newsfeed or timeline.
 3. Select the desired photo.
 4. Hover over the photo and click**Edit** .
@@ -72,9 +68,7 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded
-
-![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -114,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-secure-way-to-delete-your-facebook-account-android/"><u>The Secure Way to Delete Your Facebook Account (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-did-sheryl-sandberg-influence-facebook/"><u>How Did Sheryl Sandberg Influence Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-locations-to-uncover-freelancing-gigs/"><u>Critical Locations to Uncover Freelancing Gigs</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-path-to-influence/"><u>Mastering Social Media: Path to Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-unfollowfollow-uses-and-timing/"><u>Understanding FB Unfollow/Follow: Uses & Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/viral-truth-social-platforms-halting-covid-19-fabrications/"><u>Viral Truth: Social Platforms Halting COVID-19 Fabrications</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamped-social-messaging-discover-how-fb-upgrades-apps-like-messenger-and-instagram/"><u>Revamped Social Messaging: Discover How FB Upgrades Apps Like Messenger & Instagram</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-photo-booth-woes-why-videos-halt/"><u>In 2024, Photo Booth Woes  Why Videos Halt?</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-easy-tutorial-how-to-record-and-send-talking-emoji-for-iphone/"><u>Updated Easy Tutorial How to Record and Send Talking Emoji for iPhone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/automate-the-savvy-storage-of-your-social-media-images-for-2024/"><u>Automate the Savvy Storage of Your Social Media Images for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-top-4-morgan-freeman-voice-generator-tools-for-voice-cloning/"><u>New In 2024, Top 4 Morgan Freeman Voice Generator Tools for Voice Cloning</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-14-pro-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 14 Pro in the Best Ways</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/maximize-your-income-winning-at-monetizing-social-media-videos/"><u>Maximize Your Income  Winning at Monetizing Social Media Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-infinite-frontier-the-best-sci-fi-films-that-redefine-universes/"><u>In 2024, Infinite Frontier  The Best Sci-Fi Films That Redefine Universes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-prime-time-the-top-10-windows-webcam-recorders/"><u>In 2024, Prime Time  The Top 10 Windows Webcam Recorders</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-bambuser-intro-video-summary-width-x-height-encoding-seconds-for-2024/"><u>[New] Bambuser Intro Video Summary  Width X Height, Encoding, Seconds for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-high-performance-mac-editors-ranked-1-to-5/"><u>[Updated] High-Performance Mac Editors - Ranked #1 to #5</u></a></li>
+</ul></div>

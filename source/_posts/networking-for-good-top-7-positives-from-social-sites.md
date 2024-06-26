@@ -1,7 +1,7 @@
 ---
 title: "Networking for Good: Top 7 Positives From Social Sites"
-date: 2024-06-20 13:15:11
-updated: 2024-06-23 12:56:19
+date: 2024-06-25T13:43:47.472Z
+updated: 2024-06-26T13:43:47.472Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends
-
-![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -33,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy
-
-![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -49,13 +45,11 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication
-
-![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
- Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with[social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
+ Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with [social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
 
  Writing a Tweet takes all of 20 seconds, and with cross-posting to other social networks switched on, that update can reach everyone you want it to reach (and probably more besides) in an instant.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller
-
-![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -77,9 +69,7 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships
-
-![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -87,13 +77,11 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
  Social networks can put you (back) in touch with people who you have lots in common with, and that common ground is often the starting point for long-lasting relationships.
 
- As painful as breakups can be (even with the help of[breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
+ As painful as breakups can be (even with the help of [breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster
-
-![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -107,9 +95,7 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground
-
-![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -140,3 +126,22 @@ thumbnail: https://thmb.techidaily.com/cf39f69dc8e53bbf12e067db4360c2c57f8f63b26
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-governments-target-mega-corporations-in-the-digital-age/"><u>Why Governments Target Mega-Corporations in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-growth-in-tech-spending-for-cybersecurity-on-facebook/"><u>Analyzing the Growth in Tech Spending for Cybersecurity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-incidents-social-network-sector/"><u>Hacking Incidents: Social Network Sector</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-a-look-at-the-core-of-facebook-papers/"><u>Digging Deeper: A Look at the Core of Facebook Papers</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-top-8-best-daw-for-hip-hop-music-production-for-2024/"><u>New Top 8 Best DAW for Hip Hop Music Production for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-xiaomi-redmi-12-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Xiaomi Redmi 12 Activity | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-fcps-ultimate-effect-upgrade-the-best-10-plugins/"><u>2024 Approved  FCP’s Ultimate Effect Upgrade  The Best 10 Plugins</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-reviving-obs-camera-glitches/"><u>[Updated] 2024 Approved  Reviving OBS Camera Glitches</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/understanding-and-utilizing-igtv-for-enhanced-engagement-for-2024/"><u>Understanding and Utilizing IGTV for Enhanced Engagement for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-find-out-the-best-animated-text-video-tools-and-learn-how-to-animate-text-in-a-video-in-simple-steps-discover-the-best-fonts-to-animate-text-along-w/"><u>Updated Find Out the Best Animated Text Video Tools and Learn How to Animate Text in a Video in Simple Steps. Discover the Best Fonts to Animate Text Along with the Text Animation Templates</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-tecno-camon-20-premier-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Tecno Camon 20 Premier 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-iphone-6-plus-by-drfone-ios/"><u>In 2024, Top 11 Free Apps to Check IMEI on iPhone 6 Plus</u></a></li>
+</ul></div>

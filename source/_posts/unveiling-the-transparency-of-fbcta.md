@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Transparency of FBCTA
-date: 2024-06-20 21:45:18
-updated: 2024-06-23 11:35:22
+date: 2024-06-25T14:28:28.646Z
+updated: 2024-06-26T14:28:28.646Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/762eb58aca659c7ab398016eac456ae67d371642f
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
- Or, as stated by lawmakers in the[proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
+ Or, as stated by lawmakers in the [proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
 
 > To require that internet platforms give users the option to engage with a platform without being manipulated by algorithms driven by userspecific data.
 
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/762eb58aca659c7ab398016eac456ae67d371642f
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
-## How the Filter Bubble Transparency Act Could Affect You
-
-![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+## How the Filter Bubble Transparency Act Could Affect You ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -76,3 +74,24 @@ thumbnail: https://thmb.techidaily.com/762eb58aca659c7ab398016eac456ae67d371642f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-standard-bot-to-metaai/"><u>The Evolution: From Standard Bot to MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/improving-loading-performance-of-facebook-alertsposts/"><u>Improving Loading Performance of Facebook Alerts/Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-potential-data-misuse-on-your-devices/"><u>Beware! Potential Data Misuse on Your Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/reacquiring-facebook-login-post-code-loss-scenario/"><u>Reacquiring Facebook Login Post-Code Loss Scenario</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-approach-timeline-for-end-to-end-encryption-in-fb-messenger/"><u>Privacy-First Approach: Timeline for End-to-End Encryption in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adapts-to-the-changes-from-ios-145-update/"><u>Facebook Adapts to the Changes From iOS 14.5 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-to-dodge-typical-social-media-buying-pitfalls/"><u>Essential Tips to Dodge Typical Social Media Buying Pitfalls</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sound-identity-shift-for-free-fire-characters-no-money-required/"><u>Sound Identity Shift for Free Fire Characters - No Money Required</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-samsung-galaxy-a14-4g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Samsung Galaxy A14 4G</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-11-pro-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 11 Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unveiling-the-25-most-followed-insta-prodigies/"><u>[New] In 2024, Unveiling the 25 Most-Followed Insta Prodigies</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-pova-6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-master-premiere-pro-custom-sequence-presets/"><u>Updated Master Premiere Pro Custom Sequence Presets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-chuckle-factory-designing-7-video-ideas-for-humorists/"><u>[Updated] Chuckle Factory  Designing 7 Video Ideas for Humorists</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionizing-advertising-top-20-influential-expressions-for-2024/"><u>Revolutionizing Advertising  Top 20 Influential Expressions for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-leveraging-facebooks-potential-the-most-effective-video-ad-approaches/"><u>In 2024, Leveraging Facebook's Potential  The Most Effective Video Ad Approaches</u></a></li>
+</ul></div>

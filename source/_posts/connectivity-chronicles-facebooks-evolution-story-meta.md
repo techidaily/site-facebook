@@ -1,7 +1,7 @@
 ---
 title: "Connectivity Chronicles: Facebook's Evolution Story, Meta"
-date: 2024-06-20 18:53:38
-updated: 2024-06-23 11:51:51
+date: 2024-06-25T14:08:47.260Z
+updated: 2024-06-26T14:08:47.260Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  Here, we'll take a look at the evolution of the American tech giant, from its humble beginnings in 2004 to its steps into the metaverse today.
 
-## 2004–2006: The Origin Story of Facebook
-
-![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
+## 2004–2006: The Origin Story of Facebook ![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
 
  Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
 
@@ -31,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
-## 2007–2009: The Inception of the Facebook Like Button
-
-![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
+## 2007–2009: The Inception of the Facebook Like Button ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
@@ -41,9 +37,7 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
-## 2010–2012: Facebook Goes Public
-
-![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
+## 2010–2012: Facebook Goes Public ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
@@ -51,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
-## 2013–2015: Facebook Enters New Territories
-
-![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
+## 2013–2015: Facebook Enters New Territories ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -61,11 +53,9 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  In 2013, Facebook became a Fortune 500 company; this milestone clarified how popular the company has truly become. The same year, the company launched new features, like Videos and Direct on Instagram.
 
- On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
+ On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know [how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
-## 2016–2018: Controversies and Scandals
-
-![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+## 2016–2018: Controversies and Scandals ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -77,23 +67,19 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-## 2019–2021: Rebranding to Meta Backfires
-
-![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+## 2019–2021: Rebranding to Meta Backfires ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
 
- In 2020, the company acquired GIPHY for $400 million and launched WhatsApp Payments, Instagram Reels, and other upgrades to its subsidiaries. But again, it became the talk of the town when it[changed WhatsApp's privacy policy](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) in February 2021\. The new privacy policy included sharing WhatsApp users' data with Facebook.
+ In 2020, the company acquired GIPHY for $400 million and launched WhatsApp Payments, Instagram Reels, and other upgrades to its subsidiaries. But again, it became the talk of the town when it [changed WhatsApp's privacy policy](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) in February 2021\. The new privacy policy included sharing WhatsApp users' data with Facebook.
 
- Unsurprisingly, this led a chunk of users to switch to other apps. However, barely affected by this, Facebook realized a peak market value of $1 trillion on June 28, 2021\. In October, a[global outage of Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) resulted in a loss of $6 billion.
+ Unsurprisingly, this led a chunk of users to switch to other apps. However, barely affected by this, Facebook realized a peak market value of $1 trillion on June 28, 2021\. In October, a [global outage of Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) resulted in a loss of $6 billion.
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
-## 2022 and Beyond: Layoffs, Chaos, and Recovery
-
-![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
+## 2022 and Beyond: Layoffs, Chaos, and Recovery ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
@@ -101,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/ac89aae2a326978b0ae60bac11755067574f83eed
 
 What comes next? Massive layoffs.
 
- We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+ We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that [no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -124,3 +110,26 @@ What comes next? Massive layoffs.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-battle-for-better-business-connections-linkedin-vs-facebook/"><u>The Battle for Better Business Connections: LinkedIn Vs. Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-facebook-flip-when-to-follow-when-not-to-unfollow/"><u>Mastering the Facebook Flip: When to Follow, When Not to Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-your-hands-on-gaming-and-online-connectivity-on-xbox/"><u>Harmonizing Your Hands-On Gaming and Online Connectivity on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-monitor-youth-activity-within-social-media-networks/"><u>Steps to Monitor Youth Activity Within Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-capitalize-on-your-tracks-through-facebooks-shared-earnings/"><u>How to Capitalize on Your Tracks Through Facebook's Shared Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-social-presence-identifying-breaches/"><u>Securing Your Social Presence: Identifying Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-photodna-a-comparative-analysis-tool/"><u>Unveiling PhotoDNA: A Comparative Analysis Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-big-with-these-5-facebook-and-instagram-hacks/"><u>Earn Big with These 5 Facebook and Instagram Hacks</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-realme-gt-neo-5-se-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maintaining-the-right-video-aspect-on-twitters-for-2024/"><u>[Updated] Maintaining the Right Video Aspect on Twitters for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-top-list-best-vhs-sound-effect-that-you-can-use-in-video-making/"><u>In 2024, Top List Best VHS Sound Effect That You Can Use in Video Making</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-straightforward-video-recorders-for-win10/"><u>[Updated] In 2024, Straightforward Video Recorders for Win10</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-top-11-budget-friendly-recorders-for-vloggers/"><u>In 2024, Top 11 Budget-Friendly Recorders for Vloggers</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-amass-1000-visionary-supporters-fast-track-style/"><u>[New] Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-dark-side-of-digital-content-profitability-for-2024/"><u>The Dark Side of Digital Content Profitability for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-activation-lock-on-mac-for-iphone-xr-by-drfone-ios/"><u>In 2024, How To Bypass iCloud Activation Lock on Mac For iPhone XR?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-beat-the-hype-30-tiktok-inspired-deals-at-amazon-for-2024/"><u>[New] Beat the Hype - 30 TikTok-Inspired Deals at Amazon for 2024</u></a></li>
+</ul></div>

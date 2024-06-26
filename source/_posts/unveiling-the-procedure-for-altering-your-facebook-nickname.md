@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Procedure for Altering Your Facebook Nickname
-date: 2024-06-20 16:51:28
-updated: 2024-06-23 11:46:19
+date: 2024-06-25T14:28:26.630Z
+updated: 2024-06-26T14:28:26.630Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/instagram-20-redux-a-strategic-makeover/"><u>Instagram 2.0 Redux: A Strategic Makeover?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-completely-removing-fb-alerts/"><u>Tips for Completely Removing Fb Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-10-facts-on-russias-internet-culture-hub/"><u>What Is VK?: 10 Facts on Russia’s Internet Culture Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-board-plans-trump-suspension-reevaluation/"><u>FB Board Plans Trump Suspension Reevaluation</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-erasing-your-fb-watch-history/"><u>Understanding & Erasing Your FB Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-personal-brand-reformation-on-social-media/"><u>Unveiling the Secrets to Personal Brand Reformation on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-event-creation-on-facebook-with-ease/"><u>Navigating Event Creation on Facebook with Ease</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-fix-for-gopro-fisheye-problems/"><u>[Updated] The Ultimate Fix for GoPro Fisheye Problems</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-magic-5-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-childhood-chuckles-hilarious-kid-friendly-games-for-2024/"><u>[New] Childhood Chuckles  Hilarious Kid-Friendly Games for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-correct-disconnected-instagram-stories/"><u>[New] 2024 Approved  Correct Disconnected Instagram Stories</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-design-innovators-club-exclusive-free-text-psdfree/"><u>[Updated] In 2024, Design Innovators Club  Exclusive Free Text PSDFree</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-japanese-aesthetics-on-the-go-applying-anime-filters-to-snaps-for-2024/"><u>[New] Japanese Aesthetics on the Go  Applying Anime Filters to Snaps for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-craft-channels-with-flair-unveiling-10-innovative-design-platforms/"><u>[New] Craft Channels with Flair  Unveiling 10 Innovative Design Platforms</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/gratis-android-capture-free-your-devices-potential/"><u>Gratis Android Capture  Free Your Device's Potential</u></a></li>
+</ul></div>

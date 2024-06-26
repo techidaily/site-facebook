@@ -1,7 +1,7 @@
 ---
 title: "Next Step: Facebook Suggests Social Pause for Youths"
-date: 2024-06-21 12:11:31
-updated: 2024-06-23 10:51:16
+date: 2024-06-25T14:29:59.708Z
+updated: 2024-06-26T14:29:59.708Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/new-horizons-in-earnings-instagram-enhances-artist-profits/"><u>New Horizons in Earnings: Instagram Enhances Artist Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-fact-based-online-world-during-the-outbreak/"><u>Building a Fact-Based Online World During the Outbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-metaverse-landscape-an-introduction/"><u>Exploring The Metaverse Landscape: An Introduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-clickbait-exposing-truth-in-facebook-lore/"><u>Beyond the Clickbait: Exposing Truth in Facebook Lore</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-important-tech-news-stories-you-might-have-missed/"><u>4 Important Tech News Stories You Might Have Missed</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-visuals-mastering-hd-content-postings/"><u>Facebook for Visuals: Mastering HD Content Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-passage-navigating-loved-ones-facebook-after-death-process/"><u>Safe Passage: Navigating Loved Ones' Facebook After Death Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-a-unique-avatar-for-social-media/"><u>Constructing a Unique Avatar for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-user-engagement-facebook-vs-apple-with-custom-linkages/"><u>Revolutionizing User Engagement: Facebook Vs. Apple with Custom Linkages</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-financial-finesse-top-business-strategy-titles-reviewed/"><u>[Updated] In 2024, Financial Finesse  Top Business Strategy Titles Reviewed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-craftsmits-and-cinematography-precision-in-aspect-ratios/"><u>2024 Approved  Craftsmits and Cinematography  Precision in Aspect Ratios</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/best-video-translator-app-for-pc-cannot-miss-for-2024/"><u>Best Video Translator App for PC Cannot Miss for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/obs-or-wirecast-your-ultimate-guide-to-broadcast-software/"><u>OBS or Wirecast? Your Ultimate Guide to Broadcast Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-becoming-a-top-youtuber-with-gaming-livestreams/"><u>[Updated] In 2024, Becoming a Top YouTuber with Gaming Livestreams</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-efficiently-enhance-your-tiktok-videos-speed-for-2024/"><u>[Updated] Efficiently Enhance Your TikTok Videos' Speed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-a-beginners-pathway-for-live-streaming-pre-recorded-content/"><u>[Updated] 2024 Approved  A Beginner's Pathway for Live Streaming Pre-Recorded Content</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-itel-s23plus-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Itel S23+?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-start-with-strategy-launching-an-online-dominant-gaming-channel/"><u>[New] In 2024, Start with Strategy  Launching an Online Dominant Gaming Channel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-ignoring-ig-suggestions/"><u>[Updated] In 2024, Mastering the Art of Ignoring IG Suggestions</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "The Metaverse Unfolded: Six Significant Shifts in Facebook's New World"
-date: 2024-06-21 17:49:21
-updated: 2024-06-23 10:36:23
+date: 2024-06-25T13:54:05.214Z
+updated: 2024-06-26T13:54:05.214Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ The economic and commercial potential of the Metaverse is enormous.
 
  Since it's an entire virtual world, users will be able to set up shop and purchase items for use not only in their avatars and Meta experiences, but also in the real world.
 
- With[cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and[NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
+ With [cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and [NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
 
  Virtual merch, concert tickets, cars, decor, and houses are some of the items we can expect to be created and sold in the Metaverse. People can pay to watch movies in a private virtual theater with their friends or explore meticulously designed online scenarios. Also, brands can capitalize on this offering to create exclusive tokens for their customers to access an experience or sales offer.
 
@@ -75,7 +75,7 @@ That brings us to our next Meta advantage.
 
  Related:[Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
- Although most[Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
+ Although most [Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
 
  Zuck says Meta is all about 'building responsibly.' For all of Meta's promised experiences, there is an emphasis on interoperability, open standards, privacy, and security. Given that Meta is still a rebrand of the Facebook company and has access to tons of user data, it's unclear how that would play out.
 
@@ -108,3 +108,24 @@ That brings us to our next Meta advantage.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/legal-boundaries-redefined-as-germany-restricts-facebook-from-harvesting-whatsapp-data/"><u>Legal Boundaries Redefined as Germany Restricts Facebook From Harvesting WhatsApp Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shifting-landscape-tiktok-overtaking-facebooks-market-share/"><u>The Shifting Landscape: TikTok Overtaking Facebook's Market Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-stress-navigating-the-signals-9-warnings-of-account-breach/"><u>Social Security Stress: Navigating the Signals (9 Warnings) of Account Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-social-media-giants-wearable-device/"><u>Behind the Scenes: Social Media Giant's Wearable Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-non-playing-vids-quick-fixes-for-facebook-issues/"><u>Halt Non-Playing Vids: Quick Fixes for Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mysteries-of-filter-bubble-act/"><u>Unraveling the Mysteries of Filter Bubble Act</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-minicam-snapshot-review-and-substitutes/"><u>[New] In 2024, MiniCam Snapshot Review and Substitutes</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-vivo-y78t-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Vivo Y78t FRP In 3 Different Ways</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/temporal-twist-mastering-video-flipping-in-snapchat-for-2024/"><u>Temporal Twist  Mastering Video Flipping in Snapchat for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-seamless-instagram-to-mp4-conversion-on-any-operating-system/"><u>In 2024, Seamless Instagram to MP4 Conversion on Any Operating System</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-pushing-boundaries-camera-capabilities-in-ios-11/"><u>2024 Approved  Pushing Boundaries  Camera Capabilities in iOS 11</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-add-filter-to-video-online/"><u>How to Add Filter to Video Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-oceans-bounty-best-cameras-for-anglers/"><u>2024 Approved  Ocean's Bounty - Best Cameras for Anglers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Xiaomi Redmi K70E | Dr.fone</u></a></li>
+</ul></div>

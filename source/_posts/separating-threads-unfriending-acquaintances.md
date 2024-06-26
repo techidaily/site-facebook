@@ -1,7 +1,7 @@
 ---
 title: "Separating Threads: Unfriending Acquaintances"
-date: 2024-06-21 23:59:55
-updated: 2024-06-23 12:45:27
+date: 2024-06-25T14:43:18.256Z
+updated: 2024-06-26T14:43:18.256Z
 tags:
   - facebook
 categories:
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/4da3de972356b3a0046491847cf09381445449045
 * Facebook will not notify the individual you choose to take a break from.
 * There's no limit to how long you can take a break, so you'll have to remember to manually revert the changes if you change your mind in the future.
 
- By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
+ By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or [blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
 ## How to Take a Break From Someone on Facebook
 
@@ -87,7 +87,7 @@ Here, you'll find three options.
 2. The second option is labeled**Edit individual posts** —this option helps you to individually edit posts you are tagged in.
 3. The third option is labeled**Edit all my posts and posts that I'm tagged in.** Use this option to untag yourself from every post you have in common with the friend you want to take a break from. To do this, simply tap on the option and then tap**Done** to save the changes.
 
- If you're using Facebook on the web, you can bypass navigating through menus by visiting the[Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on[how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ If you're using Facebook on the web, you can bypass navigating through menus by visiting the [Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on [how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
@@ -95,7 +95,7 @@ Here, you'll find three options.
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
 
-* Visit the[Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
+* Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
@@ -142,3 +142,23 @@ Here, you'll find three options.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-fb-news-feed-and-notifications-display/"><u>Fixing Erratic FB News Feed and Notifications Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/insta-collage-creation-tips-for-engaging-online-portfolits/"><u>Insta-Collage Creation: Tips for Engaging Online Portfolits</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-you-turn-off-facebooks-in-app-browser-how-it-works/"><u>Can You Turn Off Facebook's In-App Browser? How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-fb-contact-details-steps-included/"><u>Altering FB Contact Details: Steps Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-shadows-in-social-media-space/"><u>Understanding the Shadows in Social Media Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-on-facebook-three-pivotal-warnings-to-consider/"><u>Metaverse on Facebook: Three Pivotal Warnings to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-changing-landscape-four-key-loss-triggers/"><u>Facebook's Changing Landscape: Four Key Loss Triggers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-audio-extraction-guide-for-updated-mkv-files-mkv-2023-edition-for-2024/"><u>Updated Audio Extraction Guide for Updated MKV Files (MKV-2023 Edition) for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-are-you-looking-to-enhance-your-video-or-photo-colors-using-premiere-luts-get-to-know-about-the-best-free-lut-effects-to-get-started-for-2024/"><u>New Are You Looking to Enhance Your Video or Photo Colors Using Premiere LUTs? Get to Know About the Best Free LUT Effects to Get Started for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/harmonizing-content-with-youtubes-ideal-video-shapes/"><u>Harmonizing Content with YouTube's Ideal Video Shapes</u></a></li>
+<li><a href="https://techidaily.com/sony-xperia-10-v-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Sony Xperia 10 V Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-elevate-engagement-with-these-10-igtv-branding-techniques/"><u>[Updated] Elevate Engagement with These 10 IGTV Branding Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-youtube-phenomenon-forecast/"><u>[New] YouTube Phenomenon Forecast</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-quiet-zone-mastering-the-craft-of-muting-unwanted-web-based-sounds-for-2024/"><u>The Quiet Zone Mastering the Craft of Muting Unwanted Web-Based Sounds for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-video-editing-mastery-a-beginners-guide-to-online-download-and-editing/"><u>New In 2024, Video Editing Mastery A Beginners Guide to Online Download and Editing</u></a></li>
+</ul></div>

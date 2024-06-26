@@ -1,7 +1,7 @@
 ---
 title: "The Invisible Layers: Etiquette and Norms in FB Connections"
-date: 2024-06-22 18:38:56
-updated: 2024-06-23 11:53:29
+date: 2024-06-25T13:55:04.209Z
+updated: 2024-06-26T13:55:04.209Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
-## How to Find Out Whether Someone Denied Your Facebook Friend Request
-
-![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
+## How to Find Out Whether Someone Denied Your Facebook Friend Request ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
@@ -55,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
 
 ## Unfollowing vs. Unfriending on Facebook
 
- Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
+ Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on [following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
 
  From your Feed (**Home**) find a post from your overactive friend, click the arrowhead in the top right to expand the post menu, and click**Unfollow** . If you think the activity is only temporary, you can also snooze their messages for 30 days.
 
@@ -71,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/f2db6799877945629968cd53153eb704a207aecfe
 
 ### 1\. Only Add People You Know
 
- Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its[Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
+ Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its [Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
 
  Consequently, Facebook might block you from sending friend requests for some time.
 
@@ -155,7 +153,7 @@ Keep in mind that if you do this, the person may be penalized.
 
 ### 2\. You Blocked the Other Person
 
- You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
+ You can't friend someone you've blocked. See if you can [unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
@@ -165,13 +163,13 @@ Keep in mind that if you do this, the person may be penalized.
 
  Neither you, nor your friend-to-be, can have more than 5,000 friends on Facebook. If one of you has crossed that limit, you can't send each other friend requests.
 
- If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
+ If you have too many friends, consider [converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
 
- According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
+ According to [the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
 
@@ -196,3 +194,22 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-the-digital-evolution-understanding-metaverse-in-fb/"><u>Embracing the Digital Evolution: Understanding Metaverse in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-listeners-guide-to-2022s-podcast-powerhouses/"><u>The Ultimate Listener's Guide to 2022'S Podcast Powerhouses</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-fact-based-online-world-during-the-outbreak/"><u>Building a Fact-Based Online World During the Outbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-digital-identity-change-your-facebook-pic/"><u>Mastery over Digital Identity: Change Your Facebook Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-checklist-for-producing-high-quality-facebook-reels/"><u>The Ultimate Checklist for Producing High-Quality Facebook Reels</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-7-without-passcode-by-drfone-ios/"><u>How to Unlock Apple iPhone 7 Without Passcode?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-take-control-of-your-instagram-content/"><u>[Updated] Take Control of Your Instagram Content</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-discover-the-premier-5-audio-cutting-software-on-android-devices/"><u>Updated In 2024, Discover the Premier 5 Audio Cutting Software on Android Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-samsung-galaxy-a25-5g-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Samsung Galaxy A25 5G Fingerprint Lock</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-samsung-galaxy-xcover-6-pro-tactical-edition-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Samsung Galaxy XCover 6 Pro Tactical Edition Devices</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/mastering-sound-separation-techniques-for-isolating-audio-from-videos-for-2024/"><u>Mastering Sound Separation Techniques for Isolating Audio From Videos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Vivo Y78t? | Dr.fone</u></a></li>
+</ul></div>

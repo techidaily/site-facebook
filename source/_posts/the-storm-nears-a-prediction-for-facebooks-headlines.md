@@ -1,7 +1,7 @@
 ---
 title: "The Storm Nears: A Prediction for Facebook's Headlines"
-date: 2024-06-21 15:48:41
-updated: 2024-06-23 10:59:56
+date: 2024-06-25T14:11:19.170Z
+updated: 2024-06-26T14:11:19.170Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/4ef2c771bab22f6200bc44d813f92a02921f5f21b
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,23 @@ thumbnail: https://thmb.techidaily.com/4ef2c771bab22f6200bc44d813f92a02921f5f21b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-best-networking-sites-for-business/"><u>Revolutionizing Relationships: Best Networking Sites for Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-success-understanding-facebooks-music-revenue-model/"><u>Tune Into Success: Understanding Facebook's Music Revenue Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-10k-groups-might-cause-amazon-to-sue/"><u>Why 10K Groups Might Cause Amazon to Sue</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-oppo-a38-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Oppo A38 Phone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-role-of-narrative-in-popularizing-your-haul-vlogs/"><u>In 2024, The Role of Narrative in Popularizing Your Haul Vlogs</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-high-quality-4k-video-editing-on-a-budget-free-software-solutions/"><u>In 2024, High-Quality 4K Video Editing on a Budget Free Software Solutions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-dont-make-these-mistakes-tips-for-converting-mp3-to-mp4-successfully-for-2024/"><u>Updated Dont Make These Mistakes Tips for Converting MP3 to MP4 Successfully for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-free-limit-breakers-for-every-story-lover-for-2024/"><u>[Updated] Free Limit Breakers for Every Story Lover for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oneplus-12-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass OnePlus 12 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-how-to-create-cinematic-style-videos/"><u>In 2024, How to Create Cinematic Style Videos?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-itel-a60s-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Itel A60s Quickly? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-104-chuckle-inducing-tiktok-skits-for-all-ages/"><u>In 2024, 104 Chuckle-Inducing TikTok Skits for All Ages</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Count of Friends Liking You Online
-date: 2024-06-20 17:49:57
-updated: 2024-06-23 10:53:10
+date: 2024-06-25T14:18:46.242Z
+updated: 2024-06-26T14:18:46.242Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/6f7d0e2a43b07618a84ad4bb4532a87360d4eb5cc
 
 ## How to See Who Follows You on Facebook on Mobile
 
- The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
+ The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have [followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
@@ -56,7 +56,7 @@ Close
 
  Moreover, you won't get the option to check your Facebook followers if you don't have any. Consequently, you won't see your followers even if you've followed the above steps, as there are none to see.
 
- You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
+ You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to [switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
@@ -116,3 +116,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/donald-trumps-fight-free-speech-vs-tech-overreach/"><u>Donald Trump's Fight: Free Speech Vs. Tech Overreach</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-the-risks-of-befriending-unknowns-online/"><u>Top 10: The Risks of Befriending Unknowns Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-missteps-in-virtual-vending-identifying-scams-and-safeguarding-self/"><u>Avoid Missteps in Virtual Vending: Identifying Scams & Safeguarding Self</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-apples-reluctance-to-enter-metaverse-arena/"><u>Analyzing Apple's Reluctance to Enter Metaverse Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-an-expert-in-facebooks-visual-communication/"><u>Becoming an Expert in Facebook’s Visual Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-intrusions-social-media-statistics/"><u>Cyber Intrusions: Social Media Statistics</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-4-trends-impacting-facebook-users/"><u>Examining 4 Trends Impacting Facebook Users</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-free-video-editing-solutions-for-32-bit-windows-users/"><u>New In 2024, Free Video Editing Solutions for 32-Bit Windows Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/simplify-media-handling-with-top-18-free-converters-for-windowsmacos-users/"><u>Simplify Media Handling With Top 18 Free Converters For Windows/macOS Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-shutter-wisdom-tips-for-astounding-image-finishes/"><u>2024 Approved  Shutter Wisdom  Tips for Astounding Image Finishes</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-leveraging-visuals-in-your-social-media-journey-with-facebook-reels/"><u>[New] Leveraging Visuals in Your Social Media Journey with Facebook Reels</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-demystifying-youtubes-seo-a-keyword-research-guide/"><u>[Updated] Demystifying YouTube's SEO  A Keyword Research Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-nokia-c22-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Nokia C22 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/master-recommendations-elite-ios-sound-artists-for-2024/"><u>Master Recommendations  Elite iOS Sound Artists for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-innovative-windows-media-cutting-tools/"><u>[Updated] Innovative Windows Media Cutting Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-starting-out-key-equipment-and-software-for-vlogging/"><u>[Updated] Starting Out  Key Equipment & Software for Vlogging</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme Note 50 | Dr.fone</u></a></li>
+</ul></div>

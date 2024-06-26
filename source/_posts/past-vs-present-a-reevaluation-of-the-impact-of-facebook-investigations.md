@@ -1,7 +1,7 @@
 ---
 title: "Past vs Present: A Reevaluation of The Impact of Facebook Investigations"
-date: 2024-06-22 20:12:28
-updated: 2024-06-23 11:45:28
+date: 2024-06-25T13:54:47.420Z
+updated: 2024-06-26T13:54:47.420Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/0afc969a260468b6e52b6a33d1ca7e6eed63bd07e
 
  Here, we'll take a look at some reasons The Facebook Papers aren't as damning as they may first seem.
 
-**Note:** The Facebook Papers were released before[Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
+**Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
@@ -43,13 +43,13 @@ thumbnail: https://thmb.techidaily.com/0afc969a260468b6e52b6a33d1ca7e6eed63bd07e
 
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
- When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
+ When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
 
  Now, you can see why the reports are all photo-based, it's much easier to take a sneaky photo with your phone than it is to suspiciously copy files to a thumb drive.
 
  But, this fact means we have to give Facebook some benefit of the doubt. As you'll have no doubt seen, one of Facebook's reasons for denying the reports is that they mischaracterize the company by not providing the full context.
 
-> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by[Mark Zuckerberg](https://www.facebook.com/zuck) on[Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
+> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by [Mark Zuckerberg](https://www.facebook.com/zuck) on [Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
 
  While at first that may just sound like an excuse, Facebook is actually right. With just photos of select parts of documents, nobody (outside of Facebook) has read the documents in full.
 
@@ -102,3 +102,23 @@ thumbnail: https://thmb.techidaily.com/0afc969a260468b6e52b6a33d1ca7e6eed63bd07e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-see-every-like-post-and-comment-youve-made-on-facebook/"><u>How to See Every Like, Post, and Comment You've Made on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-administrative-errors-the-spark-for-amazon-litigation/"><u>Facebook's Administrative Errors: The Spark for Amazon Litigation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-second-chance-for-llife-amidst-emerging-metaverse-innovations/"><u>A Second Chance for LLife Amidst Emerging Metaverse Innovations?</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-your-timelines-past-content/"><u>Diving Into Your Timeline's Past Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-user-exodus-from-the-worlds-largest-network/"><u>Deciphering the User Exodus From the World’s Largest Network</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-exclusive-techniques-for-monitoring-and-logging-whatsapp-conversations/"><u>In 2024, Exclusive Techniques for Monitoring and Logging WhatsApp Conversations</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-navigating-instagram-reels-a-comprehensive-guide/"><u>[Updated] 2024 Approved  Navigating Instagram Reels  A Comprehensive Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-photos-from-motorola-moto-g-stylus-2023-by-fonelab-android-recover-photos/"><u>Possible solutions to restore deleted photos from Motorola Moto G Stylus (2023).</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-immersive-ventures-how-google-cardboard-stacks-up-against-samsung-vr/"><u>[Updated] Immersive Ventures  How Google Cardboard Stacks Up Against Samsung VR</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/apex-sites-for-rich-3d-experiences-with-lustrous-text-art/"><u>Apex Sites for Rich 3D Experiences with Lustrous Text Art</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-cutting-edge-approaches-for-secure-and-precise-call-logging/"><u>[Updated] 2024 Approved  Cutting-Edge Approaches for Secure and Precise Call Logging</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/reel-it-in-techs-video-harvest-for-2024/"><u>Reel It In  Tech's Video Harvest for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/keeping-the-chuckles-stealing-twitters-gif-content/"><u>Keeping the Chuckles  Stealing Twitter's GIF Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-10-best-music-video-hits-on-social-media-platform/"><u>[Updated] In 2024, 10 Best Music Video Hits on Social Media Platform</u></a></li>
+</ul></div>

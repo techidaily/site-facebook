@@ -1,7 +1,7 @@
 ---
 title: Trouble Brewing as Trust Fades in Giant Internet Firms
-date: 2024-06-22 12:37:11
-updated: 2024-06-23 12:12:13
+date: 2024-06-25T14:36:57.875Z
+updated: 2024-06-26T14:36:57.875Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,26 @@ thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-politics-and-religion-free-profile-spaces/"><u>Clean Slate: Politics and Religion-Free Profile Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-presence-incorporating-your-avatar-in-covers/"><u>Enhancing Your Social Media Presence: Incorporating Your Avatar in Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-facebooks-annual-reflection-tool/"><u>Unlocking the Power of Facebook’s Annual Reflection Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-social-footprint-tracking-all-facebook-interactions/"><u>Maximizing Your Social Footprint: Tracking All Facebook Interactions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mobile-vr-headsets-showdown-the-top-10/"><u>In 2024, Mobile VR Headsets Showdown  The Top 10</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-uniting-platforms-efficiently-share-fb-videos-to-whatsapp/"><u>2024 Approved  Uniting Platforms  Efficiently Share FB Videos to WhatsApp</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/navigating-virtual-escapes-tour-techniques/"><u>Navigating Virtual Escapes  Tour Techniques</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-infinix-zero-30-5g-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Infinix Zero 30 5G on Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-leveraging-snapkit-a-tactical-approach/"><u>[Updated] Leveraging SnapKit  A Tactical Approach</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/superior-websites-to-ditch-twitter-completely-for-2024/"><u>Superior Websites to Ditch Twitter Completely for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-definitive-tips-for-capturing-spectaculux-tiktok-videos-for-2024/"><u>The Definitive Tips for Capturing Spectaculux TikTok Videos for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Motorola Moto G34 5G | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Community Strengthened by 7 Social Innovations
-date: 2024-06-22 10:24:15
-updated: 2024-06-23 10:28:25
+date: 2024-06-25T14:15:02.808Z
+updated: 2024-06-26T14:15:02.808Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends
-
-![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -33,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy
-
-![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -49,13 +45,11 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication
-
-![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
- Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with[social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
+ Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with [social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
 
  Writing a Tweet takes all of 20 seconds, and with cross-posting to other social networks switched on, that update can reach everyone you want it to reach (and probably more besides) in an instant.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller
-
-![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -77,9 +69,7 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships
-
-![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -87,13 +77,11 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
  Social networks can put you (back) in touch with people who you have lots in common with, and that common ground is often the starting point for long-lasting relationships.
 
- As painful as breakups can be (even with the help of[breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
+ As painful as breakups can be (even with the help of [breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster
-
-![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -107,9 +95,7 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground
-
-![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -140,3 +126,23 @@ thumbnail: https://thmb.techidaily.com/26fc91ea31b084d9024cbf2c3260379dfbc09b55f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-scene-top-tips-for-a-personalized-fb-experience/"><u>Tailoring Your Social Scene: Top Tips for a Personalized FB Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-sports-titans-forfeit-social-media-presence-amid-abuse-backlash/"><u>UK Sports Titans Forfeit Social Media Presence Amid Abuse Backlash</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-non-harmful-social-engagement-online/"><u>Mastering The Art of Non-Harmful Social Engagement Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-online-identity-free-from-politicalreligious-bias/"><u>New Era of Online Identity: Free From Political/Religious Bias</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-economy-of-eyeing-us-from-afar/"><u>The Economy of Eyeing Us From Afar</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-photo-and-video-streaming-from-android-to-iphone/"><u>[Updated] 2024 Approved  Photo & Video Streaming From Android to iPhone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-11-pro-max-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 11 Pro Max</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-the-full-potential-of-zoom-on-your-google-meet-calls/"><u>2024 Approved  Unlocking the Full Potential of Zoom on Your Google Meet Calls</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-halt-real-time-audiovideo-capturing-on-apples-platform/"><u>In 2024, Halt Real-Time Audio/Video Capturing on Apple's Platform</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-cutting-edge-tools-for-podcasters-a-guide-to-the-best-free-and-paid-audio-editing-software-on-the-market/"><u>New In 2024, Cutting-Edge Tools for Podcasters A Guide to the Best Free & Paid Audio Editing Software on the Market</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-redefining-high-definition-a-review-of-the-immersive-4k-monitor-lgs-31mu97-b/"><u>2024 Approved  Redefining High Definition  A Review of the Immersive 4K Monitor, LG's 31MU97-B</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-the-full-potential-of-iphones-hdr-functions-for-2024/"><u>Unlocking the Full Potential of iPhone's HDR Functions for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-video-editing-for-mac-yosemite-a-step-by-step-tutorial/"><u>New Video Editing for Mac Yosemite A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-how-to-craft-engaging-macootd-tiktoks-effortlessly/"><u>[New] 2024 Approved  How To Craft Engaging MacOOTD TikToks Effortlessly</u></a></li>
+</ul></div>

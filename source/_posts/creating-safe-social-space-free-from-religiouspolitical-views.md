@@ -1,7 +1,7 @@
 ---
 title: "Creating Safe Social Space: Free From Religious/Political Views"
-date: 2024-06-20 13:49:16
-updated: 2024-06-23 10:51:37
+date: 2024-06-25T13:58:09.744Z
+updated: 2024-06-26T13:58:09.744Z
 tags:
   - facebook
 categories:
@@ -27,13 +27,13 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
- The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
+ The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can [download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
  The move may the latest attempt to avoid the controversy that arises from including these categories on social media profiles.
 
  In January 2022, Facebook revised its advertising targeting policies, removing the ability for advertisers to directly target users based on categories that may be considered sensitive.
 
- The company said in a[statement](https://www.facebook.com/business/news/removing-certain-ad-targeting-options-and-expanding-our-ad-controls) at the time:
+ The company said in a [statement](https://www.facebook.com/business/news/removing-certain-ad-targeting-options-and-expanding-our-ad-controls) at the time:
 
 > "Starting January 19, 2022 we will remove Detailed Targeting options that relate to topics people may perceive as sensitive, such as options referencing causes, organizations, or public figures that relate to health, race or ethnicity, political affiliation, religion, or sexual orientation."
 
@@ -58,3 +58,26 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-ultimate-checklist-for-producing-high-quality-facebook-reels/"><u>The Ultimate Checklist for Producing High-Quality Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-sharing-space-removing-interaction-from-your-fb-content/"><u>Secure Sharing Space: Removing Interaction From Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-joy-of-authenticity-why-leave-facebook-behind/"><u>The Joy of Authenticity: Why Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-board-plans-trump-suspension-reevaluation/"><u>FB Board Plans Trump Suspension Reevaluation</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-sever-instagram-connection-with-facebook/"><u>Steps to Sever Instagram Connection with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-online-presence-by-adjusting-facebooks-birthdate/"><u>Streamlining Your Online Presence by Adjusting Facebook's Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-fun-without-fallout-online/"><u>Fostering Fun Without Fallout Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-a-storm-of-negative-headlines-for-fb/"><u>Watch Out! A Storm of Negative Headlines for FB</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-free-high-quality-screencast-spotless/"><u>In 2024, Free High-Quality Screencast, Spotless</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-elevate-your-storytelling-the-best-practices-for-instagram-loops/"><u>[Updated] 2024 Approved  Elevate Your Storytelling  The Best Practices for Instagram Loops</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pinnacle-websites-showcasing-diverse-text-styling-options/"><u>[New] Pinnacle Websites Showcasing Diverse Text Styling Options</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-fluent-in-content-sharing-tiktok-twitter-transition/"><u>[Updated] In 2024, Fluent in Content Sharing  TikTok-Twitter Transition</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/virtual-makeup-mavens-top-youtube-creators/"><u>Virtual Makeup Mavens  Top YouTube Creators</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-vivocut-guide-for-enhanced-video-creation/"><u>[Updated] Ultimate VivoCut Guide for Enhanced Video Creation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-se-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone SE Passcode Screen?</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-beyond-photography-an-exhaustive-review-of-the-toolwiz-app-2023/"><u>2024 Approved  Beyond Photography  An Exhaustive Review of the Toolwiz App, 2023</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-vivo-t2x-5g-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Vivo T2x 5G? Here Are Real Fixes | Dr.fone</u></a></li>
+</ul></div>

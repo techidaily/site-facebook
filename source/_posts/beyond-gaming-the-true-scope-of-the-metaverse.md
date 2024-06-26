@@ -1,7 +1,7 @@
 ---
 title: "Beyond Gaming: The True Scope of the Metaverse"
-date: 2024-06-22 13:20:54
-updated: 2024-06-23 12:11:37
+date: 2024-06-25T13:49:39.122Z
+updated: 2024-06-26T13:49:39.122Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept
-
-![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -41,7 +39,7 @@ So, what is the metaverse?
 
 Yet.
 
- In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with[The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
+ In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with [The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
 
 > You can think about it as an embodied internet, where instead of just viewing the content—you are in it. And you feel present with other people as if you were in other places . . . but the metaverse isn’t just virtual reality. It’s going to be accessible across all of our different computing platforms; VR and AR, but also PC, and also mobile devices and game consoles
 
@@ -49,9 +47,7 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse
-
-![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -73,9 +69,7 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors
-
-![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -86,9 +80,7 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet
-
-![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -111,3 +103,26 @@ Yet.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-course-of-community-on-facebook/"><u>Charting the Course of Community on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-to-reconnect-the-realities-of-abandoning-online-friends/"><u>Disconnect to Reconnect: The Realities of Abandoning Online Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-secure-online-transactions-at-fb-marketplace/"><u>Your Guide to Secure Online Transactions at FB Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-tweet-and-snap-campaign-as-pillars-of-jbs-plan/"><u>FB, Tweet, and Snap Campaign as Pillars of JB's Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-cyberspace-30-the-metaverse-reality/"><u>Decoding Cyberspace 3.0: The Metaverse Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-connection-or-silence-handling-lost-friends-on-fb/"><u>Eternal Connection or Silence? Handling Lost Friends on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/trouble-brewing-as-trust-fades-in-giant-internet-firms/"><u>Trouble Brewing as Trust Fades in Giant Internet Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-honor-90-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-essential-digital-applications-for-sounding-transformation/"><u>New Essential Digital Applications for Sounding Transformation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/change-saving-spot-for-macs-photos-for-2024/"><u>Change Saving Spot for Mac's Photos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/innovative-techniques-for-recording-instagram-story-highlights-for-2024/"><u>Innovative Techniques for Recording Instagram Story Highlights for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-iphone-se-2022-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix iPhone SE (2022) Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-getting-started-with-stop-motion-a-beginners-handbook/"><u>New Getting Started with Stop Motion A Beginners Handbook</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-the-art-of-pure-audio-removing-unwanted-noise-for-professional-soundtracks-using-filmora/"><u>Updated In 2024, The Art of Pure Audio Removing Unwanted Noise for Professional Soundtracks Using Filmora</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-capture-device-tailored-to-win11-systems-for-2024/"><u>[New] Ultimate Capture Device, Tailored to Win11 Systems for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-7-plus-to-other-iphone-12-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 7 Plus to other iPhone 12 devices? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-the-art-of-flawless-instantaneous-iphone-podcast-downloads/"><u>In 2024, Unlocking the Art of Flawless, Instantaneous iPhone Podcast Downloads</u></a></li>
+</ul></div>

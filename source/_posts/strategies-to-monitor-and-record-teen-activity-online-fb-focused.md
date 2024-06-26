@@ -1,7 +1,7 @@
 ---
 title: Strategies to Monitor and Record Teen Activity Online, FB-Focused
-date: 2024-06-22 16:40:51
-updated: 2024-06-23 10:30:41
+date: 2024-06-25T14:19:06.771Z
+updated: 2024-06-26T14:19:06.771Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 2. Find the underage user by searching from their Facebook name and opening their profile.
 3. Copy their profile link that includes their username.  
 ![Copy link of Facebook user](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Copy-link-of-Facebook-user.JPG)
-4. Open the[Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
+4. Open the [Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
  Parents can request data from their underage child's Facebook account. You will need to fill out a verification form for data privacy purposes.
 
-1. Open the[Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
+1. Open the [Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
 3. Paste the URL of your child’s Facebook account.
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
 
-### Facebook Can Be Addictive
-
-![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
+### Facebook Can Be Addictive ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
@@ -75,15 +73,13 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-### It Can Worsen Mental Health Issues
-
-![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
+### It Can Worsen Mental Health Issues ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
 ### It Might Expose Your Child to Inappropriate Content
 
- The Facebook Community Guidelines are pretty strict—you can even[get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
+ The Facebook Community Guidelines are pretty strict—you can even [get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
 
  Young children can be exposed to this content if they've lied about their age and are using Facebook despite the age limit.
 
@@ -110,3 +106,24 @@ thumbnail: https://thmb.techidaily.com/bb1f002a7be8b73cd12562f7aa67a81110093e83a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bury-your-photos-deep-in-private-settings/"><u>Bury Your Photos Deep in Private Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-transformation-and-future-of-meta-platforms/"><u>Beyond Social Media: The Transformation and Future of Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-journey-forward-thinking-beyond-social-platforms/"><u>Apple's Journey: Forward-Thinking Beyond Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-locked-out-mastering-password-resets-on-facebook/"><u>No More Locked Out! Mastering Password Resets on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-seamless-way-clearing-your-facebook-shared-content/"><u>The Seamless Way: Clearing Your Facebook Shared Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-facebooks-day-on-day-tool/"><u>Unveiling the Secrets to Facebook's Day-on-Day Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-spotify-are-working-on-something-called-project-boombox/"><u>Facebook and Spotify Are Working on Something Called Project Boombox</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-transform-your-videos-adding-effects-in-fcp-x-with-just-3-clicks/"><u>New 2024 Approved Transform Your Videos Adding Effects in FCP X with Just 3 Clicks</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/mastering-minecraft-recording-on-mac-a-step-by-step-guide-for-2024/"><u>Mastering Minecraft Recording on Mac  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-topline-numbers-pewdiepies-yearly-income/"><u>[New] Topline Numbers  PewDiePie's Yearly Income</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/curated-queries-for-spirited-conversations-in-podcasts/"><u>Curated Queries for Spirited Conversations in Podcasts</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-art-of-lights-for-youtube-vlogging/"><u>[Updated] The Art of Lights for YouTube Vlogging</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-motorola-g24-power-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Motorola G24 Power Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-how-to-check-who-unfollowed-me-on-instagram/"><u>[New] 2024 Approved  How to Check Who Unfollowed Me on Instagram?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-download-playback-streaming-youtube-videos-on-ios-securely-and-smoothly/"><u>[Updated] In 2024, Download Playback  Streaming Youtube Videos on iOS Securely and Smoothly</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-banter-bonanza-the-funniest-content-on-the-internet/"><u>In 2024, Banter Bonanza  The Funniest Content on the Internet</u></a></li>
+</ul></div>

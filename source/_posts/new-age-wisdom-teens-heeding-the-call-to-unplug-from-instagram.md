@@ -1,7 +1,7 @@
 ---
 title: "New Age Wisdom: Teens Heeding the Call to Unplug From Instagram"
-date: 2024-06-22 13:50:41
-updated: 2024-06-23 12:52:18
+date: 2024-06-25T14:40:21.910Z
+updated: 2024-06-26T14:40:21.910Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-whistleblowers-guide-to-understanding-facebook-data/"><u>The Whistleblower's Guide to Understanding Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-slip-ups-facebooks-user-tally/"><u>The Subtle Slip-Ups: Facebook's User Tally</u></a></li>
+<li><a href="https://facebook.techidaily.com/anomaly-detection-for-safeguarding-personal-online-space/"><u>Anomaly Detection for Safeguarding Personal Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-new-front-in-the-war-against-misinformation/"><u>FB's New Front in the War Against Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-path-of-internet-privacy-technologies/"><u>Evolutionary Path of Internet Privacy Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-the-silence-whistleblower-on-fb-platform/"><u>Breaking the Silence: Whistleblower on FB Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-safety-with-2fa-for-email-platforms-like-gmail-and-outlook/"><u>Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-the-downside-of-online-communities/"><u>Mass Perception: The Downside of Online Communities</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-cricket-iphone-7-for-free-by-drfone-ios/"><u>In 2024, How To Unlock Cricket iPhone 7 for Free</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-defeating-darkness-in-youtube-videos-for-2024/"><u>[New] Defeating Darkness in Youtube Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-art-of-inverted-investigation-finding-true-sources-on-instagram-photos/"><u>In 2024, The Art of Inverted Investigation  Finding True Sources on Instagram Photos</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-best-of-both-worlds-free-and-paid-3d-video-creator-software/"><u>New In 2024, Best of Both Worlds Free and Paid 3D Video Creator Software</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-use-special-features-virtual-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-advanced-photo-editing-how-to-clean-up-unwanted-space/"><u>2024 Approved  Advanced Photo Editing  How to Clean Up Unwanted Space</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c300-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-free-ways-to-download-mobile-phone-green-screen-videos-and-pictures-no-copyright/"><u>Updated 2024 Approved Free Ways to Download Mobile Phone Green Screen Videos and Pictures No Copyright</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-samsung-galaxy-a23-5g-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Samsung Galaxy A23 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-list-of-superior-live-streaming-services/"><u>2024 Approved  The Ultimate List of Superior Live Streaming Services</u></a></li>
+</ul></div>

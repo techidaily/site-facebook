@@ -1,7 +1,7 @@
 ---
 title: How to Stop FB Push Notifications and Messages
-date: 2024-06-22 17:27:53
-updated: 2024-06-23 10:21:43
+date: 2024-06-25T14:48:38.922Z
+updated: 2024-06-26T14:48:38.922Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-## How to Delete Facebook Notifications
-
-![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+## How to Delete Facebook Notifications ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -74,9 +72,7 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-### How to Turn Off Facebook Notifications by Category
-
-![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+### How to Turn Off Facebook Notifications by Category ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -99,9 +95,7 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-### How to Stop Facebook Notifications on Android
-
-![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+### How to Stop Facebook Notifications on Android ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -148,3 +142,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bypassing-social-medias-hidden-punishments-shadowbans/"><u>Bypassing Social Media's Hidden Punishments (Shadowbans)</u></a></li>
+<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-in-a-users-muted-profile/"><u>What Hides in a User's Muted Profile?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-icons-and-symbols-what-do-they-mean/"><u>Facebook Messenger Icons and Symbols: What Do They Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-surge-in-anti-tracking-sentiment-among-iphones/"><u>The Surge in Anti-Tracking Sentiment Among iPhones</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-feeds-turning-off-facebooks-automatic-curations/"><u>Personalize Feeds: Turning Off Facebook's Automatic Curations</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-enforcing-conduct-on-your-facebook-page/"><u>Strategies for Enforcing Conduct on Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-progression-social-media-uses-demystified/"><u>Professional Progression: Social Media Uses Demystified</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-iphone-7-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase iPhone 7 Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713942930239-2024-approved-imovie-review-is-it-the-best-video-editor-for-mac-users/"><u>2024 Approved IMovie Review – Is It The Best Video Editor for Mac Users</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-capture-webpages-entirety-on-screen/"><u>[New] In 2024, Capture Webpage's Entirety on Screen</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-data-retrieval-tool-restore-lost-data-from-honor-magic-6-by-fonelab-android-recover-data/"><u>Honor Data Retrieval tool – restore lost data from Honor Magic 6</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/masterclass-in-choosing-your-best-live-streamer/"><u>Masterclass in Choosing Your Best Live Streamer</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/spotlight-on-8-trusted-youtube-growth-services/"><u>Spotlight on 8 Trusted Youtube Growth Services</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-xiaomi-14-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Xiaomi 14 Screen | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-outshine-the-ordinary-30-innovative-ideas-for-standout-tiktok-photos/"><u>[Updated] Outshine the Ordinary  30 Innovative Ideas for Standout TikTok Photos</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-the-art-of-editing-on-sierra-with-1-5-tools/"><u>2024 Approved  Master the Art of Editing on Sierra with #1-#5 Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-scouting-the-superior-18-video-recorders-for-seamless-streams/"><u>[New] Scouting the Superior 18 Video Recorders for Seamless Streams</u></a></li>
+</ul></div>

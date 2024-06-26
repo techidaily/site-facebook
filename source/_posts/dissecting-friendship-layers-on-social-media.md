@@ -1,7 +1,7 @@
 ---
 title: Dissecting Friendship Layers on Social Media
-date: 2024-06-22 22:19:56
-updated: 2024-06-23 11:56:17
+date: 2024-06-25T13:46:08.061Z
+updated: 2024-06-26T13:46:08.061Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://facebook.techidaily.com/more-than-scandal-a-balanced-view-on-the-social-media-investigation/"><u>More Than Scandal: A Balanced View on The Social Media Investigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-political-interruptions-on-facebook/"><u>Freedom From Political Interruptions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-brother-business-profit-from-peering/"><u>Big Brother Business: Profit From Peering</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
+<li><a href="https://facebook.techidaily.com/enforcing-teenager-friendly-security-protocols-on-fb/"><u>Enforcing Teenager-Friendly Security Protocols on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-group-departure-with-tact/"><u>Navigating the Path to Group Departure with Tact</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-photo-edits-partially-blurring-content/"><u>[New] Innovative Photo Edits  Partially Blurring Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-lgs-monitor-marvel-an-exhaustive-look-at-ultra-clear-technology/"><u>2024 Approved  LG's Monitor Marvel  An Exhaustive Look at Ultra-Clear Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-secrets-integrating-text-overlays-in-your-clips/"><u>[New] YouTube's Secrets  Integrating Text Overlays in Your Clips</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-notch-mac-visual-archiver-for-2024/"><u>Top-Notch Mac Visual Archiver for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-ultimate-guide-top-screen-capture-tools-roundup/"><u>[New] Ultimate Guide  Top Screen Capture Tools Roundup</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-windows-movie-maker-download-tutorial-from-start-to-finish/"><u>Updated In 2024, Windows Movie Maker Download Tutorial From Start to Finish</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-optimizing-real-time-instagram-video-playback-mobileonline-for-2024/"><u>[Updated] Optimizing Real-Time Instagram Video Playback (Mobile/Online) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-10-games-just-like-stardew-valley/"><u>[New] In 2024, Top 10 Games Just Like Stardew Valley</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-mastering-slow-mo-a-step-by-step-guide-to-windows-live-movie-maker-for-2024/"><u>Updated Mastering Slow-Mo A Step-by-Step Guide to Windows Live Movie Maker for 2024</u></a></li>
+</ul></div>

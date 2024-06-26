@@ -1,7 +1,7 @@
 ---
 title: "Leap Into Change: How to Revamp Facebook Details"
-date: 2024-06-22 21:44:45
-updated: 2024-06-23 11:59:49
+date: 2024-06-25T14:27:59.779Z
+updated: 2024-06-26T14:27:59.779Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-page-administration-selecting-admins/"><u>Navigating Page Administration - Selecting Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-professional-horizons-through-targeted-client-engagement-on-fb/"><u>Expanding Professional Horizons Through Targeted Client Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discontent-one-star-reviews-rising-for-fb-app-ratings/"><u>Digital Discontent: One-Star Reviews Rising for FB App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-ambiguity-a-close-look-at-vague-storytelling/"><u>Social Media Ambiguity: A Close Look at Vague Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-the-role-of-app-analytics-in-ad-personalization/"><u>Unmasking the Role of App Analytics in Ad Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/entryway-to-metas-account-administration-shelter/"><u>Entryway to Meta's Account Administration Shelter</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-crashes-of-facebook-and-whatsapp/"><u>Decoding the Crashes of Facebook & WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-facebooks-privacy-breach/"><u>Shielding Yourself From Facebook's Privacy Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-on-us-an-industry-insight/"><u>Digital Eyes on Us: An Industry Insight</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-google-pixel-7a-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Google Pixel 7a Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-the-world-of-adobe-storage-options-the-complete-review-and-comparisons-for-2024/"><u>Navigating the World of Adobe Storage Options  The Complete Review & Comparisons for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-guardians-of-the-screen-the-best-webcam-cover-options-for-2024/"><u>[Updated] Guardians of the Screen - The Best Webcam Cover Options for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-iphone-meme-magic/"><u>2024 Approved  IPhone Meme Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/top-3-safe-strategies-for-converting-youtube-videos-into-mp3-files-for-2024/"><u>Top 3 Safe Strategies for Converting YouTube Videos Into MP3 Files for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-oppo-reno-10-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Oppo Reno 10 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-instagram-video-boundaries-explained/"><u>[Updated] In 2024, Instagram Video Boundaries Explained</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-find-friends-in-fandoms-forums-for-2024/"><u>[Updated] Find Friends in Fandom's Forums for 2024</u></a></li>
+</ul></div>

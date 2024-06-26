@@ -1,7 +1,7 @@
 ---
 title: Curbing Networking on Facebook Without Hesitation
-date: 2024-06-22 22:12:43
-updated: 2024-06-23 12:31:22
+date: 2024-06-25T13:46:59.277Z
+updated: 2024-06-26T13:46:59.277Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/097da45e601814f3f9c7530b7e6070342fc3124e5
 
  Limiting people on Facebook is super easy. Here are some tips for prohibiting people from contacting you on Facebook.
 
-### 1\. Put Privacy on Your Posts
-
-![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
+### 1\. Put Privacy on Your Posts ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
 
@@ -39,13 +37,11 @@ Close
 
  To do that, choose the post you wish to change the settings of. Tap the privacy option and change settings from**Public** to**Friends** or**Custom** .
 
- The settings are applied until you change them again. When users upload media on Facebook, it also allows them to[change their privacy settings](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) . If you want to[make your posts shareable](https://www.makeuseof.com/how-to-make-facebook-post-shareable/) , keep them**Public** .
+ The settings are applied until you change them again. When users upload media on Facebook, it also allows them to [change their privacy settings](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) . If you want to [make your posts shareable](https://www.makeuseof.com/how-to-make-facebook-post-shareable/) , keep them**Public** .
 
- If you have a business and are trying to get customers through Facebook, we recommend[creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
+ If you have a business and are trying to get customers through Facebook, we recommend [creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
-### 2\. Limit People Who Can Search You
-
-![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
+### 2\. Limit People Who Can Search You ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
 
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
 
@@ -59,15 +55,15 @@ Close
 
  Limit them from searching your personal Facebook account by changing the settings. This feature is helpful for people who want to keep their professional and personal lives separate.
 
- If your[Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
+ If your [Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
 
 ### 3\. Change Your Messaging Privacy
 
- Facebook has made Messenger its main messaging app. It comes with[several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
+ Facebook has made Messenger its main messaging app. It comes with [several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
 
  Users can restrict a contact, adding that contact to the Message Requests section without blocking them. You can avoid unwanted contact by limiting as many people as desired. If that doesn't help, there is always an option to block a person on Messenger.
 
- Furthermore, deleting conversations and archiving contacts also play an integral role in maximizing your privacy. Like WhatsApp, Messenger also supports[end-to-end encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) , which means your chat is not accessible to anyone.
+ Furthermore, deleting conversations and archiving contacts also play an integral role in maximizing your privacy. Like WhatsApp, Messenger also supports [end-to-end encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) , which means your chat is not accessible to anyone.
 
  This feature updates your conversations whenever a contact changes their device, reinstalls Messenger, or resets their phone.
 
@@ -83,9 +79,7 @@ Close
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
-### 5\. Unfriend or Block a Facebook Account
-
-![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
+### 5\. Unfriend or Block a Facebook Account ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
@@ -103,7 +97,7 @@ Close
 
  A person with more than one account can look you up from the other account if that isn't blocked. The best practice after blocking is limiting your posts and changing their privacy from Public to Friends.
 
- You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
+ You can also [report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
 ## Make Facebook a Safe Space for Yourself
 
@@ -128,3 +122,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailored-digital-purchasing-by-facebook-triumphs-over-apples-standard-model/"><u>Tailored Digital Purchasing by Facebook Triumphs Over Apple's Standard Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-life-is-better-with-these-9-social-media-uses/"><u>Why Your Life Is Better with These 9 Social Media Uses</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-list-before-unlinking-from-fb/"><u>The Essential List Before Unlinking From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-interaction-from-forums-to-socialspeak/"><u>The Evolution of Interaction: From Forums to Socialspeak</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-governance-and-rulings-of-fbs-board/"><u>Dissecting The Governance and Rulings of FB's Board</u></a></li>
+<li><a href="https://facebook.techidaily.com/textual-transformation-in-chats-focus-and-style-techniques/"><u>Textual Transformation in Chats: Focus & Style Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-personalization-your-social-media-dream-now-reality/"><u>Seamless Personalization - Your Social Media Dream Now Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-the-rules-how-to-remove-facebook-clans/"><u>Unfollow the Rules: How to Remove Facebook Clans</u></a></li>
+<li><a href="https://fox-access.techidaily.com/mastering-audio-file-transformation-srt-to-xmlssattml-for-2024/"><u>Mastering Audio File Transformation  SRT to XML/SSA/TTML for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-huawei-nova-y71-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Huawei Nova Y71? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oneplus-nord-n30-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your OnePlus Nord N30 5G Phone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-legal-tactics-to-skyrocket-your-videos-visibility/"><u>2024 Approved  Legal Tactics to Skyrocket Your Video's Visibility</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionize-your-online-video-content-expert-tips-on-youtube-live-with-wirecast/"><u>[Updated] Revolutionize Your Online Video Content  Expert Tips on Youtube Live with WireCast</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-styling-your-content-a-compreran-guide-to-insta-photo-watermarks/"><u>2024 Approved  Styling Your Content  A Compreran Guide to Insta Photo Watermarks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-innovative-ideas-for-fb-slideshow-creations/"><u>In 2024, Innovative Ideas for FB Slideshow Creations</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-y200-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo Y200 Location | Dr.fone</u></a></li>
+</ul></div>

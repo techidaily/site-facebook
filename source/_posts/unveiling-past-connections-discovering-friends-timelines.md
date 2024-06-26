@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Past Connections: Discovering Friends' Timelines"
-date: 2024-06-20 12:42:17
-updated: 2024-06-23 11:41:39
+date: 2024-06-25T14:48:12.255Z
+updated: 2024-06-26T14:48:12.255Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/you-can-now-broadcast-on-instagram-live-without-video-or-sound/"><u>You Can Now Broadcast on Instagram Live Without Video or Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-board-plans-trump-suspension-reevaluation/"><u>FB Board Plans Trump Suspension Reevaluation</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-the-challenge-of-a-disabled-facebook-login/"><u>Overcoming the Challenge of a Disabled Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-key-privacy-measures-in-adolescent-social-media-use/"><u>Implementing Key Privacy Measures in Adolescent Social Media Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/wiping-your-digital-history-from-facebook-scope/"><u>Wiping Your Digital History From Facebook Scope</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-endless-scroll-might-be-more-than-just-an-inconvenience-on-facebook/"><u>Why the 'Endless Scroll' Might Be More Than Just an Inconvenience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-facebooks-feed-algorithm/"><u>The Mechanics of Facebook's Feed Algorithm</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-efficient-approaches-to-picture-resource-sourcing/"><u>In 2024, Efficient Approaches to Picture Resource Sourcing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-iphone-features-producing-and-modifying-videos-at-a-tranquil-pace/"><u>[New] Unveiling iPhone Features  Producing and Modifying Videos at a Tranquil Pace</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-8-drfone-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-6s-plus-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 6s Plus to Android | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/craft-how-to-download-best-dj-vids-for-2024/"><u>Club Craft  How to Download Best DJ Vids for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-2024-approved-direct-unwatermarked-tiktok-content-download-to-iphone/"><u>[New] 2024 Approved  Direct Unwatermarked TikTok Content Download to iPhone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-unveiling-the-hidden-significance-of-pfp-in-tiktok/"><u>In 2024, Unveiling the Hidden Significance of PFP in TikTok</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-iphone-x-without-apple-id-by-drfone-ios/"><u>How to Erase an iPhone X without Apple ID?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-live-action-best-practices-in-gaming-recording/"><u>[New] Mastering Live Action  Best Practices in Gaming Recording</u></a></li>
+</ul></div>

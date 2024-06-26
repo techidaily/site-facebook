@@ -1,7 +1,7 @@
 ---
 title: "The Future Fabricated: The Metaverse's Visionary Path"
-date: 2024-06-20 18:29:32
-updated: 2024-06-23 10:10:30
+date: 2024-06-25T14:42:27.047Z
+updated: 2024-06-26T14:42:27.047Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/fcf5c5ea9608f76f888a293e8f1d7735a9ef3d7b5
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept
-
-![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -41,7 +39,7 @@ So, what is the metaverse?
 
 Yet.
 
- In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with[The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
+ In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with [The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
 
 > You can think about it as an embodied internet, where instead of just viewing the content—you are in it. And you feel present with other people as if you were in other places . . . but the metaverse isn’t just virtual reality. It’s going to be accessible across all of our different computing platforms; VR and AR, but also PC, and also mobile devices and game consoles
 
@@ -49,9 +47,7 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse
-
-![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -73,9 +69,7 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors
-
-![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -86,9 +80,7 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet
-
-![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -111,3 +103,24 @@ Yet.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-a-tool-against-piracy/"><u>Understanding PhotoDNA: A Tool Against Piracy</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-finding-innovative-facebook-groups/"><u>A Comprehensive Guide to Finding Innovative Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-setting-up-fbs-2fa-system/"><u>The Ultimate Guide to Setting Up FB's 2FA System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-notable-top-5-lightweight-action-recording-units/"><u>In 2024, Notable Top 5 Lightweight Action Recording Units</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-windows-8-flv-editor-a-user-friendly-video-editing-solution/"><u>New 2024 Approved Windows 8 FLV Editor A User-Friendly Video Editing Solution</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expert-insights-into-iptv-stream-logging/"><u>[New] 2024 Approved  Expert Insights Into IPTV Stream Logging</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-the-essentials-to-record-save-and-refine-videography-on-adobe-connect-for-2024/"><u>[New] The Essentials to Record, Save, & Refine Videography on Adobe Connect for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/maximizing-your-time-online-embracing-facebook-fully-for-2024/"><u>Maximizing Your Time Online  Embracing Facebook Fully for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-easy-movie-maker-how-to-easily-make-a-movie/"><u>In 2024, Easy Movie Maker How to Easily Make a Movie</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-easy-avi-file-splitting-and-trimming-a-comprehensive-guide/"><u>In 2024, Easy AVI File Splitting and Trimming A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterful-video-starts-get-them-for-free-for-2024/"><u>Masterful Video Starts, Get Them for Free for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-complete-breakdown-of-facebooks-changes-for-2024/"><u>The Complete Breakdown of Facebook's Changes for 2024</u></a></li>
+</ul></div>

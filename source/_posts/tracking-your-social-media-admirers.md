@@ -1,7 +1,7 @@
 ---
 title: Tracking Your Social Media Admirers
-date: 2024-06-21 20:55:40
-updated: 2024-06-23 10:46:55
+date: 2024-06-25T13:51:17.600Z
+updated: 2024-06-26T13:51:17.600Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
 ## How to See Who Follows You on Facebook on Mobile
 
- The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
+ The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have [followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
@@ -56,7 +56,7 @@ Close
 
  Moreover, you won't get the option to check your Facebook followers if you don't have any. Consequently, you won't see your followers even if you've followed the above steps, as there are none to see.
 
- You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
+ You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to [switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
@@ -116,3 +116,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/metaviews-and-screenscapes-distinguishing-metaverse-from-vrs-six-aspects/"><u>Metaviews & Screenscapes: Distinguishing Metaverse From VR's Six Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-collection-at-risk-due-to-ios-145-update/"><u>Facebook's Data Collection at Risk Due to iOS 14.5 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-swiftly-removing-facebook-stories/"><u>Tips for Swiftly Removing Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-memorable-with-fb-images-on-whatsapp/"><u>Making Friends Memorable with FB Images on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-purchase-power-from-online-predators-at-facebook-marketplace/"><u>Protecting Your Purchase Power From Online Predators at Facebook Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissolving-the-digital-duo-instagram-and-facebook-separation/"><u>Dissolving the Digital Duo: Instagram and Facebook Separation</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-innovations-in-home-audio-engineering-analyzing-the-best-and-worst-of-the-top-digital-music-makers-this-year/"><u>Updated In 2024, Innovations in Home Audio Engineering Analyzing the Best and Worst of the Top Digital Music Makers This Year</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-list-of-whatsapp-video-format-that-you-may-need-to-know-for-2024/"><u>New List of Whatsapp Video Format That You May Need to Know for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-step-by-step-perfecting-your-vr-recording-skills/"><u>[Updated] In 2024, Step-by-Step  Perfecting Your VR Recording Skills</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-unlock-flv-video-editing-on-windows-8-a-beginners-guide/"><u>New Unlock FLV Video Editing on Windows 8 A Beginners Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-which-live-stream-software-wins-exploring-obs-vs-streamlabs/"><u>[New] Which Live Stream Software Wins? Exploring OBS Vs. Streamlabs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premium-action-recorders-for-motion-compensation/"><u>In 2024, Premium Action Recorders for Motion Compensation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-webs-frontier-leading-browsers-for-screen-recording/"><u>[Updated] Web's Frontier  Leading Browsers for Screen Recording</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-achieving-youtube-mastery-with-effective-use-of-creator-studio-tools-for-2024/"><u>[New] Achieving YouTube Mastery with Effective Use of Creator Studio Tools for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-top-tips-streaming-via-obs-directly-to-facebook/"><u>2024 Approved  Top Tips  Streaming via OBS Directly to Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-farming-fun-and-friendship-the-best-agrigames-to-bond-with-friends-for-2024/"><u>[Updated] Farming Fun & Friendship  The Best AgriGames to Bond With Friends for 2024</u></a></li>
+</ul></div>

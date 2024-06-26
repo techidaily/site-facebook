@@ -1,7 +1,7 @@
 ---
 title: Does Your Phone Listen to You for Ads? Or Is It Just Coincidence?
-date: 2024-06-21 23:48:39
-updated: 2024-06-23 10:36:24
+date: 2024-06-25T14:02:35.188Z
+updated: 2024-06-26T14:02:35.188Z
 tags:
   - facebook
 categories:
@@ -31,31 +31,31 @@ What is going on?
 
  Various users across the web have claimed that something fishy is going on with their phones.
 
- They believe that smartphone microphones are being used to record what they say, with the information used to[better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
+ They believe that smartphone microphones are being used to record what they say, with the information used to [better target personalized Google ads](https://www.makeuseof.com/tag/disable-googles-personalized-ads/) on websites and Facebook.
 
- It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman[reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
+ It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman [reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
 
- Various Reddit threads considering the question “do our phones listen to us for ad targeting” (and similar) have prompted individual experiences, such as this from[BasedBrexitBroker](https://www.reddit.com/r/DarkEnlightenment/comments/d94wii/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyour%5Fconversations/f1frnlf/?utm%5Fsource=reddit&utm%5Fmedium=web2x&context=3) :
+ Various Reddit threads considering the question “do our phones listen to us for ad targeting” (and similar) have prompted individual experiences, such as this from [BasedBrexitBroker](https://www.reddit.com/r/DarkEnlightenment/comments/d94wii/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyour%5Fconversations/f1frnlf/?utm%5Fsource=reddit&utm%5Fmedium=web2x&context=3) :
 
 > _"The other day I went to a Mexican Paisa bar. Inside everyone was speaking Spanish and a mariachi band was playing. For 48 hours after this all my instagram, soundcloud and twitter ads were in Spanish."_
 
- Here’s another, from Redditor[karlrocks23](https://www.reddit.com/r/Android/comments/48mczm/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0l2xvf) :
+ Here’s another, from Redditor [karlrocks23](https://www.reddit.com/r/Android/comments/48mczm/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0l2xvf) :
 
 > _"My SO and I were having a chat and I was telling her about a new Nespresso shop that opened up in the city and how nicely designed it was. I don't like coffee that much, and I've never even tried Nespresso. That is the only time I can remember having a conversation about Nespresso to anyone and I've certainly never Googled it or anything._
 >
 > _The next day, all my ads on chrome were about Nespresso.. I have no issues with ads popping up related to things I've searched by voice or type. But it did feel a bit invasive being constantly listened to and for private conversations to be used as a means to target ads at me."_
 
- You'll find many similar stories on Reddit and beyond. Check this account of[a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
+ You'll find many similar stories on Reddit and beyond. Check this account of [a user noticing Google ads for everything he discussed](https://www.reddit.com/r/iphone/comments/48md18/is%5Fyour%5Fsmartphone%5Flistening%5Fto%5Fyou/d0leqjs) with his wife for more.
 
 ## Is My Smartphone Really Listening to Me for Ads?
 
  Since this happened, Google no longer offers this sort of recommendation. However, the possibility of technology being used to target customers based on their conversations is concerning. Often, the data recorded can be used to identify you.
 
- In 2019, 1000 Google Assistant-harvested voice recordings were[leaked to Belgium media outlet VRT News](https://www.vrt.be/vrtnws/en/2019/07/10/google-employees-are-eavesdropping-even-in-flemish-living-rooms) . The recordings--many of which will have been collected from Android phones--included enough information to identify the device owners.
+ In 2019, 1000 Google Assistant-harvested voice recordings were [leaked to Belgium media outlet VRT News](https://www.vrt.be/vrtnws/en/2019/07/10/google-employees-are-eavesdropping-even-in-flemish-living-rooms) . The recordings--many of which will have been collected from Android phones--included enough information to identify the device owners.
 
  “In these recordings we could clearly hear addresses and other sensitive information,” they reported. “This made it easy for us to find the people involved and confront them with the audio recordings.
 
@@ -65,7 +65,7 @@ What is going on?
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
- Consequently, ensuring your[Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
+ Consequently, ensuring your [Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
@@ -73,7 +73,7 @@ What is going on?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
 
- As Munro[explained to the BBC](https://www.bbc.co.uk/news/technology-35639549) , "All we did was use the existing functionality of Google Android---we chose it because it was a little easier for us to develop in."
+ As Munro [explained to the BBC](https://www.bbc.co.uk/news/technology-35639549) , "All we did was use the existing functionality of Google Android---we chose it because it was a little easier for us to develop in."
 
  "We gave ourselves permission to use the microphone on the phone, set up a listening server on the internet, and everything that microphone heard on that phone, wherever it was in the world, came to us and we could then have sent back customized ads."
 
@@ -81,7 +81,7 @@ What is going on?
 
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
- Meanwhile, data protection expert Mariano delli Santi[told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+ Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -89,7 +89,7 @@ What is going on?
 
  Facebook told the BBC that it blocks brands from advertising based on microphone data. Google is not listening you, so it claims, stating "categorically" that it does not use any "utterances" from when your chosen hotword is used, or share them with third parties.
 
- Additionally, app developers must adhere to the[Google developer policy](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36541/https://play.google.com/about/developer-content-policy/) . This specifies that apps do not breach privacy by using recordings from Google Assistant.
+ Additionally, app developers must adhere to the [Google developer policy](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36541/https://play.google.com/about/developer-content-policy/) . This specifies that apps do not breach privacy by using recordings from Google Assistant.
 
  It's a compelling argument. Despite that feeling that our conversations are being used to target ads, it is nothing to do with chat, and more to do with location, and proximity to other devices where discussions have lead to searches.
 
@@ -134,3 +134,24 @@ What is going on?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/anticipated-decision-from-social-media-regulators-on-trump-ban-case/"><u>Anticipated Decision From Social Media Regulators on Trump Ban Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/limit-facebook-newsfeed-customization/"><u>Limit Facebook Newsfeed Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-metaverse-landscape-an-introduction/"><u>Exploring The Metaverse Landscape: An Introduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-dossiers-of-facebook-disclosures/"><u>Navigating Through the Dossiers of Facebook Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-level-of-socializing-messengers-new-ar-dimensions/"><u>Next Level of Socializing: Messenger’s New AR Dimensions</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-entirety-group-post-acknowledgement-tactics/"><u>Engaging Entirety: Group Post Acknowledgement Tactics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-unfollower-detection-on-instagram/"><u>[New] 2024 Approved  Unfollower Detection on Instagram</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-boost-your-instagram-with-easily-shareable-gifs-step-by-step/"><u>[New] In 2024, Boost Your Instagram with Easily Shareable GIFs (Step-by-Step)</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-rhythmic-accompaniment-for-birthday-cinematic-portrait-24-edition-for-2024/"><u>Updated Rhythmic Accompaniment for Birthday Cinematic Portrait - 24 Edition for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>[Updated] 2024 Approved  Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeo-star-moment-analysis/"><u>Vimeo Star Moment Analysis</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-honor-90-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Honor 90</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-nokia-g310-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Nokia G310 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/digital-solutions-to-remove-background-noise-from-home-recordings-for-2024/"><u>Digital Solutions to Remove Background Noise From Home Recordings for 2024</u></a></li>
+</ul></div>

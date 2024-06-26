@@ -1,7 +1,7 @@
 ---
 title: "Rethinking Connectivity: Ditching Daily Facebook Use"
-date: 2024-06-21 23:34:10
-updated: 2024-06-23 12:35:21
+date: 2024-06-25T14:18:14.750Z
+updated: 2024-06-26T14:18:14.750Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
- Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+ Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
 ### No Notifications
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/f567dab373423469fdd9df8f70e7990588879bfed
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
- Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
 ## How to Deactivate Your Facebook Account
 
@@ -75,7 +75,7 @@ Close
 4. From**Account** , go to**Personal and account information** .
 5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
 
-1. Select**Deactivation and Deletion** to choose between both. There is a difference between[deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between [deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
 2. Tap**Continue to Account Deactivation** .
 3. Re-enter your Facebook password and press**Continue** .
 4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
@@ -84,11 +84,11 @@ Close
 7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
 8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
 
-**Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+**Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
 ### Via Desktop
 
- To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
+ To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
 
 1. After logging in, you will be directed to your Facebook Home page.
 2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
@@ -140,3 +140,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/final-farewell-to-fb-on-android/"><u>Final Farewell to FB on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-crafting-pages-and-group-polls/"><u>Interactive Social Media: Crafting Pages & Group Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-search-navigate-to-facebook-group-and-profile-links/"><u>Masterful Search: Navigate to Facebook Group & Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-direct-messages-show-your-spot-to-friends/"><u>FB Direct Messages: Show Your Spot to Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-optimizing-facebooks-memory-tool/"><u>Expert Tips for Optimizing Facebook's Memory Tool</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-skills-a-tailored-approach-to-graphic-careers/"><u>Harnessing Skills  A Tailored Approach to Graphic Careers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-compre-written-in-the-stars-harnessing-hidden-opportunities-for-insta-sponsorships/"><u>[New] 2024 Approved  The Compre Written in the Stars  Harnessing Hidden Opportunities for Insta-Sponsorships</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-dualview-photography-analysis/"><u>[Updated] 2024 Approved  DualView Photography Analysis</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppofrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your OppoFRP Lock</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-google-pixel-fold-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Google Pixel Fold FRP</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-high-definition-excellence-leading-the-recording-race/"><u>[Updated] High Definition Excellence  Leading the Recording Race</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-samsung-galaxy-f54-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Samsung Galaxy F54 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tailoring-horizontal-video-footage-for-maximum-impact-on-igtv/"><u>Tailoring Horizontal Video Footage for Maximum Impact on IGTV</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-12-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi 12 5G to Samsung Phone | Dr.fone</u></a></li>
+</ul></div>

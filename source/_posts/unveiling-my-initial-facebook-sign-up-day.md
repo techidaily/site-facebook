@@ -1,7 +1,7 @@
 ---
 title: "Unveiling: My Initial Facebook Sign-Up Day!"
-date: 2024-06-20 21:34:52
-updated: 2024-06-23 12:20:48
+date: 2024-06-25T14:22:51.525Z
+updated: 2024-06-26T14:22:51.525Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/a0951da729f49f8bf93e8223ca1a50717bbb6f5f3
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fact-checking-faces-busting-10-popular-facebook-myths/"><u>Fact-Checking Faces: Busting 10 Popular Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-scope-of-facebooks-support-system/"><u>Discovering the Scope of Facebook's Support System</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-and-royalties-the-role-of-meta-in-content-creator-earnings/"><u>Reels & Royalties: The Role of Meta in Content Creator Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-for-a-seamless-disconnection-from-digital-groups/"><u>Easy Steps for a Seamless Disconnection From Digital Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-your-new-reality-discovering-six-compelling-aspects-of-fbs-metaverse/"><u>Meet Your New Reality: Discovering Six Compelling Aspects of FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-ears-of-phones-spying-for-marketing-reality/"><u>Digital Ears of Phones: Spying for Marketing Reality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-noteworthy-transformations-4-essential-shifts-in-social-media/"><u>Networking Noteworthy Transformations: 4 Essential Shifts in Social Media</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-asus-rog-phone-7-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Asus ROG Phone 7 to Roku | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-the-recipe-roundup-top-tiktok-dining-experiences/"><u>[Updated] In 2024, The Recipe Roundup  Top TikTok Dining Experiences</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-dollar-first-steps-in-youtubers-revenue/"><u>[Updated] In 2024, Digital Dollar  First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-soothing-country-beats-20-must-hear-songs-to-unwind/"><u>2024 Approved  Soothing Country Beats  20 Must-Hear Songs to Unwind</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-3-ways-to-track-apple-iphone-xs-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Track Apple iPhone XS without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/communicating-confidently-on-google-meet/"><u>Communicating Confidently on Google Meet</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-x100-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo X100 to iPod | Dr.fone</u></a></li>
+</ul></div>

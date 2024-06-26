@@ -1,7 +1,7 @@
 ---
 title: "FB Status: Active or Offline - Discover & Track!"
-date: 2024-06-21 19:52:40
-updated: 2024-06-23 10:40:36
+date: 2024-06-25T14:36:06.075Z
+updated: 2024-06-26T14:36:06.075Z
 tags:
   - facebook
 categories:
@@ -35,19 +35,19 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
  If it works, you've isolated the issue to only your computer. Try another browser to make sure that it's not an issue with your current one, and restart your computer to clear up any temporary issues.
 
- In case you can't open any websites on your network, see[how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
+ In case you can't open any websites on your network, see [how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
 
 ### 2\. Check an Outage Detector Website
 
- Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as[Downdetector](https://downdetector.com/) .
+ Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as [Downdetector](https://downdetector.com/) .
 
- On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open[Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
+ On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open [Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
 
 ![Facebook Downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Downdetector.png)
 
  If you see a spike in issues recently, chances are good that Facebook is down for everyone. Further down the page, you'll find a map of where people reported Facebook issues from, comments, and whether the issues are with the website, app, or server connections.
 
- For a second opinion, you can also check[Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
+ For a second opinion, you can also check [Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
  While Downdetector and similar sites are a reliable source for Facebook (and other) outages, it's a good idea to supplement what you find there with other data. Twitter is one of the best places to find up-to-the-minute information about pretty much anything, including website outages.
 
- Head to[Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at[Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
+ Head to [Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at [Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
 
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
@@ -87,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
 
 ## Get Alerts When Facebook Goes Down in the Future
 
- If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like[DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
+ If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like [DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
 
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
 
@@ -114,3 +114,26 @@ thumbnail: https://thmb.techidaily.com/950d846f8fcee250021d944b4596b6aafb3f396fb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-process-of-untagging-fb-images/"><u>Navigating the Process of Untagging FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigative-study-oculus-q2-uptake-among-hacked-facebookers/"><u>Investigative Study: Oculus Q2 Uptake Among Hacked Facebookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-dreamers-needed-facebook-says-yes-to-10k/"><u>Metaverse Dreamers Needed - Facebook Says Yes to 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-moment-for-facebooks-user-base/"><u>Peaking Moment for Facebook's User Base</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticate-and-engage-meta-us-awaits-you/"><u>Authenticate and Engage – Meta US Awaits You</u></a></li>
+<li><a href="https://facebook.techidaily.com/youth-caution-preparing-to-unplug-from-instagram/"><u>Youth Caution: Preparing to Unplug From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-solution-to-social-media-squabble-scraping/"><u>Simplified Solution to Social Media Squabble Scraping</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-meizu-21-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Meizu 21 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-infinix-hot-40-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Infinix Hot 40 without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oppo-a79-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Oppo A79 5G Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-show-off-your-gaming-skills-a-beginners-guide-to-sharing-ps4-screenshots/"><u>In 2024, Show Off Your Gaming Skills A Beginners Guide to Sharing PS4 Screenshots</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-immutable-tiktok-hyperlink-process-for-profiles/"><u>In 2024, Immutable TikTok Hyperlink Process for Profiles</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-infinix-note-30-pro-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Infinix Note 30 Pro Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/boost-stories-interaction-with-peculiar-creative-questions/"><u>Boost Stories Interaction with Peculiar Creative Questions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-effective-utilization-of-whiteboards-on-mobile-and-desktop-for-online-learning/"><u>[New] 2024 Approved  Effective Utilization of Whiteboards on Mobile and Desktop for Online Learning</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/repeat-repeat-repeat-top-free-video-loopers-for-windows-and-mac-for-2024/"><u>Repeat, Repeat, Repeat Top Free Video Loopers for Windows and Mac for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-ajeys-youtube-earnings-insight-2023/"><u>In 2024, Ajey's YouTube Earnings Insight - 2023</u></a></li>
+</ul></div>

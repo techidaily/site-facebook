@@ -1,7 +1,7 @@
 ---
 title: "Tech Giants Warn: Should Youngsters Limit Their Time on Instagram?"
-date: 2024-06-21 17:48:28
-updated: 2024-06-23 12:24:34
+date: 2024-06-25T14:19:08.772Z
+updated: 2024-06-26T14:19:08.772Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,23 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-invisible-wall-reasons-for-fb-disabling/"><u>The Invisible Wall: Reasons for FB Disabling</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-discarded-conversations-from-facebooks-abyss/"><u>Retrieving Discarded Conversations From Facebook's Abyss</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dichotomy-of-connection-and-loneliness-on-facebook/"><u>The Dichotomy of Connection and Loneliness on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pillars-leading-todays-facebook/"><u>The Pillars Leading Today’s Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-virtual-world-be-selective-dont-accept-everyone/"><u>Safeguarding Your Virtual World: Be Selective, Don't Accept Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-line-between-laughter-and-rude-gestures/"><u>The Fine Line Between Laughter and Rude Gestures</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/tips-and-tricks-to-perfectly-use-the-audio-mixer-in-filmora/"><u>Tips & Tricks To Perfectly Use the Audio Mixer in Filmora</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-x-recorder-software-efficient-pc-sound-recording-for-2024/"><u>[Updated] X-Recorder Software  Efficient PC Sound Recording for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-iphone-13-pro-max-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your iPhone 13 Pro Max in Security Lockout? Proper Ways To Unlock</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/one-step-trick-stellar-instagram-collage-design/"><u>One-Step Trick  Stellar Instagram Collage Design</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/share-your-videos-and-photos-posting-to-twitter-no-retweeting-for-2024/"><u>Share Your Videos and Photos  Posting to Twitter - No Retweeting for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-managing-fast-forward-functions/"><u>2024 Approved  The Ultimate Guide to Managing Fast Forward Functions</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-through-speed-ramping-create-a-smooth-transition-in-slow-motion-videos-follow-this-guide-and-learn-about-premiere-pro-slow-motion-and-a-better-alternati/"><u>New Through Speed Ramping, Create a Smooth Transition in Slow-Motion Videos. Follow This Guide and Learn About Premiere Pro Slow Motion and a Better Alternative</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-melodious-feed-infusing-ig-stories-with-music-for-2024/"><u>[New] Melodious Feed  Infusing IG Stories With Music for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Social Media's New Controvernial Approach to Advertising?
-date: 2024-06-20 15:57:19
-updated: 2024-06-23 10:32:15
+date: 2024-06-25T14:05:47.909Z
+updated: 2024-06-26T14:05:47.909Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
- In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
+ In a post on the [Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 ## Facebook Responds to Signal's Move
 
@@ -72,3 +72,24 @@ Facebook responded with the following statement to the media:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-pondering-social-unsubscriptions/"><u>A Comprehensive Guide to Pondering Social Unsubscriptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reacquiring-facebook-login-post-code-loss-scenario/"><u>Reacquiring Facebook Login Post-Code Loss Scenario</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-purpose-of-instagrams-unplugged-message/"><u>Discovering the Purpose of Instagram's 'Unplugged' Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-the-hate-for-digital-community-hubs/"><u>What Lies Beneath the Hate for Digital Community Hubs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-social-interactions-messengers-ar-expansion/"><u>Innovating Social Interactions: Messenger's AR Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/creators-get-ready-instagram-adds-more-money-making-avenues/"><u>Creators, Get Ready: Instagram Adds More Money-Making Avenues</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-fb-more-smoothly-with-shortcut-management/"><u>Navigate FB More Smoothly With Shortcut Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-premier-list-visionary-audiovideo-makers-web-for-2024/"><u>The Premier List  Visionary Audio/Video Makers Web for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-examining-the-usefulness-of-instagrams-selfie-validation/"><u>[Updated] In 2024, Examining the Usefulness of Instagram's Selfie Validation</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-14-plus-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-oppo-a58-4g-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Oppo A58 4G Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-fb-video-sharing-rules-and-regulations-overview-for-2024/"><u>[Updated] FB Video-Sharing Rules and Regulations Overview for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-the-perfect-dj-template-video-download-for-your-events/"><u>[Updated] In 2024, Finding the Perfect DJ Template Video Download for Your Events</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nokia-105-classic-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nokia 105 Classic Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-solving-the-puzzle-of-nonexistent-facebook-video-suggests/"><u>[Updated] In 2024, Solving the Puzzle of Nonexistent Facebook Video Suggests</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-list-free-mac-speech-to-text-apps-that-will-boost-your-productivity/"><u>The Ultimate List Free Mac Speech-to-Text Apps That Will Boost Your Productivity</u></a></li>
+</ul></div>

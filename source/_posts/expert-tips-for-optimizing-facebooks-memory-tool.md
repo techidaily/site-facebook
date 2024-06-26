@@ -1,7 +1,7 @@
 ---
 title: Expert Tips for Optimizing Facebook's Memory Tool
-date: 2024-06-20 23:17:41
-updated: 2024-06-23 12:33:33
+date: 2024-06-25T14:31:33.017Z
+updated: 2024-06-26T14:31:33.017Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ To share a memory from the On This Day feature:
 
 1. Open**Memories** from your Facebook menu. It will be available by tapping the three horizontal lines in the bottom right corner of your screen. Users who wish to access memories through the website can scroll through the menu on the left side of their Facebook homepage.
 2. Select the memory you wish to share.
-3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on [Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
@@ -83,7 +83,7 @@ To access your saved memories:
 
 Close
 
- To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
+ To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
@@ -95,7 +95,7 @@ Close
 
 ## Customization Options for the On This Day Feature
 
- If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
+ If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
 
 1. Open**Memories** from the Facebook**Menu** .
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
@@ -144,3 +144,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-glances-the-ultimate-fb-privacy-guide/"><u>Eliminating Unwanted Glances: The Ultimate FB Privacy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-renaming-a-step-towards-user-centric-design/"><u>Facebook’s Renaming: A Step Towards User-Centric Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-location-sharing-with-facebook-peers/"><u>Enabling Location Sharing with Facebook Peers</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-id-switching-technique-for-multiple-fb-users/"><u>Efficient ID Switching Technique for Multiple FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impending-shake-up-meta-vs-european-social-media-giants/"><u>The Impending Shake-Up: Meta Vs. European Social Media Giants</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/selected-best-5-youtube-script-writing-ai-customized-for-you-for-2024/"><u>Selected Best 5 YouTube Script Writing AI Customized for You for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features/"><u>From Reels to Filters  A Closer Look at TikTok vs Snap's Features</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-enlightening-the-path-to-professional-photo-videos-with-pixiz/"><u>[New] Enlightening the Path to Professional Photo Videos with Pixiz</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-merging-made-easy-the-top-5-free-online-video-combination-tools-for-2024/"><u>Updated Merging Made Easy The Top 5 Free Online Video Combination Tools for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-beam-worthy-moments-samsung-gamers-chronicle/"><u>[Updated] Beam-Worthy Moments  Samsung Gamers Chronicle</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-an-honest-review-of-recordcast-for-2024/"><u>[Updated] An Honest Review of RecordCast for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-tecno-spark-20-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Tecno Spark 20 Is Unlocked</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-master-the-art-of-file-conversion-selecting-best-free-tools-for-instagram-videos-windowsosx/"><u>2024 Approved  Master the Art of File Conversion  Selecting Best Free Tools for Instagram Videos [Windows/OSX]</u></a></li>
+</ul></div>

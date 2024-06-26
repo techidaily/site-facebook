@@ -1,7 +1,7 @@
 ---
 title: "Real-Talk on Ruses: Discerning Genuine From Fabricated"
-date: 2024-06-21 19:35:11
-updated: 2024-06-23 12:54:31
+date: 2024-06-25T13:48:24.767Z
+updated: 2024-06-26T13:48:24.767Z
 tags:
   - facebook
 categories:
@@ -31,13 +31,11 @@ thumbnail: https://thmb.techidaily.com/151496d9a19ba95beb3641cc868ae237a3532fbd9
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
-### 1\. Fake or Stolen Photos
+### 1\. Fake or Stolen Photos ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
 
-![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
+ Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by [online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
 
- Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
-
- If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like[TinEye](http://tineye.com) and[Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
+ If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like [TinEye](http://tineye.com) and [Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
 
 ### 2\. An Inconsistent Timeline
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/151496d9a19ba95beb3641cc868ae237a3532fbd9
 
  Sometimes, you'll find a long period of dormancy where there's no post at all and then a period of almost daily posting. This is a red flag.
 
-### 3\. Strange Stories with a Plea for Help
-
-![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
+### 3\. Strange Stories with a Plea for Help ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/151496d9a19ba95beb3641cc868ae237a3532fbd9
 
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
- It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other [ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
 ## Protect Yourself From Fake Profiles
 
@@ -86,3 +82,22 @@ thumbnail: https://thmb.techidaily.com/151496d9a19ba95beb3641cc868ae237a3532fbd9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-john-doe-to-jane-smith-mastering-the-facebook-renaming-journey/"><u>From John Doe to Jane Smith: Mastering the Facebook Renaming Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/imposter-in-the-network-social-scam-alert/"><u>Imposter in the Network: Social Scam Alert</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-social-facebooks-portable-portal-gone/"><u>Revolutionizing Social: Facebook's Portable Portal Gone</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-practical-ways-to-regain-lost-facebook-profile-access/"><u>7 Practical Ways to Regain Lost Facebook Profile Access</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-top-7-online-auto-subtitle-translators-for-content-creators/"><u>2024 Approved Top 7 Online Auto Subtitle Translators for Content Creators</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-xiaomi-redmi-k70-unlock-without-password-by-drfone-android/"><u>5 Solutions For Xiaomi Redmi K70 Unlock Without Password</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/innovative-approaches-to-amplify-online-films-with-free-audio-sources/"><u>Innovative Approaches to Amplify Online Films with Free Audio Sources</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-8-endorsed-methods-for-video-marketing-success/"><u>[New] Top 8 Endorsed Methods for Video Marketing Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-7-precision-shooter-classics-for-2024/"><u>Top 7 Precision Shooter Classics for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-video-direction-on-instagram-in-reverse/"><u>[Updated] Mastering Video Direction on Instagram in Reverse</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mastering-vlog-production-top-8-mirrorless-cameras-ranked/"><u>Mastering Vlog Production  Top 8 Mirrorless Cameras Ranked</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-the-ultimate-guide-to-linkedin-video-dimensions-for-maximum-engagement/"><u>In 2024, The Ultimate Guide to LinkedIn Video Dimensions for Maximum Engagement</u></a></li>
+</ul></div>

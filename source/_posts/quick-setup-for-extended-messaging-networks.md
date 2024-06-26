@@ -1,7 +1,7 @@
 ---
 title: Quick Setup for Extended Messaging Networks
-date: 2024-06-20 18:39:21
-updated: 2024-06-23 11:28:50
+date: 2024-06-25T13:47:25.399Z
+updated: 2024-06-26T13:47:25.399Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,24 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-interactions-upsides-top-9-positive-aspects-explained/"><u>Digital Interaction's Upsides: Top 9 Positive Aspects Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-potential-reasons-behind-facebooks-new-name/"><u>Exploring Potential Reasons Behind Facebook's New Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-instagrams-pending-chat-closure/"><u>Understanding Instagram's Pending Chat Closure</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendly-fun-in-the-digital-age-staying-positive/"><u>Friendly Fun in the Digital Age: Staying Positive</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-social-network-snapshot-downloading-your-facebook-past/"><u>Complete Social Network Snapshot: Downloading Your Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-page-blocking-unwanted-profiles/"><u>Mastering Facebook Page: Blocking Unwanted Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-effective-social-sites-for-senior-users/"><u>Most Effective Social Sites For Senior Users</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-eye-opening-list-of-the-top-12-yt-gamers-intros-freepaid-sessions/"><u>In 2024, Eye-Opening List of the Top 12 YT Gamers' Intros (Free/Paid Sessions)</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/premier-plans-exclusive-free-premiere-pro-samples-2023/"><u>Premier Plans - Exclusive Free Premiere Pro Samples 2023</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-refined-connections-zoom-insight-for-professional-google-meets/"><u>[Updated] In 2024, Refined Connections  Zoom Insight for Professional Google Meets</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/crafting-an-engaging-online-presence-with-fb-for-2024/"><u>Crafting an Engaging Online Presence with FB for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-smooth-out-the-shakes-8-free-online-video-stabilizers-to-try/"><u>In 2024, Smooth Out the Shakes 8 Free Online Video Stabilizers to Try</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-2024-approved-best-ios-and-android-apps-you-can-use-to-create-animoji-and-memoji-videos/"><u>Updated 2024 Approved Best iOS and Android Apps You Can Use to Create Animoji and Memoji Videos</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-enhancing-community-management-with-discord-roles/"><u>2024 Approved  Enhancing Community Management with Discord Roles</u></a></li>
+</ul></div>

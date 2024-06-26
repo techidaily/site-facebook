@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a New Dimension: Understanding the Metaverse"
-date: 2024-06-22 23:18:16
-updated: 2024-06-23 11:48:38
+date: 2024-06-25T14:06:31.425Z
+updated: 2024-06-26T14:06:31.425Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept
-
-![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -41,7 +39,7 @@ So, what is the metaverse?
 
 Yet.
 
- In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with[The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
+ In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with [The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
 
 > You can think about it as an embodied internet, where instead of just viewing the content—you are in it. And you feel present with other people as if you were in other places . . . but the metaverse isn’t just virtual reality. It’s going to be accessible across all of our different computing platforms; VR and AR, but also PC, and also mobile devices and game consoles
 
@@ -49,9 +47,7 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse
-
-![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -73,9 +69,7 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors
-
-![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -86,9 +80,7 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet
-
-![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -111,3 +103,24 @@ Yet.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-non-harmful-social-engagement-online/"><u>Mastering The Art of Non-Harmful Social Engagement Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-ears-of-phones-spying-for-marketing-reality/"><u>Digital Ears of Phones: Spying for Marketing Reality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-your-news-feed-from-political-strife/"><u>Silent Your News Feed From Political Strife</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticate-with-meta-us-edition/"><u>Authenticate with Meta – US Edition</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-c53-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme C53 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-the-conversion-avi-files-become-gifs-using-filmora-software-windowsmac/"><u>2024 Approved  Master the Conversion  AVI Files Become GIFs Using Filmora Software (Windows/Mac)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-camon-20-premier-5g-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Camon 20 Premier 5G Phone FRP Lock</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unlock-engaging-videos-the-ultimate-guide-to-resizing-for-social-media/"><u>New In 2024, Unlock Engaging Videos The Ultimate Guide to Resizing for Social Media</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-advanced-steps-for-securing-stock-photo-borders/"><u>[Updated] Advanced Steps for Securing Stock Photo Borders</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-cinematic-l-slow-videos-tips-from-the-pros-on-gopro-hero-10/"><u>Crafting Cinematic L-Slow Videos  Tips From the Pros on GoPro Hero 10</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-15-pro-max-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-exploring-instagrams-premier-after-effects-themes/"><u>2024 Approved  Exploring Instagram's Premier After Effects Themes</u></a></li>
+</ul></div>

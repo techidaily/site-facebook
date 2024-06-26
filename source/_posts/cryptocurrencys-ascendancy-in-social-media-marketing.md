@@ -1,7 +1,7 @@
 ---
 title: Cryptocurrency's Ascendancy in Social Media Marketing
-date: 2024-06-22 10:59:55
-updated: 2024-06-23 12:45:46
+date: 2024-06-25T14:49:17.857Z
+updated: 2024-06-26T14:49:17.857Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
  The major change is that Meta will now consider 27 different licenses, up from the previous three.
 
- "We're doing this because the cryptocurrency landscape has continued to mature and stabilize in recent years and has seen more government regulations that are setting clearer rules for their industry," Meta wrote in[a blog post](https://web.facebook.com/business/news/expanding-eligibility-to-run-ads-about-cryptocurrency?%5Frdc=1&%5Frdr) . Here's the[official list of all the licenses supported](https://web.facebook.com/policies/ads/restricted%5Fcontent/cryptocurrency%5Fproducts%5Fand%5Fservices) .
+ "We're doing this because the cryptocurrency landscape has continued to mature and stabilize in recent years and has seen more government regulations that are setting clearer rules for their industry," Meta wrote in [a blog post](https://web.facebook.com/business/news/expanding-eligibility-to-run-ads-about-cryptocurrency?%5Frdc=1&%5Frdr) . Here's the [official list of all the licenses supported](https://web.facebook.com/policies/ads/restricted%5Fcontent/cryptocurrency%5Fproducts%5Fand%5Fservices) .
 
  All a crypto company needs is one of the newly expanded regulatory licenses, and they'll be able to run their ads on both Facebook and Instagram. However, the policy change doesn't affect previously approved crypto companies.
 
@@ -39,9 +39,7 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
 
  Related:[The Best Software Crypto Wallets to Store Your Assets](https://www.makeuseof.com/best-software-crypto-wallets/)
 
-## Why Meta's Crypto Advertising Policy Change Is Welcome
-
-![person holding crypto coins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/person-holding-crypto.jpg)
+## Why Meta's Crypto Advertising Policy Change Is Welcome ![person holding crypto coins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/person-holding-crypto.jpg)
 
  Meta's policy change on crypto ads is welcome for two key reasons.
 
@@ -76,3 +74,27 @@ thumbnail: https://thmb.techidaily.com/e4680a85088d1a2f44c589b1c74f41a831760d9ea
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/using-spotify-directly-through-facebook-interface/"><u>Using Spotify Directly Through Facebook Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-fb-login-without-codes-a-step-by-step-guide/"><u>Regaining FB Login Without Codes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-cryptocurrencys-steadfastness-stablecoins/"><u>A Closer Look at Cryptocurrency's Steadfastness: Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-controls-facebook-currently/"><u>Who Controls Facebook Currently?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-identity-codes-fb-pages-and-unames/"><u>Understanding Social Media Identity Codes: FB Pages & UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/interconnected-evolution-4-ways-platforms-altered-society/"><u>Interconnected Evolution: 4 Ways Platforms Altered Society</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-nubia-z50-ultra-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Nubia Z50 Ultra Through Google Earth?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unleash-creative-potential-best-free-title-crafting-for-yt/"><u>2024 Approved  Unleash Creative Potential  Best Free Title Crafting for YT</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Honor Magic V2? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-uncover-the-best-the-ultimate-5-book-promo-video-list/"><u>[New] Uncover the Best  The Ultimate 5 Book Promo Video List</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-netflixs-pace-adjustments/"><u>2024 Approved  Navigating Netflix's Pace Adjustments</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-2023s-best-rated-ps3-virtual-players-for-pc/"><u>[New] 2024 Approved  2023'S Best-Rated PS3 Virtual Players for PC</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-creative-video-editing-for-fb-techniques-of-lc-and-bb-overlay/"><u>2024 Approved  Creative Video Editing for FB  Techniques of LC and BB Overlay</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-iphone-12-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your iPhone 12 Pro and iPad?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-the-landscape-of-online-storytelling-with-reels/"><u>[New] Navigating the Landscape of Online Storytelling with Reels</u></a></li>
+</ul></div>

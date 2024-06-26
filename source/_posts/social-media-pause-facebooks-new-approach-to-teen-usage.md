@@ -1,7 +1,7 @@
 ---
 title: "Social Media Pause: Facebook's New Approach to Teen Usage"
-date: 2024-06-20 19:52:14
-updated: 2024-06-23 10:59:17
+date: 2024-06-25T14:31:02.117Z
+updated: 2024-06-26T14:31:02.117Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-reclaim-your-cash-the-fb-reimbursement-route/"><u>How to Reclaim Your Cash: The FB Reimbursement Route</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-citizenaship-banned-trump-but-not-indefinitely/"><u>Cyber Citizenaship: Banned Trump, but Not Indefinitely</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-deep-into-digital-profits-unveiling-5-social-media-earning-methods/"><u>Dive Deep Into Digital Profits: Unveiling 5 Social Media Earning Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-steps-for-adding-contacts-in-fb-messaging/"><u>Simple Steps for Adding Contacts in FB Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-designing-an-engaging-social-media-profile-picture-using-your-avatar/"><u>Unleash Creativity: Designing an Engaging Social Media Profile Picture Using Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-economy-of-eyeing-us-from-afar/"><u>The Economy of Eyeing Us From Afar</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-grids-reworked-for-facebooks-fabric/"><u>Social Grids Reworked for Facebook's Fabric</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-users-youve-blocked-on-fb/"><u>Identifying Users You've Blocked on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevate-your-creations-the-7-most-innovative-nft-generators-for-2024/"><u>Elevate Your Creations - The 7 Most Innovative NFT Generators for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-views-a-guide-to-best-youtube-hash-tags/"><u>[New] In 2024, Elevate Views  A Guide to Best YouTube Hash Tags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-content-in-depth-guide-to-youtube-video-edits/"><u>[Updated] In 2024, Elevate Your Content  In-Depth Guide to YouTube Video Edits</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-pro-max-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Pro Max to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-motorola-edge-40-pro-device-sim-by-drfone-android/"><u>Easily Unlock Your Motorola Edge 40 Pro Device SIM</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/transcoding-vimeo-to-mp3-audio-file/"><u>Transcoding Vimeo to MP3 Audio File</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-fcpx-on-a-budget-10-essential-free-plugins/"><u>New FCPX on a Budget 10 Essential Free Plugins</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-guide-to-slowing-down-videos-in-snapchat-discussing-the-details/"><u>New 2024 Approved Guide To Slowing Down Videos in Snapchat Discussing the Details</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decode-instagram-visibility-whos-glancing-at-yours-in-2024/"><u>[Updated] Decode Instagram Visibility  Who's Glancing at Yours, In 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-optimizing-your-fb-live-on-zoom-stream/"><u>[New] Optimizing Your FB Live on Zoom Stream</u></a></li>
+</ul></div>

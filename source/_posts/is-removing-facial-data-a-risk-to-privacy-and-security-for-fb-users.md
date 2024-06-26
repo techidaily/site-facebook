@@ -1,7 +1,7 @@
 ---
 title: Is Removing Facial Data a Risk to Privacy and Security for FB Users?
-date: 2024-06-20 20:47:36
-updated: 2024-06-23 11:47:25
+date: 2024-06-25T14:01:16.118Z
+updated: 2024-06-26T14:01:16.118Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 
 ## What’s Changing With Facebook Facial Recognition?
 
- The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
+ The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying [templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
 
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
@@ -47,17 +47,15 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
 
  The overall situation worsened when an October 4, 2021, global outage persisted for more than six hours, affecting Facebook and other companies under the Meta umbrella like Instagram. In fact,[analysts estimate](http://journal.uptimeinstitute.com/too-big-to-fail-facebooks-global-outage/) that event caused approximately $60 million in lost revenue.
 
- More recently, a[CNN poll](http://edition.cnn.com/2021/11/10/business/cnn-poll-facebook/index.html) found 76 percent of people think Facebook makes society worse. Additionally, 55 percent of respondents with that view primarily blame how some people use the site. The remaining 45 percent think the main issue is with the social media site’s operations.
+ More recently, a [CNN poll](http://edition.cnn.com/2021/11/10/business/cnn-poll-facebook/index.html) found 76 percent of people think Facebook makes society worse. Additionally, 55 percent of respondents with that view primarily blame how some people use the site. The remaining 45 percent think the main issue is with the social media site’s operations.
 
- Consumer Reports conducted a study in 2019 to see how users felt about concerns related to the site’s handling of data and user privacy matters in the wake of the[Cambridge Analytica privacy scandal](http://www.makeuseof.com/ways-facebook-invades-privacy-stop/) . The results showed that nearly 25 percent of people felt very or extremely concerned about the amount of personal information Facebook collects and stores.
+ Consumer Reports conducted a study in 2019 to see how users felt about concerns related to the site’s handling of data and user privacy matters in the wake of the [Cambridge Analytica privacy scandal](http://www.makeuseof.com/ways-facebook-invades-privacy-stop/) . The results showed that nearly 25 percent of people felt very or extremely concerned about the amount of personal information Facebook collects and stores.
 
  The Consumer Reports team also heard personal perspectives from people who didn’t like how Facebook used data, but continued using the platform. More specifically, only one in 10 people gave up the site after hearing about the Cambridge Analytica disaster.
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
-## No Major Security Improvements Here
-
-![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+## No Major Security Improvements Here ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -80,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/da3a565149456b725f254b5d80c3b1f1c06d74a5f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-revenue-streams-instagrams-new-perks-for-artists/"><u>Expanding Revenue Streams: Instagram's New Perks for Artists</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/methodical-ways-to-delete-your-facebook-alerts/"><u>Methodical Ways to Delete Your Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-management-securing-your-social-media-space-with-admins/"><u>Mastery Over Management: Securing Your Social Media Space with Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-image-descriptions-for-fb-posts/"><u>Mastering Image Descriptions for FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-influence-maxed-out/"><u>Is Facebook's Influence Maxed Out?</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-decoding-the-meanings-behind-key-smarts/"><u>The Language of Likes & Shares: Decoding the Meanings Behind Key SMARTs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-azure-speech-to-text-a-quick-overview-for-developers/"><u>[New] Azure Speech-to-Text  A Quick Overview for Developers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-top-8-best-apps-to-get-likes-on-facebook-android-and-iphone/"><u>[Updated] 2024 Approved  Top 8 Best Apps to Get Likes on Facebook (Android and iPhone)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-the-landscape-post-vlc-dominance-for-2024/"><u>Navigating the Landscape Post-VLC Dominance for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-humor-highlights-top-20-hilarious-tiktok-jokes-and-riddles/"><u>[Updated] In 2024, Humor Highlights  Top 20 Hilarious TikTok Jokes and Riddles</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-prime-video-power-players-all-time-top-tweets-and-views-ranking/"><u>[Updated] Prime Video Power Players  All-Time Top Tweets & Views Ranking</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/fiery-firefox-screenshot-add-ons-for-2024/"><u>Fiery Firefox Screenshot Add-Ons for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-effective-use-of-adsense-on-youtube-to-boost-channel-income/"><u>[New] In 2024, Effective Use of AdSense on YouTube to Boost Channel Income</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-streamline-your-storage-download-vimeo-videos-in-mp4-formats-for-2024/"><u>[Updated] Streamline Your Storage  Download Vimeo Videos in MP4 Formats for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-avoid-losing-tiktok-videos-prevent-accidental-renewals/"><u>[New] 2024 Approved  Avoid Losing TikTok Videos  Prevent Accidental Renewals</u></a></li>
+</ul></div>

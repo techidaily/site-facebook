@@ -1,7 +1,7 @@
 ---
 title: "Swiftly Spread Conversation Wings: Add Friends on Facebook Messenger"
-date: 2024-06-20 17:43:27
-updated: 2024-06-23 10:13:17
+date: 2024-06-25T14:14:42.066Z
+updated: 2024-06-26T14:14:42.066Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,26 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/understanding-and-activating-the-facebook-shield/"><u>Understanding and Activating the Facebook Shield</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reason-for-non-visibility-in-app-interactions/"><u>Unveiling the Reason for Non-Visibility in App Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-online-anonymity-metacrypt-or-faceboss-for-quest/"><u>Assessing Online Anonymity: Metacrypt or Faceboss for Quest?</u></a></li>
+<li><a href="https://facebook.techidaily.com/rise-in-ranking-paid-verification-for-users/"><u>Rise in Ranking: Paid Verification for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-exits-the-rationale-behind-facebooks-stay/"><u>Beyond Exits: The Rationale Behind Facebook's Stay</u></a></li>
+<li><a href="https://facebook.techidaily.com/snapchat-of-the-networld-facebooks-trajectory-to-meta/"><u>Snapchat of the Networld: Facebook's Trajectory to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-made-easier-intelligent-photo-captioning-systems/"><u>Social Media Made Easier: Intelligent Photo Captioning Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://facebook.techidaily.com/headset-sales-surge-post-hacking-incidents-total-300-average/"><u>Headset Sales Surge Post-Hacking Incidents, Total $300 Average</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/long-lasting-friendship-on-snapchat-ideas-and-insights/"><u>Long-Lasting Friendship on Snapchat  Ideas and Insights</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-step-by-step-turn-your-images-darker/"><u>[Updated] Step-by-Step  Turn Your Images Darker</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-discover-the-ultimate-luts-for-wondershare-filmora-uncover-the-answer/"><u>Updated 2024 Approved Discover the Ultimate LUTs for Wondershare Filmora Uncover the Answer</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-setting-up-your-business-youtube-channel-on-mobile/"><u>2024 Approved  Step-by-Step  Setting Up Your Business YouTube Channel on Mobile</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-classic-to-curvy-embracing-distorted-photography-styles/"><u>2024 Approved  From Classic to Curvy  Embracing Distorted Photography Styles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-starting-your-way-into-creating-room-based-whatsapp-groups/"><u>In 2024, Starting Your Way Into Creating Room-Based WhatsApp Groups</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-nokia-c02-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Nokia C02 Screen | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-simple-way-to-reverse-a-video-in-final-cut-pro-2023-edition-for-2024/"><u>New The Simple Way to Reverse a Video in Final Cut Pro 2023 Edition for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-is-phase-alignment-essential-for-reducing-auditory-masking/"><u>Updated In 2024, Is Phase Alignment Essential for Reducing Auditory Masking?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-7-by-drfone-ios/"><u>In 2024, Troubleshooting Error Connecting to the Apple ID Server From iPhone 7</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Secrets to Facebook's Day-on-Day Tool
-date: 2024-06-22 15:14:31
-updated: 2024-06-23 10:13:37
+date: 2024-06-25T14:28:27.641Z
+updated: 2024-06-26T14:28:27.641Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ To share a memory from the On This Day feature:
 
 1. Open**Memories** from your Facebook menu. It will be available by tapping the three horizontal lines in the bottom right corner of your screen. Users who wish to access memories through the website can scroll through the menu on the left side of their Facebook homepage.
 2. Select the memory you wish to share.
-3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on [Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
@@ -83,7 +83,7 @@ To access your saved memories:
 
 Close
 
- To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
+ To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
@@ -95,7 +95,7 @@ Close
 
 ## Customization Options for the On This Day Feature
 
- If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
+ If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
 
 1. Open**Memories** from the Facebook**Menu** .
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
@@ -144,3 +144,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-big-lie-uncovering-10-facebook-misconceptions/"><u>Breaking Down the Big Lie: Uncovering 10 Facebook Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-facebook-tags-efficiently/"><u>The Ultimate Guide to Removing Facebook Tags Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-marking-oneself-safe-in-social-media/"><u>Steps to Marking Oneself Safe in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-expression-online-how-to-update-your-profile-handle/"><u>Elevating Self-Expression Online: How to Update Your Profile Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-potential-candidates-tips-on-posting-jobs-on-facebook/"><u>Engaging Potential Candidates: Tips on Posting Jobs on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-generation-personalization-oculuss-new-characters/"><u>Next Generation Personalization - Oculus’s New Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-profiles-a-shift-to-secular-discourse-only/"><u>Transforming Profiles: A Shift to Secular Discourse Only</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-network-to-nexus-facebooks-metamate-evolution/"><u>From Network to Nexus: Facebook's 'Metamate' Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-to-unveil-multi-device-support-for-whatsapp/"><u>Zuckerberg to Unveil Multi-Device Support for WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-shout-outs-decode-three-social-media-tag-techniques-on-facebook/"><u>Simplify Shout-Outs: Decode Three Social Media Tag Techniques on Facebook</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/experience-classic-games-anywhere-with-these-top-5-game-boy-advance-console-emulators/"><u>Experience Classic Games Anywhere with These Top 5 Game Boy Advance Console Emulators</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-guide-adopting-lumetri-color-presets-in-effective-color-grading-for-2024/"><u>New Guide Adopting Lumetri Color Presets in Effective Color Grading for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-guide-to-elevating-your-chat-pin-messages-in-discord-for-2024/"><u>[Updated] Guide to Elevating Your Chat  Pin Messages in Discord for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-advanced-hd-screen-documentation-gadgets-for-2024/"><u>[Updated] Advanced HD Screen Documentation Gadgets for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-securely-extract-and-convert-youtube-audios-as-mp3/"><u>[Updated] How To Securely Extract and Convert YouTube Audios as MP3</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-breaking-through-on-tiktok-personal-branding-and-differentiation/"><u>[New] Breaking Through on TikTok  Personal Branding and Differentiation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-a-step-by-step-manual-for-capturing-vr-playthroughs/"><u>In 2024, A Step-by-Step Manual for Capturing VR Playthroughs</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hottest-twitters-the-viral-video-countdown-for-2024/"><u>[New] Hottest Twitters  The Viral Video Countdown for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-se-2020-without-a-passcode-drfone-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone SE (2020) Without a Passcode | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>[New] 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
+</ul></div>

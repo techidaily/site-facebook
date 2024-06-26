@@ -1,7 +1,7 @@
 ---
 title: Efficient Techniques for Capturing and Transferring FB Media
-date: 2024-06-20 22:38:38
-updated: 2024-06-23 11:46:15
+date: 2024-06-25T14:00:22.209Z
+updated: 2024-06-26T14:00:22.209Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/f15d1bc826d6244cad0ae98fe7b4565620a90c952
 
  We'll show you the official methods as well as third-party photo downloader apps, allowing you to download your Facebook photos, your friends' photos, and videos.
 
-## How to Download Facebook Photos
-
-![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+## How to Download Facebook Photos ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -30,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/f15d1bc826d6244cad0ae98fe7b4565620a90c952
 
  You can use this method to download Facebook photos. It's as simple as that.
 
- However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+ However, to download your friends' Facebook photos, their [Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
 ## How to Download Facebook Albums
 
@@ -56,7 +54,7 @@ Follow these steps to download your Facebook album:
 
  Here's how to use the easy built-in Facebook photo downloader to download all your Facebook photos:
 
-1. Head to Facebook settings on your desktop browser or use the link[facebook.com/settings](https://www.facebook.com/settings) .
+1. Head to Facebook settings on your desktop browser or use the link [facebook.com/settings](https://www.facebook.com/settings) .
 2. Click**Your Facebook information** in the sidebar.
 3. Select**Download your information** .  
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
@@ -85,11 +83,9 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-## How to Save Facebook Videos to Your Computer or Phone
+## How to Save Facebook Videos to Your Computer or Phone ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
-![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
-
- Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
+ Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you [download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
 
@@ -102,7 +98,7 @@ Here's how to use it:
 
  FDown also has a handy extension for Google Chrome on desktop dubbed Video Downloader Plus. When you are playing a Facebook video, click the extension icon to download it to your computer.
 
-**Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
+**Download:** Video Downloader Plus for [Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
@@ -127,3 +123,24 @@ Here's how to use it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-vital-business-metrics-to-ignite-your-trajectory/"><u>4 Vital Business Metrics to Ignite Your Trajectory</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-the-social-media-titans-temporarily-tremble/"><u>Why Did the Social Media Titans Temporarily Tremble?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-eliminating-online-track-record-on-facebook/"><u>Master the Art of Eliminating Online Track Record on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-call-for-action-facebook-and-google-must-tackle-online-scams-head-on/"><u>A Call for Action: Facebook & Google Must Tackle Online Scams Head-On</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151638048-penny-farthing-the-name-of-the-newly-discovered-goat/"><u>'Penny-Farthing' The Name of the Newly Discovered Goat.</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-touch-and-is-it-worth-using/"><u>What Is Facebook Touch and Is It Worth Using?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-simplifying-connection-combining-linkedin-profile-with-your-tiktok-bio/"><u>[New] Simplifying Connection  Combining LinkedIn Profile with Your TikTok Bio</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-top-14-photo-music-video-maker/"><u>Updated Top 14 Photo Music Video Maker</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-motorola-moto-e13-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Motorola Moto E13 Phone FRP Lock</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sizing-up-how-to-make-videos-work-in-instagram-bests-for-2024/"><u>[Updated] Sizing Up  How to Make Videos Work in Instagram Bests for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-how-to-draw-skeleton-cartoon-a-step-by-step-guide-for-2024/"><u>Updated How to Draw Skeleton Cartoon – A Step by Step Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gaining-ground-on-the-groundswell-of-online-viewers/"><u>[New] 2024 Approved  Gaining Ground on the Groundswell of Online Viewers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/unveiling-the-secrets-of-successful-high-res-videos-on-youtube/"><u>Unveiling the Secrets of Successful High-Res Videos on YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-ultimate-selection-elite-iphone-call-alerts/"><u>[New] Ultimate Selection  Elite iPhone Call Alerts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-screen-recording-showdown-go-with-obs-studio-or-bandicam/"><u>[Updated] In 2024, Screen Recording Showdown  Go with OBS Studio or Bandicam</u></a></li>
+</ul></div>

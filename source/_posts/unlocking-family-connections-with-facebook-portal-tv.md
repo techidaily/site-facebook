@@ -1,7 +1,7 @@
 ---
 title: Unlocking Family Connections with Facebook Portal TV
-date: 2024-06-21 14:37:26
-updated: 2024-06-23 11:54:21
+date: 2024-06-25T13:58:36.829Z
+updated: 2024-06-26T13:58:36.829Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
- The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
+ The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
 
@@ -55,9 +55,7 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV
-
-![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -87,9 +85,7 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi
-
-![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -108,9 +104,7 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know
-
-![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -141,3 +135,26 @@ Your Portal TV has two clips.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-photo-update-a-step-by-step-guide/"><u>Mastering Facebook Photo Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-growth-on-facebook-the-strength-of-pages-over-personal/"><u>Unlocking Brand Growth on Facebook: The Strength of Pages Over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-heartbreak-strategies-for-retaining-purchases-on-facebook/"><u>Avoid Heartbreak: Strategies for Retaining Purchases on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-the-elite-us-members-gain-metas-seal-of-approval/"><u>Join the Elite: U.S. Members Gain Meta's Seal of Approval</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-essentials-in-metas-privacy-adjustments/"><u>Breaking Down the Essentials in Meta's Privacy Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/locked-out-of-your-account-lets-fix-it/"><u>Locked Out of Your Account? Let's Fix It</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-decoding-the-essentials-of-your-youtube-tv-experience/"><u>[Updated] Decoding the Essentials of Your YouTube TV Experience</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/productivity-in-duality-employment-and-video-creation/"><u>Productivity in Duality  Employment & Video Creation</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-slice-and-tag-the-art-of-chaptering-in-vimeo/"><u>[Updated] In 2024, Slice and Tag  The Art of Chaptering in Vimeo</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-essential-guide-for-live-facebook-streams-pcmaclaptop/"><u>The Essential Guide for Live Facebook Streams (PC/Mac/Laptop)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-oppo-reno-10-proplus-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Oppo Reno 10 Pro+ 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/4-methods-to-merge-mp4-and-mp3/"><u>4 Methods to Merge MP4 and MP3</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-surveying-with-style-instagrams-polling-protocols-explained-for-2024/"><u>[Updated] Surveying with Style  Instagram's Polling Protocols Explained for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-future-visionary-premium-blu-ray-players-selection/"><u>In 2024, Future Visionary  Premium Blu-Ray Players Selection</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enhance-image-frames-leading-platforms-and-applications-2023-edition/"><u>Enhance Image Frames  Leading Platforms & Applications, 2023 Edition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-essentials-of-film-production-for-youtube-originals/"><u>[Updated] The Essentials of Film Production for YouTube Originals</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Master Silence: No More Comments on Your Online Sharing"
-date: 2024-06-21 15:56:10
-updated: 2024-06-23 10:15:24
+date: 2024-06-25T14:21:40.279Z
+updated: 2024-06-26T14:21:40.279Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ranking-safe-digital-connections/"><u>Ranking Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-access-add-admin-to-your-social-media-hub/"><u>Secure Access: Add Admin to Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-methods-to-simplify-and-purge-your-feed/"><u>5 Methods to Simplify and Purge Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-curtain-unmasking-imposters-in-digital-realm/"><u>Behind the Curtain: Unmasking Imposters in Digital Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-blueprint-for-an-exceptional-facebook-profile/"><u>The Ultimate Blueprint for an Exceptional Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-double-edged-sword-weighing-social-connectivity-against-your-privacy-with-facebook-logins/"><u>A Double-Edged Sword: Weighing Social Connectivity Against Your Privacy with Facebook Logins</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-best-practices-in-video-posting-choosing-correct-orientation-for-2024/"><u>[New] Best Practices in Video Posting – Choosing Correct Orientation for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-15-pro-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking iPhone 15 Pro Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-melody-in-motion-iphones-role-in-making-music-videos/"><u>[Updated] Melody in Motion  IPhone's Role in Making Music Videos</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-a-vlog-has-many-elements-to-answer-while-setting-up-ideas-for-it-there-are-several-things-into-which-you-should-look-this-article-presents-a-picture-of-/"><u>New A Vlog Has Many Elements to Answer. While Setting up Ideas for It, There Are Several Things Into Which You Should Look. This Article Presents a Picture of How a Vlog Video Is Made Perfectly</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-windows-video-editing-essentials-mastering-3d-effects-for-beginners-for-2024/"><u>New Windows Video Editing Essentials Mastering 3D Effects for Beginners for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-motorola-moto-g24-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Motorola Moto G24?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-fumbling-clips-to-viral-videos-youtube-edits-made-easy-with-sony-vegas-for-2024/"><u>From Fumbling Clips to Viral Videos  YouTube Edits Made Easy with Sony Vegas for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-instagrams-green-screen-magic/"><u>[Updated] Mastering Instagram's Green Screen Magic</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-mastery-through-snips-unveiling-macs-top-5-tools/"><u>[Updated] 2024 Approved  Mastery Through Snips  Unveiling Mac's Top 5 Tools</u></a></li>
+</ul></div>

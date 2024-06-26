@@ -1,7 +1,7 @@
 ---
 title: "Virtuality's Next Step: Defining the Metaverse"
-date: 2024-06-21 12:37:29
-updated: 2024-06-23 10:15:23
+date: 2024-06-25T13:55:09.290Z
+updated: 2024-06-26T13:55:09.290Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a5
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept
-
-![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -41,7 +39,7 @@ So, what is the metaverse?
 
 Yet.
 
- In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with[The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
+ In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with [The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
 
 > You can think about it as an embodied internet, where instead of just viewing the content—you are in it. And you feel present with other people as if you were in other places . . . but the metaverse isn’t just virtual reality. It’s going to be accessible across all of our different computing platforms; VR and AR, but also PC, and also mobile devices and game consoles
 
@@ -49,9 +47,7 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse
-
-![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -73,9 +69,7 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors
-
-![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -86,9 +80,7 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet
-
-![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -111,3 +103,24 @@ Yet.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-art-of-selecting-the-ultimate-facebook-pic/"><u>The Art of Selecting the Ultimate Facebook Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-emails-mastery-of-2fa-on-gmail-outlook-and-similar-providers/"><u>Safeguarding Your Emails: Mastery of 2FA on Gmail, Outlook & Similar Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-preservation-plan-dodge-these-3-invaders/"><u>Privacy Preservation Plan: Dodge These 3 Invaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-new-title-for-facebook-employees/"><u>Social Sphere Shift: New Title for Facebook Employees</u></a></li>
+<li><a href="https://facebook.techidaily.com/word-visualization-via-imagery-and-text-style-innovation/"><u>Word Visualization via Imagery and Text Style Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-must-try-apps-to-keep-your-social-plan-on-track/"><u>9 Must-Try Apps to Keep Your Social Plan on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-surface-hidden-post-factors-on-fb/"><u>Beyond the Surface: Hidden Post Factors on FB</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-leverage-linked-profiles-to-amplify-fb-stories/"><u>[Updated] Leverage Linked Profiles to Amplify FB Stories</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discover-10-amazing-world-wanderlust-channels/"><u>[New] 2024 Approved  Discover 10 Amazing World Wanderlust Channels</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-vivo-y100a-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Vivo Y100A to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-dive-into-the-digital-ocean-unveiling-facebooks-video-depth-for-2024/"><u>[Updated] Dive Into the Digital Ocean  Unveiling Facebook's Video Depth for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-simplifying-image-editing-with-picsarts-background-tool/"><u>[New] Simplifying Image Editing with Picsart's Background Tool</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-11-pro-max-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 11 Pro Max</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-crafting-seamless-sound-tracks-with-imovies-volume-control/"><u>In 2024, Crafting Seamless Sound Tracks with iMovies Volume Control</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-macs-top-tier-gif-recorder-tools-reviewed/"><u>In 2024, Mac's Top-Tier GIF Recorder Tools Reviewed</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-ultimate-guide-to-sony-vegas-alternatives-for-windows-10/"><u>In 2024, The Ultimate Guide to Sony Vegas Alternatives for Windows 10</u></a></li>
+</ul></div>

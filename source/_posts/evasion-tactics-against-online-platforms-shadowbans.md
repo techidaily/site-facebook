@@ -1,7 +1,7 @@
 ---
 title: Evasion Tactics Against Online Platform's Shadowbans
-date: 2024-06-21 14:49:11
-updated: 2024-06-23 11:11:53
+date: 2024-06-25T14:25:00.863Z
+updated: 2024-06-26T14:25:00.863Z
 tags:
   - facebook
 categories:
@@ -51,9 +51,9 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
  Some users have claimed that X (formerly Twitter) had shadowbanned them. The claims began in 2016, with accusations that Twitter was shadowbanning people that supported the Republican Party in the US.
 
- However, the situation escalated in 2018, after[Vice News](https://news.vice.com/en%5Fus/article/43paqq/twitter-is-shadow-banning-prominent-republicans-like-the-rnc-chair-and-trump-jrs-spokesman) claimed that Twitter was shadowbanning prominent Republican politicians, which was soon followed by a tweet from the then-President of the US, Donald Trump.
+ However, the situation escalated in 2018, after [Vice News](https://news.vice.com/en%5Fus/article/43paqq/twitter-is-shadow-banning-prominent-republicans-like-the-rnc-chair-and-trump-jrs-spokesman) claimed that Twitter was shadowbanning prominent Republican politicians, which was soon followed by a tweet from the then-President of the US, Donald Trump.
 
- Twitter was quick to respond, and while Vice News said that Twitter had "fixed" the shadowbans, Twitter claimed in a[blog post](https://blog.twitter.com/official/en%5Fus/topics/company/2018/Setting-the-record-straight-on-shadow-banning.html) that they have never actually used the practice. The blog post said that Twitter instead used ranking, which ranked tweets from "bad-faith actors".
+ Twitter was quick to respond, and while Vice News said that Twitter had "fixed" the shadowbans, Twitter claimed in a [blog post](https://blog.twitter.com/official/en%5Fus/topics/company/2018/Setting-the-record-straight-on-shadow-banning.html) that they have never actually used the practice. The blog post said that Twitter instead used ranking, which ranked tweets from "bad-faith actors".
 
  Apparently, Twitter determines these according to several factors which have to do with the authenticity of the account, and how the one uses the account.
 
@@ -61,9 +61,9 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
 ### Shadowbanning on Instagram
 
- Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to[check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
+ Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to [check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
 
- Instagram has addressed some of these claims on the[Instagram Help Center](https://help.instagram.com/613868662393739/?helpref=uf%5Fshare) . The company notes that content that is offensive or sensitive may be limited from the Explore page or Suggestions, and users will still see content from all accounts they follow.
+ Instagram has addressed some of these claims on the [Instagram Help Center](https://help.instagram.com/613868662393739/?helpref=uf%5Fshare) . The company notes that content that is offensive or sensitive may be limited from the Explore page or Suggestions, and users will still see content from all accounts they follow.
 
  However, this did not convince everyone. If you follow some smaller accounts on Instagram with a few thousand followers, you might have seen them complain about low reach all of a sudden.
 
@@ -79,11 +79,9 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
  Zuckerberg re-emphasized this point in a Joe Rogan podcast in 2022, saying that Facebook only limits posts that are proven to be false or engage in harmful content that is against the community guidelines. But, it makes mistakes.
 
- Zuckerberg has assured users that they are constantly working on the flaws. You can also simply[get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
+ Zuckerberg has assured users that they are constantly working on the flaws. You can also simply [get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
 
-### Shadowbanning on TikTok
-
-![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
+### Shadowbanning on TikTok ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
 
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
@@ -118,3 +116,24 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-meta-might-reshape-social-networking-for-europeans/"><u>How Meta Might Reshape Social Networking for Europeans</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connectivity-ditching-daily-facebook-use/"><u>Rethinking Connectivity: Ditching Daily Facebook Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-still-use-facebook/"><u>6 Reasons to Still Use Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-conversations-lighthearted-without-crossing-lines/"><u>Keeping Conversations Lighthearted without Crossing Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-journey-forward-thinking-beyond-social-platforms/"><u>Apple's Journey: Forward-Thinking Beyond Social Platforms</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-poco-c65-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Poco C65? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sci-fis-virtual-quest-the-best-movies-to-discover-alien-universes/"><u>[New] Sci-Fi's Virtual Quest  The Best Movies to Discover Alien Universes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-honor-100-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Honor 100</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-iphone-se-2020-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your iPhone SE (2020) Lock Screen with Notifications?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-worth-steadicams-for-high-end-aerial-film-production/"><u>In 2024, Best-Worth Steadicams for High-End Aerial Film Production</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/step-by-step-to-success-joining-youtubes-partner-program/"><u>Step-by-Step to Success  Joining YouTube's Partner Program</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discover-the-very-best-10-yoga-educational-outlets-for-2024/"><u>Discover The Very Best 10 Yoga Educational Outlets for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-orchestrating-visuals-and-vo-in-powerpoint/"><u>2024 Approved  Orchestrating Visuals & VO in Powerpoint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-banishing-the-blank-screen-from-youtube-videos/"><u>[New] 2024 Approved  Banishing the Blank Screen From YouTube Videos</u></a></li>
+</ul></div>

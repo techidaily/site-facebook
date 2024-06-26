@@ -1,7 +1,7 @@
 ---
 title: Why Facebook's Audience Is Diminishing Dramatically
-date: 2024-06-20 19:13:57
-updated: 2024-06-23 12:26:55
+date: 2024-06-25T14:30:20.448Z
+updated: 2024-06-26T14:30:20.448Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
 
  Facebook is seen as a space for the older generation to catch up with family. For kids, they prefer the imaginative 3D worlds that video games afford, where they can chat with their friends and enjoy a fun, shared experience.
 
- This is recognized internally by Facebook. In a report from[The Verge](https://www.theverge.com/22743744/facebook-teen-usage-decline-frances-haugen-leaks) , researchers at Facebook believe that teenage Facebook users will drop 45% in 2022 compared to 2019.
+ This is recognized internally by Facebook. In a report from [The Verge](https://www.theverge.com/22743744/facebook-teen-usage-decline-frances-haugen-leaks) , researchers at Facebook believe that teenage Facebook users will drop 45% in 2022 compared to 2019.
 
  According to a company presentation, "young adults perceive \[Facebook\] content as boring, misleading, and negative" and "have a wide range of negative associations with Facebook including privacy concerns, impact to their wellbeing, along with low awareness of relevant services."
 
@@ -76,3 +76,23 @@ thumbnail: https://thmb.techidaily.com/7fab9a6185158d097b206408c1b02e98fd2b514b0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unfolding-digital-horizons-what-is-the-metaverse/"><u>Unfolding Digital Horizons: What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vaccination-push-via-fb-twittersphere-and-snaps-by-jolie/"><u>Vaccination Push via FB, Twittersphere and Snaps by Jolie</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-pages-username-or-url/"><u>How to Change Your Facebook Page's Username or URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-personal-branding-on-social-media-with-fb/"><u>Optimizing Your Personal Branding on Social Media with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-things-to-do-before-deleting-your-facebook-account/"><u>8 Things to Do Before Deleting Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-navigating-a-fresh-start-guide-to-altering-your-tiktok-username-for-2024/"><u>[Updated] Navigating a Fresh Start  Guide to Altering Your TikTok Username for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-groundbreaking-alternatives-to-the-conventional-fbx-recorder-games/"><u>2024 Approved  Groundbreaking Alternatives to the Conventional FBX Recorder Games</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-dont-miss-out-the-importance-of-reading-this-mp3-converter-windows-post/"><u>New Dont Miss Out The Importance of Reading This Mp3 Converter Windows Post</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/exquisite-android-screen-capture-solutions-ranked-five/"><u>Exquisite Android Screen-Capture Solutions Ranked Five</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-lava-yuva-2-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Lava Yuva 2 without backup.</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-free-youtube-spotlight-with-two-key-approaches/"><u>[Updated] Free YouTube Spotlight with Two Key Approaches</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-q500-typhoon-yuneecs-high-resolution-bliss/"><u>[Updated] Q500 Typhoon - Yuneec's High-Resolution Bliss</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-master-your-most-watched-videos-on-fb-today-and-beyond-2023/"><u>[Updated] In 2024, Master Your Most-Watched Videos on FB Today & Beyond 2023</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-simplified-approach-to-removing-youtube-comments-with-ease/"><u>2024 Approved  Simplified Approach to Removing YouTube Comments with Ease</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Restricting Access to In-App Internet via Facebook
-date: 2024-06-20 10:29:11
-updated: 2024-06-23 10:20:39
+date: 2024-06-25T13:50:15.989Z
+updated: 2024-06-26T13:50:15.989Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,9 @@ Close
 
 Close
 
- There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also[opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
+ There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also [opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
 
- You can also[use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
+ You can also [use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
@@ -82,3 +82,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/online-ousting-dissolving-a-facebook-relationship/"><u>Online Ousting: Dissolving a Facebook Relationship</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-facebook-pages-username-or-url/"><u>How to Change Your Facebook Page's Username or URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/posting-under-the-radar-in-social-hubs/"><u>Posting Under the Radar in Social Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-top-4-metadata-and-business-insights/"><u>Navigating Success: Top 4 Metadata & Business Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-business-page/"><u>How to Delete a Facebook Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-undetected-strategies-for-dodging-shadowbanned-content/"><u>The Undetected Strategies for Dodging Shadowbanned Content</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-f15-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy F15 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-dynamic-fitness-series-ideas-to-enhance-viewer-retention/"><u>[New] 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-youtubes-secrets-transcribe-for-free-and-efficiently-for-2024/"><u>Unlock YouTube's Secrets  Transcribe for Free and Efficiently for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-personalizing-teams-windows-for-effective-calls/"><u>2024 Approved  Personalizing Teams Windows for Effective Calls</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-apple-iphone-7-plus-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 7 Plus Screen Mirroring You Must Know | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-discover-the-secret-to-friends-livestream-participation/"><u>[Updated] Discover the Secret to Friend's Livestream Participation</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-crafting-the-ultimate-soundtrack-for-visual-media-for-2024/"><u>New Crafting the Ultimate Soundtrack for Visual Media for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-apple-excellence-iphones-best-no-cost-image-assemblers-and-layouts/"><u>[Updated] Apple Excellence – iPhone's Best No-Cost Image Assemblers & Layouts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-secure-and-convenient-a-windowsmac-downloading-guide-for-igtv-videos/"><u>[New] Secure and Convenient  A Windows/Mac Downloading Guide for IGTV Videos</u></a></li>
+</ul></div>

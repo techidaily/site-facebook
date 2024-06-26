@@ -1,7 +1,7 @@
 ---
 title: Peering Back Through the Lens of Time on FB
-date: 2024-06-20 11:33:35
-updated: 2024-06-23 12:18:20
+date: 2024-06-25T13:51:53.767Z
+updated: 2024-06-26T13:51:53.767Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/d39777d8afabe33ba8272736b3e5f1d9b99069cea
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,26 @@ thumbnail: https://thmb.techidaily.com/d39777d8afabe33ba8272736b3e5f1d9b99069cea
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-bypassing-unwanted-social-media-offers/"><u>Expert Tips for Bypassing Unwanted Social Media Offers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-post-security-how-to-manage-who-sees-your-fb-content/"><u>Elevate Post Security: How to Manage Who Sees Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-managing-fb-picture-sharing/"><u>Understanding & Managing Fb Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-users-on-friend-activity-sharing-controls/"><u>Guiding Users on Friend Activity Sharing Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-steps-for-sharing-spot-with-fb-chat/"><u>The Essential Steps for Sharing Spot with FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-presence-incorporating-your-avatar-in-covers/"><u>Enhancing Your Social Media Presence: Incorporating Your Avatar in Covers</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/effortlessly-create-engaging-youtube-thumbnails/"><u>Effortlessly Create Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-xiaomi-14-ultra-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Xiaomi 14 Ultra Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/screen-recorders-for-low-end-pc/"><u>Screen Recorders for Low-End PC</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-poco-f5-pro-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Poco F5 Pro 5G</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/how-to-advertise-on-twitter/"><u>How to Advertise on Twitter</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capturing-action-in-hd-with-ultimate-sj-cam-s6-review-for-2024/"><u>Capturing Action in HD with Ultimate SJ-CAM S6 Review for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/basics-of-fading-effects-for-clearer-audio-output/"><u>Basics of Fading Effects for Clearer Audio Output</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-is-asmr-good-for-you-learn-the-benefits-here/"><u>[Updated] Is ASMR Good for You? Learn the Benefits Here</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-advanced-camera-control-for-iphone-users/"><u>In 2024, Advanced Camera Control for iPhone Users</u></a></li>
+</ul></div>

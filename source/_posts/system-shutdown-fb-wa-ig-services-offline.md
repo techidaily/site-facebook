@@ -1,7 +1,7 @@
 ---
 title: "System Shutdown: FB, WA, IG Services Offline"
-date: 2024-06-22 19:55:24
-updated: 2024-06-23 11:27:29
+date: 2024-06-25T14:33:56.887Z
+updated: 2024-06-26T14:33:56.887Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/3e8a6c48903de348edfc32de01dc40c1bc954d345
 
 ## System Shutdown: FB, WA, IG Services Offline
 
-**Update:** Facebook, WhatsApp, and Instagram are all now back online, with Facebook having resolved the issue after several hours of downtime. In[a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social networkexplained that the cause of the extended outage was "configuration changes on the backbone routers that coordinate network traffic between our data centers". This "had a cascading effect on the way our data centers communicate, bringing our services to a halt."
+**Update:** Facebook, WhatsApp, and Instagram are all now back online, with Facebook having resolved the issue after several hours of downtime. In [a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social networkexplained that the cause of the extended outage was "configuration changes on the backbone routers that coordinate network traffic between our data centers". This "had a cascading effect on the way our data centers communicate, bringing our services to a halt."
 
 **Original Story Follows...**
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/3e8a6c48903de348edfc32de01dc40c1bc954d345
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
- Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+ Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a [Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 ## When Will Facebook Come Back Online?
 
@@ -84,3 +84,27 @@ thumbnail: https://thmb.techidaily.com/3e8a6c48903de348edfc32de01dc40c1bc954d345
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-securityfacebookmailcom-legitimate/"><u>Is the Facebook Protect Email From Security@facebookmail.com Legitimate?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-and-using-messengers-without-facebook-connection/"><u>Exploring and Using Messengers without Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-introduces-prompt-for-informed-social-sharing/"><u>Facebook Introduces Prompt for Informed Social Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-refreshing-your-facebook-visual-representation/"><u>Swiftly Refreshing Your Facebook Visual Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-speculations-a-balanced-view-on-facebook-revelations/"><u>Beyond Surface Speculations: A Balanced View on Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-use-of-facebook-in-event-scheduling/"><u>Evaluating the Use of Facebook in Event Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-linkedin-twitter-for-career-growth/"><u>Leveraging LinkedIn, Twitter for Career Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-broadcasting-success-fb-live-on-television/"><u>[Updated] Broadcasting Success  FB Live on Television</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-vivo-s17-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Vivo S17 FRP Bypass Instantly</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-auditory-storytelling-in-cinematic-openings/"><u>[Updated] Auditory Storytelling in Cinematic Openings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-building-a-successful-career-through-youtube-short-film-making/"><u>[Updated] 2024 Approved  Building a Successful Career Through YouTube Short Film-Making</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-nokia-g22-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Nokia G22 Phone Now with These Tips</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/can-you-unlock-iphone-14-pro-max-after-forgetting-the-passcode-drfone-by-drfone-ios/"><u>Can You Unlock iPhone 14 Pro Max After Forgetting the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/instant-ig-glory-high-quality-covers-on-apple-and-android-devices-for-2024/"><u>Instant IG Glory  High-Quality Covers on Apple and Android Devices for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-2023-convert-facebook-video-to-mp4-720p1080phd-online-and-free/"><u>[Updated] In 2024, 2023 | Convert Facebook Video to MP4 720P/1080p/HD Online and Free?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-m14-4g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy M14 4G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-ultimate-list-of-free-mov-video-splitters/"><u>New 2024 Approved The Ultimate List of Free MOV Video Splitters</u></a></li>
+</ul></div>

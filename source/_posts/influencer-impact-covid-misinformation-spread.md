@@ -1,7 +1,7 @@
 ---
 title: "Influencer Impact: Covid Misinformation Spread"
-date: 2024-06-21 11:14:49
-updated: 2024-06-23 11:40:18
+date: 2024-06-25T14:10:06.415Z
+updated: 2024-06-26T14:10:06.415Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,26 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/thwarting-facebook-tracking-essential-steps-explored/"><u>Thwarting Facebook Tracking: Essential Steps Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-monitor-youth-activity-within-social-media-networks/"><u>Steps to Monitor Youth Activity Within Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-updated-navigation-of-facebook/"><u>Discovering the Updated Navigation of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonious-horizon-envisioning-the-fusion-of-music-and-networking/"><u>Harmonious Horizon: Envisioning the Fusion of Music & Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-new-safeguard-code-for-fb/"><u>Implementing a New Safeguard Code for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-recovery-plan-for-compromised-facebook-profiles/"><u>Swift Recovery Plan for Compromised Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-is-helping-creators-make-money-through-reels/"><u>How Meta Is Helping Creators Make Money Through Reels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-tickling-your-brain-the-best-joke-threads-on-tiktok/"><u>[Updated] In 2024, Tickling Your Brain  The Best Joke Threads on TikTok</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-online-image-ratio-converters-top-picks-and-reviews/"><u>Updated In 2024, Online Image Ratio Converters Top Picks and Reviews</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-voice-overhaul-two-efficient-ways-revealed/"><u>[Updated] In 2024, Snapchat Voice Overhaul  Two Efficient Ways Revealed</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-6-video-editing-apps-for-macos-big-sur-11/"><u>Top 6 Video Editing Apps for macOS Big Sur 11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-repair-damaged-pdf-v10-files-by-stellar-guide/"><u>Quickly Repair Damaged PDF v1.0 Files</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags-for-2024/"><u>[Updated] Elevate Reach  Optimal Strategies for Crafting YouTube Titles & Tags for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-mastering-the-art-of-audio-replacement-a-comprehensive-guide-to-video-dubbing-with-wondershare-filmora/"><u>Updated Mastering the Art of Audio Replacement A Comprehensive Guide to Video Dubbing with Wondershare Filmora</u></a></li>
+<li><a href="https://video-capture.techidaily.com/classic-console-charisma-best-ps1-emulation-tools-reviewed/"><u>Classic Console Charisma - Best PS1 Emulation Tools Reviewed</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-free-gamers-guide-to-selecting-best-screen-recorder-apps/"><u>[New] Free Gamers' Guide to Selecting Best Screen Recorder Apps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-top-3-ipad-voice-recorder-for-2024/"><u>[New] Top 3 iPad Voice Recorder for 2024</u></a></li>
+</ul></div>

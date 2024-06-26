@@ -1,7 +1,7 @@
 ---
 title: Messenger and Instagram Get a Text Upgrade with FB News
-date: 2024-06-21 14:27:17
-updated: 2024-06-23 11:57:46
+date: 2024-06-25T14:44:04.041Z
+updated: 2024-06-26T14:44:04.041Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/6d08ef0c51b7d66c7e631fe3667e11cb568cec8b1
 
 ## Two New Themes Added to Messenger and Instagram
 
- In a press release on the[Facebook Newsroom](https://about.fb.com/news/2021/05/better-ways-to-express-yourself-new-messenger-features/) , the company announced the release of two new chat themes. The new themes are based on Star Wars and Netflix's Selena: The Series.
+ In a press release on the [Facebook Newsroom](https://about.fb.com/news/2021/05/better-ways-to-express-yourself-new-messenger-features/) , the company announced the release of two new chat themes. The new themes are based on Star Wars and Netflix's Selena: The Series.
 
  These themes stylize the background of Messenger and Instagram chats to make them more appealing for fans of the franchises. Furthermore, they could be used as a way to promote the series as well.
 
@@ -66,3 +66,26 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-will-fbcta-change-your-web-experience/"><u>How Will FBCTA Change Your Web Experience?</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-periods-for-online-post-performance/"><u>Peak Periods for Online Post Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-steering-group-at-facebook/"><u>Today’s Steering Group at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-newsfeed-to-dodge-objectionable-ads/"><u>Tailoring Your Newsfeed to Dodge Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-venues-for-questing-freelancing-roles/"><u>Leading Venues for Questing Freelancing Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-users-youve-blocked-on-fb/"><u>Identifying Users You've Blocked on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-no-security-code-dilemma-with-your-facebook-account/"><u>Deciphering No-Security-Code Dilemma with Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/tenfold-techniques-for-transforming-text-spaces/"><u>Tenfold Techniques for Transforming Text Spaces</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-huawei-p60-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Smart and Simple Ways to Change Home Address on Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-captivating-creations-top-10-engaging-filters-for-your-video/"><u>[New] In 2024, Captivating Creations  Top 10 Engaging Filters for Your Video</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/how-to-remove-stickers-from-a-tiktok-video/"><u>How To Remove Stickers From A Tiktok Video</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/elevate-your-online-statement-with-tiktok-customization/"><u>Elevate Your Online Statement with TikTok Customization</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/3-ways-to-export-contacts-from-apple-iphone-se-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>3 Ways to Export Contacts from Apple iPhone SE to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-srt-conversion-simplified-subtitles-transformation/"><u>In 2024, SRT Conversion Simplified  Subtitles Transformation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-transforming-your-profile-video-allure/"><u>In 2024, Transforming Your Profile Video Allure</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/deciphering-the-divergent-aspects-of-youtubes-and-dailymentions/"><u>Deciphering the Divergent Aspects of YouTubes & DailyMentions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-essential-techniques-for-fast-forwarding-in-spotify/"><u>2024 Approved  The Essential Techniques for Fast-Forwarding in Spotify</u></a></li>
+</ul></div>

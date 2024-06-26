@@ -1,7 +1,7 @@
 ---
 title: The Social Networker’s Shield Against Scams
-date: 2024-06-22 13:46:53
-updated: 2024-06-23 12:59:35
+date: 2024-06-25T14:00:47.090Z
+updated: 2024-06-26T14:00:47.090Z
 tags:
   - facebook
 categories:
@@ -23,15 +23,13 @@ thumbnail: https://thmb.techidaily.com/f8ecdc6c33144a8756139b14ccc37972ba5fac512
 
 ![Phishing website with credentials being lifted with fishhook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Phishing-website-with-credentials-being-lifted-with-fishhook.jpg)
 
- Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to[steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
+ Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to [steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
 
  Your login credentials are valuable for several reasons. One is that you may have credit cards or other payment methods linked with them. They can also help the scammer access other accounts. For example, your bank or online shopping accounts.
 
  Once a scammer gets some clues, they work quickly. Automatic software lets them check hundreds of passwords per minute until something works. To stay safe, you need to guard your information.
 
-## 1\. Remove Personal Details From Your Facebook Profile
-
-![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
+## 1\. Remove Personal Details From Your Facebook Profile ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
 
@@ -59,27 +57,21 @@ Close
 
  You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
 
-## 2\. Manage Your Facebook Privacy Settings
-
-![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
+## 2\. Manage Your Facebook Privacy Settings ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
 
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
 
- From the Facebook website or app, go to**Settings & Privacy** \>**Privacy Center** . For recommended settings, you can check out our[guide to Facebook Privacy](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) .
+ From the Facebook website or app, go to**Settings & Privacy** \>**Privacy Center** . For recommended settings, you can check out our [guide to Facebook Privacy](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) .
 
 It’s a good idea to do a privacy check on a regular basis.
 
-## 3\. Remove Access to Facebook From Suspicious Apps
-
-![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
+## 3\. Remove Access to Facebook From Suspicious Apps ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
-## 4\. Don’t Click Strange URLs on Facebook
-
-![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
+## 4\. Don’t Click Strange URLs on Facebook ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
@@ -93,15 +85,13 @@ Close
 
  If you receive such a message, even from a friend, don’t follow the directions or open the link. Instead, reply and ask what's going on. Your friend can tell you what's going on, but a bot won’t reply.
 
- If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of[reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
+ If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of [reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
-## 5\. Know the Signs of a Facebook Scam
-
-![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
+## 5\. Know the Signs of a Facebook Scam ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
 
  Screenshot by Natalie Stewart, no attribution required.
 
- Knowing the[most common Facebook phishing scams](https://www.makeuseof.com/most-common-social-media-phishing-attacks/) helps you stay alert. One common trick is to send you a link to a fake website, often a login page. Remember that Facebook will never ask you to "verify your account" before following a link.
+ Knowing the [most common Facebook phishing scams](https://www.makeuseof.com/most-common-social-media-phishing-attacks/) helps you stay alert. One common trick is to send you a link to a fake website, often a login page. Remember that Facebook will never ask you to "verify your account" before following a link.
 
  In the example above, you can see a phishing page on the left compared to the real Facebook login page on the right. Instantly, you can see that the URL on the fake page does not say Facebook.com.
 
@@ -109,35 +99,29 @@ Close
 
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
-## 6\. Don’t Reply to Trivia Facebook Posts
-
-![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
+## 6\. Don’t Reply to Trivia Facebook Posts ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
 
  Facebook is full of public posts asking users to reply with trivia. They often ask for nostalgic things, such as your first car or favorite teacher. These posts seem like fun, but they are dangerous.
 
  Answering these questions gives the scammer clues to your password or security questions. If you feel inspired by the question, it's better to strike up a conversation in a private chat instead of commenting.
 
- Even if you don’t use that information for[password recovery](https://www.makeuseof.com/how-to-reset-facebook-password-forgot/) , sharing it can put your friends and family at risk. Your loved ones might share your connection to these memorable details. Your first pet may also be your sibling's first pet, for example.
+ Even if you don’t use that information for [password recovery](https://www.makeuseof.com/how-to-reset-facebook-password-forgot/) , sharing it can put your friends and family at risk. Your loved ones might share your connection to these memorable details. Your first pet may also be your sibling's first pet, for example.
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
-## 7\. Only Add People You Know to Your Facebook Account
-
-![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
+## 7\. Only Add People You Know to Your Facebook Account ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
 
  Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
 
- One of the most common[Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) is to offer a friend request to potential buyers. The seller may pretend that they don’t know another way to contact you, but this is a lie.
+ One of the most common [Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) is to offer a friend request to potential buyers. The seller may pretend that they don’t know another way to contact you, but this is a lie.
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
-## 8\. Use a Strong Password for Your Facebook Account
-
-![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
+## 8\. Use a Strong Password for Your Facebook Account ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
  Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
 
- Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to[make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
+ Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to [make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
 
  Even though it's convenient, you should avoid using the**Log in with Facebook** option on other websites. The more sites your Facebook account connects to, the greater the loss if you are ever phished. Instead, make a unique login for each account.
 
@@ -160,3 +144,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/decoding-metaverse-and-virtual-reality-highlighting-6-pivotal-contrasts/"><u>Decoding Metaverse and Virtual Reality: Highlighting 6 Pivotal Contrasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-clampdown-on-big-tech-understanding-us-antitrust-measures/"><u>Assessing the Clampdown on Big Tech: Understanding U.S. Antitrust Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-moderating-your-virtual-connectedness/"><u>Techniques for Moderating Your Virtual Connectedness</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-novice-to-pro-a-step-by-step-approach-to-creating-memorable-reels-on-facebook/"><u>From Novice to Pro: A Step-by-Step Approach to Creating Memorable Reels on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-captivating-campaigns-techniques-for-increasing-facebook-interaction/"><u>Crafting Captivating Campaigns: Techniques for Increasing Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-interaction-for-effective-digital-advertising/"><u>Mindful Interaction for Effective Digital Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-shift-to-nft-world/"><u>Instagram's Shift to NFT World</u></a></li>
+<li><a href="https://facebook.techidaily.com/password-woes-easily-reinstate-your-facebook-sign-in/"><u>Password Woes? Easily Reinstate Your Facebook Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-offline-world-reimagined-after-social-media-departure/"><u>The Offline World Reimagined After Social Media Departure</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-guidance-to-youtube-music-mix/"><u>In 2024, Guidance to YouTube Music Mix</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-with-filmora-x-you-can-create-such-transparent-background-reaction-videos-without-such-expensive-material/"><u>Updated In 2024, With Filmora X, You Can Create Such Transparent Background Reaction Videos without Such Expensive Material</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-oneplus-nord-3-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My OnePlus Nord 3 5G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-safekeep-stories-the-unlimited-save-service/"><u>[Updated] 2024 Approved  Safekeep Stories  The Unlimited Save Service</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-vivo-y78plus-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Vivo Y78+ Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-poco-f5-5g-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Poco F5 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prowess-in-color-correction-the-ultimate-11-tutorials/"><u>In 2024, Prowess in Color Correction  The Ultimate 11 Tutorials</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-infinix-smart-8-hd-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Infinix Smart 8 HD Device SIM</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-techniques-to-amplify-youtube-video-clarity/"><u>2024 Approved  Techniques to Amplify YouTube Video Clarity</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-digital-therapeutics-and-patient-engagement/"><u>[Updated] Digital Therapeutics and Patient Engagement</u></a></li>
+</ul></div>

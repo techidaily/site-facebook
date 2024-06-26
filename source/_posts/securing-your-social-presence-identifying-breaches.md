@@ -1,7 +1,7 @@
 ---
 title: "Securing Your Social Presence: Identifying Breaches"
-date: 2024-06-20 20:20:38
-updated: 2024-06-23 10:19:46
+date: 2024-06-25T14:03:00.548Z
+updated: 2024-06-26T14:03:00.548Z
 tags:
   - facebook
 categories:
@@ -29,41 +29,33 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
  There are two main ways to tell if your Facebook account was hacked: checking your login locations and checking your payment history.
 
-### How to Check Your Facebook Login Locations
-
-![facebook login locations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-logins.jpg)
+### How to Check Your Facebook Login Locations ![facebook login locations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-logins.jpg)
 
  Thankfully, there's an easy way to discover whether or not someone else has logged into your Facebook account.
 
  Go to **Settings and Privacy > Activity Log > Active Sessions** . The information contained in the section will show where you've logged in and with what devices you signed in.
 
- Remember: If your password has been changed by a hacker, you need to[act quickly to recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ Remember: If your password has been changed by a hacker, you need to [act quickly to recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  If you do find a discrepancy with where you've logged in to Facebook, you can easily end the activity of that session, which should help safeguard you from any hacking attempt on that device. You can also log out of all sessions to be safe.
 
-### Checking Your Payment History on Facebook
-
-![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
+### Checking Your Payment History on Facebook ![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
 
  There's another way to check whether someone has hacked your Facebook account, and that's by checking your purchase history. If you have a credit card stored on your account, it's possible that hackers could make fraudulent purchases and drive up your bill.
 
  To ensure you're protected, go to **Settings and Privacy > Settings > Account Center > Payments.** Here, you can see if someone purchased ads using your account or used Meta Pay.
 
- If you notice any fraudulent charges, you can inform[Facebook Support](https://www.facebook.com/support) about them. The company is pretty good with replying to concerns, whether that's through the Facebook account or through its official Twitter account.
+ If you notice any fraudulent charges, you can inform [Facebook Support](https://www.facebook.com/support) about them. The company is pretty good with replying to concerns, whether that's through the Facebook account or through its official Twitter account.
 
-## How to Report Your Hacked Facebook Account
-
-![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
+## How to Report Your Hacked Facebook Account ![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
 
  If you have any problems with hacking whatsoever, you should inform Facebook. Facebook is keen to know about hacks and wants to do its part to keep the site as safe and secure as possible. Facebook is constantly adapting and improving it's security,
 
- Facebook has a dedicated page for those who believe their account may have been compromised. This page can be found at[facebook.com/hacked](https://www.facebook.com/hacked) . Here, you can report people sending messages from your account, duplicate accounts, or a potential hack attempt.
+ Facebook has a dedicated page for those who believe their account may have been compromised. This page can be found at [facebook.com/hacked](https://www.facebook.com/hacked) . Here, you can report people sending messages from your account, duplicate accounts, or a potential hack attempt.
 
- You could check out the[Bullying Center](https://www.facebook.com/safety/bullying) ,[Safety Check](https://www.facebook.com/about/safetycheck/) , and[Safety Center](https://www.facebook.com/safety) pages if you have additional problems with your Facebook account and/or security.
+ You could check out the [Bullying Center](https://www.facebook.com/safety/bullying) ,[Safety Check](https://www.facebook.com/about/safetycheck/) , and [Safety Center](https://www.facebook.com/safety) pages if you have additional problems with your Facebook account and/or security.
 
-## How to Fix a Hacked Facebook Account
-
-![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
+## How to Fix a Hacked Facebook Account ![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
 
  If you have been unfortunate enough to suffer from a hacked Facebook account, don't worry. It is possible to rectify the issue.
 
@@ -74,7 +66,7 @@ To minimize the damage you should:
 * Alert your friends and family as soon as possible.
 * Report the issue to Facebook via the company's official channels.
 
- If you need more detailed guidance, here's a full guide on[how to fix a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ If you need more detailed guidance, here's a full guide on [how to fix a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
 ## How to Protect Your Facebook Account in Future
 
@@ -125,3 +117,23 @@ To minimize the damage you should:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout.</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maven-carolyn-leaves-facebook/"><u>Marketing Maven Carolyn Leaves Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deterrents-enhanced-sanctions-to-halt-misinformation/"><u>Digital Deterrents: Enhanced Sanctions to Halt Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-essential-mobile-settings-in-fb-app/"><u>Unlock Potential: Essential Mobile Settings in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-fb-page-pristine-banning-inappropriate-users/"><u>Keeping Your FB Page Pristine: Banning Inappropriate Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-master-premiere-pros-art-free-template-pack-2023/"><u>2024 Approved  Master Premiere Pro's Art  Free Template Pack 2023</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-make-an-impact-on-linkedin-choosing-the-right-video-aspect-ratio/"><u>New Make an Impact on LinkedIn Choosing the Right Video Aspect Ratio</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-prism-of-design-from-theory-to-practice/"><u>2024 Approved  A Prism of Design  From Theory to Practice</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-realme-c67-4g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Realme C67 4G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-intelligent-video-editors-for-effortless-reframing/"><u>New In 2024, Intelligent Video Editors for Effortless Reframing</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-make-stunning-glitch-effect-in-photoshop/"><u>How to Make Stunning Glitch Effect in Photoshop?</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-try-this-simple-trick-to-make-instant-3d-gif-that-pops-out-of-your-screen-here-are-a-few-memorable-examples-of-the-most-popular-3d-gifs/"><u>Updated Try This Simple Trick to Make Instant 3D GIF that Pops Out of Your Screen. Here Are a Few Memorable Examples of the Most Popular 3D GIFs</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlocking-an-icloud-locked-ipad-and-iphone-13-pro-by-drfone-ios/"><u>Unlocking an iCloud Locked iPad and iPhone 13 Pro</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/elevating-soundtracks-on-mobile-the-top-8-android-apps-redefining-music-production/"><u>Elevating Soundtracks on Mobile The Top 8 Android Apps Redefining Music Production</u></a></li>
+</ul></div>

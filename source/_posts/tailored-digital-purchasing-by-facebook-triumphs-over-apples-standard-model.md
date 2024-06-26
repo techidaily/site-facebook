@@ -1,7 +1,7 @@
 ---
 title: Tailored Digital Purchasing by Facebook Triumphs Over Apple's Standard Model
-date: 2024-06-21 20:32:16
-updated: 2024-06-23 12:49:51
+date: 2024-06-25T14:20:54.988Z
+updated: 2024-06-26T14:20:54.988Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
 
- In a[Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of[Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
+ In a [Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of [Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
 
 > As we build for the metaverse, we're focused on unlocking opportunities for creators to make money from their work. The 30% fees that Apple takes on transactions make it harder to do that, so we're updating our Subscriptions product so now creators can earn more.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
 
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
-## How Facebook's Custom Payment Links Work
-
-![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+## How Facebook's Custom Payment Links Work ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -66,3 +64,22 @@ thumbnail: https://thmb.techidaily.com/9416939e5407a18ea81200cd7e119e61ff04e31fb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/enhancing-global-reach-with-multi-language-posts-on-facebook/"><u>Enhancing Global Reach with Multi-Language Posts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-new-language-of-facebook-pages-designations/"><u>Decoding The New Language of Facebook Pages' Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-art-of-digital-etiquette-in-connection-requests/"><u>The Subtle Art of Digital Etiquette in Connection Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/ownership-dynamics-in-online-image-hosting/"><u>Ownership Dynamics in Online Image Hosting</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-quietude-in-the-face-of-facebook-alerts/"><u>Total Quietude in the Face of Facebook Alerts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-fostering-creativity-for-impressive-mac-produced-tiktok-beginnings/"><u>[New] Fostering Creativity for Impressive Mac-Produced TikTok Beginnings</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-mp4-video-editing-software-top-10-picks/"><u>Free MP4 Video Editing Software Top 10 Picks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-zte-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for ZTE</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-modify-youtube-video-visibility-with-ease/"><u>[Updated] Modify YouTube Video Visibility with Ease</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-everything-you-want-to-know-about-kapwing-video-translation-for-2024/"><u>New Everything You Want To Know About Kapwing Video Translation for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-13-pro-max-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 13 Pro Max without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-apeaksofts-screen-tech-revolution-2023-review/"><u>2024 Approved  Apeaksoft's Screen Tech Revolution  2023 Review</u></a></li>
+</ul></div>

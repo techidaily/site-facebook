@@ -1,7 +1,7 @@
 ---
 title: "America's New Legal Framework: Curtailing Big Tech's Power"
-date: 2024-06-20 21:44:46
-updated: 2024-06-23 12:54:55
+date: 2024-06-25T14:02:26.468Z
+updated: 2024-06-26T14:02:26.468Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/step-by-step-embedding-image-descriptors-in-fb-photos/"><u>Step-by-Step: Embedding Image Descriptors in Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-veil-of-virtual-vaults-downloading-fb-hidden-videos/"><u>Unveiling the Veil of Virtual Vaults: Downloading FB Hidden Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/netizens-network-8-strategies-to-merge-lives-digitally/"><u>Netizen's Network: 8 Strategies to Merge Lives Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-4-revolutionary-shifts-in-social-networking/"><u>The Impact: 4 Revolutionary Shifts in Social Networking</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-achieving-soft-sound-effects-in-audacity/"><u>In 2024, Achieving Soft Sound Effects in Audacity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-digital-dilemma-unexpectedly-barred-content/"><u>[New] Digital Dilemma  Unexpectedly Barred Content</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-precision-review-of-the-dji-inspire-2-drone/"><u>[New] Precision Review of the DJI Inspire 2 Drone</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-or-malfunctioning-hardware-drivers-with-windows-device-manager-on-windows-11-and-10-and-7-by-drivereasy-guide/"><u>Use Device Manager to identify missing or malfunctioning hardware drivers with Windows Device Manager on Windows 11 & 10 & 7</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-honor-x8b-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Honor X8b to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/customizing-your-channel-for-optimal-live-broadcasts-for-2024/"><u>Customizing Your Channel for Optimal Live Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-facebook-stories-a-comprehensive-users-handbook/"><u>2024 Approved  Mastering Facebook Stories  A Comprehensive User's Handbook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-live-guide-conversation-tools-unveiled/"><u>[Updated] 2024 Approved  The Instagram Live Guide  Conversation Tools Unveiled</u></a></li>
+</ul></div>

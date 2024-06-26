@@ -1,7 +1,7 @@
 ---
 title: "No More Likes: Removing Someone on Social Media"
-date: 2024-06-21 14:55:40
-updated: 2024-06-23 12:11:35
+date: 2024-06-25T14:12:45.118Z
+updated: 2024-06-26T14:12:45.118Z
 tags:
   - facebook
 categories:
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/d8d350936386f188a2d4be816539be2eaee7c3069
 * Facebook will not notify the individual you choose to take a break from.
 * There's no limit to how long you can take a break, so you'll have to remember to manually revert the changes if you change your mind in the future.
 
- By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
+ By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or [blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
 ## How to Take a Break From Someone on Facebook
 
@@ -87,7 +87,7 @@ Here, you'll find three options.
 2. The second option is labeled**Edit individual posts** —this option helps you to individually edit posts you are tagged in.
 3. The third option is labeled**Edit all my posts and posts that I'm tagged in.** Use this option to untag yourself from every post you have in common with the friend you want to take a break from. To do this, simply tap on the option and then tap**Done** to save the changes.
 
- If you're using Facebook on the web, you can bypass navigating through menus by visiting the[Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on[how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ If you're using Facebook on the web, you can bypass navigating through menus by visiting the [Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on [how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
@@ -95,7 +95,7 @@ Here, you'll find three options.
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
 
-* Visit the[Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
+* Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
@@ -142,3 +142,26 @@ Here, you'll find three options.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-the-social-platform-mastery-guide-to-facebooks-opacity-haven/"><u>Unveiling the Social Platform: Mastery Guide to Facebook's Opacity Haven</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-social-footprint-tracking-all-facebook-interactions/"><u>Maximizing Your Social Footprint: Tracking All Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-the-scam-tips-for-facebook-security-hygiene/"><u>Spot the Scam: Tips for Facebook Security Hygiene</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-the-rollout-of-whatsapps-revised-privacy-rules/"><u>Delay in the Rollout of WhatsApp's Revised Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-enhanced-privacy-hub-for-safer-browsing/"><u>Decoding Facebook’s Enhanced Privacy Hub for Safer Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-challenges-big-tech-on-free-speech-grounds/"><u>Trump Challenges Big Tech on Free Speech Grounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-closing-your-fb-business-accounts/"><u>The Complete Guide to Closing Your FB Business Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-your-digital-footprint-full-facebook-activity-archives/"><u>Preserving Your Digital Footprint: Full Facebook Activity Archives</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-v30-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo V30 Phones with/without a PC</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-ultimate-guide-to-editing-gopro-footage-on-mac-2023-edition/"><u>New The Ultimate Guide to Editing GoPro Footage on Mac (2023 Edition)</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-creative-ways-to-modify-your-tone-9-strategies-for-humorous-phone-interactions/"><u>New Creative Ways to Modify Your Tone 9 Strategies for Humorous Phone Interactions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-gathering-the-good-times-easy-steps-to-download-and-store-twitters-animated-tweets/"><u>[New] 2024 Approved  Gathering the Good Times  Easy Steps to Download and Store Twitter's Animated Tweets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>Does Airplane Mode Turn off GPS Location On Apple iPhone 14 Plus? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-elevate-your-instagram-game-with-stop-motion-pro-tips-and-techniques/"><u>New In 2024, Elevate Your Instagram Game with Stop Motion Pro Tips and Techniques</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ace-screen-recording-tools-in-the-public-domain/"><u>[New] In 2024, Ace Screen Recording Tools in the Public Domain</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-top-10-android-mobas-essential-players-list/"><u>[New] In 2024, Top 10 Android MOBAs  Essential Players' List</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-ultimate-selection-5-premium-audiovideo-integration-tools/"><u>The Ultimate Selection 5 Premium Audio/Video Integration Tools</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-enhance-your-clients-work-10plus-luts-freepaid-offerings/"><u>2024 Approved  Enhance Your Clients' Work  10+ LUTs - FREE/Paid Offerings</u></a></li>
+</ul></div>

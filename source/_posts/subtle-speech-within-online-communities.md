@@ -1,7 +1,7 @@
 ---
 title: Subtle Speech Within Online Communities
-date: 2024-06-20 21:15:21
-updated: 2024-06-23 12:43:56
+date: 2024-06-25T14:28:14.533Z
+updated: 2024-06-26T14:28:14.533Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,7 @@ thumbnail: https://thmb.techidaily.com/b97d0ebad54511b61b45570cc2aa70ceb4b57e438
 
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
-## How to Post Anonymously in a Facebook Group
-
-![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
+## How to Post Anonymously in a Facebook Group ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
 
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
@@ -43,7 +41,7 @@ Close
 4. A prompt explaining how anonymous posts work will pop up. Tap**Create Anonymous Post** .
 5. Create your post and tap**Submit** .
 
- And there you have it. Now you no longer have to[leave a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) because you feel uncomfortable sharing your experience.
+ And there you have it. Now you no longer have to [leave a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) because you feel uncomfortable sharing your experience.
 
 **Note:** This feature is only available in groups set as parenting groups.
 
@@ -80,3 +78,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-approval-process-whitelist-explained/"><u>Facebook's Approval Process: Whitelist Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-second-life-make-a-comeback-as-we-head-into-the-metaverse/"><u>Could Second Life Make a Comeback as We Head Into the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cleanup-tools-for-digital-scars-and-stains-on-profiles/"><u>Cleanup Tools for Digital Scars and Stains on Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-day-without-likes-and-messages/"><u>The Day Without Likes and Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-response-to-tiktoks-growth-spurt/"><u>Facebook's Reel Response to TikTok's Growth Spurt</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-world-without-social-media/"><u>Exploring a World Without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-revs-up-conversations-with-innovative-messaging-features-on-messenger-and-instagram/"><u>FB Revs Up Conversations with Innovative Messaging Features on Messenger & Instagram</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-windows-10-webcam-recording-essentials-top-10-software-picks/"><u>Updated 2024 Approved Windows 10 Webcam Recording Essentials Top 10 Software Picks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-motorola-moto-g24-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Motorola Moto G24 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-xiaomi-redmi-a2plus-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Xiaomi Redmi A2+ to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-advanced-hdr-image-processing-steps-in-adobe-lightroom/"><u>2024 Approved  Advanced HDR Image Processing Steps in Adobe Lightroom</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-fantasy-forays-a-decades-best-games-for-2024/"><u>[New] Fantasy Forays  A Decade’s Best Games for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-insiders-manual-to-upload-content-to-igtv/"><u>[New] In 2024, The Insider's Manual to Upload Content to IGTV</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-snapsizesecrets-perfecting-photo-and-video-sizes-in-instagram/"><u>[New] 2024 Approved  SnapSizeSecrets  Perfecting Photo and Video Sizes in Instagram</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-mastering-personalized-emojis-in-discord-pcmobile-tips/"><u>In 2024, Mastering Personalized Emojis in Discord  PC/Mobile Tips</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-perfecting-your-content-chrome-compatible-tiktok-uploads/"><u>[New] 2024 Approved  Perfecting Your Content  Chrome-Compatible TikTok Uploads</u></a></li>
+</ul></div>

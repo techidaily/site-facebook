@@ -1,7 +1,7 @@
 ---
 title: "The Path Less Connected: Your Guide to Leaving Facebook"
-date: 2024-06-21 22:40:34
-updated: 2024-06-23 11:21:37
+date: 2024-06-25T13:47:35.224Z
+updated: 2024-06-26T13:47:35.224Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/df49fa8741560cd4a2c304321a86cf5312094c292
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-## 1\. Facebook Tracks You Around the Web
+## 1\. Facebook Tracks You Around the Web ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
-![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
-
- Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
 
@@ -45,9 +43,7 @@ thumbnail: https://thmb.techidaily.com/df49fa8741560cd4a2c304321a86cf5312094c292
 
 Bottom line: Facebook sees you as a lab rat.
 
-## 3\. Fake News
-
-![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+## 3\. Fake News ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -55,7 +51,7 @@ Bottom line: Facebook sees you as a lab rat.
 
  However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
 
- But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that [Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
@@ -63,17 +59,15 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
 
- Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+ Here's a Zuckerberg quote from [The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
 
 > "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
 
  Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
 
- Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+ Facebook wants you to overlook settings, so it can use your data. If you want [a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-## 5\. Facebook Has Forgotten Its Roots
-
-![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+## 5\. Facebook Has Forgotten Its Roots ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
@@ -114,3 +108,24 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/transforming-into-meta-facebooks-strategic-rebranding-move/"><u>Transforming Into Meta: Facebook's Strategic Rebranding Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-duo-expansion-a-new-dimension-for-fb-and-insta/"><u>The Duo Expansion: A New Dimension for FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-conquest-raising-the-bar-for-your-fb-group/"><u>Community Conquest: Raising the Bar for Your Fb Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-essential-tips-for-perfect-fb-timeline-covers/"><u>10 Essential Tips for Perfect Fb Timeline Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-business-focused-networks-for-maximum-engagement/"><u>Top Business-Focused Networks for Maximum Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-price-tag-on-meta-verification/"><u>Understanding the Price Tag on Meta Verification</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-vivo-y100t-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Vivo Y100t Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/behind-the-scenes-of-virtual-reality-films-for-2024/"><u>Behind the Scenes of Virtual Reality Films for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-exclusive-twitter-gif-compiler-for-avid-scribes-for-2024/"><u>[New] Exclusive Twitter GIF Compiler for Avid Scribes for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-elevating-your-tiktok-identity-in-under-10-steps/"><u>In 2024, Elevating Your TikTok Identity in Under 10 Steps</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-art-of-video-presentation-in-adobe-captivate/"><u>[Updated] The Art of Video Presentation in Adobe Captivate</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[Updated] 2024 Approved  Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-mastering-google-meet-setup-and-scheduling-guide/"><u>[New] In 2024, Mastering Google Meet  Setup and Scheduling Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-your-top-choice-best-offline-mobile-games-for-endless-entertainment-for-2024/"><u>[New] Your Top Choice  Best Offline Mobile Games for Endless Entertainment for 2024</u></a></li>
+</ul></div>

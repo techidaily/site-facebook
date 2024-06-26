@@ -1,7 +1,7 @@
 ---
 title: "Frontiersmen of Tech Clashes: The Elite Six"
-date: 2024-06-20 10:55:38
-updated: 2024-06-23 11:54:56
+date: 2024-06-25T14:32:45.219Z
+updated: 2024-06-26T14:32:45.219Z
 tags:
   - facebook
 categories:
@@ -21,23 +21,19 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-## 1\. Jack Dorsey
-
-![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+## 1\. Jack Dorsey ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
 
  Jack Dorsey is no stranger to controversy, having been summoned before Congress on multiple occasions to testify about alleged political bias and misinformation on Twitter.
 
- But perhaps his most polarizing moment was when[Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
+ But perhaps his most polarizing moment was when [Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
 
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-## 2\. Elizabeth Holmes
-
-![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+## 2\. Elizabeth Holmes ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -45,13 +41,11 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  Theranos was at its peak when a partnership with Walgreens was announced. However, medical experts were skeptical about Theranos' blood testing machine, and ex-employee whistleblowers came forward to expose the fraud.
 
- A bombshell article published in 2015 in[The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
+ A bombshell article published in 2015 in [The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-## 3\. Julian Assange
-
-![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+## 3\. Julian Assange ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
 
@@ -67,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-## 4\. Susan Wojcicki
-
-![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+## 4\. Susan Wojcicki ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
 
@@ -83,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-## 5\. Bill Gates
-
-![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+## 5\. Bill Gates ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -99,9 +89,7 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-## 6\. Mark Zuckerberg
-
-![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+## 6\. Mark Zuckerberg ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
 
@@ -119,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
 
  Facebook employees staged a virtual walkout after Zuckerberg personally stated that he would not remove a post made by Trump in reference to the 2020 Minneapolis protests ("when the looting starts, the shooting starts"). The same version of the post had been hidden under a warning message by Twitter.
 
- When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
+ When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to [delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
 ## Least Polarizing Tech Figure?
 
@@ -144,3 +132,24 @@ thumbnail: https://thmb.techidaily.com/8c5008233da724661a30d3225b0be351e1d277e0e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-lifes-chances-for-revival-in-the-metaverse-landscape/"><u>Second Life's Chances for Revival in The Metaverse Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-say-facebook-clamps-honesty-in-ads/"><u>Whistle-Blowers Say Facebook Clamps Honesty in Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-upgrade-enhanced-messenger-instagram-communication-awaits/"><u>Facebook's Chat Upgrade: Enhanced Messenger, Instagram Communication Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-course-of-my-virtual-journey-starts-with-facebook/"><u>Charting the Course of My Virtual Journey Starts with Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-hit-list-youtubes-way-for-fans/"><u>In 2024, Crafting a Hit-List  Youtube's Way for Fans</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-vivo-s17e-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Vivo S17e Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-maximize-social-media-impact-tiktoks-top-data-analysis-resources/"><u>[New] 2024 Approved  Maximize Social Media Impact  TikTok's Top Data Analysis Resources</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ideal-6-innovative-minecraft-dwellings/"><u>[New] Ideal 6 Innovative Minecraft Dwellings</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-premiere-visionary-film-glimpses/"><u>[New] Premiere Visionary Film Glimpses</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-elevate-your-online-presence-with-captivating-haul-videos/"><u>[Updated] Elevate Your Online Presence with Captivating Haul Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-future-is-now-how-vida-transforms-video-editing-for-2024/"><u>The Future Is Now  How Vida Transforms Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-six-websites-where-youtube-imagery-breaks-the-mould/"><u>In 2024, Six Websites Where YouTube Imagery Breaks the Mould</u></a></li>
+</ul></div>

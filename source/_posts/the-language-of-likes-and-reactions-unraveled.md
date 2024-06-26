@@ -1,7 +1,7 @@
 ---
 title: The Language of Likes & Reactions Unraveled
-date: 2024-06-21 11:56:18
-updated: 2024-06-23 10:37:27
+date: 2024-06-25T14:27:28.043Z
+updated: 2024-06-26T14:27:28.043Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4
 
  While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
 
- If[Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
+ If [Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
 
  Some of the most important icons when creating a post on Facebook are in your**Post audience** window, accessible from the button right under your name on the post.
 
@@ -76,7 +76,7 @@ What do these Facebook symbols mean?
 * **Lock (Only me)** : Only you can see the post.
 * **Gear (Custom)** : Add or remove friends or friends lists who can see the post.
 
- It's very easy to customize the privacy of every Facebook post. There are limits, however. Explore Facebook's notification symbols and meanings all you want, but[seeing who viewed your Facebook profile](https://www.makeuseof.com/tag/can-really-see-viewed-facebook-profile/) is still a no-go. Even so, you have plenty of options to play with.
+ It's very easy to customize the privacy of every Facebook post. There are limits, however. Explore Facebook's notification symbols and meanings all you want, but [seeing who viewed your Facebook profile](https://www.makeuseof.com/tag/can-really-see-viewed-facebook-profile/) is still a no-go. Even so, you have plenty of options to play with.
 
  Another icon that might interest you when posting on your mobile device is a button with Instagram's logo on it. Toggle this feature to share your post on that platform, too.
 
@@ -106,7 +106,7 @@ What do these Facebook symbols mean?
 
 ## Facebook Navigation Symbols
 
- There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
+ There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and [try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
 
 ### Facebook Menu Icons
 
@@ -159,7 +159,7 @@ What do these Facebook symbols mean?
 * **Recent ad activity** : See ads you interacted with.
 * **Saved** : View your collection of Saved Facebook posts.
 
- Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
+ Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from [downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to [boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
 ## Symbols on Facebook: Explained
 
@@ -184,3 +184,24 @@ What do these Facebook symbols mean?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-transformation-and-future-of-meta-platforms/"><u>Beyond Social Media: The Transformation and Future of Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-labyrinth-of-facebook-privacy-with-7-tools/"><u>Navigating the Labyrinth of Facebook Privacy with 7 Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates-for-2024/"><u>[New] Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-expedition-manual-launching-a-career-in-travel-blogging/"><u>The Ultimate Expedition Manual  Launching a Career in Travel Blogging</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-honor-x8b-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-become-a-pro-at-tweeting-live-video-responses/"><u>In 2024, Become a Pro at Tweeting Live Video Responses</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-igtvs-top-picks-for-next-weeks-feed-for-2024/"><u>[New] IGTV's Top Picks for Next Week's Feed for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-enigma-exchange-where-anonymity-meets-digital-riches-2023-edition/"><u>[Updated] The Enigma Exchange  Where Anonymity Meets Digital Riches, 2023 Edition</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-master-tiktoks-cutting-edge-filming-techniques/"><u>[New] Master TikTok's Cutting-Edge Filming Techniques</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Vivo T2x 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-motorola-moto-g13-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Motorola Moto G13</u></a></li>
+</ul></div>

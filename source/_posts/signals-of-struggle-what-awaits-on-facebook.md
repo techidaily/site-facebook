@@ -1,7 +1,7 @@
 ---
 title: "Signals of Struggle: What Awaits on Facebook"
-date: 2024-06-21 11:42:14
-updated: 2024-06-23 11:12:16
+date: 2024-06-25T14:31:54.832Z
+updated: 2024-06-26T14:31:54.832Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/do-digital-footsteps-follow-us-forever/"><u>Do Digital Footsteps Follow Us Forever?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-social-media-and-streaming-services-for-spotify/"><u>Bridging Social Media and Streaming Services for Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeking-at-potential-renaming-scheme-of-facebook/"><u>Peeking at Potential Renaming Scheme of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-impact-study-in-us-detrimental-over-beneficial/"><u>Social Media's Impact Study in US: Detrimental Over Beneficial</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-the-future-headline-for-social-media-platforms/"><u>Cryptos: The Future Headline for Social Media Platforms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-tech-giants-how-apple-diverges-from-facebook/"><u>Exploring Tech Giants: How Apple Diverges From Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-uncovering-secrets-in-instagram-story-watchers-for-2024/"><u>[Updated] Uncovering Secrets in Instagram Story Watchers for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-nokia-c12-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Nokia C12 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhance-your-asmr-experience-with-top-tier-mics/"><u>[Updated] 2024 Approved  Enhance Your ASMR Experience with Top-Tier Mics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-easing-into-your-youtube-watches-3-methods-50-chars/"><u>[Updated] In 2024, Easing Into Your YouTube Watches  3 Methods (50 Chars)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-strategic-approaches-accumulating-top-notch-backdrop-imagery/"><u>In 2024, Strategic Approaches  Accumulating Top-Notch Backdrop Imagery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-finest-selection-of-economical-free-lut-tools/"><u>In 2024, Unveiling the Finest Selection of Economical, Free LUT Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-unleash-the-power-of-linux-on-your-chromebook-an-installation-guide-for-20/"><u>New In 2024, Unleash the Power of Linux on Your Chromebook An Installation Guide for 20</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-mac-video-editing-software-top-10-alternatives-to-vegas-pro/"><u>Updated In 2024, Mac Video Editing Software Top 10 Alternatives to Vegas Pro</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-in-2024-a-beginners-guide-for-learning-3d-animation/"><u>New In 2024, A Beginners Guide for Learning 3D Animation</u></a></li>
+<li><a href="https://video-capture.techidaily.com/a-guide-to-excellence-with-zd-soft-screen-capture-for-2024/"><u>A Guide to Excellence with ZD Soft Screen Capture for 2024</u></a></li>
+</ul></div>

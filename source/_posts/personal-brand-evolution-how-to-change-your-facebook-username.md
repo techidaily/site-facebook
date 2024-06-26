@@ -1,7 +1,7 @@
 ---
 title: "Personal Brand Evolution: How to Change Your Facebook Username"
-date: 2024-06-20 14:36:30
-updated: 2024-06-23 11:56:12
+date: 2024-06-25T14:10:14.529Z
+updated: 2024-06-26T14:10:14.529Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tips-for-swiftly-removing-facebook-stories/"><u>Tips for Swiftly Removing Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-privacy-go-incognito-with-social-likes/"><u>Embrace Privacy: Go Incognito with Social Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-stands-firm-10k-fb-group-admin-accounts-targeted/"><u>Amazon Stands Firm: 10K FB Group Admin Accounts Targeted</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-group-discussions-with-channels-integration/"><u>Simplifying Group Discussions with Channels Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-and-its-position-in-the-emerging-metaverse-market/"><u>Second Life and Its Position in The Emerging Metaverse Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-back-the-old-why-some-prefer-instagram-20/"><u>Bringing Back The Old: Why Some Prefer Instagram 2.0</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-cutting-through-the-differences-final-cut-pro-vs-express/"><u>Updated In 2024, Cutting Through the Differences Final Cut Pro vs Express</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-instagrams-newest-filters-how-to-use-them-for-impact/"><u>In 2024, Instagram's Newest Filters  How to Use Them for Impact</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/prime-interactive-room-for-free-play/"><u>Prime Interactive Room for Free Play</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-10plus-best-music-video-makers-to-make-fantastic-mv-for-2024/"><u>New 10+ Best Music Video Makers to Make Fantastic MV for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/5-leading-video-processors-transforming-podcasts-for-2024/"><u>5 Leading Video Processors Transforming Podcasts for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-remove-drums-from-a-song-online-easy-tips-and-tricks/"><u>2024 Approved Remove Drums From a Song Online Easy Tips and Tricks</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-the-art-of-selecting-free-music-for-videos-for-2024/"><u>Mastering the Art of Selecting Free Music for Videos for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-lumafusion-color-grading-achieving-it-through-luts/"><u>Updated In 2024, LumaFusion Color Grading Achieving It Through LUTs</u></a></li>
+</ul></div>

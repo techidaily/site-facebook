@@ -1,7 +1,7 @@
 ---
 title: "Command Control Over Comments: A Guide for Social Media Users"
-date: 2024-06-22 15:38:44
-updated: 2024-06-23 11:57:24
+date: 2024-06-25T13:45:14.450Z
+updated: 2024-06-26T13:45:14.450Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/does-metas-verification-justify-its-price/"><u>Does Meta's Verification Justify Its Price?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-filter-bubble-transparency-act/"><u>Decoding the Filter Bubble Transparency Act</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-protests-push-facebook-to-1-star-rating-plunge/"><u>Digital Protests Push Facebook to 1-Star Rating Plunge</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-an-absence-from-messenger/"><u>What Lies Behind an Absence From Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-tech-marvels-discover-the-leading-4-stories-you-missed/"><u>Unseen Tech Marvels: Discover the Leading 4 Stories You Missed</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approach-to-networking-top-10-budget-friendly-apps/"><u>Innovative Approach to Networking: Top 10 Budget-Friendly Apps</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-hidden-sound-scribes-unveiling-ios-and-android-stealth-recorders/"><u>[New] Hidden Sound Scribes  Unveiling iOS & Android Stealth Recorders</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/scale-up-snapshot-size-retain-sharpness/"><u>Scale Up Snapshot Size - Retain Sharpness</u></a></li>
+<li><a href="https://techidaily.com/video-fixer-software-for-all-corrupt-videos-of-vivo-y78plus-t1-edition-by-stellar-video-repair-mobile-video-repair/"><u>Video Fixer Software for all Corrupt Videos of Vivo Y78+ (T1) Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-clockwise-conversions-transform-your-instagram-posts-through-rotation/"><u>[New] In 2024, Clockwise Conversions  Transform Your Instagram Posts Through Rotation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-seamless-video-transmission-success-in-facebook-messengers-iphoneandroid-for-2024/"><u>[New] Seamless Video Transmission Success in Facebook Messengers, iPhone/Android for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-digital-domination-diaries/"><u>[New] In 2024, Digital Domination Diaries</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-mastering-video-caption-implementation-on-vimeo/"><u>[Updated] In 2024, Mastering Video Caption Implementation on Vimeo</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-nokia-c300-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Nokia C300 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-step-by-step-screencasting-team-virtual-gatherings/"><u>In 2024, Step-by-Step  Screencasting Team Virtual Gatherings</u></a></li>
+</ul></div>

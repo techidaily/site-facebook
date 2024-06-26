@@ -1,7 +1,7 @@
 ---
 title: The Subtle Art of Digital Etiquette in Connection Requests
-date: 2024-06-22 13:21:34
-updated: 2024-06-23 10:31:22
+date: 2024-06-25T14:39:41.634Z
+updated: 2024-06-26T14:39:41.634Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
-## How to Find Out Whether Someone Denied Your Facebook Friend Request
-
-![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
+## How to Find Out Whether Someone Denied Your Facebook Friend Request ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
@@ -55,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
 ## Unfollowing vs. Unfriending on Facebook
 
- Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
+ Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on [following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
 
  From your Feed (**Home**) find a post from your overactive friend, click the arrowhead in the top right to expand the post menu, and click**Unfollow** . If you think the activity is only temporary, you can also snooze their messages for 30 days.
 
@@ -71,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
 ### 1\. Only Add People You Know
 
- Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its[Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
+ Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its [Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
 
  Consequently, Facebook might block you from sending friend requests for some time.
 
@@ -155,7 +153,7 @@ Keep in mind that if you do this, the person may be penalized.
 
 ### 2\. You Blocked the Other Person
 
- You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
+ You can't friend someone you've blocked. See if you can [unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
@@ -165,13 +163,13 @@ Keep in mind that if you do this, the person may be penalized.
 
  Neither you, nor your friend-to-be, can have more than 5,000 friends on Facebook. If one of you has crossed that limit, you can't send each other friend requests.
 
- If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
+ If you have too many friends, consider [converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
 
- According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
+ According to [the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
 
@@ -196,3 +194,22 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/maximize-your-network-5-ways-to-use-social-media-careers/"><u>Maximize Your Network: 5 Ways to Use Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148962192-which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate!</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-motive-behind-facebooks-just-feed-change/"><u>Analyzing the Motive Behind Facebook's 'Just Feed' Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-boost-removing-facebook-watch-history-details/"><u>Privacy Boost: Removing Facebook Watch History Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-a-frozen-facebook-profile-step-by-step/"><u>Recovering a Frozen Facebook Profile: Step by Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-beats-to-broadcast-a-compreesive-guide-to-editing-your-podcast/"><u>From Beats to Broadcast  A Compreesive Guide to Editing Your Podcast</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-simplifying-color-grading-a-comprehensive-look-at-luts/"><u>In 2024, Simplifying Color Grading  A Comprehensive Look at LUTs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ptimize-attention-strategies-for-shorts-on-youtube-for-2024/"><u>[New] Optimize Attention  Strategies for Shorts on YouTube for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-poco-x5-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Poco X5 Safely | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-ultimate-guide-selecting-the-5-best-mp3-recorders-for-clear-audio-transcription/"><u>The Ultimate Guide Selecting the 5 Best MP3 Recorders for Clear Audio Transcription</u></a></li>
+<li><a href="https://video-capture.techidaily.com/the-nvidia-method-to-perfect-gaming-replays-for-2024/"><u>The NVIDIA Method to Perfect Gaming Replays for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-path-to-digital-fame-on-youtube-begins-here-for-2024/"><u>The Path to Digital Fame on YouTube Begins Here for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/l-blogging-essentials-step-by-step-path-to-success/"><u>Travel Blogging Essentials  Step-by-Step Path to Success</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Achieve Serenity by Shutting Down FB Alerts
-date: 2024-06-20 11:50:59
-updated: 2024-06-23 11:55:34
+date: 2024-06-25T14:22:05.873Z
+updated: 2024-06-26T14:22:05.873Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-identity-authentication-by-meta/"><u>Social Identity Authentication by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-benefits-of-creating-a-facebook-group/"><u>6 Benefits of Creating a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-ways-social-media-brings-people-together/"><u>7 Ways Social Media Brings People Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-exit-strategy-an-unshakeable-departure-from-facebook/"><u>The Exit Strategy: An Unshakeable Departure From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tennis-associations-discontinue-digital-participation/"><u>Tennis Associations Discontinue Digital Participation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefined-6-revolutionary-reasons-to-experience-its-metaverse/"><u>Facebook Redefined: 6 Revolutionary Reasons to Experience Its Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/opt-out-of-whatsapps-updated-policy-no-limits-on-account/"><u>Opt-Out of WhatsApp's Updated Policy, No Limits on Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-image-for-your-fb-sphere/"><u>Optimal Image for Your FB Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-personalization-your-social-media-dream-now-reality/"><u>Seamless Personalization - Your Social Media Dream Now Reality</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-poll-power-players-quintessential-politic-games/"><u>2024 Approved  Poll Power Players  Quintessential Politic Games</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elongate-film-for-youtube-compliance/"><u>2024 Approved  Elongate Film for YouTube Compliance</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-top-7-online-audio-cutters-for-efficient-and-hassle-free-file-management/"><u>Updated Top 7 Online Audio Cutters for Efficient and Hassle-Free File Management</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-secrets-the-battle-of-biometric-systems-in-phones/"><u>[New] Unlocking Secrets  The Battle of Biometric Systems in Phones</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/supreme-storytelling-through-soundscape/"><u>Supreme Storytelling Through Soundscape</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-focusflexpro-x7-smart-resizing-superior-quality/"><u>In 2024, FocusFlexPro X7  Smart Resizing, Superior Quality</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-11-expert-tactics-for-dominating-fb-video-marketing/"><u>[New] 11 Expert Tactics for Dominating FB Video Marketing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Motorola Edge+ (2023) | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-gif-magic-on-mac-leading-tools-of-10-for-2024/"><u>[New] GIF Magic on Mac  Leading Tools of 10 for 2024</u></a></li>
+</ul></div>

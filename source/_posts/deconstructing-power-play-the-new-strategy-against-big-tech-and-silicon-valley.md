@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Power Play: The New Strategy Against Big Tech and Silicon Valley"
-date: 2024-06-22 22:13:11
-updated: 2024-06-23 10:28:20
+date: 2024-06-25T14:17:59.732Z
+updated: 2024-06-26T14:17:59.732Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,27 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-facebooks-organizational-framework/"><u>Insightful Analysis: Facebook's Organizational Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/illuminating-facebooks-secrets-accessing-its-transparency-center/"><u>Illuminating Facebook's Secrets: Accessing Its Transparency Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-journey-forward-thinking-beyond-social-platforms/"><u>Apple's Journey: Forward-Thinking Beyond Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-after-unlinking-from-social-networks/"><u>Life After Unlinking From Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquering-facebook-challenges-solutions-to-11-typical-errors/"><u>Conquering Facebook Challenges: Solutions to 11 Typical Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-virtual-governance-facebooks-advanced-administrator-aids/"><u>Facilitating Virtual Governance: Facebook’s Advanced Administrator Aids</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-into-a-reflective-mirror-of-you/"><u>Transforming Facebook Into a Reflective Mirror of You</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-giants-iron-fisted-approach-to-combatting-false-claims/"><u>Social Giant's Iron-Fisted Approach to Combatting False Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-discover-the-secret-to-effortless-writing-top-mac-speech-to-text-apps-you-need-to-try-free-and-no-hassle/"><u>Updated 2024 Approved Discover the Secret to Effortless Writing Top Mac Speech-to-Text Apps You Need to Try Free & No Hassle</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-make-a-channel-trailer/"><u>[Updated] In 2024, How to Make a Channel Trailer</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-tecno-spark-go-2023-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Tecno Spark Go (2023) Phones with/without a PC</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-the-best-in-live-sound-alteration-technology-in-depth-reviews-to-guide-your-choices/"><u>Updated 2024 Approved The Best in Live Sound Alteration Technology In-Depth Reviews to Guide Your Choices</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-no-cost-video-trimming-10-best-free-online-tools/"><u>New No-Cost Video Trimming 10 Best Free Online Tools</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-dualviewpoint-analysis/"><u>In 2024, DualViewpoint Analysis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-precision-sculpting-perfect-circles-spheres-in-minecraft-world-for-2024/"><u>[New] Precision Sculpting  Perfect Circles, Spheres in Minecraft World for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-revamp-iphone-photos-effective-red-eye-removal-for-free/"><u>[Updated] Revamp iPhone Photos  Effective Red-Eye Removal for FREE</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/fast-easy-free-uncovering-the-best-10-image-converters/"><u>Fast, Easy, FREE  Uncovering the Best 10 Image Converters</u></a></li>
+</ul></div>

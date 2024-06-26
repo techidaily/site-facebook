@@ -1,7 +1,7 @@
 ---
 title: Dial Down the Intensity of Targeted Advertisement Screens
-date: 2024-06-20 16:27:41
-updated: 2024-06-23 12:16:20
+date: 2024-06-25T14:20:24.176Z
+updated: 2024-06-26T14:20:24.176Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,7 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
-## How to Minimize Targeted Ads on Instagram
-
-![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
+## How to Minimize Targeted Ads on Instagram ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
 
@@ -85,11 +83,9 @@ Close
 
  To view the ads you have recently engaged with, tap **Ad activity** under**General info** .
 
- To learn how to block ads about specific brands or topics on Instagram, read our guide on[how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
+ To learn how to block ads about specific brands or topics on Instagram, read our guide on [how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
-## How to Minimize Targeted Ads on Twitter
-
-![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
+## How to Minimize Targeted Ads on Twitter ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
 
@@ -135,3 +131,27 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/virtual-buzz-elevating-your-fb-communitys-spotlight/"><u>Virtual Buzz: Elevating Your FB Community's Spotlight</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-new-password-implementation-on-facebook/"><u>Instructions: New Password Implementation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-method-for-minimizing-misuse-of-intimate-images/"><u>Meta's Method for Minimizing Misuse of Intimate Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-deletion-on-facebook/"><u>Mastering Group Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-metaverse-project-seeks-global-talent-pool-of-10k/"><u>Facebook's Metaverse Project Seeks Global Talent Pool of 10K.</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-language-of-facebook-to-capture-attention/"><u>Mastering the Language of Facebook to Capture Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-the-ios-145-update-is-going-to-really-hurt-facebook/"><u>How the iOS 14.5 Update Is Going to Really Hurt Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-reemerge-and-thrive-amidst-the-new-age-of-metaversal-exploration/"><u>Can LLife Reemerge and Thrive Amidst The New Age of Metaversal Exploration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-a-barrage-of-difficult-headlines-on-fb/"><u>Anticipating a Barrage of Difficult Headlines on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-exit-strategy-an-unshakeable-departure-from-facebook/"><u>The Exit Strategy: An Unshakeable Departure From Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-turboinsta-video-boosting-online-and-mobile-fixes/"><u>In 2024, TurboInsta Video Boosting  Online & Mobile Fixes</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sizing-up-show-content-optimal-episode-count/"><u>[New] Sizing Up Show Content  Optimal Episode Count</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unveiling-top-win11-videography-software-selections/"><u>[New] Unveiling Top Win11 Videography Software Selections</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-puzzling-out-what-pfp-signifies-on-tiktok/"><u>[Updated] Puzzling Out What PFP Signifies on TikTok</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unbiased-review-does-splice-video-editor-live-up-to-the-hype-for-2024/"><u>Updated Unbiased Review Does Splice Video Editor Live Up to the Hype for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-in-2024-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial/"><u>New In 2024, How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-8-plus-official-method-to-unlock-your-iphone-8-plus-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 8 Plus Official Method to Unlock Your iPhone 8 Plus</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-tutorial-changing-aspect-ratio-for-social-media-and-more/"><u>Final Cut Pro Tutorial Changing Aspect Ratio for Social Media and More</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-video-content-to-cash-flow-youtubes-profit-mechanics/"><u>[Updated] From Video Content to Cash Flow  YouTube's Profit Mechanics</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-from-concept-to-reality-the-10-best-music-video-agencies/"><u>Updated 2024 Approved From Concept to Reality The 10 Best Music Video Agencies</u></a></li>
+</ul></div>

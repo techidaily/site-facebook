@@ -1,7 +1,7 @@
 ---
 title: Essential Silicon Insights, Lost But Now Found - Top 4 Discoveries!
-date: 2024-06-21 11:45:44
-updated: 2024-06-23 10:29:21
+date: 2024-06-25T14:37:02.909Z
+updated: 2024-06-26T14:37:02.909Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks
-
-![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -35,9 +33,7 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet
-
-![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -47,11 +43,9 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
- Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+ Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse
-
-![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War
-
-![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -98,3 +90,24 @@ thumbnail: https://thmb.techidaily.com/8383b1955265d208bd65863f99fa93e0506dbf01f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/beware-potential-data-misuse-on-your-devices/"><u>Beware! Potential Data Misuse on Your Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-login-sessions-across-diverse-facebook-pages/"><u>Quick Login Sessions Across Diverse Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-network-offers-better-anonymity-on-rift-2/"><u>Which Social Network Offers Better Anonymity on Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-groups-admins-whos-next-for-legal-action-from-amazon/"><u>Facebook Groups Admins: Who's Next for Legal Action From Amazon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-unveiling-five-pivotal-user-disappointments-in-facebook/"><u>Behind the Screen: Unveiling Five Pivotal User Disappointments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/quantifying-reset-actions-facebook-users-oculus-purchases-explored/"><u>Quantifying Reset Actions - Facebook User's Oculus Purchases Explored</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-first-home-frontier-top-6-beginner-friendly-mc-abodes/"><u>2024 Approved  First Home Frontier  Top 6 Beginner-Friendly MC Abodes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-a-look-at-googles-ar-graphics-and-others/"><u>[New] A Look at Google's AR Graphics & Others</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/legal-music-archives-top-10-websites-for-game-playlists/"><u>Legal Music Archives  Top 10 Websites for Game Playlists</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-honor-100-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-decoding-dangerous-subscriber-scams-online/"><u>[New] 2024 Approved  Decoding Dangerous Subscriber Scams Online</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/tunekeeper-trackdown-downloads-and-discussion/"><u>TuneKeeper Trackdown  Downloads & Discussion</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-how-to-use-korean-to-english-video-translators-for-creators/"><u>Updated How To Use Korean to English Video Translators for Creators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-tier-laptops-and-pcs-for-ultimate-comfort/"><u>Top-Tier Laptops & PCs for Ultimate Comfort</u></a></li>
+</ul></div>

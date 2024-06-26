@@ -1,7 +1,7 @@
 ---
 title: How to Spot Fake Profiles on Facebook
-date: 2024-06-22 22:51:18
-updated: 2024-06-23 12:17:50
+date: 2024-06-25T14:28:53.299Z
+updated: 2024-06-26T14:28:53.300Z
 tags:
   - facebook
 categories:
@@ -31,13 +31,11 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
-### 1\. Fake or Stolen Photos
+### 1\. Fake or Stolen Photos ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
 
-![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
+ Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by [online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
 
- Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
-
- If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like[TinEye](http://tineye.com) and[Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
+ If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like [TinEye](http://tineye.com) and [Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
 
 ### 2\. An Inconsistent Timeline
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
  Sometimes, you'll find a long period of dormancy where there's no post at all and then a period of almost daily posting. This is a red flag.
 
-### 3\. Strange Stories with a Plea for Help
-
-![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
+### 3\. Strange Stories with a Plea for Help ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
 
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
- It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other [ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
 ## Protect Yourself From Fake Profiles
 
@@ -86,3 +82,26 @@ thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailored-digital-personas-set-to-revolutionize-vr/"><u>Tailored Digital Personas Set to Revolutionize VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-sharing-3d-facebook-photos/"><u>The Ultimate Guide to Sharing 3D Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-personal-insights-from-deactivation/"><u>Unplugging: Personal Insights From Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/activist-attack-one-star-campaign-against-digital-app-store-ratings/"><u>Activist Attack: One Star Campaign Against Digital App Store Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-safe-from-sneaky-purchases-avoidance-of-facebook-marketplace-frauds/"><u>Staying Safe From Sneaky Purchases: Avoidance of Facebook Marketplace Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-most-noteworthy-tech-failures-in-recent-times/"><u>The 5 Most Noteworthy Tech Failures in Recent Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/fact-checking-faces-busting-10-popular-facebook-myths/"><u>Fact-Checking Faces: Busting 10 Popular Facebook Myths</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-innovative-youtube-titles-crafting-a-standout-brand/"><u>[New] Innovative YouTube Titles  Crafting a Standout Brand</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-nokia-c12-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia C12 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-build-your-brands-success-on-top-business-youtube-channels/"><u>In 2024, Build Your Brand's Success on Top Business YouTube Channels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-revolutionizing-audience-retention-on-youtube-with-these-top-6-techniques/"><u>[Updated] Revolutionizing Audience Retention on YouTube with These Top 6 Techniques</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-zero-5g-2023-turbo-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Zero 5G 2023 Turbo to New Android? | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-from-startup-to-shutdown-steam-on-discord-devices/"><u>[New] From Startup to Shutdown  Steam on Discord Devices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/humor-hive-undead-jester-creators/"><u>Humor Hive  Undead Jester Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-top-12-tycoon-games-where-strategies-thrive-and-profits-peak/"><u>The Top 12 Tycoon Games - Where Strategies Thrive and Profits Peak</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-get-facebook-links-downloaded-top-8-tools-of-the-year-2023-for-2024/"><u>[New] Get Facebook Links Downloaded  Top 8 Tools of the Year 2023 for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/top-28-youtube-music-splitters-for-easy-audio-extraction/"><u>Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
+</ul></div>

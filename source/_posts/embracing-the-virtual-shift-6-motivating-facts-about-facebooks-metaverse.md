@@ -1,7 +1,7 @@
 ---
 title: "Embracing the Virtual Shift: 6 Motivating Facts About Facebook's Metaverse"
-date: 2024-06-20 23:13:55
-updated: 2024-06-23 10:21:33
+date: 2024-06-25T14:02:38.237Z
+updated: 2024-06-26T14:02:38.237Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ The economic and commercial potential of the Metaverse is enormous.
 
  Since it's an entire virtual world, users will be able to set up shop and purchase items for use not only in their avatars and Meta experiences, but also in the real world.
 
- With[cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and[NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
+ With [cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and [NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
 
  Virtual merch, concert tickets, cars, decor, and houses are some of the items we can expect to be created and sold in the Metaverse. People can pay to watch movies in a private virtual theater with their friends or explore meticulously designed online scenarios. Also, brands can capitalize on this offering to create exclusive tokens for their customers to access an experience or sales offer.
 
@@ -75,7 +75,7 @@ That brings us to our next Meta advantage.
 
  Related:[Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
- Although most[Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
+ Although most [Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
 
  Zuck says Meta is all about 'building responsibly.' For all of Meta's promised experiences, there is an emphasis on interoperability, open standards, privacy, and security. Given that Meta is still a rebrand of the Facebook company and has access to tons of user data, it's unclear how that would play out.
 
@@ -108,3 +108,24 @@ That brings us to our next Meta advantage.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-lonely-nights-to-stronger-bonds-fb-for-expat-groups-analysis/"><u>From Lonely Nights to Stronger Bonds? FB for Expat Groups Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-departure-roadmap-top-priorities-before-deleting-fb/"><u>The Social Media Departure Roadmap: Top Priorities Before Deleting FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-privacy-on-facebook-a-handy-list-of-7-steps/"><u>Navigating Privacy on Facebook: A Handy List of 7 Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-engagement-building-lasting-digital-connections/"><u>The Art of Engagement: Building Lasting Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-in-a-digital-world-reasons-not-to-accept-all-friend-requests/"><u>Stay Safe in a Digital World: Reasons Not to Accept All Friend Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-periods-for-online-post-performance/"><u>Peak Periods for Online Post Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-snapchat-incorporating-songs-into-your-videos-for-2024/"><u>[New] Mastering Snapchat  Incorporating Songs Into Your Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitter-archive-mastery-a-guide-to-gif-download-success/"><u>[Updated] 2024 Approved  Twitter Archive Mastery  A Guide to GIF Download Success</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/capture-the-moment-idevice-screenshots-and-playback/"><u>Capture the Moment  IDevice Screenshots & Playback</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-missing-fb-watch-icon-get-it-fixed-now/"><u>[Updated] In 2024, Missing FB Watch Icon? Get It Fixed Now</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-on-iphone-11-pro-max-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently On iPhone 11 Pro Max</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-apple-iphone-12-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>How to Change Your Apple iPhone 12 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/igtv-a-listers-hanging-out-on-snapchat/"><u>IGTV A-Listers Hanging Out on Snapchat</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-unleashing-broadcast-potential-from-obs-to-facebook-platform-for-2024/"><u>[Updated] Unleashing Broadcast Potential  From OBS to Facebook Platform for 2024</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-nubia-red-magic-8s-proplus-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Nubia Red Magic 8S Pro+</u></a></li>
+</ul></div>

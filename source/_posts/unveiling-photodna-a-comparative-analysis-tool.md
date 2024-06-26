@@ -1,7 +1,7 @@
 ---
 title: "Unveiling PhotoDNA: A Comparative Analysis Tool"
-date: 2024-06-22 19:36:29
-updated: 2024-06-23 10:37:26
+date: 2024-06-25T13:59:25.258Z
+updated: 2024-06-26T13:59:25.258Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d7505
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d7505
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d7505
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,24 @@ thumbnail: https://thmb.techidaily.com/1296bc6cf3d8ba602cee83fbaf9d9aae0f41d7505
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/pioneering-psychological-advancements-isbms-innovative-cbt-approach/"><u>Pioneering Psychological Advancements: ISBM's Innovative CBT Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-the-rules-how-to-remove-facebook-clans/"><u>Unfollow the Rules: How to Remove Facebook Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-stories-behind-4-major-declines-in-facebook-usage/"><u>The Hidden Stories Behind 4 Major Declines in Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/past-vs-present-a-reevaluation-of-the-impact-of-facebook-investigations/"><u>Past vs Present: A Reevaluation of The Impact of Facebook Investigations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-of-promotional-marketing-deciphering-the-role-of-hashtags-on-fb/"><u>The Puzzle of Promotional Marketing: Deciphering the Role of #Hashtags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealthy-seduction-of-user-data-through-interfaces/"><u>The Stealthy Seduction of User Data Through Interfaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/tethered-to-trust-a-dive-into-cryptocurrency-stability-coins/"><u>Tethered to Trust: A Dive Into Cryptocurrency Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-exits-the-rationale-behind-facebooks-stay/"><u>Beyond Exits: The Rationale Behind Facebook's Stay</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unpacking-presenter-8s-features-against-the-best-for-2024/"><u>[New] Unpacking Presenter 8’S Features Against the Best for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/rhythmic-revolution-top-tracks-reshaping-the-rap-scene-on-tiktok-for-2024/"><u>Rhythmic Revolution  Top Tracks Reshaping the Rap Scene on TikTok for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fb-activity-preview-insight-or-intrusion-whats-safer/"><u>[Updated] FB Activity Preview  Insight or Intrusion – What's Safer?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-apple-iphone-8-location-on-viber-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change/Fake Your Apple iPhone 8 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/optimize-video-content-for-engaging-on-instagram-for-2024/"><u>Optimize Video Content for Engaging on Instagram for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-iphone-15-pro-maxipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled iPhone 15 Pro Max/iPad Without Computer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-vivo-v30-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Vivo V30 Lock Screen Password</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-mp4-files-on-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How to play MP4 files on Samsung Galaxy M54 5G?</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-samsung-galaxy-a05s-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Samsung Galaxy A05s Device Top 5 Picks to Remove Android Locks</u></a></li>
+</ul></div>

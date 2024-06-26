@@ -1,7 +1,7 @@
 ---
 title: Discovering Hidden Gems in Your Facebook Archive
-date: 2024-06-20 16:33:21
-updated: 2024-06-23 10:25:26
+date: 2024-06-25T14:36:21.840Z
+updated: 2024-06-26T14:36:21.840Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ To share a memory from the On This Day feature:
 
 1. Open**Memories** from your Facebook menu. It will be available by tapping the three horizontal lines in the bottom right corner of your screen. Users who wish to access memories through the website can scroll through the menu on the left side of their Facebook homepage.
 2. Select the memory you wish to share.
-3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on [Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
@@ -83,7 +83,7 @@ To access your saved memories:
 
 Close
 
- To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
+ To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
@@ -95,7 +95,7 @@ Close
 
 ## Customization Options for the On This Day Feature
 
- If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
+ If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
 
 1. Open**Memories** from the Facebook**Menu** .
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
@@ -144,3 +144,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-well-being-boosted-by-9-key-social-media-factors/"><u>Digital Well-Being Boosted by 9 Key Social Media Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-trailblazer-finding-friendly-face-on-fb/"><u>Digital Trailblazer: Finding Friendly Face on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-the-redefined-significance-in-facebook-tags/"><u>A Closer Look at The Redefined Significance in Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-clicks-to-consequences-understanding-online-responsibility/"><u>From Clicks to Consequences: Understanding Online Responsibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-scope-of-facebooks-support-system/"><u>Discovering the Scope of Facebook's Support System</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-instagrams-latest-revenue-options-for-content-makers/"><u>Unlocking Potential: Instagram's Latest Revenue Options for Content Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-plea-to-facebook-and-google-strengthen-your-fight-against-fake-ads/"><u>A Plea to Facebook and Google: Strengthen Your Fight Against Fake Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-and-giphy-in-trouble-selling-possibility-explored/"><u>FB and Giphy in Trouble? Selling Possibility Explored</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Vivo V27? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-v30-lite-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo V30 Lite 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-elite-video-transcription-programs-in-open-source/"><u>[Updated] Elite Video Transcription Programs in Open Source</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/effective-group-meetings-googles-top-solutions-4/"><u>Effective Group Meetings  Google's Top Solutions (#4)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/saga-scholars-society-premier-picks/"><u>Saga Scholars Society - Premier Picks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-reign-over-the-market-selecting-the-best-7-nft-enabling-services/"><u>[Updated] Reign Over the Market  Selecting the Best 7 NFT-Enabling Services</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ideal-echo-reapers-in-colleges/"><u>[Updated] 2024 Approved  Ideal Echo Reapers in Colleges</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-hevc-h265-video-on-galaxy-a05s-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How to play HEVC H.265 video on Galaxy A05s?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-old-hollywood-techniques-for-modern-filmmakers/"><u>[Updated] Old Hollywood Techniques for Modern Filmmakers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/new-2024-approved-a-comprehensive-guide-to-video-and-subtitle-translation-with-veedio/"><u>new 2024 Approved A Comprehensive Guide to Video and Subtitle Translation with Veed.io</u></a></li>
+</ul></div>

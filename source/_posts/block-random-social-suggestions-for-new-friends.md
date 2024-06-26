@@ -1,7 +1,7 @@
 ---
 title: Block Random Social Suggestions for New Friends
-date: 2024-06-21 15:31:55
-updated: 2024-06-23 11:48:22
+date: 2024-06-25T14:02:30.518Z
+updated: 2024-06-26T14:02:30.518Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-facebook-flip-when-to-follow-when-not-to-unfollow/"><u>Mastering the Facebook Flip: When to Follow, When Not to Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-recovery-of-deleted-facebook-videos/"><u>Mastering the Recovery of Deleted Facebook Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-building-industry-relationships-on-social-media-fb/"><u>A Step-by-Step Approach to Building Industry Relationships on Social Media: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-introduces-novel-monetizing-opportunities-for-creators/"><u>Instagram Introduces Novel Monetizing Opportunities for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-mobility-centric-portal-model/"><u>Facebook Unveils Mobility-Centric Portal Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-airborne-ingenuity-sections/"><u>[New] Airborne Ingenuity Sections</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-optimal-obs-configurations-for-thrifty-computers/"><u>2024 Approved  Optimal OBS Configurations for Thrifty Computers</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-best-15-apps-and-websites-to-use-to-add-music-to-a-video-with-pros-and-conss/"><u>New 2024 Approved Best 15 Apps & Websites to Use to Add Music to a Video With Pros & Conss</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/restore-your-viewing-experience-reclaim-the-icon/"><u>Restore Your Viewing Experience - Reclaim the Icon</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-full-analysis-of-camstudio-screen-capture-tech-for-2024/"><u>[Updated] Full Analysis of CamStudio Screen Capture Tech for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-mac-video-editing-software-the-cream-of-the-crop/"><u>New In 2024, Mac Video Editing Software The Cream of the Crop</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-rankings-decoded-is-pickups-editorivity-leading-android/"><u>In 2024, Top Rankings Decoded  Is PickUp's Editorivity Leading Android?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/advanced-strategies-for-screen-recording-on-ipad/"><u>Advanced Strategies for Screen Recording on iPad</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/professional-pilots-guide-to-best-5-drones/"><u>Professional Pilot’s Guide to Best 5 Drones</u></a></li>
+</ul></div>

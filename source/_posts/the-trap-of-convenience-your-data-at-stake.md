@@ -1,7 +1,7 @@
 ---
 title: "The Trap of Convenience: Your Data at Stake"
-date: 2024-06-20 22:12:47
-updated: 2024-06-23 11:18:34
+date: 2024-06-25T13:51:16.584Z
+updated: 2024-06-26T13:51:16.584Z
 tags:
   - facebook
 categories:
@@ -48,17 +48,15 @@ The site lists 12 types of dark patterns to watch out for:
 
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
- You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
+ You can read more about these tactics on the Dark Patterns website, as well as our [list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy
-
-![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
- Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
+ Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled [Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
 ### 1\. Default Settings
 
@@ -132,7 +130,7 @@ The site lists 12 types of dark patterns to watch out for:
 
  Google's privacy dashboard is flashy and friendly. But it's not actually designed to help you manage your privacy.
 
- You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
+ You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called [Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
 ## Dark Patterns Are Rough for Privacy
 
@@ -155,3 +153,24 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/community-strengthened-by-7-social-innovations/"><u>Community Strengthened by 7 Social Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-net-safety-for-personal-photos-at-meta/"><u>Navigating Net Safety for Personal Photos at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-users-shift-to-hardware-for-cybersecurity/"><u>Social Network Users Shift to Hardware for Cybersecurity</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-unsolicited-general-member-postings/"><u>Block Unsolicited General Member Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-is-there-a-place-for-dislike/"><u>Social Media: Is There a Place for 'Dislike'?</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-features-in-todays-websites/"><u>Controversial Features in Today's Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-and-its-position-in-the-emerging-metaverse-market/"><u>Second Life and Its Position in The Emerging Metaverse Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/embark-on-a-digital-romance-journey-with-facebook/"><u>Embark on a Digital Romance Journey with Facebook</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-bring-your-photos-to-life-a-video-creation-tutorial/"><u>New In 2024, Bring Your Photos to Life A Video Creation Tutorial</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-10-catchy-pixel-art-wallpapers-and-how-to-custom-your-own/"><u>Updated In 2024, 10 Catchy Pixel Art Wallpapers and How to Custom Your Own</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-share-and-post-like-a-pro-mastering-instagram-gif-uploads-4-step-method/"><u>[New] 2024 Approved  Share & Post Like a Pro  Mastering Instagram GIF Uploads (4-Step Method)</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-digital-arcade-over-a-hundred-game-channels/"><u>2024 Approved  Digital Arcade  Over a Hundred Game Channels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pioneering-pixels-select-the-leading-video-editors-for-big-sur-for-2024/"><u>Pioneering Pixels  Select the Leading Video Editors for Big Sur for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-igtv-video-downloads-on-windows-and-mac-top-5-methods-for-2024/"><u>[New] Mastering IGTV Video Downloads on Windows & Mac  Top 5 Methods for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-audacity-pro-audio-recording-techniques-focusing-on-computer-sounds/"><u>New Audacity Pro Audio Recording Techniques Focusing on Computer Sounds</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-se-2020-without-passcode-easily-by-drfone-ios/"><u>Unlock Apple iPhone SE (2020) Without Passcode Easily</u></a></li>
+</ul></div>

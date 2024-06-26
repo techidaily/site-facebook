@@ -1,7 +1,7 @@
 ---
 title: "Safeguarding Kids' Digital Footprint: Update on Messenger Kids"
-date: 2024-06-20 22:16:46
-updated: 2024-06-23 10:27:36
+date: 2024-06-25T13:58:28.705Z
+updated: 2024-06-26T13:58:28.705Z
 tags:
   - facebook
 categories:
@@ -37,11 +37,11 @@ Here's a look at the different fields you can add...
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
 
- Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the[safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
+ Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the [safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
 
 ### Edit Name
 
- When you[start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
+ When you [start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
 
 ## How to Add Your Child’s Information in Messenger Kids
 
@@ -71,13 +71,11 @@ Close
 4. Tap**Controls** from the top tabs. This will navigate you to the customizable settings.
 5. Select**Edit Info** . It will open your kid’s**Account Details** . Here, you can edit your child’s first name, surname, date of birth, and pronouns and add or remove the profile picture.
 
-**Download:** Facebook for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
+**Download:** Facebook for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
 
-**Download:** Messenger Kids for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
+**Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture
-
-![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -89,9 +87,7 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -103,9 +99,7 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -128,7 +122,7 @@ Follow these steps:
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
-5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
+5. Select**Controls** to access a menu with all the relevant features. Thanks to [updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
@@ -161,3 +155,23 @@ Follow these steps:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-may-be-changing-its-name-heres-what-we-know-so-far/"><u>Facebook May Be Changing Its Name: Here's What We Know So Far</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-interaction-potential-including-friends-to-messenger/"><u>Boosting Interaction Potential: Including Friends to Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/upholdining-brand-integrity-unfollowing-non-aligned-accounts/"><u>Upholdining Brand Integrity: Unfollowing Non-Aligned Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-s-most-popular-video-resume-builders-templates-and-tools-inside-for-2024/"><u>New S Most Popular Video Resume Builders Templates and Tools Inside for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/reimagined-ultrahd-2023s-samsung-bdplus-k850/"><u>Reimagined UltraHD  2023'S Samsung BD+ K850</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-videos-directly-from-your-phone-no-rt-for-2024/"><u>[New] Tweeting Videos Directly From Your Phone (No RT) for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-realme-narzo-n55-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Realme Narzo N55 Phone?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-unlocking-the-status-code-a-guide-to-verified-discord-affiliation/"><u>In 2024, Unlocking the Status Code  A Guide to Verified Discord Affiliation</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-crafting-memorable-visual-narratives-with-instagram-captions/"><u>[Updated] 2024 Approved  Crafting Memorable Visual Narratives with Instagram Captions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-motorola-moto-g23-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Motorola Moto G23? Fixed | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-revolutionize-your-discord-experience-with-these-must-have-audio-modifiers/"><u>2024 Approved  Revolutionize Your Discord Experience with These Must-Have Audio Modifiers</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/audio-creation-at-your-fingertips-a-comprehensive-look-into-adobes-audio-editor-features-for-2024/"><u>Audio Creation at Your Fingertips A Comprehensive Look Into Adobes Audio Editor Features for 2024</u></a></li>
+</ul></div>

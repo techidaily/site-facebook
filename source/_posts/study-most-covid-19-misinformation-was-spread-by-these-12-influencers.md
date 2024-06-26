@@ -1,7 +1,7 @@
 ---
 title: "Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers"
-date: 2024-06-22 14:24:29
-updated: 2024-06-23 10:49:23
+date: 2024-06-25T13:57:20.732Z
+updated: 2024-06-26T13:57:20.732Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,27 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/llifes-comeback-story-will-it-play-out-in-metaverse-times/"><u>LLife's Comeback Story: Will It Play Out In Metaverse Times?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networking-diving-into-facebooks-metaverse-concept/"><u>Beyond Social Networking: Diving Into Facebook's Metaverse Concept</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-switching-tactics-for-multiple-facebook-ids/"><u>Fast-Switching Tactics for Multiple Facebook IDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-solitude-6-reasons-to-abandon-facebook/"><u>The Power of Solitude - 6 Reasons to Abandon Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-postpones-update-on-new-privacy-rules/"><u>WhatsApp Postpones Update on New Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-tech-captures-word-meanings-from-photo-images/"><u>New Tech Captures Word Meanings From Photo Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-social-medias-biggest-loser-facebooks-users/"><u>Analyzing Social Media's Biggest Loser: Facebook’s Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-profits-creators-guide-to-earnings-with-reels-and-marketplace-metrics/"><u>Reeling In Profits: Creators' Guide to Earnings with Reels and Marketplace Metrics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-quiet-curator-of-online-chronicles/"><u>[Updated] 2024 Approved  Quiet Curator of Online Chronicles</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/delete-gmail-account-withwithout-password-on-lava-blaze-pro-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-honor-100-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-key-to-making-youtube-videos-stand-out-on-instagram-stories/"><u>The Key to Making YouTube Videos Stand Out on Instagram Stories</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-maximize-visuals-in-youtubespace-with-effective-tools/"><u>2024 Approved  Maximize Visuals in YouTubespace with Effective Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-premier-gopro-movie-maker-suites/"><u>2024 Approved  Premier GoPro Movie Maker Suites</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-achieving-selective-image-softness-for-2024/"><u>Expert Tips  Achieving Selective Image Softness for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y100a-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y100A To Phone | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tailoring-your-archive-strategy-on-instagram/"><u>Tailoring Your Archive Strategy on Instagram</u></a></li>
+</ul></div>

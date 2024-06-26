@@ -1,7 +1,7 @@
 ---
 title: Clearing Facebook Notification Stores
-date: 2024-06-20 23:44:38
-updated: 2024-06-23 11:16:16
+date: 2024-06-25T14:10:34.329Z
+updated: 2024-06-26T14:10:34.329Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/5b6554e76aaa2a052eebb5ed360ccf43529d16f47
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-## How to Delete Facebook Notifications
-
-![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+## How to Delete Facebook Notifications ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -74,9 +72,7 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-### How to Turn Off Facebook Notifications by Category
-
-![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+### How to Turn Off Facebook Notifications by Category ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -99,9 +95,7 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-### How to Stop Facebook Notifications on Android
-
-![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+### How to Stop Facebook Notifications on Android ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -148,3 +142,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-future-apples-unique-destination/"><u>Navigating the Future: Apple’s Unique Destination</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-and-implementation-of-sleep-mode-on-messenger-kids-platform/"><u>The Importance & Implementation of Sleep Mode on Messenger Kids Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-a-unique-space-in-the-webs-sphere-fb-url-change/"><u>Secure a Unique Space in the Web's Sphere: FB URL Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/picture-perfection-social-strategies-for-successful-profiles/"><u>Picture Perfection: Social Strategies for Successful Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-relieved-germany-imposes-ban-on-facebooks-data-collection-practices/"><u>WhatsApp Users Relieved: Germany Imposes Ban on Facebook's Data Collection Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-stress-relief-with-facebooks-timed-breaks/"><u>Unlocking Stress Relief with Facebook's Timed Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fbs-best-practices-for-safety-and-confidentiality/"><u>Unlocking FB's Best Practices for Safety & Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-in-support-during-60-minutes-report/"><u>Who Spoke in Support During 60 Minutes Report?</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-personalities-sparking-tech-disputes/"><u>Leading Personalities Sparking Tech Disputes</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/navigating-file-extraction-from-youtube-browser-os-and-terminal-methods-for-2024/"><u>Navigating File Extraction From Youtube  Browser, OS and Terminal Methods for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-low-cost-pc-performance-monitoring-programs/"><u>[Updated] 2024 Approved  Low-Cost PC Performance Monitoring Programs</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-unlock-the-power-of-live-videos-on-facebook/"><u>2024 Approved  Unlock the Power of Live Videos on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-master-video-playback-speeds-in-minutes-not-hours/"><u>In 2024, Master Video Playback Speeds in Minutes, Not Hours</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-xiaomi-13t-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Xiaomi 13T Devices</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-ranking-the-best-6-apps-to-transform-your-voice-in-seconds/"><u>New 2024 Approved Ranking the Best 6 Apps to Transform Your Voice in Seconds</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-from-audio-to-articulation-the-top-10-software-choices-for-efficiently-transcribing-your-podcasts/"><u>New In 2024, From Audio to Articulation The Top 10 Software Choices for Efficiently Transcribing Your Podcasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-effective-techniques-to-archive-vimeo-content/"><u>2024 Approved  Effective Techniques to Archive Vimeo Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/optimize-your-instagram-media-flow-desktopmobile-for-2024/"><u>Optimize Your Instagram Media Flow (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-tips-for-applying-luts-in-film-color-grading/"><u>2024 Approved  Tips for Applying LUTs in Film Color Grading</u></a></li>
+</ul></div>

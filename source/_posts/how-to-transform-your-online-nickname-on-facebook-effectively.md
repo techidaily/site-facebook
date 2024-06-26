@@ -1,7 +1,7 @@
 ---
 title: How to Transform Your Online Nickname on Facebook Effectively
-date: 2024-06-21 14:40:23
-updated: 2024-06-23 12:17:58
+date: 2024-06-25T14:10:05.405Z
+updated: 2024-06-26T14:10:05.405Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-present-board-members/"><u>Facebook's Present Board Members</u></a></li>
+<li><a href="https://facebook.techidaily.com/doppelganger-detection-spotting-digital-dupes/"><u>Doppelgänger Detection: Spotting Digital Dupes</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-platforms-promising-engaging-seniors/"><u>Prime Platforms Promising Engaging Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-birthday-on-facebook/"><u>How to Change Your Birthday on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-scoop-inside-the-latest-facebook-data-revelations/"><u>The Scoop: Inside the Latest Facebook Data Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-for-justice-pal-activist-efforts-impact-fb-store-scores/"><u>Hacking for Justice? Pal-Activist Efforts Impact FB Store Scores</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-the-global-expat-experience-a-dual-perspective/"><u>Facebook's Role in the Global Expat Experience – A Dual Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-to-safety-how-facebook-users-purchased-oculus-q2/"><u>Resetting to Safety - How Facebook Users Purchased Oculus Q2</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-navigating-through-time-with-historical-fb-features-device-guide/"><u>[New] Navigating Through Time with Historical FB Features  Device Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-achieve-professional-quality-on-yt-with-simple-blurring/"><u>[New] 2024 Approved  Achieve Professional Quality on YT with Simple Blurring</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-top-10-iconic-song-selections-for-inspiring-short-film-scenes-for-2024/"><u>Updated Top 10 Iconic Song Selections for Inspiring Short Film Scenes for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-oppo-reno-11-pro-5g-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Oppo Reno 11 Pro 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-se-to-androidios-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone SE to Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-top-voice-transformation-tools-for-anime-enthusiasts-desktop-and-mobile-edition/"><u>New In 2024, Top Voice Transformation Tools for Anime Enthusiasts Desktop & Mobile Edition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeo-basic-vimeo-plus-or-vimeo-pro-which-is-right-for-you/"><u>Vimeo Basic, Vimeo Plus or Vimeo Pro  Which Is Right for You?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-smile-slam-the-best-comedy-moments-on-social-media/"><u>In 2024, Smile Slam  The Best Comedy Moments on Social Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-recording-tactics-that-transform-your-visual-content/"><u>[Updated] Recording Tactics That Transform Your Visual Content</u></a></li>
+</ul></div>

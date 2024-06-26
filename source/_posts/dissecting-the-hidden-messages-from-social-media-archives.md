@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Hidden Messages From Social Media Archives
-date: 2024-06-21 23:36:46
-updated: 2024-06-23 12:58:57
+date: 2024-06-25T13:57:30.481Z
+updated: 2024-06-26T13:57:30.481Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/cd1e0583a3f82954a7a1df94033dc0576cc47353e
 
 ## What Are the Facebook Papers?
 
- We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
+ We've already covered [what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
@@ -58,3 +58,24 @@ thumbnail: https://thmb.techidaily.com/cd1e0583a3f82954a7a1df94033dc0576cc47353e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/beyond-boundaries-4-ways-online-connectivity-shaped-today/"><u>Beyond Boundaries: 4 Ways Online Connectivity Shaped Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-nightmare-all-social-media-downed/"><u>Networking Nightmare: All Social Media Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-transform-your-online-nickname-on-facebook-effectively/"><u>How to Transform Your Online Nickname on Facebook Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-recent-design-shift/"><u>Breaking Down Facebook's Recent Design Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metas-identity-system/"><u>Navigating Meta's Identity System</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlinking-spotify-from-your-fb-account-a-step-by-step-guide/"><u>Unlinking Spotify From Your FB Account: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-substitutes-top-10-lightweight-android-titles/"><u>Swift Substitutes: Top 10 Lightweight Android Titles</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-harmonizing-sounds-seamless-transitions-in-ableton-live/"><u>[Updated] Harmonizing Sounds  Seamless Transitions in Ableton Live</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/a-detailed-guide-to-stream-to-instagram-with-an-rtmp-for-2024/"><u>A Detailed Guide To Stream to Instagram With an RTMP for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-honor-magic-vs-2-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Honor Magic Vs 2 to iPad | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mac-users-choice-top-screen-recorder-picks/"><u>2024 Approved  Mac Users' Choice  Top Screen Recorder Picks</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-aspect-ratio-control-on-prime-video/"><u>New Aspect Ratio Control on Prime Video</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-art-of-musical-integration-in-video-editing-an-in-depth-look-at-using-filmora/"><u>New The Art of Musical Integration in Video Editing An In-Depth Look at Using Filmora</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlock-optimal-video-playback-by-tuning-speed-in-snapchat-for-2024/"><u>Unlock Optimal Video Playback by Tuning Speed in Snapchat for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-nokia-g310-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Nokia G310? Here is How | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-6-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone 6?</u></a></li>
+</ul></div>

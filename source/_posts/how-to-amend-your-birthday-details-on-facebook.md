@@ -1,7 +1,7 @@
 ---
 title: How to Amend Your Birthday Details on Facebook
-date: 2024-06-21 22:27:50
-updated: 2024-06-23 12:17:19
+date: 2024-06-25T13:50:54.210Z
+updated: 2024-06-26T13:50:54.210Z
 tags:
   - facebook
 categories:
@@ -56,7 +56,7 @@ Close
 
 Here's how:
 
-* Log on to[Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
+* Log on to [Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
@@ -112,3 +112,26 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/personal-choice-in-content-consumption-muting-social-media/"><u>Personal Choice in Content Consumption: Muting Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/entryway-to-metas-account-administration-shelter/"><u>Entryway to Meta's Account Administration Shelter</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-look-at-facebooks-help-solutions/"><u>A Detailed Look at Facebook's Help Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-icons-explained-symbolism-on-facebook/"><u>Messenger Icons Explained - Symbolism on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-reel-creation-essential-tips-for-success/"><u>Mastering Facebook's Reel Creation: Essential Tips for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-policy-insight-hub-a-step-towards-greater-clarity/"><u>Facebook's Policy Insight Hub: A Step Towards Greater Clarity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprehensible-guide-to-retreating-cash-from-social-networks/"><u>The Comprehensible Guide to Retreating Cash From Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-breaking-free-from-g-for-2024/"><u>New Breaking Free From G for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-top-5-budget-friendly-methods-for-live-feed-recordings/"><u>[Updated] In 2024, Top 5 Budget-Friendly Methods for Live Feed Recordings</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/snickerstreamer-share-your-wit-with-a-click/"><u>SnickerStreamer  Share Your Wit with a Click</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/secure-your-content-free-windows-screenshot-tools/"><u>Secure Your Content  Free Windows Screenshot Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-revolutionizing-your-brand-with-the-top-30-fb-hacks-all-levels/"><u>[New] Revolutionizing Your Brand with the Top 30 FB Hacks (All Levels)</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/10-fantastic-online-tools-to-change-image-dimensions/"><u>10 Fantastic Online Tools to Change Image Dimensions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-bypassing-channels-tweets-on-whatsapp-for-2024/"><u>[Updated] Bypassing Channels  Tweets on WhatsApp for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-vivo-y02t-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Vivo Y02T Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-vivo-y100-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Vivo Y100</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/understanding-pixel-dimensions-ratio-calculation-techniques/"><u>Understanding Pixel Dimensions Ratio Calculation Techniques</u></a></li>
+</ul></div>

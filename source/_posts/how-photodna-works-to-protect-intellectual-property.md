@@ -1,7 +1,7 @@
 ---
 title: How PhotoDNA Works to Protect Intellectual Property
-date: 2024-06-20 19:50:41
-updated: 2024-06-23 10:11:34
+date: 2024-06-25T14:47:42.522Z
+updated: 2024-06-26T14:47:42.522Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/swiftly-updating-personal-graphics-on-facebook-platform/"><u>Swiftly Updating Personal Graphics on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-identities-profiles-vs-screen-names/"><u>Navigating Virtual Identities: Profiles Vs Screen Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-new-safeguard-code-for-fb/"><u>Implementing a New Safeguard Code for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tennis-associations-discontinue-digital-participation/"><u>Tennis Associations Discontinue Digital Participation</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-aggressors-dark-patterns-and-data-breaches/"><u>Invisible Aggressors: Dark Patterns and Data Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-the-ios-145-update-is-going-to-really-hurt-facebook/"><u>How the iOS 14.5 Update Is Going to Really Hurt Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-job-openings-impact-with-fb-strategies/"><u>Boosting Your Job Opening's Impact with FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-ironclad-guide-to-bio-and-profile-url-association-in-tiktok/"><u>2024 Approved  The Ironclad Guide to Bio and Profile URL Association in TikTok</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/building-a-reliable-routine-for-google-meet-sessions/"><u>Building a Reliable Routine for Google Meet Sessions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unrivaled-streaming-experience-ranking-the-leaders/"><u>Unrivaled Streaming Experience  Ranking the Leaders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[New] In 2024, Cut The Cost, Not The Creativity  Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-zoom-meeting-organization-tips-for-professionals/"><u>[New] Zoom Meeting Organization Tips for Professionals</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-youtubes-complex-view-count-system/"><u>2024 Approved  Unveiling YouTube's Complex View Count System</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-oppo-reno-9a-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Oppo Reno 9A?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-guide-how-to-download-windows-movie-maker-6-for-2024/"><u>Quick Guide  How to Download Windows Movie Maker 6 for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/cut-out-the-middleman-7-free-video-trimmers-with-no-watermark/"><u>Cut Out the Middleman 7 Free Video Trimmers with No Watermark</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mind-mavens-top-10-educational-youtube-hubs/"><u>2024 Approved  Mind Mavens  Top 10 Educational YouTube Hubs</u></a></li>
+</ul></div>

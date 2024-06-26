@@ -1,7 +1,7 @@
 ---
 title: Filtering Public Access to Online Check-Ins
-date: 2024-06-20 17:16:45
-updated: 2024-06-23 11:25:40
+date: 2024-06-25T13:52:39.216Z
+updated: 2024-06-26T13:52:39.216Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/8e1219109f6e569a973b3c46c3d9e23c1f4eabc6e
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,24 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-chatting-and-tweeting/"><u>Life Beyond Chatting and Tweeting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-10-facts-on-russias-internet-culture-hub/"><u>What Is VK?: 10 Facts on Russia’s Internet Culture Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-mechanics-behind-music-royalties-on-facebook/"><u>Unpacking the Mechanics Behind Music Royalties on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/devicenetworkbrowser-requirements-virbo-ai-live-stream-for-2024/"><u>Device/Network/Browser Requirements | Virbo AI Live Stream for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-hands-on-guide-to-optimize-your-youtube-channels-with-adsense/"><u>2024 Approved  Hands-On Guide to Optimize Your YouTube Channels with AdSense</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shades-and-tints-in-action-practical-application-for-2024/"><u>Shades & Tints in Action  Practical Application for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-canvas-magic-how-to-banish-the-unwanted-backdrop/"><u>[New] Canva's Magic  How to Banish the Unwanted Backdrop</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-xiaomi-14-ultra-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Xiaomi 14 Ultra Phone Pattern Lock</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-pro-level-video-editing-how-to-stabilize-footage-in-adobe-premiere-pro/"><u>Updated 2024 Approved Pro-Level Video Editing How to Stabilize Footage in Adobe Premiere Pro</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-a-closer-look-at-sharex-judgments-and-alternates/"><u>[Updated] In 2024, A Closer Look at ShareX  Judgments & Alternates</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-complete-guide-to-implementing-siri-speech-on-tiktok-platforms/"><u>2024 Approved  The Complete Guide to Implementing Siri Speech on TikTok Platforms</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-track-a-lost-apple-iphone-14-plus-for-free-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Track a Lost Apple iPhone 14 Plus for Free? | Dr.fone</u></a></li>
+</ul></div>

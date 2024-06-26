@@ -1,7 +1,7 @@
 ---
 title: The Operation and Purpose of PhotoDNA Algorithm
-date: 2024-06-20 23:17:31
-updated: 2024-06-23 10:42:28
+date: 2024-06-25T14:09:27.432Z
+updated: 2024-06-26T14:09:27.432Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fb
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fb
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fb
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/emergency-protocols-for-defeating-fb-account-intrusion/"><u>Emergency Protocols for Defeating FB Account Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-with-selective-fb-sharing/"><u>Secure Your Digital Footprint with Selective FB Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-boundaries-exploring-virtual-realitys-future/"><u>Beyond Boundaries: Exploring Virtual Reality's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-the-meta-accounts-center-for-facebook-and-instagram/"><u>How to Access the Meta Accounts Center for Facebook and Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-severing-spotify-facebook-ties-completely/"><u>Guide to Severing Spotify-Facebook Ties Completely</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-first-impressions-deciphering-the-fb-intrigue/"><u>Beyond First Impressions: Deciphering The FB Intrigue</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-success-uncover-the-best-5-free-facebook-timing-methods/"><u>Scheduling Success: Uncover the Best 5 Free Facebook Timing Methods</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-xiaomi-14-pro-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Xiaomi 14 Pro Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-swipe-up-for-a-dose-of-self-reflection-curated-instagramcaptions-for-2024/"><u>[New] Swipe up for a Dose of Self-Reflection - Curated #InstagramCaptions for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-cutting-edge-ios-daw-apps-a-guide-to-the-8-best-choices-for-tablets-and-smartphones/"><u>New 2024 Approved Cutting-Edge iOS DAW Apps A Guide to the 8 Best Choices for Tablets and Smartphones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-speech-to-text-your-all-inclusive-gdoc-training-guide/"><u>In 2024, From Speech to Text  Your All-Inclusive GDoc Training Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-realme-11x-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Realme 11X 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-innovating-with-ideas-constructing-your-unique-tiktok-sequence/"><u>[Updated] Innovating with Ideas  Constructing Your Unique TikTok Sequence</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-extensive-look-at-djis-inspire-1-drone/"><u>[New] Extensive Look at DJI's Inspire 1 Drone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-get-your-favorite-facebook-tracks-in-mp3-best-converters/"><u>New 2024 Approved Get Your Favorite Facebook Tracks in MP3 Best Converters</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-utilizing-azure-speech-to-text-api/"><u>[Updated] Utilizing Azure Speech-to-Text API</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-ultimate-list-of-beautiful-wedding-clips-youtube-and-vimeo-for-2024/"><u>The Ultimate List of Beautiful Wedding Clips - Youtube & Vimeo for 2024</u></a></li>
+</ul></div>

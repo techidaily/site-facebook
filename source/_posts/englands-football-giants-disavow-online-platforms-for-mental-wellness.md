@@ -1,7 +1,7 @@
 ---
 title: England's Football Giants Disavow Online Platforms for Mental Wellness
-date: 2024-06-22 18:43:50
-updated: 2024-06-23 11:23:35
+date: 2024-06-25T13:49:51.613Z
+updated: 2024-06-26T13:49:51.613Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,23 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/chamber-charm-for-communication-beginners/"><u>Chamber Charm for Communication Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-ensure-your-online-safety-on-social-platforms-like-fb/"><u>Alert! Ensure Your Online Safety on Social Platforms Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-duo-enhances-wnba-viewership/"><u>Social Network Duo Enhances WNBA Viewership</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-personal-data-dont-use-these-3-suspect-apps/"><u>Shield Personal Data: Don't Use These 3 Suspect Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-underappreciated-film-phenoms-of-this-year/"><u>In 2024, The Underappreciated Film Phenoms of This Year</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-avoiding-pitfalls-smart-strategies-for-acquiring-youtubes/"><u>[Updated] 2024 Approved  Avoiding Pitfalls  Smart Strategies for Acquiring Youtubes</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-unleashedscreen-capture-your-gaming-world-2024-style/"><u>[New] UnleashedScreen  Capture Your Gaming World, 2024 Style</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-serenade-supreme-top-10-tunes-for-a-forever-commitment/"><u>In 2024, Serenade Supreme  Top 10 Tunes for a Forever Commitment</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-x9b-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor X9b to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-get-the-great-1080p-video-editing-software-to-edit-1080p-videos-for-2024/"><u>New Get the Great 1080P Video Editing Software to Edit 1080P Videos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-peakpixel-optimizer-windows-mac-and-online/"><u>[Updated] PeakPixel Optimizer  Windows, Mac & Online</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-apple-iphone-xs-max-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your Apple iPhone XS Max in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+</ul></div>

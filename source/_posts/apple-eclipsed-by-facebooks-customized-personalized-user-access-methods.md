@@ -1,7 +1,7 @@
 ---
 title: Apple Eclipsed by Facebook's Customized, Personalized User Access Methods
-date: 2024-06-22 20:58:17
-updated: 2024-06-23 10:13:15
+date: 2024-06-25T13:44:15.528Z
+updated: 2024-06-26T13:44:15.528Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
 
- In a[Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of[Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
+ In a [Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of [Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
 
 > As we build for the metaverse, we're focused on unlocking opportunities for creators to make money from their work. The 30% fees that Apple takes on transactions make it harder to do that, so we're updating our Subscriptions product so now creators can earn more.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
 
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
-## How Facebook's Custom Payment Links Work
-
-![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+## How Facebook's Custom Payment Links Work ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -66,3 +64,26 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/security-breaches-in-social-media-worldwide/"><u>Security Breaches in Social Media Worldwide</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-dreamers-needed-facebook-says-yes-to-10k/"><u>Metaverse Dreamers Needed - Facebook Says Yes to 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-four-paths-to-personalize-your-social-media-journey/"><u>Crafting Connections: Four Paths to Personalize Your Social Media Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-yourself-in-the-digital-age-changing-your-name-on-facebook/"><u>Reinventing Yourself in the Digital Age: Changing Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-facebook-in-modern-work-environments/"><u>The Role of Facebook in Modern Work Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/cloaked-companions-fb-friendlist-peculiarities/"><u>Cloaked Companions: FB Friendlist Peculiarities</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-group-dynamics-in-social-media-giants/"><u>Exploring the Group Dynamics in Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-iphone-6s-plus-passcode-not-working-by-drfone-ios/"><u>How to Fix iPhone 6s Plus Passcode not Working?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-avoid-blur-and-clarity-issues-zooming-techniques-with-videoleap/"><u>[Updated] Avoid Blur and Clarity Issues  Zooming Techniques with Videoleap</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-conquer-discords-profile-pics-with-style-and-elegance/"><u>[Updated] Conquer Discord's Profile Pics with Style and Elegance</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-tecno-camon-30-pro-5g-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Tecno Camon 30 Pro 5G</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/advanced-techniques-for-live-action-sims-playback-for-2024/"><u>Advanced Techniques for Live-Action Sims Playback for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-instagram-video-dimensions-and-story-size-the-ultimate-guide-for-perfect-posts-for-2024/"><u>[New] Instagram Video Dimensions & Story Size [The Ultimate Guide for Perfect Posts] for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-diversify-your-watchlist-the-top-27-non-youtube-video-hubs/"><u>2024 Approved  Diversify Your Watchlist - The Top 27 Non-YouTube Video Hubs</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-best-12-ai-video-generators-to-pick/"><u>In 2024, Best 12 AI Video Generators to Pick</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/easy-guide-to-overlay-videos-in-premiere-pro-for-2024/"><u>Easy Guide to Overlay Videos in Premiere Pro for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Connecting with Conciseness: The Essential SMART List for Users"
-date: 2024-06-22 13:10:33
-updated: 2024-06-23 11:56:29
+date: 2024-06-25T14:05:13.868Z
+updated: 2024-06-26T14:05:13.868Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
 ## 5\. DM
 
- A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
+ A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a [DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
 ## 6\. #F4F
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
 ## 8\. RT
 
- On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can[turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
+ On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can [turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
 
 ## 30\. FOMO
 
- FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
+ FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are [ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
 
 ## Never Get Left Behind
 
@@ -162,3 +162,26 @@ thumbnail: https://thmb.techidaily.com/65e89fa5592e17a634309edf6fa4b1c7a4776f7c9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-art-of-selecting-the-ultimate-facebook-pic/"><u>The Art of Selecting the Ultimate Facebook Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-the-future-headline-for-social-media-platforms/"><u>Cryptos: The Future Headline for Social Media Platforms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-initiative-vs-tiktoks-trending-score/"><u>Facebook’s Reel Initiative vs TikTok's Trending Score</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-exchanges-a-comprehensive-guide-to-facebooks-latest-moderation-advancements/"><u>Elevating Exchanges: A Comprehensive Guide to Facebook's Latest Moderation Advancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-retrieve-your-lost-fb-passcode/"><u>Easy Steps to Retrieve Your Lost FB Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-four-paths-to-personalize-your-social-media-journey/"><u>Crafting Connections: Four Paths to Personalize Your Social Media Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-experiences-awaiting-unraveling-facebooks-metaverse-intentions/"><u>Immersive Experiences Awaiting: Unraveling Facebook's Metaverse Intentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-a-new-chapter-for-nfts-on-instafb/"><u>Meta Drops: A New Chapter for NFTs on Insta/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-gionee-f3-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Gionee F3 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/siri-voice-changer-how-to-change-siri-voice-on-iphone-ipad-or-mac-for-2024/"><u>Siri Voice Changer How to Change Siri Voice on iPhone, iPad or Mac for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/best-practices-for-4k-screen-recording/"><u>Best Practices for 4K Screen Recording</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-advertising-for-profit-the-ultimate-vimeo-guidebook/"><u>In 2024, Mastering Advertising for Profit  The Ultimate Vimeo Guidebook</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-lava-yuva-2-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Lava Yuva 2 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-screen-to-file-solutions-with-apowersoft/"><u>2024 Approved  Screen-to-File Solutions with Apowersoft</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-accelerate-video-playback-in-quicktime-a-step-by-step-guide/"><u>In 2024, Accelerate Video Playback in QuickTime A Step-by-Step Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-zooms-audio-recording-features-with-ease-for-2024/"><u>[Updated] Navigating ZOOM's Audio Recording Features with Ease for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-methods-for-subtle-audio-softening-with-lumafusion/"><u>In 2024, Methods for Subtle Audio Softening with Lumafusion</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Lava Yuva 2 | Dr.fone</u></a></li>
+</ul></div>

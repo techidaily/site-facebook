@@ -1,7 +1,7 @@
 ---
 title: Why Not Just Delete? A Comprehensive List to Consider Before Leaving FB
-date: 2024-06-22 15:27:22
-updated: 2024-06-23 10:15:48
+date: 2024-06-25T14:24:45.302Z
+updated: 2024-06-26T14:24:45.302Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae62996
 
  Regardless of the reason, you must perform these eight things before deleting your Facebook account. Let's dive into these factors so that you know what to do.
 
-## 1\. Inform Your Close Contacts About Your Decision
-
-![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
+## 1\. Inform Your Close Contacts About Your Decision ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
 
  You might think of ending your journey on Facebook, but it doesn't mean leaving your friends uninformed about the decision. Start by informing your close contacts that you are deleting your Facebook account.
 
@@ -35,15 +33,13 @@ thumbnail: https://thmb.techidaily.com/670a3d23e314a574aa8e5af4448af6d1aaae62996
 
  To save a picture on your phone, open the image, tap the three dots on the top-right of the screen, and choose**Save Photo** . The picture will automatically appear in your gallery.
 
- Facebook does not have an in-built feature to save videos; however, Android phones support[Facebook video downloaders](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) that enable you to save your videos to your phone’s gallery. You can[download Facebook videos on your PC](https://www.makeuseof.com/tag/download-private-facebook-videos/) as well.
+ Facebook does not have an in-built feature to save videos; however, Android phones support [Facebook video downloaders](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) that enable you to save your videos to your phone’s gallery. You can [download Facebook videos on your PC](https://www.makeuseof.com/tag/download-private-facebook-videos/) as well.
 
-## 3\. Decide What to Do With Messenger
-
-![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
+## 3\. Decide What to Do With Messenger ![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
 
  Initially, Facebook had an integrated messaging and chat system, but that’s not the case anymore. Messenger is a separate app that allows you to call and message people.
 
- When you sign up for Messenger, it runs independently and allows users from your phone contacts and Instagram to contact you. So when you delete your Facebook account, your Messenger won’t be deleted. You need to deactivate it separately to stop people from contacting you. Consider[deactivating your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) to completely cut off from Messenger as well. To do that:
+ When you sign up for Messenger, it runs independently and allows users from your phone contacts and Instagram to contact you. So when you delete your Facebook account, your Messenger won’t be deleted. You need to deactivate it separately to stop people from contacting you. Consider [deactivating your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) to completely cut off from Messenger as well. To do that:
 
 1. Open**Messenger** and tap your profile picture in the top left corner.
 2. Go to**Account Settings** .
@@ -71,13 +67,11 @@ Close
 
 ## 5\. Edit or Delete Groups
 
- When you delete your Facebook account, it removes all the groups and communities that you own. If you feel that permanently deleting a group can hamper the community or affect other users, promote someone else as an admin of your Facebook group. The platform also[launched Facebook group admin tools](https://www.makeuseof.com/facebook-launches-new-admin-tools-community-moderation/) to manage groups and pages effectively.
+ When you delete your Facebook account, it removes all the groups and communities that you own. If you feel that permanently deleting a group can hamper the community or affect other users, promote someone else as an admin of your Facebook group. The platform also [launched Facebook group admin tools](https://www.makeuseof.com/facebook-launches-new-admin-tools-community-moderation/) to manage groups and pages effectively.
 
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
-## 6\. Wind Up Any Professional Business
-
-![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
+## 6\. Wind Up Any Professional Business ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -91,11 +85,9 @@ Close
 
  Before leaving Facebook, saving your data and history is a wise choice. It includes everything from your comments to posts, friends, messages, photos, and the history of other Facebook activities.
 
- Facebook allows users to[download a copy of their entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) and obtain everything they might not have after becoming an ex-Facebook user. Also, it is beneficial to maintain security and keep proof if something goes wrong.
+ Facebook allows users to [download a copy of their entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) and obtain everything they might not have after becoming an ex-Facebook user. Also, it is beneficial to maintain security and keep proof if something goes wrong.
 
-## 8\. Organize and Save Your Facebook Memories
-
-![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
+## 8\. Organize and Save Your Facebook Memories ![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
 
  After downloading, take time to review your data and arrange it into different folders. You can also label them with the names of events, people, and places.
 
@@ -107,7 +99,7 @@ Close
 
  Google Photos is a superb media management tool, providing a solution for Android and iOS users to save and maintain their Facebook memories.
 
-**Download:** Google Photos for[iOS](https://apps.apple.com/us/app/google-photos/id962194608) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017148/https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en&gl=US)
+**Download:** Google Photos for [iOS](https://apps.apple.com/us/app/google-photos/id962194608) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017148/https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en&gl=US)
 
 ## Leave Facebook But Not the Memories
 
@@ -130,3 +122,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discover-disconnection-a-guide-to-living-offline/"><u>Discover Disconnection: A Guide to Living Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-internal-network-design/"><u>Dissecting Facebook's Internal Network Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-your-messages-be-private-with-fb-messenger-e2ee/"><u>When Will Your Messages Be Private with FB Messenger E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-private-profile-access/"><u>Secrets of Private Profile Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-social-media-and-streaming-services-for-spotify/"><u>Bridging Social Media and Streaming Services for Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-stuff-on-fb-creating-a-restricted-list/"><u>Control Who Sees Your Stuff on FB: Creating a Restricted List</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-part-ways-on-biometrics-the-why-behind-the-shift/"><u>Meta and FB Part Ways on Biometrics: The Why Behind the Shift</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-profile-transformation-on-tiktok-a-guide/"><u>[Updated] 2024 Approved  Mastering Profile Transformation on TikTok - A Guide</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/record-and-edit-an-animoji-or-memoji-karaoke-music-video/"><u>Record and Edit an Animoji or Memoji Karaoke Music Video</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-chorus-chronicles-music-gadgets/"><u>[New] Chorus Chronicles  Music Gadgets</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-get-started-with-video-editing-best-tools-for-newcomers/"><u>New In 2024, Get Started with Video Editing Best Tools for Newcomers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-unleash-speed-prime-biking-games-list/"><u>[Updated] 2024 Approved  Unleash Speed  Prime Biking Games List</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/insiders-window-to-screen-recording-elite-tools-w10w11-for-2024/"><u>Insider's Window to Screen Recording Elite Tools W10/W11 for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-top-30-unique-tiktok-pfps-for-standout-profiles/"><u>[New] 2024 Approved  Top 30 Unique TikTok PFPs for Standout Profiles</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unveiling-the-magic-of-pause-time-creating-spectacularly-long-lasting-movies-with-photos-and-web-services/"><u>Unveiling the Magic of Pause Time  Creating Spectacularly Long Lasting Movies with Photos & Web Services</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/revolutionize-your-harvest-stardews-top-7-upgrades-for-2024/"><u>Revolutionize Your Harvest  Stardew's Top 7 Upgrades for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-s18-pro-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo S18 Pro Phones</u></a></li>
+</ul></div>

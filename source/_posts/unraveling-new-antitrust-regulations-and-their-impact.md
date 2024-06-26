@@ -1,7 +1,7 @@
 ---
 title: Unraveling New Antitrust Regulations and Their Impact
-date: 2024-06-22 15:32:42
-updated: 2024-06-23 11:52:21
+date: 2024-06-25T14:19:14.813Z
+updated: 2024-06-26T14:19:14.813Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/6c30e06757b848b8822a0592ade3cd707135548fc
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,27 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/permanent-disconnection-from-fb-notifications/"><u>Permanent Disconnection From Fb Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/react-quickly-regain-authority-over-compromised-facebook-account/"><u>React Quickly: Regain Authority Over Compromised Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-fb-news-feed-and-notifications-display/"><u>Fixing Erratic FB News Feed and Notifications Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-social-interaction-with-integrated-fb-channels/"><u>Seamless Social Interaction with Integrated FB Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-with-your-newsfeed-again-by-evading-unwanted-marketing/"><u>Making Friends with Your Newsfeed Again by Evading Unwanted Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-through-the-competition-with-unique-facebook-reels/"><u>Break Through the Competition with Unique Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-lasting-impact-3d-photography-techniques-on-social-networks/"><u>Making a Lasting Impact: 3D Photography Techniques on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-facebook-scams-find-the-14-predicaments-quickly/"><u>Outsmart Facebook Scams: Find the 14 Predicaments Quickly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-initiating-film-narratives/"><u>In 2024, Initiating Film Narratives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-measure-the-performance-of-igtv-videos/"><u>How to Measure the Performance of IGTV Videos?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-mac-movie-magic-8-enchanting-video-editing-software-options-for-2024/"><u>New Mac Movie Magic 8 Enchanting Video Editing Software Options for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-oppo-reno-8t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-filmmakers-companion-for-advanced-lut-expertise-for-2024/"><u>A Filmmaker's Companion for Advanced LUT Expertise for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-a34-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy A34 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-your-guide-to-the-essentials-of-youtube-tv-usage/"><u>[Updated] In 2024, Your Guide to the Essentials of YouTube TV Usage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-unleashing-the-full-potential-of-webcams/"><u>[Updated] Unleashing the Full Potential of Webcams</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-poco-m6-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Poco M6 5G FRP</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-navigate-effortlessly-inshots-role-in-video-crafting-on-devices/"><u>[New] Navigate Effortlessly  Inshot's Role in Video Crafting on Devices</u></a></li>
+</ul></div>

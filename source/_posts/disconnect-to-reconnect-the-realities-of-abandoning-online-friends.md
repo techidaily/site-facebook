@@ -1,7 +1,7 @@
 ---
 title: "Disconnect to Reconnect: The Realities of Abandoning Online Friends"
-date: 2024-06-22 19:10:59
-updated: 2024-06-23 12:15:36
+date: 2024-06-25T14:12:23.006Z
+updated: 2024-06-26T14:12:23.006Z
 tags:
   - facebook
 categories:
@@ -19,21 +19,17 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
 Speaking from my own experience, here's what you can expect.
 
-## 1\. Unexpected Reactions
+## 1\. Unexpected Reactions ![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
 
-![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
-
- When I[quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
+ When I [quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
 
  I also received scornful looks and you-will-be-back-in-a-week smirks. That I was more willing to meet people in person got ignored. That I refused to "stop being antisocial" online was the topic of never-ending debate.
 
- Now that social media detoxes have caught on, you'll probably have to deal with far fewer polarizing reactions than I did. Some people might even appreciate your decision and draw inspiration to get off social media themselves. After all, you can still[stay connected during a social media detox](https://www.makeuseof.com/social-media-detox-how-to-stay-connected/) .
+ Now that social media detoxes have caught on, you'll probably have to deal with far fewer polarizing reactions than I did. Some people might even appreciate your decision and draw inspiration to get off social media themselves. After all, you can still [stay connected during a social media detox](https://www.makeuseof.com/social-media-detox-how-to-stay-connected/) .
 
  In any case, eventually, those around you will accept your decision or at least, their reactions won't affect you one way or the other. Be sure to have a standard line ready to explain your absence from social media while making small talk.
 
-## 2\. Feeling Directionless Online
-
-![Social media app icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/curate-social-media-1.jpg)
+## 2\. Feeling Directionless Online ![Social media app icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/curate-social-media-1.jpg)
 
  Every time you open your browser, you might be at a loss to decide what to do. You won't know where to go next, because your go-to web hangouts—Facebook and Twitter—are gone.
 
@@ -41,9 +37,7 @@ Speaking from my own experience, here's what you can expect.
 
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
-## 3\. Being Out of the Loop
-
-![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
+## 3\. Being Out of the Loop ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
 
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
@@ -51,13 +45,11 @@ Speaking from my own experience, here's what you can expect.
 
  Want to see your best friend's vacation photos? You'll have to wait for her to mail them to you. It's not like you can log in to Facebook or Instagram yourself to see them, can you? Meanwhile, everyone you know has seen them already.
 
- To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
+ To [counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
-## 4\. Limited Access to Certain Sites
+## 4\. Limited Access to Certain Sites ![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
 
-![Screenshot showing how to sign up for an Adobe CC account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/screenshot-2023-01-19-at-10-33-26.jpeg)
-
- Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the[top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
+ Only when you have deleted your Facebook and Twitter accounts will you grasp the extent to which the web depends on the [top social media sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) .
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
 
@@ -65,13 +57,13 @@ Speaking from my own experience, here's what you can expect.
 
  Job hunts are the worst hit by the lack of a social media presence. "Awesome social media skills" seem like a permanent fixture in job descriptions these days. It's a pity that these skills are at times considered more important than the technical skills you need to fulfill a role.
 
- Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
+ Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more [opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
 
 ## 6\. More Headspace
 
  I have saved the best for last. When you quit social media and get past the first few months of withdrawal symptoms, you'll begin to enjoy the headspace you have reclaimed.
 
- Life without social media can be quite peaceful. No more hate-filled comments, political rants, inane quotes, and toxic acquaintances to deal with on a daily basis. Also, you'll have fewer[social media-related security nightmares](https://www.makeuseof.com/tag/tiktok-security-risks/) to worry about.
+ Life without social media can be quite peaceful. No more hate-filled comments, political rants, inane quotes, and toxic acquaintances to deal with on a daily basis. Also, you'll have fewer [social media-related security nightmares](https://www.makeuseof.com/tag/tiktok-security-risks/) to worry about.
 
  The biggest gain is the automatic shift in focus from what everyone else is doing to what you're doing. You score the mental bandwidth you need to do deep work.
 
@@ -98,3 +90,22 @@ Speaking from my own experience, here's what you can expect.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-safety-account-verification-is-(securityfbcom)-reliable/"><u>Facebook Safety Account Verification: Is <security@fb.com> Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-identities-profiles-vs-screen-names/"><u>Navigating Virtual Identities: Profiles Vs Screen Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-fb-after-phone-theft-heres-what-to-do/"><u>Reactivating FB After Phone Theft? Here's What to Do</u></a></li>
+<li><a href="https://facebook.techidaily.com/muting-unsolicited-social-network-friend-alerts/"><u>Muting Unsolicited Social Network Friend Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-clear-guidelines-for-your-facebook-community/"><u>Crafting Clear Guidelines for Your Facebook Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/capture-and-keep-best-five-extensions-for-fb-videos/"><u>Capture and Keep  Best Five Extensions for Fb Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-meet-mycam-cam-the-home-video-revolution-unfolding/"><u>[New] 2024 Approved  Meet MyCam Cam  The Home Video Revolution Unfolding</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/how-to-send-and-add-snapchat-gifs-100-the-easy-way/"><u>How to Send and Add Snapchat GIFs 100 The Easy Way</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-g2-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on G2</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-say-cheese-top-apps-to-convert-your-photos-into-cartoons/"><u>New 2024 Approved Say Cheese! Top Apps to Convert Your Photos Into Cartoons</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/tailoring-your-content-for-split-screen-audiences-via-facebook-lives/"><u>Tailoring Your Content for Split Screen Audiences via Facebook Lives</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/2024-approved-10-amazing-wallpaper-collage-ideas-and-photos/"><u>2024 Approved 10 Amazing Wallpaper Collage Ideas and Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-best-5-fpv-goggles-for-drone-racing/"><u>[New] Best 5 FPV Goggles for Drone Racing</u></a></li>
+</ul></div>

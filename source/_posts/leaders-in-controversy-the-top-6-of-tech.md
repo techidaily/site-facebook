@@ -1,7 +1,7 @@
 ---
 title: "Leaders in Controversy: The Top 6 of Tech"
-date: 2024-06-20 16:34:10
-updated: 2024-06-23 12:45:16
+date: 2024-06-25T14:15:22.415Z
+updated: 2024-06-26T14:15:22.415Z
 tags:
   - facebook
 categories:
@@ -21,23 +21,19 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-## 1\. Jack Dorsey
-
-![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+## 1\. Jack Dorsey ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
 
  Jack Dorsey is no stranger to controversy, having been summoned before Congress on multiple occasions to testify about alleged political bias and misinformation on Twitter.
 
- But perhaps his most polarizing moment was when[Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
+ But perhaps his most polarizing moment was when [Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
 
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-## 2\. Elizabeth Holmes
-
-![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+## 2\. Elizabeth Holmes ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -45,13 +41,11 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  Theranos was at its peak when a partnership with Walgreens was announced. However, medical experts were skeptical about Theranos' blood testing machine, and ex-employee whistleblowers came forward to expose the fraud.
 
- A bombshell article published in 2015 in[The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
+ A bombshell article published in 2015 in [The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-## 3\. Julian Assange
-
-![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+## 3\. Julian Assange ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
 
@@ -67,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-## 4\. Susan Wojcicki
-
-![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+## 4\. Susan Wojcicki ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
 
@@ -83,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-## 5\. Bill Gates
-
-![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+## 5\. Bill Gates ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -99,9 +89,7 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-## 6\. Mark Zuckerberg
-
-![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+## 6\. Mark Zuckerberg ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
 
@@ -119,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
 
  Facebook employees staged a virtual walkout after Zuckerberg personally stated that he would not remove a post made by Trump in reference to the 2020 Minneapolis protests ("when the looting starts, the shooting starts"). The same version of the post had been hidden under a warning message by Twitter.
 
- When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
+ When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to [delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
 ## Least Polarizing Tech Figure?
 
@@ -144,3 +132,24 @@ thumbnail: https://thmb.techidaily.com/b8ee7f668d81642e85ade38e34abffd540ab85d6f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaching-privacy-boundaries-safely/"><u>Breaching Privacy Boundaries Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-private-profile-access/"><u>Secrets of Private Profile Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-your-privacy-intact-on-facebook-albums/"><u>How to Keep Your Privacy Intact on Facebook Albums</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-changing-landscape-four-key-loss-triggers/"><u>Facebook's Changing Landscape: Four Key Loss Triggers</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-not-seen-status-on-chat-platforms/"><u>Decoding 'Not Seen' Status on Chat Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteracting-the-social-media-addiction-fb-reels/"><u>Counteracting the Social Media Addiction: FB Reels</u></a></li>
+<li><a href="https://extra-information.techidaily.com/strategic-planning-for-effective-virtual-meetings-on-win11/"><u>Strategic Planning for Effective Virtual Meetings on Win11</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-extract-your-fb-videos-effortlessly-anywhere/"><u>[New] Extract Your FB Videos Effortlessly, Anywhere</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-characters-breathe-life-the-dynamics-of-screenplay-conversations/"><u>[Updated] Characters Breathe Life  The Dynamics of Screenplay Conversations</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-poco-c65-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Poco C65 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-the-ultimate-guide-to-obs-and-zoom-harmony/"><u>2024 Approved  The Ultimate Guide to OBS & Zoom Harmony</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-resolve-google-pixel-fold-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Google Pixel Fold Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-adding-value-to-visuals-implementing-watermarks-in-instagram/"><u>[New] 2024 Approved  Adding Value to Visuals  Implementing Watermarks in Instagram</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-shoes-for-virtual-ground-leading-treadmill-insights/"><u>In 2024, Shoes for Virtual Ground  Leading Treadmill Insights</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-stepwise-decrease-in-mix-dynamics/"><u>In 2024, Stepwise Decrease in Mix Dynamics</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: The Triple Threat of Meta's Social Supremacy
-date: 2024-06-20 23:49:45
-updated: 2024-06-23 11:51:53
+date: 2024-06-25T14:41:30.525Z
+updated: 2024-06-26T14:41:30.525Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
-## 1\. An Entrapping Social Media Monopoly
+## 1\. An Entrapping Social Media Monopoly ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
-![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
-
- According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
+ According to [Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
  This immediately aligns with Facebook's decade-old objective of dominating the social media space. Because of this unrivaled dominance, Meta is like a god unto itself: it faces no market-enforced accountability.
 
@@ -33,27 +31,23 @@ thumbnail: https://thmb.techidaily.com/39891eff73508b464f66ea96b5a005498dc7a497b
 
  Related:[New Poll Shows People Don't Trust Big Tech, Especially Facebook](https://www.makeuseof.com/facebook-big-tech-not-trusted-shows-poll/)
 
- In both instances, users across the world tried to keep Facebook and WhatsApp in check. Facebook users launched the "Delete Facebook" campaign. Millions deleted the app from their phone. However, according to[Pew Research](https://www.pewresearch.org/fact-tank/2018/09/05/americans-are-changing-their-relationship-with-facebook/) , most of them could only stay off for a short time before circling back to Facebook. And it's not their fault, where would they go?
+ In both instances, users across the world tried to keep Facebook and WhatsApp in check. Facebook users launched the "Delete Facebook" campaign. Millions deleted the app from their phone. However, according to [Pew Research](https://www.pewresearch.org/fact-tank/2018/09/05/americans-are-changing-their-relationship-with-facebook/) , most of them could only stay off for a short time before circling back to Facebook. And it's not their fault, where would they go?
 
  Similarly, when WhatsApp's enraging privacy policy surfaced, users started a campaign to ditch the app. However, that barely ruffled the feathers of the company.
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-## 2\. Meta Wields Too Much Power
-
-![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+## 2\. Meta Wields Too Much Power ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
- Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
+ Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this [SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
 
  With such powers, Zuckerberg gets to set the rules. He can unilaterally alter Facebook's algorithm to determine the kind of information you see. In theory, he can set the privacy options for billions of users or choose which of their messages get delivered.
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-## 3\. A Privacy Dilemma
-
-![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+## 3\. A Privacy Dilemma ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -87,7 +81,7 @@ Close
 
  You might be surprised just how much information Meta is getting on you.
 
- As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
+ As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the [New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
 ## Stay Conscious of Meta's Influence
 
@@ -112,3 +106,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-get-rid-of-embarrassing-posts-from-social-media-the-8-best-online-tools/"><u>How to Get Rid of Embarrassing Posts From Social Media: The 8 Best Online Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/permanent-disconnection-from-fb-notifications/"><u>Permanent Disconnection From Fb Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-ethically-taking-control-of-online-interactions-using-facebooks-innovative-tools/"><u>Engage Ethically: Taking Control of Online Interactions Using Facebook’s Innovative Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-to-clear-your-facebook-chronicle/"><u>The Ultimate Strategy to Clear Your Facebook Chronicle</u></a></li>
+<li><a href="https://facebook.techidaily.com/cease-unwanted-general-member-tagging/"><u>Cease Unwanted General Member Tagging</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-fb-photos/"><u>Controlling Who Sees Your Fb Photos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-palette-tweaks-by-professionals-for-2024/"><u>Advanced Palette Tweaks by Professionals for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-to-mp3-simple-recording-steps/"><u>[New] In 2024, YouTube to MP3  Simple Recording Steps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-infinix-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Infinix Phone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-crafting-captivating-content-the-role-of-captions-in-tiktok-for-2024/"><u>[New] Crafting Captivating Content  The Role of Captions in TikTok for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-play-mkv-movies-on-xiaomi-redmi-12-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can I play MKV movies on Xiaomi Redmi 12 5G?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-troubleshooting-tips-unearth-hidden-facebook-content-for-2024/"><u>[New] Troubleshooting Tips  Unearth Hidden Facebook Content for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-registration-and-login-for-2024/"><u>New Registration and Login for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-copyright-clash-violation-removal-came-quick/"><u>In 2024, Copyright Clash  Violation, Removal Came Quick</u></a></li>
+</ul></div>

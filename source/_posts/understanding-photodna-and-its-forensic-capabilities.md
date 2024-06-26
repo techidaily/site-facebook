@@ -1,7 +1,7 @@
 ---
 title: Understanding PhotoDNA and Its Forensic Capabilities
-date: 2024-06-22 16:23:54
-updated: 2024-06-23 12:11:40
+date: 2024-06-25T14:40:39.033Z
+updated: 2024-06-26T14:40:39.033Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/b44ba119c3a3d46ced364c534eba92d8a8e7f5db9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-battle-with-political-satire/"><u>Social Media's Battle with Political Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tag-someone-on-facebook-3-different-ways/"><u>How to Tag Someone on Facebook: 3 Different Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/wave-goodbye-to-work-erase-your-business-profile-online/"><u>Wave Goodbye to Work: Erase Your Business Profile Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/debating-meta-ais-role-in-future-of-social-media-realms/"><u>Debating Meta AI’s Role in Future of Social Media Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-fb-after-phone-theft-heres-what-to-do/"><u>Reactivating FB After Phone Theft? Here's What to Do</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-eyes-the-case-for-deleting-your-facebook-watch-history/"><u>Unseen Eyes: The Case for Deleting Your Facebook Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-fights-for-users-with-legal-suit-against-india/"><u>Tech Giant Fights for Users with Legal Suit Against India</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-find-the-perfect-blend-of-joy-and-sorrow-in-these-meme-feeds/"><u>[New] Find the Perfect Blend of Joy and Sorrow in These Meme Feeds</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-a-peek-into-the-heart-of-youtubes-video-operations/"><u>In 2024, A Peek Into the Heart of YouTube's Video Operations</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-short-sensation-keywords-for-enhancing-video-shows-virality/"><u>2024 Approved  Short Sensation  Keywords for Enhancing Video Shows' Virality</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-poco-m6-5g-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Poco M6 5G FRP Locks</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/cutting-edge-technology-to-reduce-environmental-noise-in-audio-recordings-online/"><u>Cutting-Edge Technology to Reduce Environmental Noise in Audio Recordings Online</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-aspect-ratio-101-how-to-choose-the-best-fit-for-your-youtube-content/"><u>Updated 2024 Approved Aspect Ratio 101 How to Choose the Best Fit for Your YouTube Content</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/alleviate-problem-buffering-tweets-in-chromebook-for-2024/"><u>Alleviate Problem  Buffering Tweets in Chromebook for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-prime-strategies-for-constructing-mcc-homes/"><u>[Updated] 2024 Approved  Prime Strategies for Constructing MCC Homes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-guide-perfecting-voiceovers-in-filming/"><u>[Updated] Step-by-Step Guide  Perfecting Voiceovers in Filming</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-x-mix-master-pro-for-computer-users/"><u>2024 Approved  X-Mix Master Pro for Computer Users</u></a></li>
+</ul></div>

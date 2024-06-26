@@ -1,7 +1,7 @@
 ---
 title: Camouflaging Online Supports with Finesse
-date: 2024-06-20 10:51:45
-updated: 2024-06-23 11:54:37
+date: 2024-06-25T14:36:11.716Z
+updated: 2024-06-26T14:36:11.716Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/2e98346ae0ee2e0559c5260d992a7113232d0df75
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-### Hiding the Facebook Reaction Count on Mobile
-
-![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+### Hiding the Facebook Reaction Count on Mobile ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
@@ -66,7 +64,7 @@ Your new settings are saved automatically.
 
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
- If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
+ If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 ## Depressurize Your Experience on Facebook
 
@@ -87,3 +85,26 @@ Your new settings are saved automatically.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/profiles-that-pop-visual-tactics-for-more-interaction/"><u>Profiles That Pop: Visual Tactics for More Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fourth-wave-of-connection-how-social-media-overhauled-us/"><u>The Fourth Wave of Connection: How Social Media Overhauled Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-dilemrancy-hacked-users-quest-headset-purchase-trend/"><u>The $300 Dilemrancy: Hacked Users' Quest Headset Purchase Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-directed-posting-uncover-3-fb-tagging-ways/"><u>Decoding the Mystery of Directed Posting: Uncover 3 Fb Tagging Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodge-facebooks-data-mining-safety-tips-revealed/"><u>Dodge Facebook's Data Mining: Safety Tips Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-still-use-facebook/"><u>6 Reasons to Still Use Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-presence-incorporating-your-avatar-in-covers/"><u>Enhancing Your Social Media Presence: Incorporating Your Avatar in Covers</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/how-to-make-a-gaming-montage-guide-and-tips-for-2024/"><u>How to Make a Gaming Montage - Guide & Tips for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/vimeos-global-distribution-guide/"><u>Vimeo's Global Distribution Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/uplifting-melodies-for-birthday-clip-soundtrack-year-2024/"><u>Uplifting Melodies for Birthday Clip Soundtrack, Year 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-best-10-vector-stock-pools/"><u>2024 Approved  Navigating the Best 10 Vector Stock Pools</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-investigating-actives-prowess-in-recording-technology/"><u>[New] Investigating Active's Prowess in Recording Technology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-essential-guide-to-zooming-with-gmail-emails-professionally/"><u>[New] In 2024, The Essential Guide to Zooming with Gmail Emails Professionally</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/x-recorder-plus-professional-edition-for-2024/"><u>X-Recorder Plus - Professional Edition for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/leveraging-horizontal-footage-in-igtvs-vertical-space/"><u>Leveraging Horizontal Footage in IGTV's Vertical Space</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-transforming-perceptions-with-virtual-tour-experiences/"><u>In 2024, Transforming Perceptions with Virtual Tour Experiences</u></a></li>
+</ul></div>

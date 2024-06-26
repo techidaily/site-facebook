@@ -1,7 +1,7 @@
 ---
 title: "Mute the Noise: Steps to Silence Post Reactions on Social"
-date: 2024-06-21 23:32:42
-updated: 2024-06-23 11:45:43
+date: 2024-06-25T14:35:47.893Z
+updated: 2024-06-26T14:35:47.893Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/privacy-first-approach-timeline-for-end-to-end-encryption-in-fb-messenger/"><u>Privacy-First Approach: Timeline for End-to-End Encryption in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-evolving-meanings-of-facebooks-page-names/"><u>Decoding the Evolving Meanings of Facebook's Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151223653-raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-spying-off-facebook-tool-usage-guide/"><u>Unravel Facebook's Spying - Off-Facebook Tool Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-clickbait-exposing-truth-in-facebook-lore/"><u>Beyond the Clickbait: Exposing Truth in Facebook Lore</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-the-intricacies-of-previewing-off-facebook-activities/"><u>Navigating the Intricacies of Previewing Off-Facebook Activities</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-premium-sound-design-software-free-vs-paid-edition-focusing-on-linux-based-audio-editing-tools/"><u>In 2024, Premium Sound Design Software Free Vs. Paid Edition - Focusing on Linux-Based Audio Editing Tools</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-password-on-your-iphone-12-pro-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID Password On your iPhone 12 Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-the-moment-detailed-analysis-of-slomo-2024/"><u>[New] Mastering the Moment  Detailed Analysis of SloMo, 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/9-best-4k-monitors-for-video-editing/"><u>9 Best 4K Monitors for Video Editing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-choosing-your-gopro-an-exhaustive-comparison/"><u>In 2024, Choosing Your GoPro  An Exhaustive Comparison</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-explore-the-best-webcams-on-your-windows-10-pc/"><u>[New] In 2024, Explore the Best Webcams on Your Windows 10 PC</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leveraging-powerpoints-automatic-transcription-feature/"><u>In 2024, Leveraging PowerPoint’s Automatic Transcription Feature</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/reset-itunes-backup-password-of-iphone-13-pro-prevention-and-solution-by-drfone-ios/"><u>Reset iTunes Backup Password Of iPhone 13 Pro Prevention & Solution</u></a></li>
+</ul></div>

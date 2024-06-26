@@ -1,7 +1,7 @@
 ---
 title: Hidden Technological Evolutions That Changed The Game
-date: 2024-06-21 18:34:35
-updated: 2024-06-23 12:21:36
+date: 2024-06-25T14:29:48.620Z
+updated: 2024-06-26T14:29:48.620Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks
-
-![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -35,9 +33,7 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet
-
-![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -47,11 +43,9 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
- Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+ Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse
-
-![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War
-
-![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -98,3 +90,27 @@ thumbnail: https://thmb.techidaily.com/7ac9924553405319fc34adce73b50933080c4e0b7
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-guide-to-dissolving-instagram-facebook-association/"><u>A Guide to Dissolving Instagram-Facebook Association</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-perspectives-on-facebooks-platform/"><u>Personalizing Perspectives on Facebook's Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-chooses-different-trajectory-than-facebooks-metaverse/"><u>Why Apple Chooses Different Trajectory Than Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-customization-techniques-for-social-media/"><u>Cutting-Edge Customization Techniques for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-into-a-reflective-mirror-of-you/"><u>Transforming Facebook Into a Reflective Mirror of You</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-influence-maxed-out/"><u>Is Facebook's Influence Maxed Out?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-reactions-unraveled/"><u>The Language of Likes & Reactions Unraveled</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-goodbyes-understanding-facebooks-future/"><u>'No More Goodbyes' - Understanding Facebook’s Future</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-breeze-be-gone-cutting-edge-techniques-to-purge-wind-interference-in-audio-streams/"><u>Updated Breeze Be Gone Cutting-Edge Techniques to Purge Wind Interference in Audio Streams</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-the-art-of-video-presentation-in-adobe-captivate/"><u>In 2024, The Art of Video Presentation in Adobe Captivate</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-high-definition-hardware-unveiled-by-gamers-for-2024/"><u>[New] High-Definition Hardware Unveiled by Gamers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-cut-to-connect-advanced-editing-with-kinemaster-for-2024/"><u>From Cut to Connect  Advanced Editing with Kinemaster for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-tech-savvy-approach-to-saving-your-insta-content-for-2024/"><u>The Tech-Savvy Approach to Saving Your Insta Content for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-motorola-g54-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Motorola G54 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-color-mastery-selecting-the-best-luts-for-lightroom-editors/"><u>In 2024, Color Mastery  Selecting the Best LUTs for LightRoom Editors</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-samsung-galaxy-a05s-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Samsung Galaxy A05s by Name | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-10-secure-online-forums-dedicated-to-meeting-fellow-netizens/"><u>In 2024, 10 Secure Online Forums Dedicated to Meeting Fellow Netizens</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-is-screening-youtube-footage-illegal/"><u>2024 Approved  Is Screening YouTube Footage Illegal?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Social Networking Platform Launches Precision Moderation Aids
-date: 2024-06-20 22:51:52
-updated: 2024-06-23 12:49:25
+date: 2024-06-25T14:26:24.531Z
+updated: 2024-06-26T14:26:24.531Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/105583134b01cefeafa4fc25f0d100c3206487cae
 
 ## Facebook Launches New Admin Tools to Moderate Groups
 
- In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
+ In a [blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
 
  Facebook explained that many of the new tools are based on user feedback and have actually been requested. The social media platform also added that there are more than 70 million active admins running Facebook groups, so it's likely that these new tools will prove to be a big benefit.
 
@@ -62,3 +62,24 @@ thumbnail: https://thmb.techidaily.com/105583134b01cefeafa4fc25f0d100c3206487cae
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/interpreting-the-subtleties-of-fb-icons-effectively/"><u>Interpreting the Subtleties of FB Icons Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-facebooks-annual-reflection-tool/"><u>Unlocking the Power of Facebook’s Annual Reflection Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-messengers-evolution-embrace-soundmojis/"><u>Decoding Messenger's Evolution: Embrace Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-down-earlier-friends-interactions-on-fb/"><u>Tracking Down Earlier Friends Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-myths-of-social-media-impersonation/"><u>Unraveling the Myths of Social Media Impersonation</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-self-safety-marker-on-social-media/"><u>Personalizing Self-Safety Marker on Social Media</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ratio-revolution-how-aspect-ratio-choices-influence-your-video-content/"><u>Updated The Ratio Revolution How Aspect Ratio Choices Influence Your Video Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-rise-to-greatness-with-these-10-elevating-films/"><u>[New] 2024 Approved  Rise to Greatness with These 10 Elevating Films</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-creativity-with-tiktok-video-tricks/"><u>In 2024, Unleashing Creativity with TikTok Video Tricks</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-sony-xperia-5-v-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Sony Xperia 5 V Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-vivo-v29-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-13-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone 13 The Right Way</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-adepts-compendium-of-fullscreen-insights-in-premiere-pro/"><u>[Updated] Adept's Compendium of Fullscreen Insights in Premiere Pro</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-uncovered-the-best-mac-speech-recognition-apps-you-never-knew-existed/"><u>Updated In 2024, Uncovered The Best Mac Speech Recognition Apps You Never Knew Existed</u></a></li>
+</ul></div>

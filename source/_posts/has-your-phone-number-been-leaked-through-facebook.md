@@ -1,7 +1,7 @@
 ---
 title: Has Your Phone Number Been Leaked Through Facebook?
-date: 2024-06-20 11:28:35
-updated: 2024-06-23 12:17:42
+date: 2024-06-25T13:59:03.941Z
+updated: 2024-06-26T13:59:03.941Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,9 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
 
- Back in 2018, unknown entities[accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide[third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
 
- Alon Gal, the chief technology officer of the cybercrime intelligence firm[Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
 
 > "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
 
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected
-
-![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -77,13 +75,11 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
 
- Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is[to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts
-
-![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 
@@ -126,3 +122,24 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/networking-for-a-better-code-language-facebook-joins-rust-foundation/"><u>Networking for a Better Code Language: Facebook Joins Rust Foundation</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-founding-fledgling-forum-groups-on-fb/"><u>Framework for Founding Fledgling Forum Groups on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-banishing-past-searches-from-facebook/"><u>Clean Slate: Banishing Past Searches From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-10-secrets-to-simplifying-your-sms-spaces/"><u>Unlock 10 Secrets to Simplifying Your SMS Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/schedule-resilience-with-helpful-facebook-reminder-features/"><u>Schedule Resilience with Helpful Facebook Reminder Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-unfollowfollow-uses-and-timing/"><u>Understanding FB Unfollow/Follow: Uses & Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-watch-project-hints-at-dual-cam-features-in-upcoming-devices/"><u>FB Watch Project Hints at Dual Cam Features in Upcoming Devices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-top-10-ultimate-live-capture-tools/"><u>In 2024, Top 10 Ultimate Live Capture Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-art-of-crafting-impactful-hashtags-for-instagram-content/"><u>The Art of Crafting Impactful Hashtags for Instagram Content</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-xiaomi-14-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Xiaomi 14 Fingerprint Lock</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-skyrocketing-video-performance-on-vimeo/"><u>[Updated] In 2024, Skyrocketing Video Performance on Vimeo</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-harmonizing-audio-and-visuals-in-vimeo-media-for-2024/"><u>[Updated] Harmonizing Audio and Visuals in Vimeo Media for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-crafting-innovative-fb-videos-unique-ad-creation-techniques/"><u>[Updated] In 2024, Crafting Innovative FB Videos  Unique Ad Creation Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-premier-9-social-media-screen-grabs/"><u>[New] 2024 Approved  Premier 9 Social-Media Screen Grabs</u></a></li>
+<li><a href="https://apple-account.techidaily.com/protecting-your-privacy-how-to-remove-apple-id-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>Protecting Your Privacy How To Remove Apple ID From Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-archive-your-nintendo-switch-gameplay/"><u>[New] How to Archive Your Nintendo Switch Gameplay</u></a></li>
+</ul></div>

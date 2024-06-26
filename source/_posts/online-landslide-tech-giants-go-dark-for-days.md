@@ -1,7 +1,7 @@
 ---
 title: "Online Landslide: Tech Giants Go Dark for Days"
-date: 2024-06-21 11:43:16
-updated: 2024-06-23 10:39:42
+date: 2024-06-25T14:07:32.415Z
+updated: 2024-06-26T14:07:32.415Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
 ## How Facebook Went Offline for Six Hours
 
- On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
+ On October 4, 2021, users around the world noticed they were [having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
 
  Users were unable to use Facebook, WhatsApp, and Instagram for around six hours as everyone wondered what was causing the problem.
 
@@ -37,11 +37,11 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
 
- In[a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social network explained:
+ In [a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social network explained:
 
 > Our engineering teams have learned that configuration changes on the backbone routers that coordinate network traffic between our data centers caused issues that interrupted this communication. This disruption to network traffic had a cascading effect on the way our data centers communicate, bringing our services to a halt.
 
- In[another post on Facebook Engineering](https://engineering.fb.com/2021/10/05/networking-traffic/outage-details/) , Santosh Janardhan, Facebook's VP of infrastructure, went into more detail about what happened and why. Janardhan confirms the source was "the system that manages our global backbone network capacity."
+ In [another post on Facebook Engineering](https://engineering.fb.com/2021/10/05/networking-traffic/outage-details/) , Santosh Janardhan, Facebook's VP of infrastructure, went into more detail about what happened and why. Janardhan confirms the source was "the system that manages our global backbone network capacity."
 
  In a nutshell, during a routine maintenance job, "a command was issued with the intention to assess the availability of global backbone capacity, which unintentionally took down all the connections in our backbone network, effectively disconnecting Facebook data centers globally."
 
@@ -70,3 +70,24 @@ thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/two-factor-authentication-on-facebook-a-complete-tutorial/"><u>Two-Factor Authentication on Facebook – A Complete Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-new-horizons-using-spotify-features-in-facebook-app/"><u>Explore New Horizons: Using Spotify Features in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-everyone-together-online-posts-for-complete-groups/"><u>Bringing Everyone Together Online: Posts for Complete Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-gems-in-your-facebook-archive/"><u>Discovering Hidden Gems in Your Facebook Archive</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-less-connected-your-guide-to-leaving-facebook/"><u>The Path Less Connected: Your Guide to Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-algorithm-why-it-hesitates-to-disable-suggests/"><u>Facebook Algorithm: Why It Hesitates to Disable Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/maximizing-conversions-with-targeted-snapad-strategies-for-2024/"><u>Maximizing Conversions with Targeted SnapAd Strategies for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-power-play-top-10-apps-to-increase-followers-and-posts/"><u>[New] 2024 Approved  Instagram Power Play  Top 10 Apps to Increase Followers & Posts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/30plus-metaverse-quotes-to-inspire-you-ar-and-vr-included/"><u>30+ Metaverse Quotes to Inspire You [AR & VR Included]</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-tecno-spark-20-proplus-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-final-cut-pro-for-ipad-is-it-available/"><u>2024 Approved Final Cut Pro for iPad- Is It Available?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-metaverse-meme-phenomenon-a-comprehensive-overview/"><u>2024 Approved  The Metaverse Meme Phenomenon  A Comprehensive Overview</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/uncover-the-globes-secrets-with-these-youtubers/"><u>Uncover the Globe's Secrets with These Youtubers</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-change-country-on-app-store-for-iphone-15-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>In 2024, How To Change Country on App Store for iPhone 15 Pro Max With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-the-foremost-non-udemy-virtual-learning-experiences-reviewed/"><u>[Updated] In 2024, The Foremost Non-Udemy Virtual Learning Experiences Reviewed</u></a></li>
+</ul></div>

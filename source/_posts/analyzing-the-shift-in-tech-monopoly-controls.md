@@ -1,7 +1,7 @@
 ---
 title: Analyzing the Shift in Tech Monopoly Controls
-date: 2024-06-22 12:39:24
-updated: 2024-06-23 10:39:16
+date: 2024-06-25T14:04:10.166Z
+updated: 2024-06-26T14:04:10.166Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-strives-for-educated-user-engagement-with-new-prompt/"><u>Facebook Strives for Educated User Engagement with New Prompt</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfolding-digital-horizons-what-is-the-metaverse/"><u>Unfolding Digital Horizons: What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-no-cost-applications-for-social-media-supremacy/"><u>Top Ten No-Cost Applications for Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfriendly-book-how-to-break-up-with-facebook-friends/"><u>The Unfriendly Book: How to Break Up with Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicling-googles-moments-that-shook-the-world/"><u>Chronicling Google's Moments That Shook the World</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-professional-insights-for-better-gopro-recording/"><u>In 2024, Professional Insights for Better GoPro Recording</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-focus-on-you-iphone-and-android-photo-trimmers/"><u>2024 Approved  Focus On You  IPhone & Android Photo Trimmers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-nubia-z50s-pro-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Nubia Z50S Pro to Roku | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-strategies-to-locate-and-use-a-missing-iphone-x/"><u>In 2024, Top Strategies to Locate and Use a Missing iPhone X</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-find-n3-flip-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of Find N3 Flip</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-a-digital-signature-field-to-a-wpd-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to add a digital signature field to a .wpd file</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-livestream-luminaries-clash/"><u>[New] In 2024, Livestream Luminaries Clash</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-choice-skype-recorder-selections-for-quality-calling-for-2024/"><u>Top Choice Skype Recorder Selections for Quality Calling for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-audio-offloading-for-windows-10-videos-a-budget-friendly-method/"><u>2024 Approved Audio Offloading for Windows 10 Videos A Budget-Friendly Method</u></a></li>
+</ul></div>

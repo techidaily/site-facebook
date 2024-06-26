@@ -1,7 +1,7 @@
 ---
 title: Accessing Older Facebook Discussions
-date: 2024-06-21 10:48:45
-updated: 2024-06-23 11:45:12
+date: 2024-06-25T13:51:23.713Z
+updated: 2024-06-26T13:51:23.713Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/9d3857853f9f78dd8e108c028d0a318d22b529786
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/schedule-resilience-with-helpful-facebook-reminder-features/"><u>Schedule Resilience with Helpful Facebook Reminder Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindfulness-in-motion-understanding-instagrams-break-initiative/"><u>Mindfulness in Motion: Understanding Instagram’s Break Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-considerations-for-a-smooth-social-exodus/"><u>Digital Disconnect: Considerations for a Smooth Social Exodus</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-new-horizons-using-spotify-features-in-facebook-app/"><u>Explore New Horizons: Using Spotify Features in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-2023-new-judgment-on-fb-ban/"><u>January 2023: New Judgment on FB Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-perfection-designing-a-tailored-cover-photo-that-celebrates-you-and-your-avatar/"><u>Profile Perfection: Designing a Tailored Cover Photo that Celebrates You and Your Avatar</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-harmonizing-tech-with-creativity-best-10-song-editors-for-windowsmac-enthusiasts/"><u>In 2024, Harmonizing Tech with Creativity – Best 10 Song Editors for Windows/Mac Enthusiasts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-lenovo-thinkphone-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Lenovo ThinkPhone to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/10-steps-to-become-a-successful-smm/"><u>10 Steps to Become a Successful SMM</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-channel-branding-hacks-10-must-use-online-tools/"><u>2024 Approved  Channel Branding Hacks  10 Must-Use Online Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/overcoming-srt-transfer-issues-from-premiere-for-2024/"><u>Overcoming SRT Transfer Issues From Premiere for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Nokia G22? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-verify-your-youtube-account-a-simple-guide/"><u>[Updated] In 2024, How to Verify Your YouTube Account - a Simple Guide</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-get-vertical-expert-tips-for-smartphone-video-production/"><u>Updated In 2024, Get Vertical Expert Tips for Smartphone Video Production</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-best-voice-modification-tools-for-mobile-devices/"><u>[Updated] In 2024, Best Voice Modification Tools for Mobile Devices</u></a></li>
+</ul></div>

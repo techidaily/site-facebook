@@ -1,7 +1,7 @@
 ---
 title: Dissecting Meta's New Privacy Standards and Impact
-date: 2024-06-22 20:33:44
-updated: 2024-06-23 12:20:17
+date: 2024-06-25T14:16:04.114Z
+updated: 2024-06-26T14:16:04.114Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,11 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
  Meta began rolling out notifications about their new privacy policy update in May 2022\. These notifications serve as a way to let Meta users educate themselves on the new update, but no action is required to continue using Meta platforms.
 
-## Three phone screens with facebook notifications about a privacy policy update
-
-![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
+## Three phone screens with facebook notifications about a privacy policy update ![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
 
  According to Meta, these changes have been "inspired by feedback from privacy experts, policymakers, and people who use \[Meta\] services".
 
- In the past Meta has received backlash for[the ways Facebook invades users' privacy](https://www.makeuseof.com/ways-facebook-invades-privacy-stop/) by sharing their information in ways they weren't aware of. With this update, Meta aims to ease the minds of worried users and give them more information on how data is shared.
+ In the past Meta has received backlash for [the ways Facebook invades users' privacy](https://www.makeuseof.com/ways-facebook-invades-privacy-stop/) by sharing their information in ways they weren't aware of. With this update, Meta aims to ease the minds of worried users and give them more information on how data is shared.
 
  Meta says this update will include clearer information on its data-sharing practices as well as information on the third parties Meta shares information with.
 
@@ -57,11 +55,11 @@ Close
 
 ## 2\. Meta Will Not Gain Any New Rights to Your Data
 
- This update does not give Meta any new rights to your data. The company is likely emphasizing this in the wake of the[controversy around the WhatsApp Privacy Policy update in 2021](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) .
+ This update does not give Meta any new rights to your data. The company is likely emphasizing this in the wake of the [controversy around the WhatsApp Privacy Policy update in 2021](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) .
 
 ## 3\. The Update Comes With New Tools to Protect Your Data
 
- This update gives clear instructions on[how to use the Facebook Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) that was first introduced in January 2022\. The Privacy Center is a hub of both privacy information and controls that help you understand and control your Meta experience.
+ This update gives clear instructions on [how to use the Facebook Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) that was first introduced in January 2022\. The Privacy Center is a hub of both privacy information and controls that help you understand and control your Meta experience.
 
  This update does a better job at guiding you through new and old privacy settings that you may not currently be aware of. You can even perform a privacy check-up, which will guide you through all available privacy settings.
 
@@ -100,3 +98,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/us-believes-online-connections-more-damaging/"><u>US Believes: Online Connections More Damaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-fb-login-without-codes-a-step-by-step-guide/"><u>Regaining FB Login Without Codes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-wave-of-negativity-set-to-hit-facebook/"><u>The Wave of Negativity Set to Hit Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-potential-a-solution-for-tiktok-and-facebook/"><u>Reel Potential: A Solution for TikTok and Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-times-facebook-missed-the-mark-on-privacy-and-trust/"><u>Five Times Facebook Missed the Mark on Privacy and Trust</u></a></li>
+<li><a href="https://facebook.techidaily.com/archive-every-echo-comprehensive-history-collection-on-social-media/"><u>Archive Every Echo: Comprehensive History Collection on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-taking-leisinasse-using-facebook-timer/"><u>Digital Harmony: Taking Leisinasse Using Facebook Timer</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-lightning-leap-into-facebook-id-sleuthing/"><u>[Updated] 2024 Approved  Lightning Leap Into Facebook ID Sleuthing</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-realme-c51-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Realme C51? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-from-choreographies-to-filters-a-comparison-of-content-creation-on-tiktok-and-snap/"><u>In 2024, From Choreographies to Filters  A Comparison of Content Creation on TikTok & Snap</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-instantly-examine-windows-documents-efficiently/"><u>[New] Instantly Examine Windows Documents Efficiently</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-building-unique-instagram-profile-thumbnails/"><u>In 2024, Building Unique Instagram Profile Thumbnails</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-the-insiders-tale-on-tiktok-mastery-two-ways-with-filmora/"><u>[Updated] The Insider’s Tale on TikTok Mastery  Two Ways with Filmora</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-utilize-vlc-to-archive-live-webcam-data-for-2024/"><u>[New] Utilize VLC to Archive Live Webcam Data for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-guide-to-creating-popular-youtube-openings/"><u>[Updated] Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pushing-boundaries-spotlight-on-top-6-digital-innovators/"><u>In 2024, Pushing Boundaries  Spotlight on Top 6 Digital Innovators</u></a></li>
+</ul></div>

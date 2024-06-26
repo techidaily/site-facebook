@@ -1,7 +1,7 @@
 ---
 title: Has Personal Data Leakage From Facebook Group Happened?
-date: 2024-06-20 18:20:46
-updated: 2024-06-23 10:24:14
+date: 2024-06-25T13:50:05.472Z
+updated: 2024-06-26T13:50:05.472Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,9 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
 
  According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
 
- Back in 2018, unknown entities[accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide[third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
 
- Alon Gal, the chief technology officer of the cybercrime intelligence firm[Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
 
 > "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
 
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected
-
-![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -77,13 +75,11 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
 
  If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
 
- Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is[to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts
-
-![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 
@@ -126,3 +122,27 @@ thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-relieved-germany-imposes-ban-on-facebooks-data-collection-practices/"><u>WhatsApp Users Relieved: Germany Imposes Ban on Facebook's Data Collection Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-market-with-these-essential-crowdflower-tools/"><u>Master Your Market with These Essential CrowdFlower Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-ally-facebook-aids-rust-growth/"><u>Social Media's New Ally: Facebook Aids Rust Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-honesty-facebook-tightens-misinformation-penalties/"><u>New Era for Honesty? Facebook Tightens Misinformation Penalties</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattering-illusions-decoding-key-findings-from-fb-papers/"><u>Shattering Illusions: Decoding Key Findings From FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-revs-up-conversations-with-innovative-messaging-features-on-messenger-and-instagram/"><u>FB Revs Up Conversations with Innovative Messaging Features on Messenger & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-reasons-why-social-media-is-actually-good-for-you/"><u>9 Reasons Why Social Media Is Actually Good for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-marking-oneself-safe-in-social-media/"><u>Steps to Marking Oneself Safe in Social Media</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-vivo-y100t-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Vivo Y100t to New Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-guide-to-posting-vids-on-facebook/"><u>[New] In 2024, The Ultimate Guide to Posting Vids on Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/convert-srt-free-top-10-web-subtitle-services-for-2024/"><u>Convert SRT Free  Top 10 Web Subtitle Services for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-building-a-reliable-routine-for-google-meet-sessions/"><u>[Updated] In 2024, Building a Reliable Routine for Google Meet Sessions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-complete-guide-to-videdit-studio-pro-features-and-more/"><u>2024 Approved  A Complete Guide to VidEdit Studio Pro, Features and More</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-livestream-elite-top-equipment-for-youtube-content-creators/"><u>2024 Approved  Livestream Elite  Top Equipment For YouTube Content Creators</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-zte-nubia-z60-ultra-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock ZTE Nubia Z60 Ultra Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/unveiling-the-secrets-an-overview-of-using-ez-grabber-professionally-for-2024/"><u>Unveiling the Secrets  An Overview of Using EZ Grabber Professionally for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-quelling-camera-chaos-in-cinema/"><u>[Updated] In 2024, Quelling Camera Chaos in Cinema</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-honor-magic-5-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Honor Magic 5? Fixed | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Public Skepticism Grows: Large Tech Companies Losing Faith"
-date: 2024-06-21 10:24:10
-updated: 2024-06-23 10:29:59
+date: 2024-06-25T14:49:38.534Z
+updated: 2024-06-26T14:49:38.534Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,27 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/immersive-experiences-awaiting-unraveling-facebooks-metaverse-intentions/"><u>Immersive Experiences Awaiting: Unraveling Facebook's Metaverse Intentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-you-achieve-with-the-facebook-help-system/"><u>What Can You Achieve with the Facebook Help System?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-internship-to-impact-unveiling-the-metamate-identity/"><u>From Internship to Impact: Unveiling the Metamate Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-hidden-organizational-diagram/"><u>Discovering Facebook's Hidden Organizational Diagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-interaction-unveiling-9-social-perks/"><u>From Isolation to Interaction: Unveiling 9 Social Perks</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-likers-fb-post-privacy-tips/"><u>Stealthy Likers: FB Post Privacy Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-alleged-ban-on-authentic-marketing/"><u>Online Platform's Alleged Ban on Authentic Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-fact-check-busting-top-10-facebook-myths/"><u>Social Network Fact Check: Busting Top 10 Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodge-facebooks-data-mining-safety-tips-revealed/"><u>Dodge Facebook's Data Mining: Safety Tips Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-down-how-to-find-out-and-see-when-its-back-up/"><u>Is Facebook Down? How to Find Out and See When It's Back Up</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-change-location-on-yik-yak-for-your-tecno-camon-20-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Tecno Camon 20 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-elite-voice-mimicry-suite-windows-and-apple-harmonization/"><u>In 2024, Elite Voice Mimicry Suite - Windows & Apple Harmonization</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-dissecting-social-media-giants-tiktok-meets-snap/"><u>[Updated] Dissecting Social Media Giants  TikTok Meets Snap</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-preserve-your-memories-burning-videos-to-dvd-on-windows-and-mac-for-2024/"><u>New Preserve Your Memories Burning Videos to DVD on Windows and Mac for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-xiaomi-redmi-12-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Xiaomi Redmi 12</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expert-guide-to-creating-compact-engaging-youtube-content/"><u>[New] In 2024, Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-best-ar-video-apps/"><u>New 2024 Approved Best AR Video Apps</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-xiaomi-redmi-note-12t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/10-free-web-conferencing-software-for-online-meeting-with-screen-sharing-for-2024/"><u>10 Free Web Conferencing Software for Online Meeting (with Screen Sharing) for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>In 2024, Transforming YouTube Footage  The Essentials of WM Maker Use</u></a></li>
+</ul></div>

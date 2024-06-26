@@ -1,7 +1,7 @@
 ---
 title: Unfriend Suggested People on Social Media Hub
-date: 2024-06-22 20:58:18
-updated: 2024-06-23 11:39:12
+date: 2024-06-25T14:28:24.618Z
+updated: 2024-06-26T14:28:24.618Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-meta-key-shifts-in-their-privacy-guidelines/"><u>Unveiling Meta: Key Shifts in Their Privacy Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-a-new-era-for-crypto-promos/"><u>Facebook & Instagram: A New Era for Crypto Promos?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-and-gifpedia-face-possible-disentanglement-why-now/"><u>FB and Gifpedia Face Possible Disentanglement; Why Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-the-browser-without-using-fb-app/"><u>Exiting the Browser Without Using FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-struggle-fb-access-denied/"><u>The Silent Struggle: FB Access Denied</u></a></li>
+<li><a href="https://facebook.techidaily.com/illuminating-the-path-of-your-facebook-presence-with-precision/"><u>Illuminating the Path of Your Facebook Presence with Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-facebook-polling-in-communities/"><u>The Ultimate Guide to Facebook Polling in Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-verified-status-on-meta-us-platform/"><u>Unlock Verified Status on Meta US Platform</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-streamline-your-music-movement-between-services/"><u>[Updated] Streamline Your Music Movement Between Services</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-calculating-podcasters-annual-earnings/"><u>In 2024, Calculating Podcasters' Annual Earnings</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/top-10-best-montage-songs-for-your-montage-video-for-2024/"><u>Top 10 Best Montage Songs for Your Montage Video for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-dominate-your-niche-on-fb-with-these-10-keyword-strategies/"><u>[Updated] 2024 Approved  Dominate Your Niche on FB with These 10 Keyword Strategies</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-which-video-editor-reigns-supreme-final-cut-pro-vs-lumafusion-for-2024/"><u>New Which Video Editor Reigns Supreme? Final Cut Pro vs LumaFusion for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-premium-virtual-meetup-software-titles/"><u>[Updated] 2024 Approved  Premium Virtual Meetup Software Titles</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-strengthen-your-footage-using-a-tripod-in-vlogging/"><u>2024 Approved  Strengthen Your Footage  Using a Tripod in Vlogging</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-pro-to-other-iphone-11-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 Pro to other iPhone 11 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/enhance-your-images-with-professional-techniques/"><u>Enhance Your Images with Professional Techniques</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-infinix-note-30-5g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Infinix Note 30 5G</u></a></li>
+</ul></div>

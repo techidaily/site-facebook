@@ -1,7 +1,7 @@
 ---
 title: Social Networks Adopt Meta Drops NFT Trials
-date: 2024-06-20 15:25:36
-updated: 2024-06-23 12:11:17
+date: 2024-06-25T14:13:45.606Z
+updated: 2024-06-26T14:13:45.606Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/0e07053ee64fa15ad5d79e86651cfe492e77f4718
 
  For now, at least, Meta is "winding down digital collectibles (NFTs) for now to focus on other ways to support creators, people, and businesses," moving focus to other monetization opportunities like Meta Pay and Reels.
 
- Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
+ Meta rolled out [NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
 ## What's Next for Meta, Crypto, and the Metaverse?
 
@@ -52,3 +52,23 @@ thumbnail: https://thmb.techidaily.com/0e07053ee64fa15ad5d79e86651cfe492e77f4718
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/decoding-metaverse-and-virtual-reality-highlighting-6-pivotal-contrasts/"><u>Decoding Metaverse and Virtual Reality: Highlighting 6 Pivotal Contrasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vows-severing-online-bonds/"><u>Virtual Vows: Severing Online Bonds</u></a></li>
+<li><a href="https://facebook.techidaily.com/verdict-on-holding-facebook-oversight-on-trump-ban/"><u>Verdict on Holding: Facebook Oversight on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-sever-instagram-connection-with-facebook/"><u>Steps to Sever Instagram Connection with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-erased-social-media-statuses-on-facebook/"><u>Reviving Erased Social Media Statuses on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-my-digital-footprint-the-inception-of-facebook-usage/"><u>Tracing My Digital Footprint: The Inception of Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-likes-more-life-the-reality-in-instagrams-call-to-slow-down/"><u>'Less Likes, More Life': The Reality in Instagram's Call to Slow Down</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-simplifying-server-removal-for-desktopmobile-use/"><u>[Updated] In 2024, Simplifying Server Removal for Desktop/Mobile Use</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/unlock-facebook-ad-success-with-these-3-adapted-writing-techniques-for-2024/"><u>Unlock Facebook Ad Success with These 3 Adapted Writing Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mobile-mastery-secure-your-favorite-igtv-content-easily-for-2024/"><u>Mobile Mastery  Secure Your Favorite IGTV Content Easily for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713942942434-in-2024-step-by-step-to-rotate-video-in-google-photos/"><u>In 2024, Step by Step to Rotate Video in Google Photos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harness-the-power-of-youtubes-movie-maker-for-professionals/"><u>[New] 2024 Approved  Harness the Power of YouTube's Movie Maker for Professionals</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/bring-your-vision-to-life-advanced-video-editing-techniques-for-home-movie-makers/"><u>Bring Your Vision to Life Advanced Video Editing Techniques for Home Movie Makers</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A24 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-u23-pro-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from U23 Pro.</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-direct-video-transmission-from-twitters-to-whatsapp-for-2024/"><u>[New] Direct Video Transmission From Twitters to WhatsApp for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Re-Thinking the Digital Order: Upcoming Changes in America's Antitrust Policy"
-date: 2024-06-21 11:52:34
-updated: 2024-06-23 11:18:31
+date: 2024-06-25T13:48:23.775Z
+updated: 2024-06-26T13:48:23.775Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/e8e4a6d6a9bc5b040ff402928b53a2666775b46cc
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fast-switching-tactics-for-multiple-facebook-ids/"><u>Fast-Switching Tactics for Multiple Facebook IDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-archive-of-memories/"><u>Exploring Facebook's Archive of Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-you-turn-off-facebooks-in-app-browser-how-it-works/"><u>Can You Turn Off Facebook's In-App Browser? How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-extraction-of-complete-facebook-logs-and-traces/"><u>Seamless Extraction of Complete Facebook Logs and Traces</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-social-networks-narrative-archives/"><u>Sifting Through Social Network's Narrative Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-decoding-the-art-of-persuasive-tiktok-marketing-and-advertising-for-2024/"><u>[New] Decoding the Art of Persuasive TikTok Marketing & Advertising for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/busting-barriers-with-laughs-the-best-facebook-prisoner-wit-quotes/"><u>Busting Barriers with Laughs  The Best Facebook Prisoner-Wit Quotes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-transparent-perspective-reviewing-recordcasts-strengths/"><u>[New] In 2024, Transparent Perspective  Reviewing RecordCast's Strengths</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-nighttime-tales-on-screen-insights-into-storytelling-videos-for-kids/"><u>2024 Approved  Nighttime Tales on Screen  Insights Into Storytelling Videos for Kids</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-pinnacle-screenshots-on-mac-a-deep-dive-into-top-apps-for-2024/"><u>[Updated] Pinnacle Screenshots on Mac  A Deep Dive Into Top Apps for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-best-video-title-generators/"><u>New In 2024, Best Video Title Generators</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-snapchat-to-subscribers-jake-pauls-youtube-quest/"><u>In 2024, Snapchat to Subscribers  Jake Paul’s Youtube Quest</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-orchestrating-scene-sounds-with-imovie/"><u>2024 Approved  Orchestrating Scene Sounds with iMovie</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-art-of-monetizing-snapchat-content/"><u>2024 Approved  The Art of Monetizing Snapchat Content</u></a></li>
+</ul></div>

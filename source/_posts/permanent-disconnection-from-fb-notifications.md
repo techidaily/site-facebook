@@ -1,7 +1,7 @@
 ---
 title: Permanent Disconnection From Fb Notifications
-date: 2024-06-22 22:17:35
-updated: 2024-06-23 12:18:10
+date: 2024-06-25T14:30:56.069Z
+updated: 2024-06-26T14:30:56.069Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-real-life-experiences-matter-more-than-virtual-friends-on-facebook/"><u>Why Real-Life Experiences Matter More Than Virtual Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-titles-vs-displayed-usernames-clarity-for-users/"><u>Profile Titles vs Displayed Usernames: Clarity for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban.</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-glimpse-into-the-machinery-of-facebooks-policy-framework/"><u>A Glimpse Into the Machinery of Facebook's Policy Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/contemplating-metamorphosis-meta-ais-social-media-role/"><u>Contemplating Metamorphosis: Meta AI's Social Media Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-district-arrangements/"><u>Exploring Facebook's New District Arrangements</u></a></li>
+<li><a href="https://facebook.techidaily.com/wake-up-your-inactive-facebook-page-with-simple-fixes/"><u>Wake Up Your Inactive Facebook Page with Simple Fixes</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-crafted-connections-social-medias-role-in-textile-techniques-for-2024/"><u>[Updated] Crafted Connections  Social Media's Role in Textile Techniques for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-rapidrecord-fullscreen-feature/"><u>[New] RapidRecord Fullscreen Feature</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-android-no-fee-communication-tools-ranked-best/"><u>2024 Approved  Android No-Fee Communication Tools Ranked Best</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unpacking-the-essentials-mastering-adobes-storage-solutions-and-their-rival-alternatives/"><u>In 2024, Unpacking The Essentials  Mastering Adobe's Storage Solutions & Their Rival Alternatives</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a14-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A14 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>2024 Approved  Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/turbo-speed-photo-browser-for-windows-10/"><u>Turbo Speed Photo Browser for Windows 10</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Innovative Whispers: Tracing Social Media's Future Wrist Tech"
-date: 2024-06-20 19:22:36
-updated: 2024-06-23 10:56:59
+date: 2024-06-25T14:32:49.239Z
+updated: 2024-06-26T14:32:49.239Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 
  Though there’s no official word from the company itself,[reports suggest](https://www.makeuseof.com/facebook-making-smartwatch/) that the Facebook smartwatch is already in the development phase. So let’s find out more about its features and the news surrounding this new wearable.
 
-## Notable Features of the Rumored Facebook Smartwatch
-
-![smartwatch-and-hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-and-hand.jpg)
+## Notable Features of the Rumored Facebook Smartwatch ![smartwatch-and-hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-and-hand.jpg)
 
  Though Facebook is yet to announce the features of its smartwatch,[news reports](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) have already suggested how it could look. The smartwatch will have a steel frame and be powered by the open-source Android operating system. The smartwatch will be available in black, white, and gold colors.
 
@@ -39,9 +37,7 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 
  Facebook wants its watch to work without the need of pairing it with any smartphone. To that end, Facebook is partnering up with US-based wireless service providers to provide LTE connectivity to its new smartwatch. That partnership means that you’d be able to buy the watch from a wireless carrier's store.
 
-### Fitness Tracking
-
-![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
+### Fitness Tracking ![smartwatch-fitness-tracking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/smartwatch-fitness-tracking.jpg)
 
 [Facebook aims to add fitness tracking features](https://www.theinformation.com/articles/facebook-plans-smartwatch-with-focus-on-messaging-health) to its watch in a bid to attract fitness enthusiasts. This means that it’ll have a heart rate monitor and other health features.
 
@@ -53,15 +49,13 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
 
  Facebook plans to release the initial version of its wearable device in mid-2022\. The expected price is around $400\. But that could change.
 
- With[thousands of employees](https://www.makeuseof.com/facebook-ar-vr-development/) working for its augmented and virtual reality projects, Facebook's ambitions in the field of AR are well known. Reports also suggest that Facebook has already started working on future models of the watch, expected to be released in 2023.
+ With [thousands of employees](https://www.makeuseof.com/facebook-ar-vr-development/) working for its augmented and virtual reality projects, Facebook's ambitions in the field of AR are well known. Reports also suggest that Facebook has already started working on future models of the watch, expected to be released in 2023.
 
- These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the[AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
+ These next-gen watches will have AR features. CTRL-Lab, a startup acquired by Facebook, has been working to control computers using wrist movements. So the company might use its smartwatch as an input device for the [AR glasses it has released with Ray-Ban](https://www.makeuseof.com/facebook-ray-ban-stories-what-are-they-how-much/) .
 
-## Competition and Concerns
+## Competition and Concerns ![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
 
-![apple-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/apple-watch.jpg)
-
- With Apple having[sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
+ With Apple having [sold more than 34 million smartwatches](https://www.statista.com/chart/15035/worldwide-smartwatch-shipments/) last year (more than the Swiss watch industry), it’s easy to understand why Facebook is striving to get its product into the market. Apple and Samsung have already taken the control of the smartwatch market, and Facebook will have to face tough competition.
 
  One of the key reasons Apple watches have done so well is their privacy protection policies. Wearables collect and store your personal and health information, and this is where privacy greatly matters. Considering Facebook's record of user data handling, it’s interesting to see if Facebook can convince people to buy its new smartwatch.
 
@@ -88,3 +82,24 @@ thumbnail: https://thmb.techidaily.com/d7dc5f497c3ff92b83099053ccb7b434fc4fb16a5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-structured-relaxation-and-recovery/"><u>Leveraging Facebook for Structured Relaxation and Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-vs-sharing-keeping-personal-info-safe-online/"><u>Secrets vs Sharing: Keeping Personal Info Safe Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-friends-and-uncover-insights-via-poll-games/"><u>Engaging Friends & Uncover Insights via Poll Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-heartbeat-of-facebooks-infrastructure/"><u>Understanding the Heartbeat of Facebook's Infrastructure</u></a></li>
+<li><a href="https://facebook.techidaily.com/presidents-lawsuit-targets-silence-on-social-networking-sites/"><u>President's Lawsuit Targets Silence on Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/reignite-real-connections-without-politics/"><u>Reignite Real Connections Without Politics</u></a></li>
+<li><a href="https://video-capture.techidaily.com/graphics-relic-package/"><u>Graphics Relic Package</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-removing-your-facebook-live-video-tech-steps/"><u>[New] Removing Your Facebook Live Video  Tech Steps</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-evaluating-and-improving-your-facebook-in-stream-ad-campaigns/"><u>[New] 2024 Approved  Evaluating & Improving Your Facebook In-Stream Ad Campaigns</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/optimizing-your-fb-live-on-zoom-stream/"><u>Optimizing Your FB Live on Zoom Stream</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-samsung-galaxy-f15-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Samsung Galaxy F15 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-zero-to-hero-steps-to-construct-your-channels-backlinks/"><u>From Zero to Hero  Steps to Construct Your Channel's Backlinks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-next-gen-photography-unveiling-auto-and-smart-hdr-features/"><u>[New] Next-Gen Photography  Unveiling Auto and Smart HDR Features</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-free-mpeg-video-splitter-roundup-top-picks-for-2024/"><u>New Free MPEG Video Splitter Roundup Top Picks for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fun-frenzy-youtube-writers-of-joyful-entertainment/"><u>[Updated] In 2024, Fun Frenzy  YouTube’ Writers of Joyful Entertainment</u></a></li>
+</ul></div>

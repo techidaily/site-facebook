@@ -1,7 +1,7 @@
 ---
 title: The Pillars Leading Today’s Facebook
-date: 2024-06-20 11:31:59
-updated: 2024-06-23 10:32:40
+date: 2024-06-25T14:30:09.326Z
+updated: 2024-06-26T14:30:09.326Z
 tags:
   - facebook
 categories:
@@ -27,19 +27,19 @@ thumbnail: https://thmb.techidaily.com/4f90c1408653d67bc404a72c2dca3d3d52e3a2949
 
  Following a series of serious scandals, Facebook wiped (or tried to wipe) the slate clean with a rebrand. From October 2021, Facebook's parent company would be known as Meta,[according to CEO Mark Zuckerberg](https://about.fb.com/news/2021/10/founders-letter/) .
 
- Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
+ Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of [the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
- In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
+ In the [statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
- Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to[SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
+ Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to [SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
 
  The Class A shares are what normal investors can buy on the stock market, and they come with one vote per share. Class B shares, which are primarily owned by Mark Zuckerberg and a small group of insiders, have 10 votes each.
 
- Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to[CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
+ Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to [CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
@@ -72,3 +72,23 @@ thumbnail: https://thmb.techidaily.com/4f90c1408653d67bc404a72c2dca3d3d52e3a2949
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-not-sending-your-security-code-how-to-fix-it/"><u>Facebook Not Sending Your Security Code? How to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-spreading-covid-misinformation/"><u>Who's Spreading Covid Misinformation?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-answer-to-the-audio-only-chat-space/"><u>Facebook's Answer to the Audio-Only Chat Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-someone-else-impersonating-you-on-social-media/"><u>Is Someone Else Impersonating You on Social Media?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-offline-world-reimagined-after-social-media-departure/"><u>The Offline World Reimagined After Social Media Departure</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-beginners-manual-to-windows-8-film-creation/"><u>[Updated] A Beginner's Manual to Windows 8 Film Creation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-budget-friendly-interactive-face-to-face-games/"><u>[New] Budget-Friendly Interactive Face-to-Face Games</u></a></li>
+<li><a href="https://extra-support.techidaily.com/photo-editors-dream-select-your-perfect-backdrop-shift-for-2024/"><u>Photo Editors' Dream  Select Your Perfect Backdrop Shift for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-first-timers-manual-for-cool-mac-crafted-youtube-clips-for-2024/"><u>[Updated] First-Timer's Manual for Cool, Mac-Crafted YouTube Clips for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-decoding-the-secrets-of-discord/"><u>[Updated] 2024 Approved  Decoding the Secrets of Discord</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-six-best-cinematography-tools-in-uhd-space/"><u>[New] Six Best Cinematography Tools in UHD Space</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exclusive-insights-viewing-nba-games-remotely-for-2024/"><u>Exclusive Insights  Viewing NBA Games Remotely for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-guidelines-for-exporting-audio-from-audacity-to-mp3/"><u>In 2024, Guidelines for Exporting Audio From Audacity to MP3</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone 6 Plus</u></a></li>
+</ul></div>

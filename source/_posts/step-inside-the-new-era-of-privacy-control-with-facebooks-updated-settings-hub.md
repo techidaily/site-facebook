@@ -1,7 +1,7 @@
 ---
 title: Step Inside the New Era of Privacy Control With Facebook’s Updated Settings Hub
-date: 2024-06-20 15:21:46
-updated: 2024-06-23 12:52:46
+date: 2024-06-25T14:00:00.877Z
+updated: 2024-06-26T14:00:00.877Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
 ## How to Access the New Facebook Privacy Center
 
- The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
+ The new Privacy Center was announced in a [Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
 
  The Privacy Center is currently in testing and only available to most US and other desktop users. If you happen to be in the limited test group, you'll find that it's easy to access Meta's new Privacy Center.
 
@@ -102,3 +102,27 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/sweet-release-from-social-media-shackles-deleting-your-company-page/"><u>Sweet Release From Social Media Shackles: Deleting Your Company Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-there-a-risk-of-leaked-numbers-in-my-social-media-activity/"><u>Is There a Risk of Leaked Numbers in My Social Media Activity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-prestige-exclusive-badge-from-meta/"><u>Achieve Prestige: Exclusive Badge From Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-giants-mastery-of-meta-account-control/"><u>Unlocking Social Giants: Mastery of Meta Account Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-liking-a-guide-for-the-discreet-user/"><u>Strategic Liking: A Guide for the Discreet User</u></a></li>
+<li><a href="https://facebook.techidaily.com/stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-did-sheryl-sandberg-influence-facebook/"><u>How Did Sheryl Sandberg Influence Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-endorsements-keeping-likes-private-on-fbig/"><u>Unseen Endorsements: Keeping Likes Private on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-erasing-your-fb-browsing-log/"><u>Tips for Erasing Your FB Browsing Log</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-discord-broadcasting-step-by-step-techniques-for-seamless-sessions/"><u>[Updated] 2024 Approved  Discord Broadcasting  Step-by-Step Techniques for Seamless Sessions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/picart-anonymizer-swiftly-hide-identities/"><u>PicArt Anonymizer  Swiftly Hide Identities</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-quicksnap-pro-studio-tools-for-2024/"><u>[New] QuickSnap Pro Studio Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-channel-image-makeovers-on-the-house/"><u>[New] In 2024, Channel Image Makeovers on the House</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-hobbies-to-hearts-youtubes-path-to-fame/"><u>[Updated] 2024 Approved  From Hobbies to Hearts  YouTube's Path to Fame</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-best-practices-in-video-posting-choosing-correct-orientation/"><u>In 2024, Best Practices in Video Posting – Choosing Correct Orientation</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-unleash-your-creativity-video-editing-tips-for-family-filmmakers/"><u>New 2024 Approved Unleash Your Creativity Video Editing Tips for Family Filmmakers</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-11-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 11 Data From iOS iCloud | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-your-youtube-presence-the-art-of-seo-optimization/"><u>[New] 2024 Approved  Elevate Your YouTube Presence  The Art of SEO Optimization</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715860499283-updated-capturing-screen-content-via-built-in-recorders-in-the-mate-and-p-series/"><u>[Updated] Capturing Screen Content via Built-In Recorders in the Mate and P Series.</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Whistle-Blowers Say Facebook Clamps Honesty in Ads
-date: 2024-06-22 12:43:34
-updated: 2024-06-23 11:37:57
+date: 2024-06-25T14:29:28.000Z
+updated: 2024-06-26T14:29:28.000Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/43a1f72d8140b4852b3ec1b168bf1a5fdf9e93b16
 
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
- In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
+ In a post on the [Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 ## Facebook Responds to Signal's Move
 
@@ -72,3 +72,27 @@ Facebook responded with the following statement to the media:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/avoiding-the-mirage-of-masks-on-modern-networks/"><u>Avoiding the Mirage of Masks on Modern Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-member-overlooked-the-art-of-group-recognition-in-social-media/"><u>No Member Overlooked: The Art of Group Recognition in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-time-offline-is-an-investment-in-happiness/"><u>Why Time Offline Is an Investment in Happiness</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-connection-or-silence-handling-lost-friends-on-fb/"><u>Eternal Connection or Silence? Handling Lost Friends on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-yourself-in-the-digital-age-changing-your-name-on-facebook/"><u>Reinventing Yourself in the Digital Age: Changing Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-most-noteworthy-tech-failures-in-recent-times/"><u>The 5 Most Noteworthy Tech Failures in Recent Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-trusted-tiktok-fan-acquisition-agencies/"><u>2024 Approved  Trusted TikTok Fan Acquisition Agencies</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetary-milestones-steps-to-unlock-your-true-youtube-income-value/"><u>[New] Monetary Milestones  Steps to Unlock Your True YouTube Income Value</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/maximizing-the-potential-of-virtual-dialogue-secrets-from-a-pro-zoom-chat-guru/"><u>Maximizing the Potential of Virtual Dialogue  Secrets From a Pro ZOOM Chat Guru</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-captioning-techniques-for-professional-youtube-content/"><u>In 2024, Captioning Techniques for Professional YouTube Content</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-samsung-galaxy-f54-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Samsung Galaxy F54 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-experts-guide-to-selecting-best-stream-recording-software-for-2024/"><u>[New] Expert's Guide to Selecting Best Stream Recording Software for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-exploring-the-capabilities-of-adobe-audition-for-professional-audio-editing/"><u>Updated 2024 Approved Exploring the Capabilities of Adobe Audition for Professional Audio Editing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/capturing-your-lenovo-display-with-ease-for-2024/"><u>Capturing Your Lenovo Display with Ease for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-video-insights-top-7-free-easy-to-use-tag-extraction-software-reviewed/"><u>In 2024, Unlock Video Insights  Top 7 Free, Easy-to-Use Tag Extraction Software Reviewed</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Techniques to Purge Peer Reviewed Posts on FB
-date: 2024-06-22 23:22:55
-updated: 2024-06-23 12:24:57
+date: 2024-06-25T14:46:15.081Z
+updated: 2024-06-26T14:46:15.081Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/fe07e4a07925d03fd4feb686ae505e57245e98882
 
 ## What to know About Deleting a Facebook Comment
 
- Similar to how it allows you to[manage comments on your posts](https://www.makeuseof.com/facebook-post-how-to-turn-off-comments/) , Facebook also allows you to delete comments you find offensive or damaging to your brand. You can delete the offending comment, whether it's on videos, photos, or just text posts.
+ Similar to how it allows you to [manage comments on your posts](https://www.makeuseof.com/facebook-post-how-to-turn-off-comments/) , Facebook also allows you to delete comments you find offensive or damaging to your brand. You can delete the offending comment, whether it's on videos, photos, or just text posts.
 
  When you remove such comments, Facebook does not send notifications to the person who commented. However, they may notice their comments have been deleted when viewing the post.
 
@@ -75,3 +75,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/utilizing-language-settings-to-optimize-fb-posts/"><u>Utilizing Language Settings to Optimize FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodon-a-new-social-paradigm/"><u>Mastodon: A New Social Paradigm</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-working-here-are-the-potential-ways-to-fix-it/"><u>Facebook Not Working? Here Are the Potential Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-a-job-ad-on-facebook/"><u>How to Post a Job Ad on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-privacy-preferences-for-on-the-go-check-ins/"><u>Setting Privacy Preferences for On-the-Go Check-Ins</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-allowing-unnamed-comments-on-your-fb-group/"><u>Tips for Allowing Unnamed Comments on Your FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-yourself-with-facebook-help-create-the-metaverse/"><u>Invest in Yourself with Facebook - Help Create the Metaverse</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-best-10-mac-tech-for-screen-sharing/"><u>[Updated] 2024 Approved  Best 10 Mac Tech for Screen Sharing</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-how-to-make-a-slideshow-on-iphone/"><u>New In 2024, How to Make a Slideshow on iPhone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-the-full-potential-of-pixiz-in-video-making/"><u>In 2024, Unlock the Full Potential of Pixiz in Video Making</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-depth-review-of-splitcam-leading-camera-tech/"><u>[New] In-Depth Review of SplitCam  Leading Camera Tech?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mavic-pro-the-high-flying-gadget-unveiled/"><u>[Updated] Mavic Pro  The High-Flying Gadget Unveiled</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-twitters-hilarious-highlights/"><u>[Updated] In 2024, Twitter's Hilarious Highlights</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-uncomplicated-guide-for-crafting-and-editing-multiple-snaps-in-snapchat/"><u>2024 Approved  Uncomplicated Guide for Crafting and Editing Multiple Snaps in Snapchat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-redmi-note-13-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Redmi Note 13 5G Location By Mobile Number | Dr.fone</u></a></li>
+</ul></div>

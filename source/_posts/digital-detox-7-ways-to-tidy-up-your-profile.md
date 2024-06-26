@@ -1,7 +1,7 @@
 ---
 title: "Digital Detox: 7 Ways to Tidy Up Your Profile"
-date: 2024-06-21 19:10:36
-updated: 2024-06-23 10:19:27
+date: 2024-06-25T13:43:29.146Z
+updated: 2024-06-26T13:43:29.146Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,13 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 
 ![Friend settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729376.jpg)
 
-**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can[spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
+**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can [spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
 
 ![Adding Facebook Friends to a Friends List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729286.jpg)
 
 ## 2\. Clean Up Your Facebook Photos
 
- It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
+ It's time to go into your photos and decide what you want to be on the internet for all to see. While you can [make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 ### Deleting Facebook Photo Albums
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
 
 ### Deleting Photos of You on Facebook
 
- Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
+ Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
@@ -110,3 +110,22 @@ thumbnail: https://thmb.techidaily.com/4c8d9f631d7921c719a1941a590fa8e1cb22a0616
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-disruption-valid-ban-on-trump-but-for-how-long/"><u>Digital Disruption: Valid Ban on Trump, but for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-networks-into-our-daily-shopping-experience/"><u>Bringing Social Networks Into Our Daily Shopping Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-melodies-the-promise-of-boomboxs-future/"><u>Harmonizing Social Media and Melodies: The Promise of Boombox's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-suggested-people-on-social-media-hub/"><u>Unfriend Suggested People on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-ghosted-photo-posts-in-chats-and-messenger/"><u>Alert for Ghosted Photo Posts in Chats and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-tools-is-facebook-an-event-ally/"><u>Mastering Social Media Tools: Is Facebook an Event Ally?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-newbie-to-pro-comprehensive-periscope-tutorial/"><u>2024 Approved  From Newbie to Pro  Comprehensive Periscope Tutorial</u></a></li>
+<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-apple-iphone-6-by-drfone-ios/"><u>Guide on How To Remove Apple ID From Apple iPhone 6</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-ultimate-strategy-for-boosted-instagram-video-traffic/"><u>[Updated] The Ultimate Strategy for Boosted Instagram Video Traffic</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-identifying-the-swift-growing-triumphs-in-todays-youtube-landscape/"><u>2024 Approved  Identifying the Swift-Growing Triumphs in Today's YouTube Landscape</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-streaming-snapshots-for-facebook-2023-for-2024/"><u>[New] Streaming Snapshots for Facebook, 2023 for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/exploring-vn-video-editor-pro-is-this-app-right-for-you/"><u>Exploring VN Video Editor Pro Is This App Right for You?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-gpu-glimpse-new-radeon-unleashed/"><u>[Updated] 2024 Approved  GPU Glimpse  New Radeon Unleashed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Magic 6 Pro | Dr.fone</u></a></li>
+</ul></div>

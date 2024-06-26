@@ -1,7 +1,7 @@
 ---
 title: Decoding Facebook's Data – Step by Step Photo/Video Save
-date: 2024-06-22 19:27:46
-updated: 2024-06-23 10:12:33
+date: 2024-06-25T13:49:45.642Z
+updated: 2024-06-26T13:49:45.642Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/ecfcd073ace7d18c0661d93194869f4c69c9a93b7
 
  We'll show you the official methods as well as third-party photo downloader apps, allowing you to download your Facebook photos, your friends' photos, and videos.
 
-## How to Download Facebook Photos
-
-![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+## How to Download Facebook Photos ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -30,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/ecfcd073ace7d18c0661d93194869f4c69c9a93b7
 
  You can use this method to download Facebook photos. It's as simple as that.
 
- However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+ However, to download your friends' Facebook photos, their [Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
 ## How to Download Facebook Albums
 
@@ -56,7 +54,7 @@ Follow these steps to download your Facebook album:
 
  Here's how to use the easy built-in Facebook photo downloader to download all your Facebook photos:
 
-1. Head to Facebook settings on your desktop browser or use the link[facebook.com/settings](https://www.facebook.com/settings) .
+1. Head to Facebook settings on your desktop browser or use the link [facebook.com/settings](https://www.facebook.com/settings) .
 2. Click**Your Facebook information** in the sidebar.
 3. Select**Download your information** .  
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
@@ -85,11 +83,9 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-## How to Save Facebook Videos to Your Computer or Phone
+## How to Save Facebook Videos to Your Computer or Phone ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
-![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
-
- Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
+ Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you [download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
 
@@ -102,7 +98,7 @@ Here's how to use it:
 
  FDown also has a handy extension for Google Chrome on desktop dubbed Video Downloader Plus. When you are playing a Facebook video, click the extension icon to download it to your computer.
 
-**Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
+**Download:** Video Downloader Plus for [Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
@@ -127,3 +123,26 @@ Here's how to use it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/revisiting-relationships-insightful-look-at-facebook-history/"><u>Revisiting Relationships: Insightful Look at Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-the-scam-tips-for-facebook-security-hygiene/"><u>Spot the Scam: Tips for Facebook Security Hygiene</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-accessibility-at-no-cost-understanding-snapchats-tracking-practices/"><u>App Accessibility at No Cost: Understanding Snapchat’s Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-truths-and-misconceptions-a-reality-check/"><u>Metaverse Truths & Misconceptions – A Reality Check</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-ray-ban-stories-and-its-price-range/"><u>Understanding Facebook's Ray-Ban Stories and Its Price Range</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-managing-fb-picture-sharing/"><u>Understanding & Managing Fb Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-meta-entry-to-user-account-central/"><u>Mastering Meta: Entry to User Account Central</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-facebook-group-assembly-blueprints/"><u>Step-by-Step Guide: Facebook Group Assembly Blueprints</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-unleash-your-creativity-top-10-intro-maker-websites-with-free-and-paid-options/"><u>2024 Approved Unleash Your Creativity Top 10 Intro Maker Websites with Free and Paid Options</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-expertise-in-action-quick-tips-for-online-photo-trimming/"><u>[New] Expertise in Action  Quick Tips for Online Photo Trimming</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/giggles-galore-7-entertaining-video-sets-for-chuckleheads-for-2024/"><u>Giggles Galore  7 Entertaining Video Sets for Chuckleheads for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-initiate-investment-cost-effective-youtube-monetization-options/"><u>2024 Approved  Initiate Investment  Cost-Effective YouTube Monetization Options</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-harmonizing-sights-with-itunes-acoustics/"><u>2024 Approved  Harmonizing Sights with iTunes Acoustics</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-nubia-z50-ultra-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Nubia Z50 Ultra</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-from-concept-to-completion-a-stories-polling-handbook/"><u>[Updated] In 2024, From Concept to Completion  A Stories Polling Handbook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlocking-the-secrets-of-instagrams-trending-reels-for-2024/"><u>Unlocking the Secrets of Instagram's Trending Reels for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/mastering-vimeos-end-screens-for-creative-directives-for-2024/"><u>Mastering Vimeo's End Screens for Creative Directives for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/revamping-your-tiktok-look-in-just-a-few-steps/"><u>Revamping Your TikTok Look in Just a Few Steps</u></a></li>
+</ul></div>

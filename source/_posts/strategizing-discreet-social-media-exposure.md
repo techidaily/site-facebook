@@ -1,7 +1,7 @@
 ---
 title: Strategizing Discreet Social Media Exposure
-date: 2024-06-20 13:52:10
-updated: 2024-06-23 11:14:57
+date: 2024-06-25T14:22:42.492Z
+updated: 2024-06-26T14:22:42.492Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,26 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/recovering-your-social-media-account-post-code-mishap/"><u>Recovering Your Social Media Account, Post-Code Mishap</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-security-101-why-avoid-mystery-friends/"><u>Social Network Security 101: Why Avoid Mystery Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-content-consumption-for-focused-productivity/"><u>Curbing Content Consumption for Focused Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-fbs-mtfc-for-extra-protection/"><u>Implementing FB's MTFC for Extra Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-workings-of-photodna-system/"><u>Breaking Down the Workings of PhotoDNA System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-initiative-vs-tiktoks-trending-score/"><u>Facebook’s Reel Initiative vs TikTok's Trending Score</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-the-workplace-dynamics-on-facebook-groups/"><u>Inside Look: The Workplace Dynamics on Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-paradigm-shift-top-strategies-for-wealth-building-on-social-media/"><u>Profit Paradigm Shift: Top Strategies for Wealth-Building on Social Media</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-selection-top-video-editors-for-webcams/"><u>Ultimate Selection  Top Video Editors for Webcams</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-top-5-best-3d-intro-makers-for-youtube/"><u>[New] Top 5 Best 3D Intro Makers for YouTube</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-transform-your-gopro-footage-quick-and-easy-video-editing-on-macbook/"><u>New In 2024, Transform Your GoPro Footage Quick and Easy Video Editing on MacBook</u></a></li>
+<li><a href="https://article-helps.techidaily.com/master-the-sphere-ultimate-guide-to-live-broadcast-cameras/"><u>Master the Sphere  Ultimate Guide to Live Broadcast Cameras</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-mobile-apps-to-extract-audio-from-video-files-for-2024/"><u>Best Mobile Apps to Extract Audio From Video Files for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-video-resolution-converter-for-windowsmaconline/"><u>In 2024, Best Video Resolution Converter [for Windows/Mac/Online]</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-youtube-earning-potential-insights-from-sourav-joshi/"><u>[New] Maximizing YouTube Earning Potential  Insights From Sourav Joshi</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-artwork-accelerated-techniques-for-editing-photos-on-pc/"><u>[Updated] Master Artwork  Accelerated Techniques for Editing Photos on PC</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-androids-best-youtube-video-downloaders-reviewed-for-2024/"><u>[New] Android's Best YouTube Video Downloaders Reviewed for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-streamline-your-media-save-vimeo-to-mp4-for-2024/"><u>[New] Streamline Your Media  Save Vimeo to MP4 for 2024</u></a></li>
+</ul></div>

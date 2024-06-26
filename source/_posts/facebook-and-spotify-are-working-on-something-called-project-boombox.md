@@ -1,7 +1,7 @@
 ---
 title: Facebook and Spotify Are Working on Something Called Project Boombox
-date: 2024-06-22 12:37:43
-updated: 2024-06-23 11:49:22
+date: 2024-06-25T14:10:42.450Z
+updated: 2024-06-26T14:10:42.450Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00d
 
 ## Facebook and Spotify Team up on Project Boombox
 
-[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
+[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by [CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
 
  Zuckerberg told CNBC that Spotify and Facebook are working on something that's known internally as "Project Boombox." According to the report, the feature will let you share your favorite songs, albums, artists, and playlists from within Facebook. The shared audio will then appear inside a music player in users' News Feeds, which users can click on to play.
 
- In a statement to[TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
+ In a statement to [TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
 
 > Our ambition has always been to make Spotify ubiquitous across platforms and devices—bringing music and podcasts to more people—and our new integration with Facebook is another step in these efforts. We look forward to a continued partnership with Facebook, fueling audio discovery around the world.
 
@@ -54,3 +54,24 @@ thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-rightly-suspended-trump-for-now/"><u>Social Media Sanctions: Rightly Suspended Trump for Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-get-back-into-your-facebook-profile/"><u>How to Quickly Get Back Into Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-fbs-hefty-bet-of-5-million-on-authorship-and-publishing-sector/"><u>A New Chapter: FB's Hefty Bet of $5 Million on Authorship & Publishing Sector</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disentangle-your-social-networks-instagram-and-facebook/"><u>How to Disentangle Your Social Networks (Instagram & Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-roll-out-sponsored-content-in-feeds/"><u>Social Networks Roll Out Sponsored Content in Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-self-the-art-of-changing-your-fb-photo/"><u>Unveiling a New Self: The Art of Changing Your FB Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-talk-on-ruses-discerning-genuine-from-fabricated/"><u>Real-Talk on Ruses: Discerning Genuine From Fabricated</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-transitioned-to-pure-renewable-power-source/"><u>FB Transitioned to Pure Renewable Power Source</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-smart-choices-curating-the-best-11-fee-exempt-sound-modification-applications-on-ios-and-android/"><u>Updated In 2024, Smart Choices Curating the Best 11 Fee-Exempt Sound Modification Applications on iOS and Android</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-updating-your-meet-name-easy-steps-for-pc-and-mobile/"><u>In 2024, Updating Your Meet Name  Easy Steps for PC & Mobile</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-ensuring-compliance-with-fb-messenger-call-records/"><u>[New] In 2024, Ensuring Compliance with FB Messenger Call Records</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-capture-and-share-the-ultimate-guide-to-ps4-screenshot-sharing/"><u>Updated In 2024, Capture and Share The Ultimate Guide to PS4 Screenshot Sharing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-nokia-c32-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Nokia C32</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-a-beginners-guide-to-creating-custom-linkedin-video-thumbnails-that-convert/"><u>New 2024 Approved A Beginners Guide to Creating Custom LinkedIn Video Thumbnails That Convert</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-increasing-your-youtube-traffic-with-100kplus-view-goals/"><u>2024 Approved  Increasing Your YouTube Traffic with 100K+ View Goals</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-single-file-soundscapes-uniting-diverse-audio-tracks-for-visuals-for-2024/"><u>Updated Single-File Soundscapes Uniting Diverse Audio Tracks for Visuals for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-samsung-galaxy-a05s-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Samsung Galaxy A05s without Them Knowing | Dr.fone</u></a></li>
+</ul></div>

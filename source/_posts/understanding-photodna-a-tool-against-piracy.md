@@ -1,7 +1,7 @@
 ---
 title: "Understanding PhotoDNA: A Tool Against Piracy"
-date: 2024-06-20 13:14:15
-updated: 2024-06-23 11:22:19
+date: 2024-06-25T14:23:45.942Z
+updated: 2024-06-26T14:23:45.942Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discover-disconnection-a-guide-to-living-offline/"><u>Discover Disconnection: A Guide to Living Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-the-difference-between-profile-and-username-ids/"><u>Clarifying the Difference Between Profile and Username IDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-virtual-space-with-your-facebook-portal-tv/"><u>Navigating the Virtual Space with Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-mastodon-really/"><u>What Is Mastodon Really?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-unraveled-how-to-know-its-online/"><u>FB Status Unraveled – How to Know It’s Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-dossiers-of-facebook-disclosures/"><u>Navigating Through the Dossiers of Facebook Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-listening-our-top-podcast-picks-for-22/"><u>Essential Listening: Our Top Podcast Picks for '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-games-and-networks-social-integration-on-xbox/"><u>Bridging Games and Networks: Social Integration on Xbox</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-selecting-the-ultimate-5-game-chat-devices/"><u>[New] Selecting the Ultimate 5 Game Chat Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-itel-p55plus-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Itel P55+ to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-unwatermark-your-tiktok-videos-top-online-removal-methods/"><u>2024 Approved Unwatermark Your TikTok Videos Top Online Removal Methods</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-render-your-social-media-footage/"><u>2024 Approved  Render Your Social Media Footage</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-control-video-tempo-in-camtasia-a-step-by-step-guide-for-2024/"><u>Updated Control Video Tempo in Camtasia A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-crafting-each-chapter-of-a-successful-podcast/"><u>[New] Crafting Each Chapter of a Successful Podcast</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-quick-and-easy-how-to-record-your-iphone-7-display/"><u>[Updated] In 2024, Quick & Easy  How to Record Your iPhone 7 Display</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-expert-free-fb-image-creator-no-fee/"><u>[Updated] 2024 Approved  Expert Free FB Image Creator (No Fee)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-new-dimensions-of-virtual-reality-with-htc-vive-review/"><u>2024 Approved  Explore New Dimensions of Virtual Reality with HTC Vive Review</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-oneplus-open-by-drfone-android/"><u>In 2024, How to Bypass FRP from OnePlus Open?</u></a></li>
+</ul></div>

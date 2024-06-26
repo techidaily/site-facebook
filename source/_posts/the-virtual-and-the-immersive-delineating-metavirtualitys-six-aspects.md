@@ -1,7 +1,7 @@
 ---
 title: "The Virtual and the Immersive: Delineating Metavirtuality's Six Aspects"
-date: 2024-06-22 22:54:53
-updated: 2024-06-23 12:54:30
+date: 2024-06-25T14:36:03.046Z
+updated: 2024-06-26T14:36:03.046Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  The term was originally used in the novel Snow Crash, originally published in 1992 by Neal Stephenson. In the novel, the metaverse is a virtual shared space that incorporates virtual reality, augmented reality, and the internet.
 
- The[idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
+ The [idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
 
  Rather than visiting websites using a browser, you will access information by navigating a virtual world with the option of using both virtual and augmented reality.
 
@@ -43,11 +43,11 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  The most notable difference between virtual reality and the metaverse is that while VR is now well understood, the metaverse really is not.
 
-[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent[Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
+[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent [Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
 
  These descriptions are pretty vague when compared to our understanding of virtual reality. It's also possible that even the tech companies themselves don't have a complete definition.
 
- According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has[an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
+ According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has [an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
 
  It's also possible to argue that the metaverse is nothing more than a buzzword to describe technological improvements in the existing internet.
 
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
  As the owner of Oculus Rift, Facebook plays an important role in the development of virtual reality. But at the same time, they are just one player in a massive industry.
 
- The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced[Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
+ The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced [Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
 
  This means that, like VR, the metaverse is going to be bigger than a single company.
 
@@ -118,3 +118,24 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-photodna-a-comparative-analysis-tool/"><u>Unveiling PhotoDNA: A Comparative Analysis Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-decision-delay-in-default-end-to-end-encryption/"><u>Understanding Meta’s Decision: Delay in Default End-to-End Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-verification-metas-gold-tier-badge/"><u>Invest in Verification: Metas Gold Tier Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-image-text-style-facebooks-revolutionary-ai-breakthrough/"><u>From Image, Text Style: Facebook's Revolutionary AI Breakthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-through-sonic-emojis-on-messenger/"><u>Journey Through Sonic Emojis on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-updated-list-the-premier-pc-vr-headsets-of-2023/"><u>2024 Approved  Updated List  The Premier PC VR Headsets of 2023</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-youtube-mp4-conversion-simplified-a-converter-selection-guide/"><u>2024 Approved YouTube MP4 Conversion Simplified A Converter Selection Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlocking-youtube-dominance-exploring-the-quintessential-five-tactics/"><u>2024 Approved  Unlocking YouTube Dominance - Exploring the Quintessential Five Tactics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mirrorless-vs-dslr-cameras-which-is-better-for-videos/"><u>[Updated] Mirrorless Vs. DSLR Cameras  Which Is Better for Videos?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/best-tools-to-track-popular-tags-on-fb-twt-and-ig-networks-for-2024/"><u>Best Tools to Track Popular Tags on FB, Twt & IG Networks for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-craft-of-loom-seamless-screen-recording-guide/"><u>The Craft of Loom  Seamless Screen Recording Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-take-your-youtube-clips-to-the-next-level-ultimate-editing-tips/"><u>2024 Approved  Take Your YouTube Clips to the Next Level  Ultimate Editing Tips</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-bypass-filmora-watermark-free-and-paid-workarounds/"><u>Updated In 2024, Bypass Filmora Watermark Free and Paid Workarounds</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-exciting-spectrum-of-tiktok-music-dance-and-humor/"><u>[Updated] In 2024, The Exciting Spectrum of TikTok  Music, Dance and Humor</u></a></li>
+</ul></div>

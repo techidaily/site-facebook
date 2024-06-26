@@ -1,7 +1,7 @@
 ---
 title: "Stopping FB Reel Views: A Step-by-Step Guide"
-date: 2024-06-20 14:35:24
-updated: 2024-06-23 11:59:20
+date: 2024-06-25T14:12:52.646Z
+updated: 2024-06-26T14:12:52.646Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/681aed17cbdddeac0350ff3fe9a9a1770d531416a
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/e2ee-for-fb-chatters-schedule-revealed-soon/"><u>E2EE for FB Chatters: Schedule Revealed Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-debate-over-digital-dissatisfaction-tools/"><u>The Debate Over Digital Dissatisfaction Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-planning-for-thoughtful-facebook-events/"><u>Step-by-Step Planning for Thoughtful Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-science-behind-a-break-from-online-life/"><u>Instagram Interruption: The Science Behind a Break From Online Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/preemptive-strike-against-potential-digital-intruders-on-fb/"><u>Preemptive Strike Against Potential Digital Intruders on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truth-facebook-data-reports-milder-impact/"><u>Unveiling Truth: Facebook Data Reports Milder Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-like-or-not-to-like/"><u>Social Media: To Like or Not to Like?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-abruptly-end-a-social-network-fellowship/"><u>How to Abruptly End a Social Network Fellowship</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-mistaken-loadout-on-tiktok-can-i-see-previous-selections-for-2024/"><u>[New] Mistaken Loadout on TikTok  Can I See Previous Selections for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-no-crack-required-how-to-use-filmora-absolutely-free-for-2024/"><u>New No Crack Required How to Use Filmora Absolutely Free for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-vivid-visuals-brighten-on-android/"><u>[Updated] In 2024, Vivid Visuals  Brighten on Android</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-boost-mobile-iphone-8-before-the-plan-expires-by-drfone-ios/"><u>In 2024, Unlock Your Boost Mobile iPhone 8 Before the Plan Expires</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sky-dominance-top-5-fpv-glasses-for-pilots/"><u>2024 Approved  Sky Dominance  Top 5 FPV Glasses for Pilots</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-feel-motivated-10-epic-movies-with-deep-impact/"><u>[New] Feel Motivated  10 Epic Movies with Deep Impact</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/pixels-in-perfection-tweeting-at-full-hd-quality/"><u>Pixels in Perfection  Tweeting at Full HD Quality</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-video-engagement-top-7-free-thumbnail-design-tools/"><u>[New] Elevate Video Engagement  Top 7 Free Thumbnail Design Tools</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-weve-done-some-extensive-research-on-what-some-consider-to-be-the-best-professional-video-editing-software-that-is-currently-free-download/"><u>New 2024 Approved Weve Done some Extensive Research on What some Consider to Be the Best Professional Video Editing Software that Is Currently Free Downloading on the Market, and Were Here to Present What Weve Manag</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-6-pro-rated-gopro-head-straps-and-mastering-usage/"><u>[Updated] In 2024, Top 6 Pro-Rated GoPro Head Straps & Mastering Usage</u></a></li>
+</ul></div>

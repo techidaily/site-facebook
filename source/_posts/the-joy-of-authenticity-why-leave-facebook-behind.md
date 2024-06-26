@@ -1,7 +1,7 @@
 ---
 title: "The Joy of Authenticity: Why Leave Facebook Behind"
-date: 2024-06-21 22:29:27
-updated: 2024-06-23 12:41:31
+date: 2024-06-25T14:34:02.964Z
+updated: 2024-06-26T14:34:02.964Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-## 1\. Facebook Tracks You Around the Web
+## 1\. Facebook Tracks You Around the Web ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
-![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
-
- Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
 
@@ -45,9 +43,7 @@ thumbnail: https://thmb.techidaily.com/549ca928829525c9c386345bc34f0e1c4ffcbb461
 
 Bottom line: Facebook sees you as a lab rat.
 
-## 3\. Fake News
-
-![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+## 3\. Fake News ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -55,7 +51,7 @@ Bottom line: Facebook sees you as a lab rat.
 
  However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
 
- But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that [Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
@@ -63,17 +59,15 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
 
- Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+ Here's a Zuckerberg quote from [The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
 
 > "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
 
  Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
 
- Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+ Facebook wants you to overlook settings, so it can use your data. If you want [a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-## 5\. Facebook Has Forgotten Its Roots
-
-![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+## 5\. Facebook Has Forgotten Its Roots ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
@@ -114,3 +108,24 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/deny-hidden-network-proposals-on-social-site/"><u>Deny Hidden Network Proposals on Social Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-wealth-wisely-how-meta-aids-in-the-art-of-monetizing-reels/"><u>Creating Wealth Wisely: How Meta Aids in the Art of Monetizing Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/meticulous-breakdown-of-metas-updated-privacy-statutes/"><u>Meticulous Breakdown of Meta's Updated Privacy Statutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-prominence/"><u>Harnessing Hashtags for Prominence</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-telegrams-rise-during-a-day-without-facebook/"><u>Dissecting Telegram’s Rise During a Day Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-motive-behind-facebooks-just-feed-change/"><u>Analyzing the Motive Behind Facebook's 'Just Feed' Change</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-ultimate-techniques-for-saving-discord-chats-in-real-time/"><u>[New] The Ultimate Techniques for Saving Discord Chats in Real-Time</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/rise-above-the-crowd-how-to-amass-over-a-million-video-views/"><u>Rise Above the Crowd  How to Amass Over a Million Video Views</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/this-easy-hack-using-wondershare-filmora-new-masking-feature-will-be-a-great-addition-to-your-next-horror-video-content/"><u>This Easy Hack Using Wondershare Filmora New Masking Feature Will Be a Great Addition to Your Next Horror Video Content</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-mastering-instagram-filter-techniques/"><u>2024 Approved  Mastering Instagram Filter Techniques</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-extract-and-save-fb-videos-the-cutting-edge-of-top-5/"><u>In 2024, Extract and Save FB Videos  The Cutting Edge of Top 5</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-11-pro-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme 11 Pro Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-investigating-the-financial-benefits-of-each-youtube-watcher/"><u>[New] Investigating the Financial Benefits of Each YouTube Watcher</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Realme C67 5G? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-honor-magic-v2-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Honor Magic V2 Screen | Dr.fone</u></a></li>
+</ul></div>

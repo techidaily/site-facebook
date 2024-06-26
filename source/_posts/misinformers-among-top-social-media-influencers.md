@@ -1,7 +1,7 @@
 ---
 title: Misinformers Among Top Social Media Influencers
-date: 2024-06-21 13:44:26
-updated: 2024-06-23 12:51:46
+date: 2024-06-25T14:10:58.263Z
+updated: 2024-06-26T14:10:58.263Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,27 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expanding-professional-horizons-through-targeted-client-engagement-on-fb/"><u>Expanding Professional Horizons Through Targeted Client Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-print-of-chat-formatting-highlights-and-caps/"><u>The Fine Print of Chat Formatting: Highlights & Caps</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-the-latest-privacy-tools-in-facebooks-comprehensively-redesigned-hub/"><u>Leverage the Latest Privacy Tools in Facebook’s Comprehensively Redesigned Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-pinpoint-friends-3-tagging-tactics-on-facebook/"><u>Efficiently Pinpoint Friends: 3 Tagging Tactics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-opt-for-dark-scheme-in-facebook/"><u>How to Opt for Dark Scheme in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-underlying-themes-in-fb-chatter/"><u>Decoding Underlying Themes in FB Chatter</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-fbs-shared-memories-together/"><u>Revisiting FB's Shared Memories Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-panic-fb-whatsapp-instagram-offline-today/"><u>Platform Panic: FB, WhatsApp, Instagram Offline Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-hidden-costs-and-benefits-of-using-facebook-for-multi-app-logins/"><u>Unpacking the Hidden Costs and Benefits of Using Facebook for Multi-App Logins</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-best-online-video-rotators-rotate-your-videos-with-ease/"><u>New In 2024, Best Online Video Rotators Rotate Your Videos with Ease</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-inspiring-visual-collages-a-kaleidoscope-for-the-soul/"><u>In 2024, Inspiring Visual Collages  A Kaleidoscope for the Soul</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-7-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 7 Space | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-thumbs-up-creating-your-own-google-image-mosaic/"><u>[New] Quick Thumbs Up  Creating Your Own Google Image Mosaic</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discovering-old-content-on-facebook-via-your-smartphonecomputer/"><u>[Updated] Discovering Old Content on Facebook via Your Smartphone/Computer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-honor-90-lite-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Honor 90 Lite</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-how-to-make-discord-logo-gif/"><u>New 2024 Approved How to Make Discord Logo GIF</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-apple-iphone-xs-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your Apple iPhone XS in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-windows-10-apps-and-games-to-explore-and-download-for-2024/"><u>[New] Windows 10 Apps and Games to Explore and Download for 2024</u></a></li>
+</ul></div>

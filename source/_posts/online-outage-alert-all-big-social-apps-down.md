@@ -1,7 +1,7 @@
 ---
 title: "Online Outage Alert: All Big Social Apps Down"
-date: 2024-06-22 22:42:38
-updated: 2024-06-23 12:41:51
+date: 2024-06-25T13:47:23.434Z
+updated: 2024-06-26T13:47:23.434Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/756e6cbc4b4a2e3ac30671657870528bb336d9b2f
 
 ## Online Outage Alert: All Big Social Apps Down
 
-**Update:** Facebook, WhatsApp, and Instagram are all now back online, with Facebook having resolved the issue after several hours of downtime. In[a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social networkexplained that the cause of the extended outage was "configuration changes on the backbone routers that coordinate network traffic between our data centers". This "had a cascading effect on the way our data centers communicate, bringing our services to a halt."
+**Update:** Facebook, WhatsApp, and Instagram are all now back online, with Facebook having resolved the issue after several hours of downtime. In [a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social networkexplained that the cause of the extended outage was "configuration changes on the backbone routers that coordinate network traffic between our data centers". This "had a cascading effect on the way our data centers communicate, bringing our services to a halt."
 
 **Original Story Follows...**
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/756e6cbc4b4a2e3ac30671657870528bb336d9b2f
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
- Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+ Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a [Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 ## When Will Facebook Come Back Online?
 
@@ -84,3 +84,22 @@ thumbnail: https://thmb.techidaily.com/756e6cbc4b4a2e3ac30671657870528bb336d9b2f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-breathes-easier-entire-energy-sourced-from-nature/"><u>FB Breathes Easier: Entire Energy Sourced From Nature</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-art-of-digital-etiquette-in-connection-requests/"><u>The Subtle Art of Digital Etiquette in Connection Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinvigorating-your-fb-profiles-digital-space/"><u>Reinvigorating Your FB Profile's Digital Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-news-streams-user-opinions-on-social-networking-sites/"><u>Reimagining News Streams: User Opinions on Social Networking Sites</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone 12 Pro Max</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comprehensive-study-hero4-black-mechanics-for-2024/"><u>Comprehensive Study  Hero4 Black Mechanics for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/preserve-audio-perfection-how-to-convert-video-to-mp3-with-no-quality-loss/"><u>Preserve Audio Perfection How to Convert Video to MP3 with No Quality Loss</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-mov-movies-content-on-motorola-g24-power-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can’t view MOV movies content on Motorola G24 Power</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-breakdown-of-streamlabs-obs-features-and-functions/"><u>2024 Approved  Breakdown of Streamlabs OBS Features and Functions</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-meme-formula-combining-humor-trendiness-and-viral-video-potential/"><u>2024 Approved  The Meme Formula  Combining Humor, Trendiness & Viral Video Potential</u></a></li>
+<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-samsung-galaxy-m34-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Samsung Galaxy M34 FRP</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-stream-your-webcam-in-real-time-using-vlc-software-for-2024/"><u>[New] Stream Your Webcam in Real Time Using VLC Software for 2024</u></a></li>
+</ul></div>

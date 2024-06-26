@@ -1,7 +1,7 @@
 ---
 title: "Maintaining Confidentiality: A Guide to Social Media Caution"
-date: 2024-06-20 15:36:44
-updated: 2024-06-23 10:51:16
+date: 2024-06-25T13:50:57.180Z
+updated: 2024-06-26T13:50:57.180Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans
-
-![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,11 +73,9 @@ thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8
 
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
- Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
+ Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice
-
-![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -87,13 +83,11 @@ thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests
-
-![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
- If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
+ If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called [social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
@@ -132,3 +126,22 @@ thumbnail: https://thmb.techidaily.com/a398f18ec0de1a37637c260e06464220af2d995e8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-multi-group-facebook-interaction/"><u>Navigating the Maze of Multi-Group Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-excising-extraneous-comments-in-fb-groups/"><u>Strategies for Excising Extraneous Comments in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-approach-to-resurrecting-lost-facebook-pins/"><u>Step-by-Step Approach to Resurrecting Lost Facebook Pins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebook-chat-emojis-and-glyphs/"><u>The Secret Language of Facebook Chat Emojis & Glyphs</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-perfection-designing-a-tailored-cover-photo-that-celebrates-you-and-your-avatar/"><u>Profile Perfection: Designing a Tailored Cover Photo that Celebrates You and Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fails-an-exploration-of-22/"><u>The Biggest Tech Fails: An Exploration of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-x100-pro-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo X100 Pro Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/full-assessment-macs-screenflow-studio-experience-for-2024/"><u>Full Assessment  Mac's ScreenFlow Studio Experience for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfectly-pivoted-videos-the-ultimate-android-editing-guide/"><u>[Updated] Perfectly Pivoted Videos  The Ultimate Android Editing Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-the-power-of-fisheye-photography-for-2024/"><u>Harnessing the Power of Fisheye Photography for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-perfect-playtime-footage-with-nvidia/"><u>[Updated] Perfect Playtime Footage with NVIDIA</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-2023s-must-watch-alternatives-to-top-films/"><u>[New] 2023'S Must-Watch Alternatives to Top Films</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-tips-and-tricks-for-efficient-use-of-steams-switch-controllers/"><u>In 2024, Tips & Tricks for Efficient Use of Steam’s Switch Controllers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-execute-flawless-wirecast-broadcasts-on-youtube/"><u>[New] 2024 Approved  How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
+</ul></div>

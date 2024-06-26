@@ -1,7 +1,7 @@
 ---
 title: "Blackout Blunder: Facebook's 6-Hour Disappearance"
-date: 2024-06-21 14:35:50
-updated: 2024-06-23 12:35:37
+date: 2024-06-25T14:41:47.150Z
+updated: 2024-06-26T14:41:47.150Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/880ddd263e214c3b4ae0eb5fd84c0b63be50232aa
 
 ## How Facebook Went Offline for Six Hours
 
- On October 4, 2021, users around the world noticed they were[having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
+ On October 4, 2021, users around the world noticed they were [having trouble accessing Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) . Some thought it was a wider internet outage, but it turned out to be an issue with Facebook itself, as all of its apps suddenly stopped working, causing a panic.
 
  Users were unable to use Facebook, WhatsApp, and Instagram for around six hours as everyone wondered what was causing the problem.
 
@@ -37,11 +37,11 @@ thumbnail: https://thmb.techidaily.com/880ddd263e214c3b4ae0eb5fd84c0b63be50232aa
 
  Facebook's platforms are now back up and running, and Facebook has since apologized and offered an explanation for the outage. The social media platform has blamed the outage on a "faulty configuration change."
 
- In[a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social network explained:
+ In [a post on Facebook Engineering](https://engineering.fb.com/2021/10/04/networking-traffic/outage/) , the social network explained:
 
 > Our engineering teams have learned that configuration changes on the backbone routers that coordinate network traffic between our data centers caused issues that interrupted this communication. This disruption to network traffic had a cascading effect on the way our data centers communicate, bringing our services to a halt.
 
- In[another post on Facebook Engineering](https://engineering.fb.com/2021/10/05/networking-traffic/outage-details/) , Santosh Janardhan, Facebook's VP of infrastructure, went into more detail about what happened and why. Janardhan confirms the source was "the system that manages our global backbone network capacity."
+ In [another post on Facebook Engineering](https://engineering.fb.com/2021/10/05/networking-traffic/outage-details/) , Santosh Janardhan, Facebook's VP of infrastructure, went into more detail about what happened and why. Janardhan confirms the source was "the system that manages our global backbone network capacity."
 
  In a nutshell, during a routine maintenance job, "a command was issued with the intention to assess the availability of global backbone capacity, which unintentionally took down all the connections in our backbone network, effectively disconnecting Facebook data centers globally."
 
@@ -70,3 +70,24 @@ thumbnail: https://thmb.techidaily.com/880ddd263e214c3b4ae0eb5fd84c0b63be50232aa
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/top-8-functionalities-of-facebook-for-effective-team-collaboration/"><u>Top 8 Functionalities of Facebook for Effective Team Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-forward-in-securing-online-communications-newly-launched-end-to-end-encrypted-features-on-facebook-platforms/"><u>A Step Forward in Securing Online Communications: Newly Launched End-to-End Encrypted Features on Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-survival-scenarios-post-fb-demise/"><u>Data Survival Scenarios Post-FB Demise</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-device-chatting-on-whatsapp-facebooks-plan-revealed/"><u>Cross-Device Chatting on WhatsApp: Facebook's Plan Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-the-hate-for-universal-network-engagement-platforms/"><u>Sifting Through the Hate for Universal Network Engagement Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-boost-clicks-and-conversions-the-top-15-powerful-tools-for-fb-data-analysis/"><u>[New] Boost Clicks & Conversions  The Top 15 Powerful Tools for FB Data Analysis</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-mastery-in-making-stunning-discord-pfps-with-minimal-effort/"><u>In 2024, Mastery in Making Stunning Discord Pfps with Minimal Effort</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-bring-back-the-80s-best-vhs-effect-apps-for-iphone-and-android-devices-for-2024/"><u>New Bring Back the 80S Best VHS Effect Apps for iPhone and Android Devices for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-hasty-techniques-for-removing-speech-from-audio-files-with-audacity/"><u>Updated In 2024, Hasty Techniques for Removing Speech From Audio Files with Audacity</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-cutting-edge-mp3-editing-solutions-for-mac-a-comprehensive-review-of-leading-cutter-tools-for-2024/"><u>New Cutting-Edge MP3 Editing Solutions for Mac A Comprehensive Review of Leading Cutter Tools for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-media-windows-elite-video-playback-choices/"><u>Mastering Media  Window's Elite Video Playback Choices</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-mastering-silence-effective-video-noise-reduction-techniques-in-adobe-premiere-pro/"><u>New In 2024, Mastering Silence Effective Video Noise Reduction Techniques in Adobe Premiere Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Lava Blaze Pro 5G | Dr.fone</u></a></li>
+</ul></div>

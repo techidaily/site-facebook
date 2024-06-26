@@ -1,7 +1,7 @@
 ---
 title: "New Developments: Facebook May Unbundle Giphy"
-date: 2024-06-20 10:47:28
-updated: 2024-06-23 11:47:53
+date: 2024-06-25T14:02:57.510Z
+updated: 2024-06-26T14:02:57.510Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/bd1f3164b21938808543fb77a181f9a976b01572c
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
-## Meta's Appeal to Keep Giphy
-
-![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+## Meta's Appeal to Keep Giphy ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -47,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/bd1f3164b21938808543fb77a181f9a976b01572c
 
  Meta claims that its powerful infrastructure, talent, and resources are crucial to Giphy's overall growth and capacity to improve its services. With its support, Meta grounds its appeal on its ability to serve everyone, including its competitors, by developing Giphy to its full potential.
 
- Unfortunately, the investigation has not been going smoothly for Meta. According to a[press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
+ Unfortunately, the investigation has not been going smoothly for Meta. According to a [press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
 
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
@@ -74,3 +72,26 @@ thumbnail: https://thmb.techidaily.com/bd1f3164b21938808543fb77a181f9a976b01572c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/telegrams-stellar-performance-amidst-a-social-media-pause/"><u>Telegram's Stellar Performance Amidst a Social Media Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-hidden-facebook-accounts/"><u>Tactical Approaches to Hidden Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-market-presence-with-best-biz-centric-networks/"><u>Maximizing Market Presence with Best Biz-Centric Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-spotifys-link-with-facebook/"><u>How To Clear Spotify's Link With Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-economics-of-music-sharing-on-facebook/"><u>Unveiling The Economics of Music Sharing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-4-trends-impacting-facebook-users/"><u>Examining 4 Trends Impacting Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-of-promotional-marketing-deciphering-the-role-of-hashtags-on-fb/"><u>The Puzzle of Promotional Marketing: Deciphering the Role of #Hashtags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discourse-decoded-learn-the-top-30-abbreviations-in-social-media/"><u>Digital Discourse Decoded: Learn the Top 30 Abbreviations in Social Media</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-7-plus-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone 7 Plus Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/do-you-want-to-know-how-to-freeze-video-check-this-article-and-find-the-easiest-way-to-freeze-frame-of-your-video/"><u>Do You Want to Know How to Freeze Video? Check This Article and Find the Easiest Way to Freeze Frame of Your Video</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-8-best-youtube-video-promotion-services-real/"><u>[New] 2024 Approved  8 Best YouTube Video Promotion Services (Real)</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-learn-to-make-an-emotional-video-with-photos-and-music/"><u>Updated In 2024, Learn to Make an Emotional Video with Photos and Music</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-9-secrets-to-unlocking-the-full-potential-of-window-11/"><u>[Updated] 9 Secrets to Unlocking the Full Potential of WINDOW 11</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-apple-iphone-13-video-to-computer-drfone-by-drfone-ios/"><u>In 2024, How to Stream Apple iPhone 13 Video to Computer? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-tecno-pova-6-pro-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Tecno Pova 6 Pro 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-nord-3-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Nord 3 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-unlock-the-ultimate-windows-screen-snip-list-1-5/"><u>[New] 2024 Approved  Unlock the Ultimate Windows Screen Snip List, #1-5</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signatures-for-wpd-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signatures for .wpd file</u></a></li>
+</ul></div>

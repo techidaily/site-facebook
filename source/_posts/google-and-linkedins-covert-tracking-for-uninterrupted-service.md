@@ -1,7 +1,7 @@
 ---
 title: Google and LinkedIn's Covert Tracking for Uninterrupted Service
-date: 2024-06-21 18:49:39
-updated: 2024-06-23 12:30:57
+date: 2024-06-25T14:22:19.941Z
+updated: 2024-06-26T14:22:19.941Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
 
  In continued pushback against Apple's iOS 14 privacy updates, the iOS apps for Facebook and Instagram have added a new notice. The pop-ups are near identical on both platforms, saying that the company (Facebook owns Instagram) uses info on your activity to help keep the app(s) "free of charge."
 
- Facebook made a[blog post](https://about.fb.com/news/2020/12/speaking-up-for-small-businesses/) in mid-December 2020 about how it was taking a stand for small businesses, arguing the Apple's new policies "force businesses to turn to subscriptions and other in-app payments for revenue."
+ Facebook made a [blog post](https://about.fb.com/news/2020/12/speaking-up-for-small-businesses/) in mid-December 2020 about how it was taking a stand for small businesses, arguing the Apple's new policies "force businesses to turn to subscriptions and other in-app payments for revenue."
 
  In February, that post was updated with a mockup of the Facebook notification that appeared before Apple's security prompt. At the end of April,[the post was updated a second time, with what seems to be a redesign](https://www.makeuseof.com/facebook-wants-ios-users-allow-activity-tracking-permissions/) and preview for Instagram, as well.
 
@@ -58,3 +58,22 @@ thumbnail: https://thmb.techidaily.com/b60c76ffc589ae0e04ed8d9626d309109b105480c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-media-squashed-3-foreign-lands-without-it/"><u>Social Media Squashed: 3 Foreign Lands Without It</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-aggressive-stance-against-eus-facebook-insta/"><u>Understanding Meta's Aggressive Stance Against EU’s Facebook, Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-freely-on-facebooks-data-management/"><u>Who Spoke Freely on Facebook’s Data Management?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-event-creation-a-step-by-step-guide/"><u>Mastering FB Event Creation: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-wipe-out-your-virtual-trail-on-facebook/"><u>How to Wipe Out Your Virtual Trail on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-ally-facebook-aids-rust-growth/"><u>Social Media's New Ally: Facebook Aids Rust Growth</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-navigating-video-production-with-captivate/"><u>[New] Navigating Video Production with Captivate</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-oneplus-ace-3-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From OnePlus Ace 3 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/discover-8-premium-filters-to-upgrade-your-cam-feeds/"><u>Discover 8 Premium Filters to Upgrade Your Cam Feeds</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweetbite-download-twitter-vids-with-mobile-app-for-2024/"><u>[Updated] TweetBite  Download Twitter Vids with Mobile App for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-capture-and-save-windows-screen-shots-made-simple/"><u>[New] 2024 Approved  Capture and Save  Windows Screen Shots Made Simple</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-breaking-the-monotony-infusing-novelty-in-ppt-voiceovers/"><u>[Updated] 2024 Approved  Breaking the Monotony  Infusing Novelty in PPT Voiceovers</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-mastering-personalized-emojis-in-discord-pcmobile-tips-for-2024/"><u>[Updated] Mastering Personalized Emojis in Discord  PC/Mobile Tips for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-expert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
+</ul></div>

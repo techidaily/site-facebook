@@ -1,7 +1,7 @@
 ---
 title: Is the Social Giant Reaching Its Limits?
-date: 2024-06-22 16:49:30
-updated: 2024-06-23 10:20:22
+date: 2024-06-25T14:49:31.517Z
+updated: 2024-06-26T14:49:31.517Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/fa14c75d8130ba0e60c04982be06f0a527e7ccaf3
 
 ## Facebook Is Losing Users
 
- Facebook is losing users for the first time ever. According to[Meta's press release](http://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/default.aspx) , Facebook had 1.929 billion daily active users in the fourth quarter of 2021, compared to 1.93 billion in the previous quarter, suggesting that people are ditching Facebook.
+ Facebook is losing users for the first time ever. According to [Meta's press release](http://investor.fb.com/investor-news/press-release-details/2022/Meta-Reports-Fourth-Quarter-and-Full-Year-2021-Results/default.aspx) , Facebook had 1.929 billion daily active users in the fourth quarter of 2021, compared to 1.93 billion in the previous quarter, suggesting that people are ditching Facebook.
 
  As for monthly active users, Facebook had 2.91 billion in the fourth quarter of 2021\. Facebook notes that these figures are for its Family of Apps, which includes Facebook, Instagram, Messenger, WhatsApp, as well as other services.
 
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/fa14c75d8130ba0e60c04982be06f0a527e7ccaf3
 
  Recently, there has been a rising demand for visual content, especially video. While Facebook has video features, it just isn't cutting it in the bigger scheme of things and in a world where the likes of TikTok and YouTube—two platforms with both short– and long-form video—exist.
 
- It explains why YouTube is the second most-used social media platform currently. According to[Statista](https://www.statista.com/statistics/272014/global-social-networks-ranked-by-number-of-users/) , the platform had nearly 2.3 billion active users as of October 2021, with TikTok trailing behind Meta's Family of Apps with one billion active users. Although Facebook has adapted with video content features, it isn't primarily a video-focused platform, and maybe it is beginning to pay for it.
+ It explains why YouTube is the second most-used social media platform currently. According to [Statista](https://www.statista.com/statistics/272014/global-social-networks-ranked-by-number-of-users/) , the platform had nearly 2.3 billion active users as of October 2021, with TikTok trailing behind Meta's Family of Apps with one billion active users. Although Facebook has adapted with video content features, it isn't primarily a video-focused platform, and maybe it is beginning to pay for it.
 
  Lastly, Meta's push towards the metaverse could also very well be the reason Facebook's user base has started to deteriorate. People are more interested to see what the company has to offer next rather than sticking to a product that's likely past its prime.
 
@@ -72,3 +72,24 @@ thumbnail: https://thmb.techidaily.com/fa14c75d8130ba0e60c04982be06f0a527e7ccaf3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailored-teardown-customizing-the-deletion-of-your-facebook-profile/"><u>Tailored Teardown: Customizing the Deletion of Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-brings-the-end-of-instas-thoughtful-threads/"><u>December Brings the End of Insta's Thoughtful Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-fake-profiles-on-facebook/"><u>How to Spot Fake Profiles on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-personal-brand-reformation-on-social-media/"><u>Unveiling the Secrets to Personal Brand Reformation on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rated-poorly-a-decade-of-pal-activist-campaigns/"><u>Facebook Rated Poorly: A Decade of Pal-Activist Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-confidentiality-a-guide-to-social-media-caution/"><u>Maintaining Confidentiality: A Guide to Social Media Caution</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-7-plus-drfone-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unpacking-obss-full-spectrum-of-video-capturing-tools-for-2024/"><u>[New] Unpacking OBS's Full Spectrum of Video Capturing Tools for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-find-dog-sound-effects/"><u>2024 Approved Find Dog Sound Effects</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-enhancing-visual-storytelling-with-impeccable-voice-over/"><u>[New] Enhancing Visual Storytelling with Impeccable Voice Over</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-best-10-shopping-sites-to-customize-your-gift-boxes-for-2024/"><u>[New] Best 10 Shopping Sites to Customize Your Gift Boxes for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-crafting-winning-giveaway-posts-on-facebook/"><u>[New] The Art of Crafting Winning Giveaway Posts on Facebook</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-navigating-slack-filmo-coordination-for-seamless-meetings-for-2024/"><u>[New] Navigating Slack-Filmo Coordination for Seamless Meetings for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-app-on-honor-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Recover Deleted Photos from Android Gallery App on Honor</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Honor 90 GT | Dr.fone</u></a></li>
+</ul></div>

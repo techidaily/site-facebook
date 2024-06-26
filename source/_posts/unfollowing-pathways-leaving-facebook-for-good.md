@@ -1,7 +1,7 @@
 ---
 title: "Unfollowing Pathways: Leaving Facebook for Good"
-date: 2024-06-20 16:42:43
-updated: 2024-06-23 10:38:47
+date: 2024-06-25T14:34:06.012Z
+updated: 2024-06-26T14:34:06.012Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
- Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+ Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
 ### No Notifications
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
- Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
 ## How to Deactivate Your Facebook Account
 
@@ -75,7 +75,7 @@ Close
 4. From**Account** , go to**Personal and account information** .
 5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
 
-1. Select**Deactivation and Deletion** to choose between both. There is a difference between[deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between [deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
 2. Tap**Continue to Account Deactivation** .
 3. Re-enter your Facebook password and press**Continue** .
 4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
@@ -84,11 +84,11 @@ Close
 7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
 8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
 
-**Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+**Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
 ### Via Desktop
 
- To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
+ To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
 
 1. After logging in, you will be directed to your Facebook Home page.
 2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
@@ -140,3 +140,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-dating-transformed-the-future-of-relationships/"><u>Facebook Dating Transformed: The Future of Relationships?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-brings-ads-to-reels-and-facebook-tests-sticker-ads-for-stories/"><u>Instagram Brings Ads to Reels and Facebook Tests Sticker Ads for Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-our-networked-world-with-six-key-advantages-of-facebook/"><u>Navigating Our Networked World with Six Key Advantages of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-logging-you-out-randomly-7-ways-to-fix-it/"><u>Facebook Logging You Out Randomly? 7 Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networking-diving-into-facebooks-metaverse-concept/"><u>Beyond Social Networking: Diving Into Facebook's Metaverse Concept</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prime-10-live-streaming-networks-revealed-and-compared/"><u>[New] Prime 10 Live Streaming Networks Revealed and Compared</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-getting-started-with-periscope-is-it-free-sign-up-process/"><u>2024 Approved  Getting Started with Periscope  Is It Free? Sign-Up Process</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-add-music-to-facebook-story/"><u>In 2024, How to Add Music to Facebook Story?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/rapid-fire-success-strategies-the-essential-list-of-20-video-tips-for-2024/"><u>Rapid-Fire Success Strategies  The Essential List of 20 Video Tips for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-smart-7-hd-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Infinix Smart 7 HD Photos  An Easy Method Explained.</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/pivot-your-playlists-with-these-straightforward-tricks/"><u>Pivot Your Playlists with These Straightforward Tricks</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-tecno-camon-20-premier-5g-by-drfone-android/"><u>How to Bypass FRP on Tecno Camon 20 Premier 5G?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-oppo-k11-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Oppo K11 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+</ul></div>

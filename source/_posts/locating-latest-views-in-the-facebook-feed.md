@@ -1,7 +1,7 @@
 ---
 title: Locating Latest Views in the Facebook Feed
-date: 2024-06-22 11:28:26
-updated: 2024-06-23 10:16:52
+date: 2024-06-25T14:07:26.146Z
+updated: 2024-06-26T14:07:26.146Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/37f0c7d85b74086e02697b065e94b8850d62fdad3
 
 ## How to View Recently Watched Facebook Videos on the Web
 
- Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
+ Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to [find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
 
  Here's how to access Facebook's Activity log section on the web and view your recently watched videos:
 
@@ -107,3 +107,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/activating-facebooks-secure-measures-a-step-by-step-guide/"><u>Activating Facebook's Secure Measures: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-wall-reasons-for-fb-disabling/"><u>The Invisible Wall: Reasons for FB Disabling</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ever-relevant-platform-6-continuous-uses-of-facebook-to-note/"><u>The Ever-Relevant Platform: 6 Continuous Uses of Facebook to Note</u></a></li>
+<li><a href="https://facebook.techidaily.com/last-login-tips-what-to-consider-when-bidding-farewell-to-fb/"><u>Last Login Tips: What to Consider When Bidding Farewell to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-ray-ban-stories-and-its-price-range/"><u>Understanding Facebook's Ray-Ban Stories and Its Price Range</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-describing-images-on-facebook/"><u>Guidelines for Describing Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-administrators-with-next-gen-social-network-tools/"><u>Empowering Administrators with Next-Gen Social Network Tools</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-explore-the-top-8-daws-optimized-for-chrome-os-users-in-the-music-industry/"><u>New 2024 Approved Explore the Top 8 DAWs Optimized for Chrome OS Users in the Music Industry</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-12-essential-recorder-tools-free-and-clean-for-2024/"><u>[Updated] 12 Essential Recorder Tools  Free & Clean for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-motorola-moto-e13-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Motorola Moto E13? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/becoming-a-reaction-guru-a-complete-guidebook-for-2024/"><u>Becoming a Reaction Guru  A Complete Guidebook for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/streamline-live-tv-capture-in-windows-free-methods/"><u>Streamline Live TV Capture in Windows (Free Methods)</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-in-2024-detailed-review-and-alternatives-of-vocaloid6-voice-generator/"><u>Updated In 2024, Detailed Review & Alternatives of VOCALOID6 Voice Generator</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-discover-the-art-of-bokeh-best-mobile-editing-apps/"><u>Updated 2024 Approved Discover the Art of Bokeh Best Mobile Editing Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-insiders-tips-on-conveniently-setting-up-google-meet/"><u>The Insider's Tips on Conveniently Setting Up Google Meet</u></a></li>
+</ul></div>

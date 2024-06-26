@@ -1,7 +1,7 @@
 ---
 title: "Public Mistrust Rises: Big Tech Companies Under Fire Especially Facebook"
-date: 2024-06-22 22:48:44
-updated: 2024-06-23 12:47:12
+date: 2024-06-25T14:18:13.753Z
+updated: 2024-06-26T14:18:13.753Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/9f7aaa7e93668c79f588e2bdc07bd0199fd9952e2
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,24 @@ thumbnail: https://thmb.techidaily.com/9f7aaa7e93668c79f588e2bdc07bd0199fd9952e2
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/9-reasons-why-social-media-is-actually-good-for-you/"><u>9 Reasons Why Social Media Is Actually Good for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-glances-the-ultimate-fb-privacy-guide/"><u>Eliminating Unwanted Glances: The Ultimate FB Privacy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogue-management-leveraging-facebooks-latest-enhancements-for-groups/"><u>Digital Dialogue Management: Leveraging Facebook's Latest Enhancements for Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-common-marketsploits-on-facebook-preventative-measures/"><u>Unmasking Common Marketsploits on Facebook: Preventative Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaching-privacy-boundaries-safely/"><u>Breaching Privacy Boundaries Safely</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-solitude-6-reasons-to-abandon-facebook/"><u>The Power of Solitude - 6 Reasons to Abandon Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-advanced-techniques-for-capturing-presentations/"><u>In 2024, Advanced Techniques for Capturing Presentations</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-on-apple-iphone-12-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID On Apple iPhone 12 without Password?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-fps-titans-ranking-gamings-elite-shooters/"><u>[New] 2024 Approved  FPS Titans  Ranking Gaming's Elite Shooters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-superior-webcams-revolutionizing-podcast-recording/"><u>[Updated] Superior Webcams Revolutionizing Podcast Recording</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/serendipity-in-a-snapshot-top-10-chill-playtime-for-2024/"><u>Serendipity in a Snapshot  Top 10 Chill Playtime for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-joining-google-meet-easily-anytime-anywhere/"><u>[Updated] In 2024, Joining Google Meet Easily, Anytime, Anywhere</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/bridging-language-barriers-adding-subtitles-to-windows-media-player/"><u>Bridging Language Barriers  Adding Subtitles to Windows Media Player</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-audible-riches-from-social-media-videos-fb-to-mp3-guide/"><u>[New] In 2024, Audible Riches From Social Media Videos - FB To MP3 Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-end-screen-creation-made-simple-free-templates-and-guides/"><u>[New] End Screen Creation Made Simple - Free Templates & Guides</u></a></li>
+</ul></div>

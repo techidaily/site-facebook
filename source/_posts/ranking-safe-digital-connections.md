@@ -1,7 +1,7 @@
 ---
 title: Ranking Safe Digital Connections
-date: 2024-06-21 10:25:14
-updated: 2024-06-23 12:56:55
+date: 2024-06-25T13:54:53.023Z
+updated: 2024-06-26T13:54:53.023Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,13 @@ thumbnail: https://thmb.techidaily.com/5cabd8afae51f2d610c40e7b3e5f30c80fd0a554c
 
 ## How Safe Is TikTok?
 
- According to a[Statista study](https://www.statista.com/statistics/1327116/number-of-global-tiktok-users/) , the number of global TikTok users almost doubled between 2020 and 2023, soaring from 465.7 million to 834.3 million, making it a hugely popular app.
+ According to a [Statista study](https://www.statista.com/statistics/1327116/number-of-global-tiktok-users/) , the number of global TikTok users almost doubled between 2020 and 2023, soaring from 465.7 million to 834.3 million, making it a hugely popular app.
 
  But in many nations, particularly the US,[TikTok has been criticized for various reasons](https://www.makeuseof.com/is-tiktok-dangerous/) . During Trump's presidential term, the threat of TikTok being outright banned was very real. But what's the issue here? Should you be worried?
 
  A key concern surrounding TikTok is its collection and use of customer data. If you're on TikTok, chances are you've provided a fair amount of personal information, such as your email address and phone number. TikTok's use of tracking pixels, which track users' online activity, its various software vulnerabilities, and its relationships with other companies have all dragged the company into hot water in the past.
 
- For instance,[The Guardian](https://www.theguardian.com/technology/2022/jul/19/tiktok-has-been-accused-of-aggressive-data-harvesting-is-your-information-at-risk) published a story in mid-2022 about allegations that were made against TikTok's data collection. Cybersecurity experts had warned Australian TikTok users of the app's "excessive" collection of data, which was explained more thoroughly in an[internet 2.0 report](https://internet2-0.com/whitepaper/its-their-word-against-their-source-code-tiktok-report/) . Additionally,[ABC News](https://abcnews.go.com/Business/tiktok-data-app-report/story?id=97913249) revealed that TikTok can continue collecting your data even after you've deleted the app.
+ For instance,[The Guardian](https://www.theguardian.com/technology/2022/jul/19/tiktok-has-been-accused-of-aggressive-data-harvesting-is-your-information-at-risk) published a story in mid-2022 about allegations that were made against TikTok's data collection. Cybersecurity experts had warned Australian TikTok users of the app's "excessive" collection of data, which was explained more thoroughly in an [internet 2.0 report](https://internet2-0.com/whitepaper/its-their-word-against-their-source-code-tiktok-report/) . Additionally,[ABC News](https://abcnews.go.com/Business/tiktok-data-app-report/story?id=97913249) revealed that TikTok can continue collecting your data even after you've deleted the app.
 
  The TikTok app has a number of security vulnerabilities, which cybercriminals can use to exploit users and hack accounts. TikTok's use of HTTP instead of HTTPS to deliver users video content has also been made a point of concern.
 
@@ -45,7 +45,7 @@ You can further report content that you think is inappropriate.
 
  In April 2018, Facebook CEO Mark Zuckerberg appeared at a US Senate hearing to give information on the company's privacy policies and overall business structure. This hearing made worldwide news, with many wondering how Facebook treats users' privacy and security. You may have seen the hearing itself, wherein Zuckerberg is asked some tough questions surrounding the value of and respect given to user privacy.
 
- But this hearing was just one small part of Facebook's history with security and privacy issues. Facebook has found itself in a number of lawsuits for various reasons, such as data sharing, data collection, breaches, and bugs. According to[Statista](https://www.statista.com/statistics/264810/number-of-monthly-active-facebook-users-worldwide/) , Facebook had almost three billion active users in the first quarter of 2023, so it's no surprise that the platform is under a microscope around the clock.
+ But this hearing was just one small part of Facebook's history with security and privacy issues. Facebook has found itself in a number of lawsuits for various reasons, such as data sharing, data collection, breaches, and bugs. According to [Statista](https://www.statista.com/statistics/264810/number-of-monthly-active-facebook-users-worldwide/) , Facebook had almost three billion active users in the first quarter of 2023, so it's no surprise that the platform is under a microscope around the clock.
 
  Among Facebook's past security and privacy scandals are a security breach class-action lawsuit in 2018, an unauthorized photo-tagging lawsuit in 2021, and a user exploitation lawsuit in 2022\. These continuous legal disputes have put Facebook's trustworthiness into limbo, and should certainly be kept in mind if you use this social network.
 
@@ -66,7 +66,7 @@ You can further report content that you think is inappropriate.
 
  While Instagram began as an independent social media app, it was bought by Meta (then known as Facebook) in 2012.
 
- Instagram has fallen victim to a number of cyberattacks in the past. In 2017, for example, an Instagram bug was exploited, which led to the leak of millions of users' phone numbers. According to an article by[The Verge](https://www.theverge.com/2017/9/1/16244304/instagram-hack-api-bug-doxagram-selena-gomez) , the bug gave hackers access to millions of email addresses and phone numbers, which were then put up for sale.
+ Instagram has fallen victim to a number of cyberattacks in the past. In 2017, for example, an Instagram bug was exploited, which led to the leak of millions of users' phone numbers. According to an article by [The Verge](https://www.theverge.com/2017/9/1/16244304/instagram-hack-api-bug-doxagram-selena-gomez) , the bug gave hackers access to millions of email addresses and phone numbers, which were then put up for sale.
 
  Another alarming story cropped up in June 2023, which suggested that Instagram isn't very safe for children.
 
@@ -74,7 +74,7 @@ You can further report content that you think is inappropriate.
 
  What's particularly concerning here is that the Instagram app itself was helping to connect and promote these nefarious individuals using its recommendation systems. Instagram tries to cater to your interests by suggesting more of the content you regularly consume. In this case, people were being recommended underage content by Instagram, as well as accounts that post such things, making it that much easier to access this kind of media.
 
- If you have a child or underage relative who uses Instagram, it's vital that you try to employ all the security features you can to protect them. Instagram also offers a[guide for parents with teens on Instagram](https://about.instagram.com/community/parents) , which can help your further understand what measures should be taken.
+ If you have a child or underage relative who uses Instagram, it's vital that you try to employ all the security features you can to protect them. Instagram also offers a [guide for parents with teens on Instagram](https://about.instagram.com/community/parents) , which can help your further understand what measures should be taken.
 
  But whether you're a child or adult, it's always important to stay safe. So, what can Instagram offer here?
 
@@ -111,7 +111,7 @@ In terms of security, here are the features offered by Twitter:
 
  Snapchat gives you the option of saving the photos you send to your device's camera roll, but there's also an in-app gallery that your media is always saved to once sent. This is known as Snapchat Memories. Your Snapchat Memories aren't viewable to other users unless you choose to share a specific photo or video. However, Snapchat uses its own cloud storage solutions to hold your memories until you manually delete them.
 
- According to[Vox](https://www.vox.com/2017/3/1/14661126/snap-snapchat-ipo-spending-2-billion-google-cloud) , it is thought that Snapchat may use Google's cloud services to store certain kinds of data, though it is not known for sure where Memories content is stored and who by.
+ According to [Vox](https://www.vox.com/2017/3/1/14661126/snap-snapchat-ipo-spending-2-billion-google-cloud) , it is thought that Snapchat may use Google's cloud services to store certain kinds of data, though it is not known for sure where Memories content is stored and who by.
 
  But even if you don't use Memories, Snapchat will store any data you send in its servers until it expires or is opened by all recipients.[Snapchat's privacy policy](https://www.snap.com/en-US/privacy/privacy-policy/2021-08-27) states:
 
@@ -147,3 +147,26 @@ When it comes to security features, Snapchat offers the following:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-our-favorite-online-spaces/"><u>Explore Our Favorite Online Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-understanding-the-metamate-identity/"><u>Social Sphere Shift: Understanding the Metamate Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-benefits-of-creating-a-facebook-group/"><u>6 Benefits of Creating a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-unwanted-personalized-promos-in-social-networks/"><u>Navigate Through Unwanted Personalized Promos in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-and-linkedins-covert-tracking-for-uninterrupted-service/"><u>Google and LinkedIn's Covert Tracking for Uninterrupted Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-user-experience-layouts/"><u>Facebook Unveils Enhanced User Experience Layouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-do-a-privacy-check-for-your-teens-facebook-account/"><u>How to Do a Privacy Check for Your Teen's Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networkers-shield-against-scams/"><u>The Social Networker’s Shield Against Scams</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/effortless-complimentary-mac-recorder/"><u>Effortless, Complimentary Mac Recorder</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-best-iphoneandroid-photo-background-subtraction/"><u>2024 Approved  Best iPhone/Android Photo Background Subtraction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-superior-streams-with-av1-activate-on-youtube/"><u>[Updated] 2024 Approved  Superior Streams with AV1  Activate on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-visual-storytelling-on-instagram/"><u>In 2024, Mastering Visual Storytelling on Instagram</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-realme-v30t-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-engaging-audiences-via-vo-enhanced-slideshows/"><u>[Updated] Engaging Audiences via VO-Enhanced Slideshows</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-zero-to-hundred-hundreders-yt-success-story/"><u>2024 Approved  From Zero to Hundred Hundreders  YT Success Story</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-income-101-from-ideas-to-earnings-in-action/"><u>In 2024, YouTube Income 101  From Ideas to Earnings in Action</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/easily-blur-photo-backgrounds-with-these-free-online-tools/"><u>Easily Blur Photo Backgrounds with These Free Online Tools</u></a></li>
+</ul></div>

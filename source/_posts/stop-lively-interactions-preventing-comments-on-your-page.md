@@ -1,7 +1,7 @@
 ---
 title: "Stop Lively Interactions: Preventing Comments on Your Page"
-date: 2024-06-21 23:40:56
-updated: 2024-06-23 11:25:15
+date: 2024-06-25T14:41:26.490Z
+updated: 2024-06-26T14:41:26.490Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/express-your-preferred-social-platform/"><u>Express Your Preferred Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/netizens-network-8-strategies-to-merge-lives-digitally/"><u>Netizen's Network: 8 Strategies to Merge Lives Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-interaction-on-fb/"><u>Maximizing Audience Interaction on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-fb-login-without-codes-a-step-by-step-guide/"><u>Regaining FB Login Without Codes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-optimal-social-media-imagery/"><u>Unveiling Secrets to Optimal Social Media Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-non-playing-vids-quick-fixes-for-facebook-issues/"><u>Halt Non-Playing Vids: Quick Fixes for Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-majority-of-covid-myths-link-to-12-influencers/"><u>The Majority of Covid Myths Link to 12 Influencers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-shrouded-screen-images-techniques-for-redacting-info-for-2024/"><u>[New] Shrouded Screen Images  Techniques for Redacting Info for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-boost-your-creativity-on-instagram-with-free-filters/"><u>[Updated] Boost Your Creativity on Instagram with Free Filters</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-use-phone-clone-to-migrate-your-sony-xperia-1-v-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Use Phone Clone to Migrate Your Sony Xperia 1 V Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-journey-towards-facebooks-premium-verified-emblem/"><u>2024 Approved  Journey Towards Facebook's Premium Verified Emblem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimal-video-sharing-experience-decide-between-tiktok-and-youtubes-shorts/"><u>[New] Optimal Video-Sharing Experience  Decide Between TikTok & YouTubes' Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevating-engagement-professional-tips-for-youtube-video-tweaks/"><u>2024 Approved  Elevating Engagement  Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-motorola-moto-g-stylus-5g-2023-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Motorola Moto G Stylus 5G (2023) Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-15-pro-max-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock iPhone 15 Pro Max Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-y27-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo Y27 5G Phone</u></a></li>
+</ul></div>

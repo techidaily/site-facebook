@@ -1,7 +1,7 @@
 ---
 title: "Avoid Facebook's Link Tracking: The Hidden Costs"
-date: 2024-06-21 23:34:59
-updated: 2024-06-23 12:58:36
+date: 2024-06-25T14:42:44.128Z
+updated: 2024-06-26T14:42:44.128Z
 tags:
   - facebook
 categories:
@@ -30,7 +30,7 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 
 ## How Facebook's Link History Feature Works
 
- Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
+ Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in [web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
 
  The feature isn't enabled by default, and at the time of writing, you need to opt in to take advantage of it. But if you do opt in, you should be aware of what that means.
 
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 
 ## How to Check if You've Opted In to Facebook's Link History
 
- As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
+ As mentioned earlier, the Link History feature is only available in the Facebook app for [iOS](https://apps.apple.com/us/app/facebook/id284882215) and [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
 
 1. Launch the Facebook app and log in with your Facebook account details.
 2. Tap the**three lines** in the bottom-right corner (iOS), or upper-right corner (Android) to head to the**Menu** section of the app.
@@ -96,3 +96,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/trumps-suspension-from-facebook-tested-in-jan/"><u>Trump's Suspension From Facebook Tested in Jan</u></a></li>
+<li><a href="https://facebook.techidaily.com/ownership-dynamics-in-online-image-hosting/"><u>Ownership Dynamics in Online Image Hosting</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-social-interaction-with-integrated-fb-channels/"><u>Seamless Social Interaction with Integrated FB Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-diaries-redrawn-unpacking-the-four-core-platform-impacts/"><u>Digital Diaries Redrawn: Unpacking the Four Core Platform Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-complete-archive-of-your-facebook-journey/"><u>A Complete Archive of Your Facebook Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-techniques-for-dynamic-link-management-on-fb/"><u>Innovative Techniques for Dynamic Link Management on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-facebooks-business-model-change-with-giphy-exit/"><u>Could Facebook's Business Model Change with Giphy Exit?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/the-art-of-audio-mastery-with-iphones-voice-recording/"><u>The Art of Audio Mastery with iPhone's Voice Recording</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-essential-skills-to-develop-for-thumbnail-designers/"><u>[New] Essential Skills to Develop for Thumbnail Designers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/top-webcam-recording-apps-in-windows-10-reviewed/"><u>Top Webcam Recording Apps in Windows 10 Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-banishing-bogus-buddies-from-instagram-social-structure/"><u>2024 Approved  Banishing Bogus Buddies From Instagram Social Structure</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-escalate-your-content-reach-leveraging-synergistic-youtube-outros/"><u>[New] Escalate Your Content Reach  Leveraging Synergistic YouTube Outros</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-video-crafting-for-the-modern-youtube-creator/"><u>2024 Approved  Video Crafting for the Modern YouTube Creator</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-acoustic-detox-the-best-programs-for-minimizing-environmental-audio-interference/"><u>2024 Approved Acoustic Detox The Best Programs for Minimizing Environmental Audio Interference</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-audio-alchemy-top-linux-editors-free-and-paid-options-explored/"><u>In 2024, Audio Alchemy Top Linux Editors - Free & Paid Options Explored</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/tastemakers-playbook-recipes-for-attractive-channel-names-for-2024/"><u>Tastemakers' Playbook  Recipes for Attractive Channel Names for 2024</u></a></li>
+</ul></div>

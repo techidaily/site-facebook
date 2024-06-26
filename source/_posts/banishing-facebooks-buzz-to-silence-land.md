@@ -1,7 +1,7 @@
 ---
 title: Banishing Facebook's Buzz to Silence Land
-date: 2024-06-21 19:26:17
-updated: 2024-06-23 11:18:33
+date: 2024-06-25T14:48:22.826Z
+updated: 2024-06-26T14:48:22.826Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad311423267
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/07e687f8419c4806cb630c22e1fb9dad311423267
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/legal-battle-trump-vs-social-media-over-free-expression/"><u>Legal Battle: Trump Vs. Social Media Over Free Expression</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-data-retrieval-total-facebook-archive-acquisition/"><u>Maximizing Data Retrieval: Total Facebook Archive Acquisition</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-efficiently-away-from-inactive-fb-groups/"><u>Navigate Efficiently Away From Inactive FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/expressive-exchanges-textual-embellishments-in-messages/"><u>Expressive Exchanges: Textual Embellishments in Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-substitutes-top-10-lightweight-android-titles/"><u>Swift Substitutes: Top 10 Lightweight Android Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-theft-a-statistical-view/"><u>Digital Identity Theft: A Statistical View</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-streaming-soundscapes-on-your-iphone/"><u>In 2024, Streaming Soundscapes on Your iPhone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-how-to-mute-zoom-audio-on-desktop-and-mobile-phone-easy-steps/"><u>In 2024, How to Mute Zoom Audio on Desktop and Mobile Phone? Easy Steps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-identifying-tech-giants-iphone-x-and-samsungs-face-recognition/"><u>2024 Approved  Identifying Tech Giants  IPhone X & Samsung's Face Recognition</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-iphone-xs-maxipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled iPhone XS Max/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-best-of-android-does-pickup-lead-photo-editing-tools-in-2024/"><u>Exploring the Best of Android  Does PickUp Lead Photo Editing Tools, In 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hack-your-way-to-instant-signature-bg-elimination-for-2024/"><u>Hack Your Way to Instant Signature BG Elimination for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/enhancing-workflow-meeting-management-on-zoom/"><u>Enhancing Workflow  Meeting Management on Zoom</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-a-compreenas-guide-to-incorporating-personalized-emojis-in-discord-statuses/"><u>[Updated] In 2024, A Compreenas Guide to Incorporating Personalized Emojis in Discord Statuses</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-choose-the-best-android-and-ios-timers-for-your-dream-wedding/"><u>How to Choose the Best Android & iOS Timers for Your Dream Wedding</u></a></li>
+</ul></div>

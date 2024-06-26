@@ -1,7 +1,7 @@
 ---
 title: "Identity Infiltration: Suspicious Social Sites"
-date: 2024-06-20 20:31:26
-updated: 2024-06-23 12:28:55
+date: 2024-06-25T14:43:01.617Z
+updated: 2024-06-26T14:43:01.617Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
 
  Sometimes, people simply steal what they find or like. A lot of fake (or bot) accounts use celebrity shots or stock photos. But some users take a more personal route, finding it more advantageous to steal photos from the average Joe, making the impersonation less obvious.
 
- It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for[scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
+ It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for [scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
 
  There were cases where the impersonation victims knew their perpetrators. The offenders had a personal vendetta against the victim, so they made a fake account. These accounts are often more convincing as the impersonator may have access to sensitive information about family, friends, and demographics that make the profiles much more believable.
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
 
 ![instructions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instructions-1.png)
 
- Social media administrators rightly take this seriously. Even[Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
+ Social media administrators rightly take this seriously. Even [Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
 
  Fortunately, removing fake profiles can be a relatively simple process.
 
@@ -100,3 +100,24 @@ thumbnail: https://thmb.techidaily.com/83a5e7f4b304717df57e5c96a8beb60fe39d76126
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/no-end-to-end-encryption-for-fb-messenger-direct-ig-till-2022/"><u>No End-to-End Encryption for FB Messenger, Direct IG Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-fb-backgrounds/"><u>Mastering The Art of Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-says-it-isnt-dying-heres-why/"><u>Facebook Says It Isn't Dying: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/engagement-enigma-solved-transform-your-fb-gathering/"><u>Engagement Enigma Solved: Transform Your FB Gathering</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolving-lands-marketplace-facebook-edition/"><u>The Evolving Lands Marketplace: Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-engagement-facebook-stories-and-pages-polls/"><u>Instant Engagement: Facebook Stories & Pages Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-measures-for-protecting-your-social-media-pin/"><u>Effective Measures for Protecting Your Social Media PIN</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-virtual-quest-evaluating-current-progress-and-potential-hurdles/"><u>The Virtual Quest  Evaluating Current Progress & Potential Hurdles</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-filmoras-recipe-for-captivating-youtube-trailers/"><u>2024 Approved  Filmora’s Recipe for Captivating YouTube Trailers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-aspect-ratio-converters-for-a-seamless-viewing-experience/"><u>Updated 2024 Approved Top Aspect Ratio Converters for a Seamless Viewing Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-infinix-note-30-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Infinix Note 30? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/say-goodbye-to-vertical-and-horizontal-bars-in-youtube-movies-for-2024/"><u>Say Goodbye to Vertical and Horizontal Bars in YouTube Movies for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-make-unforgettable-video-invites-with-these-mobile-apps-for-2024/"><u>Updated Make Unforgettable Video Invites with These Mobile Apps for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-ideal-imagery-best-google-meet-screen-savers/"><u>In 2024, Ideal Imagery  Best Google Meet Screen Savers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/detailed-review-of-doctorsim-unlock-service-for-iphone-11-pro-by-drfone-ios/"><u>Detailed Review of doctorSIM Unlock Service For iPhone 11 Pro</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-crafting-splitscreen-youtube-videos-a-guide-to-creativity-for-2024/"><u>[New] Crafting Splitscreen YouTube Videos  A Guide to Creativity for 2024</u></a></li>
+</ul></div>

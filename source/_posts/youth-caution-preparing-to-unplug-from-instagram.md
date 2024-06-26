@@ -1,7 +1,7 @@
 ---
 title: "Youth Caution: Preparing to Unplug From Instagram"
-date: 2024-06-20 23:18:38
-updated: 2024-06-23 12:54:49
+date: 2024-06-25T13:52:19.892Z
+updated: 2024-06-26T13:52:19.892Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-images-on-social-media-hub/"><u>Protecting Your Images on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-strategies-for-showcasing-excellence-in-your-facebook-profile/"><u>Proven Strategies for Showcasing Excellence in Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/music-moguls-understanding-the-new-earnings-opportunity-with-fb/"><u>Music Moguls: Understanding the New Earnings Opportunity with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-underlying-themes-in-fb-chatter/"><u>Decoding Underlying Themes in FB Chatter</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-facebook-presence-picture/"><u>Customizing Your Facebook Presence Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-opportunities-choosing-businesss-favorites/"><u>Optimal Online Opportunities: Choosing Business's Favorites</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-for-your-facebook-image-overhaul/"><u>Strategic Planning for Your Facebook Image Overhaul</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-and-speed-the-ultimate-guide-to-mac-srt-editing/"><u>Precision and Speed  The Ultimate Guide to Mac Srt Editing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-guide-to-dominating-the-youtube-viewership-game/"><u>[Updated] 2024 Approved  A Step-by-Step Guide to Dominating the YouTube Viewership Game</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-12-free-youtube-thumbnail-makers-filmora/"><u>2024 Approved  Top 12 Free YouTube Thumbnail Makers - Filmora</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-google-meetings-mastered-best-practices-4/"><u>[New] Google Meetings Mastered  Best Practices #4</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-androids-leading-music-video-watching-tools/"><u>2024 Approved  Explore Android's Leading Music Video Watching Tools</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-xiaomi-redmi-12-5g-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Xiaomi Redmi 12 5G Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-best-gaming-intro-creators-for-windows-and-mac-free-and-premium-options/"><u>2024 Approved Best Gaming Intro Creators for Windows and Mac Free and Premium Options</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-budget-friendly-obs-optimization-techniques/"><u>[New] 2024 Approved  Budget-Friendly OBS Optimization Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-ownership-guidelines-for-instagram-music-for-2024/"><u>[Updated] Ownership Guidelines for Instagram Music for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oneplus-open-frp-bypass-by-drfone-android/"><u>Ultimate Guide on OnePlus Open FRP Bypass</u></a></li>
+</ul></div>

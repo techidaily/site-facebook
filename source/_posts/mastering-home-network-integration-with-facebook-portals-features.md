@@ -1,7 +1,7 @@
 ---
 title: Mastering Home Network Integration with Facebook Portals' Features
-date: 2024-06-20 17:35:34
-updated: 2024-06-23 12:46:51
+date: 2024-06-25T14:31:44.740Z
+updated: 2024-06-26T14:31:44.740Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
- The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
+ The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
 
@@ -55,9 +55,7 @@ thumbnail: https://thmb.techidaily.com/22dc377b14c8750c75c360ab6d9b7d702e69a18c8
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV
-
-![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -87,9 +85,7 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi
-
-![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -108,9 +104,7 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know
-
-![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -141,3 +135,24 @@ Your Portal TV has two clips.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-heartbreak-strategies-for-retaining-purchases-on-facebook/"><u>Avoid Heartbreak: Strategies for Retaining Purchases on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-personalized-marketing-algorithms/"><u>Insight Into Personalized Marketing Algorithms</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-runs-todays-facebook/"><u>Who Runs Today's Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-companies-held-accountable-the-battle-against-misleading-social-media-ads/"><u>Tech Companies Held Accountable: The Battle Against Misleading Social Media Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/fusing-frequencies-with-friends-what-could-this-mean-for-fb-and-spotify/"><u>Fusing Frequencies with Friends: What Could This Mean for FB & SPOTIFY?</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-comprehensive-guide-to-viewing-facebook-videos-on-apple-tv-devices/"><u>[Updated] In 2024, Comprehensive Guide to Viewing Facebook Videos on Apple TV Devices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mycam-in-action-a-detailed-review-of-its-recording-abilities/"><u>[Updated] 2024 Approved  MyCam in Action  A Detailed Review of Its Recording Abilities</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-moto-g24-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Moto G24 Android SIM Unlock APK</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-speaking-stories-writing-lyrical-film-scripts/"><u>In 2024, Speaking Stories  Writing Lyrical Film Scripts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-leveraging-the-power-of-images-in-your-instagram-video-plans/"><u>[Updated] In 2024, Leveraging the Power of Images in Your Instagram Video Plans</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-instagram-video-size-matters-understanding-aspect-ratios-for-better-engagement/"><u>New In 2024, Instagram Video Size Matters Understanding Aspect Ratios for Better Engagement</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-movie-magic-on-windows-6-best-video-editing-software/"><u>New Movie Magic on Windows 6 Best Video Editing Software</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-from-the-iphone-xs-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock From the iPhone XS Without Previous Owner?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/breathe-life-into-lifeless-fb-posts-unveil-the-top-12-recovery-methods-in-23/"><u>Breathe Life Into Lifeless FB Posts - Unveil the Top 12 Recovery Methods in '23</u></a></li>
+</ul></div>

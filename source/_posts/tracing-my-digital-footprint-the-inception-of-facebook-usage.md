@@ -1,7 +1,7 @@
 ---
 title: "Tracing My Digital Footprint: The Inception of Facebook Usage"
-date: 2024-06-20 16:45:47
-updated: 2024-06-23 10:55:16
+date: 2024-06-25T13:45:53.377Z
+updated: 2024-06-26T13:45:53.377Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/91d880ab7920ac263b2bbc42f64c84854115542d1
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-fb-event-creation-a-step-by-step-guide/"><u>Mastering FB Event Creation: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-everyone-tag-in-news-feed/"><u>Ending @Everyone Tag in News Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-verified-vs-twitter-blue-which-offers-more/"><u>Meta Verified Vs. Twitter Blue: Which Offers More?</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-visual-images-into-stylistic-textual-reproduction-with-ai/"><u>Converting Visual Images Into Stylistic Textual Reproduction with AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-social-engagement-using-ripl/"><u>Navigating the World of Social Engagement Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-uptrend-or-plateau/"><u>Facebook's Engagement: Uptrend or Plateau?</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipate-a-shift-social-networkings-new-focus-on-crypto/"><u>Anticipate a Shift: Social Networking's New Focus on Crypto</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-the-ultimate-list-of-10-free-avi-joiner-software-for-windows-and-mac-for-2024/"><u>New The Ultimate List of 10 Free AVI Joiner Software for Windows and Mac for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-infinix-smart-7-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-how-d-ai-video-games-act-more-human-than-human/"><u>Updated In 2024, How D AI Video Games Act More Human Than Human?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-depth-screen-capturing-a-resourceful-guide-for-dell-users-for-2024/"><u>In-Depth Screen Capturing  A Resourceful Guide for Dell Users for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-samsung-galaxy-s23-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Samsung Galaxy S23 Without PUK Codes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-lava-agni-2-5g-phone-by-drfone-android/"><u>How to Reset a Locked Lava Agni 2 5G Phone</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-best-websites-to-add-emojis-to-photos-online/"><u>New Best Websites to Add Emojis to Photos Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-10-facelift-tech-for-iphones-and-android-phones/"><u>Best 10 Facelift Tech for iPhones and Android Phones</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-top-10plus-instagram-content-downloaders-reviewed/"><u>[New] Top 10+ Instagram Content Downloaders Reviewed</u></a></li>
+</ul></div>

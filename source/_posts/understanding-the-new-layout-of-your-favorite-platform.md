@@ -1,7 +1,7 @@
 ---
 title: Understanding the New Layout of Your Favorite Platform
-date: 2024-06-22 23:17:30
-updated: 2024-06-23 10:32:45
+date: 2024-06-25T14:04:01.571Z
+updated: 2024-06-26T14:04:01.571Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/b419546ab6fdd218d829eb22a844376fcf0d2afcf
 
 ## Facebook Splits Feed Into Two Tabs
 
- In this[Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
+ In this [Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
 
 > One of the most requested features for Facebook is to make sure people don't miss friends' posts. So today we're launching a Feeds tab where you can see posts from your friends, groups, Pages and more separately in chronological order. The app will still open to a personalized feed on the Home tab, where our discovery engine will recommend the content we think you'll care most about. But the Feeds tab will give you a way to customize and control your experience further.
 
@@ -49,19 +49,17 @@ There are at least two major reasons why this has happened.
 
  The**Feeds** tab will do this by exclusively showing you content that you have subscribed to in chronological order. You can customize this content further by creating a favorites list.
 
- According to a[Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and[personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
+ According to a [Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and [personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
-### Fight Back Against TikTok
+### Fight Back Against TikTok ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
 
-![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
-
- According to[The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
+ According to [The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
 
  Meta is undoubtedly aware of TikTok's incredible growth. Since Meta cannot buy TikTok, it will do the next best thing: copy TikTok.
 
  Thus, the**Home** tab will push content to you from across Facebook based on what the algorithm thinks you are interested in, just like TikTok's**For You** page does.
 
- After[finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
+ After [finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
 
 ## Meta Will Continue to Innovate, With a Close Eye on TikTok
 
@@ -86,3 +84,27 @@ There are at least two major reasons why this has happened.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/linkedin-and-facebook-synergy-for-job-advancement/"><u>LinkedIn & Facebook Synergy for Job Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alert-sidestep-these-three-risky-applications/"><u>Privacy Alert: Sidestep These Three Risky Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/peek-into-facebook-bonds-history-of-connections/"><u>Peek Into Facebook Bonds: History of Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-diminish-your-reel-viewing/"><u>Techniques to Diminish Your Reel Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-targeted-fb-ad-sightings/"><u>Explanation for Targeted FB Ad Sightings?</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-tailored-newsfeed-to-skip-unwelcome-ads-on-social-media/"><u>Creating a Tailored Newsfeed to Skip Unwelcome Ads on Social Media</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-step-by-step-guide-to-watching-facebook-live-events/"><u>[New] 2024 Approved  Step-by-Step Guide to Watching Facebook Live Events</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-spectrum-sync-master/"><u>[New] Spectrum Sync Master</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-quickvision-w11-simple-desktop-capture-tool/"><u>[Updated] QuickVision W11  Simple Desktop Capture Tool</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-ultimate-guide-to-popular-tiktok-reactions-for-2024/"><u>[Updated] The Ultimate Guide to Popular TikTok Reactions for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-mastering-the-art-of-filter-selection-on-instagram/"><u>[New] 2024 Approved  Mastering the Art of Filter Selection on Instagram</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-discovering-local-insta-stars-finding-your-niches-top-influencers/"><u>[Updated] 2024 Approved  Discovering Local Insta Stars  Finding Your Niche's Top Influencers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-advanced-photographic-distortion-tactics/"><u>2024 Approved  Advanced Photographic Distortion Tactics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boosting-instagram-visibility-the-ultimate-guide-to-puzzle-feeds/"><u>Boosting Instagram Visibility  The Ultimate Guide to Puzzle Feeds</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-x90s-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo X90S to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-top-tier-window-snapper-for-win11-users-for-2024/"><u>[Updated] Top-Tier Window Snapper for Win11 Users for 2024</u></a></li>
+</ul></div>

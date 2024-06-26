@@ -1,7 +1,7 @@
 ---
 title: Premier League Stars Quit Twitter to Resist Social Media Toxicity
-date: 2024-06-20 10:37:17
-updated: 2024-06-23 11:42:32
+date: 2024-06-25T14:41:20.437Z
+updated: 2024-06-26T14:41:20.437Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,24 @@ thumbnail: https://thmb.techidaily.com/669bc1413d235f8908afbf69f357ad5578fda1c30
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/analyzing-social-medias-impact-on-quest-2-privacy/"><u>Analyzing Social Media's Impact on Quest 2 Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/forums-demise-presented-by-social-media-advantages/"><u>Forums' Demise, Presented by Social Media Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-customer-service-a-facebook-refund-journey/"><u>Navigating Customer Service: A Facebook Refund Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-shadowing-on-your-profile/"><u>Demystifying the Shadowing on Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-privacy-preferences-for-on-the-go-check-ins/"><u>Setting Privacy Preferences for On-the-Go Check-Ins</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-communication-on-the-horizon-exciting-changes-coming-to-fbs-messaging-platforms/"><u>Enhanced Communication on the Horizon: Exciting Changes Coming to FB's Messaging Platforms</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-y100i-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo Y100i Phone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-unlock-premiere-pros-full-potential-system-requirements-and-setup-tips/"><u>Updated Unlock Premiere Pros Full Potential System Requirements and Setup Tips</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-5-best-video-editors-for-ipad-2022-review/"><u>In 2024, 5 Best Video Editors for iPad 2022 Review</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enjoy-a-seamless-streaming-experience-unveiling-the-potential-of-pip-on-netflix/"><u>Enjoy a Seamless Streaming Experience  Unveiling the Potential of PIP on Netflix</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-11-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 11 with iTunes | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-online-titler-pros-unveiled-for-2024/"><u>Top 5 Online Titler Pros Unveiled for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-unlocking-hd-video-a-step-by-step-guide-to-pixel-size-and-quality-for-2024/"><u>New Unlocking HD Video A Step-by-Step Guide to Pixel Size and Quality for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-capture-clearness-without-a-tripod-tool/"><u>[Updated] In 2024, Capture Clearness Without a Tripod Tool</u></a></li>
+</ul></div>

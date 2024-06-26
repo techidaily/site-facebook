@@ -1,7 +1,7 @@
 ---
 title: "The Secret Keeper’s Playbook: Private Photos on FB"
-date: 2024-06-20 16:26:33
-updated: 2024-06-23 11:55:47
+date: 2024-06-25T14:31:07.721Z
+updated: 2024-06-26T14:31:07.721Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/b46b34fd5ad4244a5b3542fda6e0ba281358e5c36
 
  You can change the privacy of an entire album on Facebook to save time, rather than needing to make photos private one by one.
 
- However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can[untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
+ However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can [untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
 
  To make a photo album private on Facebook's Android or iOS app, follow these steps:
 
@@ -119,7 +119,7 @@ Close
 
 * Select**Only me** and click**Done** to save your changes.
 
- You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
+ You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid [the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
 
 ## Who Can See My Photos on Facebook? How to Check
 
@@ -131,7 +131,7 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
- This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
+ This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
@@ -155,7 +155,7 @@ Close
 
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
- Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
+ Having a [Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can [make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -178,3 +178,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-which-facebook-device-benefits-you-most/"><u>Deciphering Which Facebook Device Benefits You Most</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-implicit-communication-on-fbc-platform/"><u>Unraveling Implicit Communication on FBC Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-prepare-for-crypto-marketing-surge/"><u>Social Platforms Prepare for Crypto Marketing Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/start-a-secure-digital-footprint-meta-usa/"><u>Start a Secure Digital Footprint – Meta USA</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fourth-wave-of-connection-how-social-media-overhauled-us/"><u>The Fourth Wave of Connection: How Social Media Overhauled Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-becoming-an-online-mogul/"><u>Steps to Becoming an Online Mogul</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-engaging-with-facebook-community-groups/"><u>The Blueprint of Engaging with Facebook Community Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-play-facebook-reels-and-the-tiktok-dilemran/"><u>The Power Play: Facebook, Reels, and the TikTok Dilemran</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/audio-dial-achieving-smooth-volume-ramp-ups-for-2024/"><u>Audio Dial Achieving Smooth Volume Ramp-Ups for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/10-most-popular-mp3-recorder-for-windows-and-mac-for-2024/"><u>10 Most Popular MP3 Recorder for Windows and Mac for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/elevate-your-brand-with-tiktok-ads-ideas-and-exemplary-case-studies/"><u>Elevate Your Brand with TikTok Ads  Ideas & Exemplary Case Studies</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-silent-sessions-with-zoom-enabling-mute-on-computers-and-mobile-devices/"><u>2024 Approved Silent Sessions with Zoom Enabling Mute on Computers & Mobile Devices</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-10-leading-non-gamer-screen-recording-alternatives-for-2024/"><u>[Updated] 10 Leading Non-Gamer Screen Recording Alternatives for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-about-nokia-frp-bypass-by-drfone-android/"><u>In 2024, About Nokia FRP Bypass</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-win-movie-maker-replacements-top-6-video-editors-for-windows/"><u>Updated In 2024, Win Movie Maker Replacements Top 6 Video Editors for Windows</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-complete-wav-conversion-crash-course/"><u>New In 2024, The Complete Wav Conversion Crash Course</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-unveiling-the-top-6-mac-capture-software-options/"><u>[Updated] 2024 Approved  Unveiling the Top 6 Mac Capture Software Options</u></a></li>
+</ul></div>

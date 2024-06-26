@@ -1,7 +1,7 @@
 ---
 title: The Most Controversial Names Leading Tech Today
-date: 2024-06-21 11:52:45
-updated: 2024-06-23 11:27:34
+date: 2024-06-25T14:19:11.796Z
+updated: 2024-06-26T14:19:11.796Z
 tags:
   - facebook
 categories:
@@ -21,23 +21,19 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-## 1\. Jack Dorsey
-
-![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+## 1\. Jack Dorsey ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
 
  Jack Dorsey is no stranger to controversy, having been summoned before Congress on multiple occasions to testify about alleged political bias and misinformation on Twitter.
 
- But perhaps his most polarizing moment was when[Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
+ But perhaps his most polarizing moment was when [Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
 
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-## 2\. Elizabeth Holmes
-
-![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+## 2\. Elizabeth Holmes ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -45,13 +41,11 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  Theranos was at its peak when a partnership with Walgreens was announced. However, medical experts were skeptical about Theranos' blood testing machine, and ex-employee whistleblowers came forward to expose the fraud.
 
- A bombshell article published in 2015 in[The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
+ A bombshell article published in 2015 in [The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-## 3\. Julian Assange
-
-![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+## 3\. Julian Assange ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
 
@@ -67,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-## 4\. Susan Wojcicki
-
-![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+## 4\. Susan Wojcicki ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
 
@@ -83,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-## 5\. Bill Gates
-
-![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+## 5\. Bill Gates ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -99,9 +89,7 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-## 6\. Mark Zuckerberg
-
-![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+## 6\. Mark Zuckerberg ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
 
@@ -119,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
 
  Facebook employees staged a virtual walkout after Zuckerberg personally stated that he would not remove a post made by Trump in reference to the 2020 Minneapolis protests ("when the looting starts, the shooting starts"). The same version of the post had been hidden under a warning message by Twitter.
 
- When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
+ When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to [delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
 ## Least Polarizing Tech Figure?
 
@@ -144,3 +132,27 @@ thumbnail: https://thmb.techidaily.com/1a71493edba37cb030611c5a8b9738f6d63a9069f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-facebook-has-renamed-the-news-feed-to-just-feed/"><u>Why Facebook Has Renamed the News Feed to Just Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-centric-choices-avoid-risky-apps-here/"><u>Privacy-Centric Choices: Avoid Risky Apps Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-music-revenue-sharing-on-facebook/"><u>The Evolution of Music Revenue Sharing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-secure-your-accounts-with-2fa-gmail-outlook-and-more/"><u>How to Secure Your Accounts With 2FA: Gmail, Outlook, and More</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-sheryls-footsteps-in-the-tech-industry/"><u>Tracing Sheryl’s Footsteps in the Tech Industry</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/fighting-fake-news-keeping-users-informed-amidst-outbreak/"><u>Fighting Fake News: Keeping Users Informed Amidst Outbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-make-every-podcast-session-count-with-these-15-powerful-activities/"><u>[Updated] Make Every Podcast Session Count with These 15 Powerful Activities</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-clear-communication-via-skype/"><u>[Updated] Mastering Clear Communication via Skype</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-iphone-flipping-and-tilting-photos-perfectly/"><u>[Updated] Mastering iPhone  Flipping & Tilting Photos Perfectly</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-captivate-and-expand-your-online-following-with-viral-youtube-shorts/"><u>[Updated] How to Captivate and Expand Your Online Following with Viral YouTube Shorts</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-harmonizing-movement-with-melody-the-practical-approach-to-adding-music-to-mac-created-gifs/"><u>In 2024, Harmonizing Movement with Melody The Practical Approach to Adding Music to Mac-Created GIFs</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y17s-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quick-tips-for-saving-the-world-with-a-smile-for-2024/"><u>Quick Tips for Saving the World with a Smile for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-4-ways-to-mirror-apple-iphone-13-pro-max-to-laptop-via-usb-or-wi-fi-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Mirror Apple iPhone 13 Pro Max to Laptop via USB or Wi-Fi | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Realme 11 5G | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Influential Network Driving Covid-19 Fallacies
-date: 2024-06-20 23:18:47
-updated: 2024-06-23 10:14:12
+date: 2024-06-25T14:00:29.855Z
+updated: 2024-06-26T14:00:29.855Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,23 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-networking-experience-on-facebook-mobile/"><u>Elevate Your Social Networking Experience on Facebook Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-technological-missteps-unveiled/"><u>Top 5 Technological Missteps Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-profile-management-across-multiple-facebook-ids/"><u>Swift Profile Management Across Multiple Facebook IDs</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-young-social-media-members-towards-prudent-privacy-choices/"><u>Guiding Young Social Media Members Towards Prudent Privacy Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-new-title-for-facebook-employees/"><u>Social Sphere Shift: New Title for Facebook Employees</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-trends-that-triumph-making-your-instagram-content-viral/"><u>[Updated] 2024 Approved  Trends That Triumph  Making Your Instagram Content Viral</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-zoom-meets-fun-6-must-try-voice-change-tools-to-brighten-up-online-interactions/"><u>New 2024 Approved Zoom Meets Fun 6 Must-Try Voice Change Tools to Brighten Up Online Interactions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-meme-creation-with-kinemaster-for-2024/"><u>The Ultimate Meme Creation with KineMaster for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-strategic-approach-to-embedding-youtube-links-in-insta-stories-for-2024/"><u>[New] The Strategic Approach to Embedding YouTube Links in Insta Stories for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/creating-perfect-instagram-grids-top-10-vendors-ranked/"><u>Creating Perfect Instagram Grids  Top 10 Vendors Ranked</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-mac-video-editor-unlock-the-power-of-mkvtoolnix/"><u>2024 Approved Mac Video Editor Unlock the Power of MKVtoolnix</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-cut-buffering-time-turn-on-av1-in-youtube-settings-for-2024/"><u>[New] Cut Buffering Time – Turn On AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-premier-service-guide-exclusive-local-channels-plus-live-streaming/"><u>[Updated] Premier Service Guide  Exclusive Local Channels + Live Streaming</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-effortlessly-post-tiktok-videos-on-twitter/"><u>2024 Approved  Effortlessly Post TikTok Videos on Twitter</u></a></li>
+</ul></div>

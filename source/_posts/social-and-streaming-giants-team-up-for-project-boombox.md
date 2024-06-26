@@ -1,7 +1,7 @@
 ---
 title: Social and Streaming Giants Team Up for Project Boombox
-date: 2024-06-22 16:43:10
-updated: 2024-06-23 10:41:32
+date: 2024-06-25T13:56:46.541Z
+updated: 2024-06-26T13:56:46.541Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
 
 ## Facebook and Spotify Team up on Project Boombox
 
-[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
+[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by [CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
 
  Zuckerberg told CNBC that Spotify and Facebook are working on something that's known internally as "Project Boombox." According to the report, the feature will let you share your favorite songs, albums, artists, and playlists from within Facebook. The shared audio will then appear inside a music player in users' News Feeds, which users can click on to play.
 
- In a statement to[TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
+ In a statement to [TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
 
 > Our ambition has always been to make Spotify ubiquitous across platforms and devices—bringing music and podcasts to more people—and our new integration with Facebook is another step in these efforts. We look forward to a continued partnership with Facebook, fueling audio discovery around the world.
 
@@ -54,3 +54,26 @@ thumbnail: https://thmb.techidaily.com/095ce3d3eacef166f46f59459d5ef71a92a706285
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/analyzing-user-needs-in-choosing-a-facebook-portal/"><u>Analyzing User Needs in Choosing a Facebook Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-engaging-with-facebook-community-groups/"><u>The Blueprint of Engaging with Facebook Community Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-birthday-on-facebook/"><u>How to Change Your Birthday on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-talk-on-ruses-discerning-genuine-from-fabricated/"><u>Real-Talk on Ruses: Discerning Genuine From Fabricated</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-productivity-on-facebook-using-shortcuts/"><u>Boosting Productivity on Facebook Using Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-insights-busting-top-10-facebook-fables/"><u>Social Media Insights: Busting Top 10 Facebook Fables</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-message-memorable-stylized-text-in-chats/"><u>Making Your Message Memorable: Stylized Text in Chats</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-estimated-video-monetization-totals/"><u>[Updated] In 2024, Estimated Video Monetization Totals</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-perfecting-the-art-of-filming-and-post-production-with-adobe-connects-features-for-2024/"><u>[Updated] Perfecting the Art of Filming & Post-Production with Adobe Connect's Features for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-partnership-performed-live-tiktok-edition/"><u>2024 Approved  Partnership Performed Live  TikTok Edition</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-complete-guide-to-oem-unlocking-on-lava-blaze-2-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Lava Blaze 2</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-dive-into-vimeos-free-premium-and-pro-plans-and-their-benefits/"><u>[Updated] In 2024, Dive Into Vimeo's Free, Premium & Pro Plans and Their Benefits</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-strategies-for-seamless-sound-transitions-in-adobe-premiere/"><u>[New] Expert Strategies for Seamless Sound Transitions in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-earnings-expertise-in-streams-a-comparative-study/"><u>[New] Earnings Expertise in Streams  A Comparative Study</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-introduce-circular-smoothing-transition-via-adobe-photoshop/"><u>In 2024, Introduce Circular Smoothing Transition via Adobe Photoshop</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-crafting-content-gold-youtube-studios-path-to-perfection/"><u>In 2024, Crafting Content Gold  YouTube Studio's Path to Perfection</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-immediate-halt-of-auto-recording-on-qt/"><u>2024 Approved  Immediate Halt of Auto-Recording on QT</u></a></li>
+</ul></div>

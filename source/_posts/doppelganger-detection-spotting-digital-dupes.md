@@ -1,7 +1,7 @@
 ---
 title: "Doppelgänger Detection: Spotting Digital Dupes"
-date: 2024-06-22 19:54:23
-updated: 2024-06-23 10:37:49
+date: 2024-06-25T14:17:11.147Z
+updated: 2024-06-26T14:17:11.147Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/e46847f4d730c4e71d01b69ffbbf4867ec3238091
 
  Sometimes, people simply steal what they find or like. A lot of fake (or bot) accounts use celebrity shots or stock photos. But some users take a more personal route, finding it more advantageous to steal photos from the average Joe, making the impersonation less obvious.
 
- It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for[scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
+ It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for [scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
 
  There were cases where the impersonation victims knew their perpetrators. The offenders had a personal vendetta against the victim, so they made a fake account. These accounts are often more convincing as the impersonator may have access to sensitive information about family, friends, and demographics that make the profiles much more believable.
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/e46847f4d730c4e71d01b69ffbbf4867ec3238091
 
 ![instructions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instructions-1.png)
 
- Social media administrators rightly take this seriously. Even[Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
+ Social media administrators rightly take this seriously. Even [Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
 
  Fortunately, removing fake profiles can be a relatively simple process.
 
@@ -100,3 +100,26 @@ thumbnail: https://thmb.techidaily.com/e46847f4d730c4e71d01b69ffbbf4867ec3238091
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/express-your-preferred-social-platform/"><u>Express Your Preferred Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-renaming-the-social-media-news-feed-as-just-feed/"><u>The Impact of Renaming the Social Media News Feed as Just 'Feed'</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-duo-expansion-a-new-dimension-for-fb-and-insta/"><u>The Duo Expansion: A New Dimension for FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-senior-centric-digital-hubs/"><u>Superior Senior-Centric Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-growth-on-facebook-the-strength-of-pages-over-personal/"><u>Unlocking Brand Growth on Facebook: The Strength of Pages Over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-fb-id-with-new-numbers/"><u>Revamp Your FB ID with New Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-neighborhoods-and-available-memberships/"><u>Understanding Facebook Neighborhoods and Available Memberships</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-song-selection-spectrum-discovering-the-perfect-soundtrack-for-every-montage-visionary-project/"><u>In 2024, Song Selection Spectrum Discovering the Perfect Soundtrack for Every Montage Visionary Project</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sleep-specialist-endorses-aspers-guide-for-2024/"><u>Sleep Specialist Endorses Asper's Guide for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/what-does-jailbreaking-iphone-xr-i-do-get-answers-here-drfone-by-drfone-ios/"><u>What Does Jailbreaking iPhone XR i Do? Get Answers here | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-leading-free-console-reproduction-devices/"><u>2024 Approved  Leading Free Console Reproduction Devices</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-troubleshooting-for-non-responsive-tiktok-chrome-ios-for-2024/"><u>Mastering Troubleshooting for Non-Responsive TikTok (Chrome, iOS) for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/best-of-breed-pages-for-sparkling-3d-text-for-2024/"><u>Best of Breed Pages for Sparkling 3D Text for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-strategy-for-flawless-selfies-on-tiktok-repeatedly/"><u>[Updated] 2024 Approved  The Strategy for Flawless Selfies on TikTok, Repeatedly</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-hdr-photography-selecting-superior-models-for-2024/"><u>Unlocking HDR Photography  Selecting Superior Models for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-packing-list-travel-video-edition/"><u>[New] The Ultimate Packing List  Travel Video Edition</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+</ul></div>

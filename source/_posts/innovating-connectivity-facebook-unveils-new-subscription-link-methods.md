@@ -1,7 +1,7 @@
 ---
 title: "Innovating Connectivity: Facebook Unveils New Subscription Link Methods"
-date: 2024-06-22 19:41:48
-updated: 2024-06-23 12:52:59
+date: 2024-06-25T14:28:54.301Z
+updated: 2024-06-26T14:28:54.301Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
 
- In a[Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of[Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
+ In a [Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of [Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
 
 > As we build for the metaverse, we're focused on unlocking opportunities for creators to make money from their work. The 30% fees that Apple takes on transactions make it harder to do that, so we're updating our Subscriptions product so now creators can earn more.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
-## How Facebook's Custom Payment Links Work
-
-![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+## How Facebook's Custom Payment Links Work ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -66,3 +64,26 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/understanding-how-to-utilize-fb-help-center-services/"><u>Understanding How to Utilize FB Help Center Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinformers-among-top-social-media-influencers/"><u>Misinformers Among Top Social Media Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/generating-engagement-with-new-group-creation-on-fb/"><u>Generating Engagement with New Group Creation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/like-count-anonymity-the-new-standard-for-fbig-users/"><u>Like Count Anonymity: The New Standard for FB/IG Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-beckons-as-meta-drops-tests-on-popular-platforms/"><u>The Future Beckons as Meta Drops Tests on Popular Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-login-info-for-facebook/"><u>Rebooting Login Info for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-keeping-fb-images-confidential/"><u>Protecting Privacy: Keeping FB Images Confidential</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-markup-magic-standout-text-styles/"><u>Messenger Markup Magic: Standout Text Styles</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-get-recording-the-10-best-webcam-software-for-windows-10-users/"><u>New 2024 Approved Get Recording The 10 Best Webcam Software for Windows 10 Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-skin-the-subject-eradicate-bg-in-affinity/"><u>[Updated] Skin the Subject, Eradicate Bg in Affinity</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-23-budget-friendly-methods-document-webinars-with-no-cost/"><u>2024 Approved  23 Budget-Friendly Methods  Document Webinars with No Cost</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-12-innovative-screen-shots-ideas-for-better-videos-for-2024/"><u>[Updated] 12 Innovative Screen Shots Ideas for Better Videos for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-insiders-guide-to-instagrams-chroma-key-effect/"><u>[New] The Insider's Guide to Instagram’s Chroma Key Effect</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-japanese-aesthetics-on-the-go-applying-anime-filters-to-snaps/"><u>[Updated] 2024 Approved  Japanese Aesthetics on the Go  Applying Anime Filters to Snaps</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-leveraging-popularity-a-comprehensive-guide-to-instagram-influencer-advertising/"><u>[Updated] Leveraging Popularity  A Comprehensive Guide to Instagram Influencer Advertising</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/how-different-youtube-aspect-ratio-affect-video-style-for-2024/"><u>How Different YouTube Aspect Ratio Affect Video Style for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transformative-power-of-no-fee-text-animation-tools/"><u>[New] Transformative Power of No-Fee Text Animation Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor X50i+ | Dr.fone</u></a></li>
+</ul></div>

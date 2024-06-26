@@ -1,7 +1,7 @@
 ---
 title: Facebook Will Soon Advise Teenagers to Take a Break From Instagram
-date: 2024-06-21 22:17:45
-updated: 2024-06-23 10:57:49
+date: 2024-06-25T14:07:16.712Z
+updated: 2024-06-26T14:07:16.712Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,23 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/secure-access-add-admin-to-your-social-media-hub/"><u>Secure Access: Add Admin to Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-user-engagement-with-auto-generated-imagery-titles/"><u>Enhancing User Engagement with Auto-Generated Imagery Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-personal-info-tracking-unauthorized-use/"><u>Protect Personal Info: Tracking Unauthorized Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-people-who-follow-on-facebook/"><u>Uncovering People Who Follow on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-free-online-dailymotion-downloader-and-converter/"><u>New In 2024, Free Online Dailymotion Downloader and Converter</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-guide-to-utilizing-zero-cost-clocks/"><u>The Ultimate Guide to Utilizing Zero-Cost Clocks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-nokia-c110-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Nokia C110 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-top-ranked-screen-recorder-for-seamless-youtubing/"><u>In 2024, Top-Ranked Screen Recorder for Seamless YouTubing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-art-of-haul-videography-pre-and-post-editing-processes/"><u>The Art of Haul Videography  Pre and Post Editing Processes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-nokia-105-classic-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Nokia 105 Classic Device SIM</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-docx-file-document-electronically-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to sign .docx file document electronically</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-stepwise-guide-to-convert-vimeo-media-to-mp3/"><u>2024 Approved  Stepwise Guide to Convert Vimeo Media to MP3</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-infinix-note-30-vip-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Infinix Note 30 VIP to iPod | Dr.fone</u></a></li>
+</ul></div>

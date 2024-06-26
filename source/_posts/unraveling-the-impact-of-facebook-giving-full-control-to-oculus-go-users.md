@@ -1,7 +1,7 @@
 ---
 title: Unraveling the Impact of Facebook Giving Full Control to Oculus Go Users
-date: 2024-06-22 18:16:43
-updated: 2024-06-23 12:39:15
+date: 2024-06-25T14:12:04.311Z
+updated: 2024-06-26T14:12:04.311Z
 tags:
   - facebook
 categories:
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
 
  Recently, developer and consulting CTO behind Oculus VR—John Carmack—confirmed that the Oculus Go would get an unlocked OS build that can get full root access. Even though it may sound confusing, this is great news for Go users. Here's what you need to know.
 
-## Oculus Go Is Getting Unlocked Root Access
-
-![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
+## Oculus Go Is Getting Unlocked Root Access ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
 
  John Carmack confirmed on Twitter that, after "pushing on for years," Facebook will finally unlock root access to the Oculus Go. This will be available with a future OS build that can be side-loaded in the Go.
 
@@ -62,3 +60,26 @@ thumbnail: https://thmb.techidaily.com/5dd2f6cde3d323e673a6ae6de82e04690c6752ca5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-legitimacy-of-security-email-at-facebookmailcom-for-fb/"><u>Assessing Legitimacy of Security Email at facebookmail.com for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-american-viewpoint-social-networkings-dark-side/"><u>The American Viewpoint: Social Networking's Dark Side</u></a></li>
+<li><a href="https://facebook.techidaily.com/american-public-consensus-social-medias-downside/"><u>American Public Consensus: Social Media's Downside</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://facebook.techidaily.com/ever-wondered-about-your-favorite-app-down-heres-why/"><u>Ever Wondered About Your Favorite App Down? Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/youth-caution-preparing-to-unplug-from-instagram/"><u>Youth Caution: Preparing to Unplug From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://extra-support.techidaily.com/picture-perfect-presentations-posting-on-youtube-for-2024/"><u>Picture-Perfect Presentations  Posting on YouTube for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-honor-x9b-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-infinix-smart-8-plus-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Infinix Smart 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unleashing-creativity-converting-youtube-videos-into-captivating-gifs/"><u>[Updated] Unleashing Creativity  Converting YouTube Videos Into Captivating GIFs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-camera-glitches-ended-by-obs-fix/"><u>[New] Camera Glitches Ended by OBS Fix</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-boosting-fb-video-engagement-and-audience-reach/"><u>In 2024, Boosting FB Video Engagement & Audience Reach</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-diving-into-viral-video-dialogues/"><u>In 2024, Diving Into Viral Video Dialogues</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fable-formulators-fellowship-top-7-titans/"><u>[Updated] Fable Formulators Fellowship – Top 7 Titans</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-ascending-with-expertise-mastering-the-art-and-science-of-asmr-production-for-2024/"><u>[New] Ascending with Expertise  Mastering The Art & Science of ASMR Production for 2024</u></a></li>
+</ul></div>

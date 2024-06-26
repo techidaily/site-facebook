@@ -1,7 +1,7 @@
 ---
 title: "Hidden in Plain Sight: The 4 Most Influential Silicon Stories"
-date: 2024-06-22 14:25:51
-updated: 2024-06-23 11:40:20
+date: 2024-06-25T13:49:06.915Z
+updated: 2024-06-26T13:49:06.915Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks
-
-![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -35,9 +33,7 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet
-
-![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -47,11 +43,9 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
- Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+ Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse
-
-![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War
-
-![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -98,3 +90,24 @@ thumbnail: https://thmb.techidaily.com/302790bfdd6c387be2ce7104b2f0ec7045e52a09e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-social-networks-new-chapter-in-love-and-friendship-features/"><u>The Social Network's New Chapter in Love and Friendship Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-experiences-awaiting-unraveling-facebooks-metaverse-intentions/"><u>Immersive Experiences Awaiting: Unraveling Facebook's Metaverse Intentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-the-messages-fb-icon-semantics/"><u>Untangling the Messages: FB Icon Semantics</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-into-a-reflective-mirror-of-you/"><u>Transforming Facebook Into a Reflective Mirror of You</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-profits-with-top-4-business-metadata-strategies/"><u>Boosting Profits with Top 4 Business Metadata Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-8-ways-to-interlink-socially/"><u>Digital Harmony: 8 Ways to Interlink Socially</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-global-village-weighing-in-on-expat-community-joining/"><u>Facebook's Global Village: Weighing in on Expat Community Joining</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/boost-your-snapshots-proper-use-of-zoom-in-snapchat-for-2024/"><u>Boost Your Snapshots  Proper Use of Zoom in Snapchat for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-pro-level-color-correction-in-final-cut-pro/"><u>New In 2024, Pro-Level Color Correction in Final Cut Pro</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pathway-for-pixels-transferring-data-to-computers/"><u>[Updated] Pathway for Pixels  Transferring Data to Computers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-original-movie-recording-dissection-and-substitute-series/"><u>2024 Approved  Original Movie Recording Dissection & Substitute Series</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-edit-memoji-on-android-and-iphone/"><u>Updated How to Edit Memoji on Android and iPhone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-create-epic-gaming-intros-10-best-tools-for-windows-and-mac/"><u>2024 Approved Create Epic Gaming Intros 10 Best Tools for Windows and Mac</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-vivo-s18-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Vivo S18 | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-10-best-emoji-collections-for-discord-available-at-zero-cost/"><u>[New] In 2024, 10 Best Emoji Collections for Discord Available at Zero Cost</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-speak-loud-and-clear-on-tiktok-a-comprehensible-guide/"><u>In 2024, Speak Loud and Clear on TikTok - A Comprehensible Guide</u></a></li>
+</ul></div>

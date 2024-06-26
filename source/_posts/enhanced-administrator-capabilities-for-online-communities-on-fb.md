@@ -1,7 +1,7 @@
 ---
 title: Enhanced Administrator Capabilities for Online Communities on FB
-date: 2024-06-20 19:38:49
-updated: 2024-06-23 12:46:13
+date: 2024-06-25T14:24:59.849Z
+updated: 2024-06-26T14:24:59.849Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/c5a835a587cbde63390ec7ae0f646f52f65cc154a
 
 ## Facebook Launches New Admin Tools to Moderate Groups
 
- In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
+ In a [blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
 
  Facebook explained that many of the new tools are based on user feedback and have actually been requested. The social media platform also added that there are more than 70 million active admins running Facebook groups, so it's likely that these new tools will prove to be a big benefit.
 
@@ -62,3 +62,27 @@ thumbnail: https://thmb.techidaily.com/c5a835a587cbde63390ec7ae0f646f52f65cc154a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-identity-with-simplicity/"><u>Elevate Your Online Identity with Simplicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-technological-missteps-unveiled/"><u>Top 5 Technological Missteps Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/united-states-ags-urge-ban-on-kids-on-instagram-by-fb/"><u>United States AGs Urge Ban on Kids on Instagram by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-merits-and-demerits-of-social-logins-via-facebook-network/"><u>Investigating the Merits & Demerits of Social Logins via Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-covered-dont-spill-essential-online-non-disclosures/"><u>Stay Covered, Don't Spill: Essential Online Non-Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-tech-giants-how-apple-diverges-from-facebook/"><u>Exploring Tech Giants: How Apple Diverges From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/augmented-reality-takes-a-leap-forward-on-messenger/"><u>Augmented Reality Takes a Leap Forward on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/alive-and-well-decoding-facebooks-resistance-to-die-off/"><u>'Alive and Well': Decoding Facebook’s Resistance to Die-Off</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-playful-escape-the-ultimate-relief-list/"><u>2024 Approved  Playful Escape  The Ultimate Relief List</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-journey-through-timeran-images-3-methods-on-facebook/"><u>[New] The Journey Through Time'ran Images  3 Methods on Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-strategies-in-post-processing-colors/"><u>2024 Approved  Expert Strategies in Post-Processing Colors</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-visual-narratives-with-mastered-stories-bokeh/"><u>[New] In 2024, Elevate Your Visual Narratives with Mastered Stories Bokeh</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-motorola-edge-40-pro-by-drfone-android-unlock-android-unlock/"><u>How to unlock Motorola Edge 40 Pro</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/the-top-rated-video-editing-tools-for-mac-users-for-2024/"><u>The Top-Rated Video Editing Tools for Mac Users for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-how-to-save-snapchat-videos-with-apps-on-android-and-mac/"><u>[New] How to Save Snapchat Videos with Apps on Android and Mac</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-unhindered-routine-changing-video-direction-with-vlc/"><u>[Updated] 2024 Approved  Unhindered Routine  Changing Video Direction with VLC</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-efficiently-delete-unwanted-video-feedback/"><u>[New] 2024 Approved  How to Efficiently Delete Unwanted Video Feedback</u></a></li>
+</ul></div>

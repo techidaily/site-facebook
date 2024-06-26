@@ -1,7 +1,7 @@
 ---
 title: Reach for Spotify Anywhere, Even the Miniplayer
-date: 2024-06-22 20:51:41
-updated: 2024-06-23 11:51:24
+date: 2024-06-25T14:11:06.371Z
+updated: 2024-06-26T14:11:06.371Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/f060aa48894ea1b017bf8a4af8da622e4076e35a6
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
- In a post on[For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
+ In a post on [For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
 
  Also, it doesn’t matter whether you use Spotify for free or have a subscription since the built-in music player is available for everyone. Just with the usual limitations applied to anyone listening for free.
 
@@ -57,7 +57,7 @@ Close
 
 ## More Audio Features Are Coming Soon
 
- To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as[Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
+ To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -76,3 +76,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facial-id-discarding-what-does-it-mean-for-facebook-users-protection/"><u>Facial ID Discarding: What Does It Mean for Facebook Users' Protection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-respectful-exit-strategies-in-digital-spaces/"><u>Cultivating Respectful Exit Strategies in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-older-facebook-discussions/"><u>Accessing Older Facebook Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-lives-utilizing-facebook-today-feature/"><u>Transforming Lives: Utilizing Facebook Today Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-fbs-shared-memories-together/"><u>Revisiting FB's Shared Memories Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventive-practices-at-play-how-meta-halt-intimate-photo-sharing/"><u>Preventive Practices at Play: How Meta Halt Intimate Photo Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-fbcta-affect-your-social-media-feed/"><u>How Does FBCTA Affect Your Social Media Feed?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-the-ultimate-guide-to-booktiks-best-releases/"><u>2024 Approved  The Ultimate Guide to Booktik’s Best Releases</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-prime-selection-of-simple-effective-gamers-edit-tools/"><u>[Updated] 2024 Approved  Prime Selection of Simple, Effective Gamers' Edit Tools</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/how-to-do-voice-recorder-on-samsung-s10s9/"><u>How to Do Voice Recorder on Samsung S10/S9?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-ios-video-editing-made-easy-the-top-5-apps/"><u>2024 Approved  IOS Video Editing Made Easy  The Top 5 Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamless-video-editing-in-windows-10-without-expensive-software/"><u>[Updated] Seamless Video Editing in Windows 10 Without Expensive Software</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-apple-iphone-8-plus-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or Apple iPhone 8 Plus Stuck On Activation Lock?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-discovering-10-superior-history-educational-videos-for-2024/"><u>[Updated] Discovering 10 Superior History Educational Videos for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-best-video-editing-software-like-sony-vegas-for-pc/"><u>2024 Approved Best Video Editing Software Like Sony Vegas for PC</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-quietude-quest-a-complete-users-guide-to-online-auditory-sanitization/"><u>Updated In 2024, Quietude Quest A Complete Users Guide to Online Auditory Sanitization</u></a></li>
+</ul></div>

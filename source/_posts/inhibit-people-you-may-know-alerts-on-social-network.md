@@ -1,7 +1,7 @@
 ---
 title: Inhibit 'People You May Know' Alerts on Social Network
-date: 2024-06-21 12:59:29
-updated: 2024-06-23 11:44:17
+date: 2024-06-25T14:00:30.872Z
+updated: 2024-06-26T14:00:30.872Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hacktivism-halts-facebooks-happy-scores-sets-stars-at-1/"><u>Hacktivism Halts Facebook's Happy Scores, Sets Stars at 1</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protect-email-from-securityfacebookmailcom-legitimate/"><u>Is the Facebook Protect Email From Security@facebookmail.com Legitimate?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-prepare-for-crypto-marketing-surge/"><u>Social Platforms Prepare for Crypto Marketing Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-removing-facial-data-a-risk-to-privacy-and-security-for-fb-users/"><u>Is Removing Facial Data a Risk to Privacy and Security for FB Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-indian-government-against-new-it-rules-that-threaten-users-privacy/"><u>WhatsApp Sues Indian Government Against New IT Rules That Threaten Users' Privacy</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professional-photography-hacks-top-cinematic-tips/"><u>In 2024, Professional Photography Hacks  Top Cinematic Tips</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/thumbnail-mastery-youtube-image-dimensions-design-and-promotion/"><u>Thumbnail Mastery YouTube Image Dimensions, Design, and Promotion</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-realme-gt-5-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Realme GT 5 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-7-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 7</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-8-metaverse-headsets-and-glasses-to-dive-into-metaverse-for-2024/"><u>[Updated] Top 8 Metaverse Headsets and Glasses to Dive Into Metaverse for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-insights-for-asmr-aficionados/"><u>In 2024, Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-lava-yuva-3-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Lava Yuva 3 in Minutes | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-infusing-your-reels-with-soundscape-elements/"><u>2024 Approved  Infusing Your Reels with Soundscape Elements</u></a></li>
+</ul></div>

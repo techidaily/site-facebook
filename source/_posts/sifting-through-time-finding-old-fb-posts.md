@@ -1,7 +1,7 @@
 ---
 title: "Sifting Through Time: Finding Old FB Posts"
-date: 2024-06-20 18:51:54
-updated: 2024-06-23 12:43:51
+date: 2024-06-25T14:38:43.674Z
+updated: 2024-06-26T14:38:43.674Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/60c0536f1fc5d6831a20d36d45e0ac93bc7d119ca
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,26 @@ thumbnail: https://thmb.techidaily.com/60c0536f1fc5d6831a20d36d45e0ac93bc7d119ca
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://facebook.techidaily.com/encrypting-convo-on-fb-and-ig-delayed-to-next-years-start/"><u>Encrypting Convo on FB & IG Delayed to Next Year's Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-space-for-group-interaction-a-comparative-study/"><u>Navigating Social Space for Group Interaction: A Comparative Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-contacts-on-facebook-platform/"><u>Concealed Contacts on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-disappearing-features-in-fb-messenger/"><u>Unveiling Disappearing Features in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-fake-profiles-on-facebook/"><u>How to Spot Fake Profiles on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/mark-zuckerberg-reveals-he-has-a-goat-named-bitcoin/"><u>Mark Zuckerberg Reveals He Has a Goat Named Bitcoin</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-podcasts-2022-our-critical-and-creative-reviews/"><u>Best Podcasts 2022 - Our Critical and Creative Reviews</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-integrating-your-social-network-four-ways-for-fb-story-sharing-for-2024/"><u>[New] Integrating Your Social Network  Four Ways for FB Story Sharing for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-insiders-look-at-securing-fb-status-videos/"><u>[New] In 2024, The Insider’s Look at Securing FB Status Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-smartly-craft-your-podcast-title-with-these-tools/"><u>2024 Approved  Smartly Craft Your Podcast Title with These Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-analysis-of-googles-voice-to-text-capabilities/"><u>2024 Approved  In-Depth Analysis of Google's Voice-to-Text Capabilities</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/explore-revolutionary-meeting-platforms-that-cost-nothing-for-2024/"><u>Explore Revolutionary Meeting Platforms That Cost Nothing for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-easy-entree-straightforward-screen-capture-methods-dell/"><u>[Updated] 2024 Approved  Easy Entrée  Straightforward Screen Capture Methods (Dell)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/decoding-silence-a-comprehensive-look-at-video-audio-separation-technology/"><u>Decoding Silence A Comprehensive Look at Video Audio Separation Technology</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oppo-a38-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Oppo A38 Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/navigating-the-boundaries-of-video-posting-on-facebook-for-2024/"><u>Navigating the Boundaries of Video Posting on Facebook for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Realme C67 4G | Dr.fone</u></a></li>
+</ul></div>

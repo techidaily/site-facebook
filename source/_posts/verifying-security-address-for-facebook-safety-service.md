@@ -1,7 +1,7 @@
 ---
 title: Verifying Security Address for Facebook Safety Service
-date: 2024-06-22 23:34:12
-updated: 2024-06-23 10:50:11
+date: 2024-06-25T14:48:13.252Z
+updated: 2024-06-26T14:48:13.252Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
- When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
+ When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
@@ -77,17 +77,15 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
 **Don't click on any link or button** embedded in the email account that claims to activate Facebook Protect or supposedly enables you to log in. Otherwise, you could end up getting your Facebook account hacked. And certainly**don't download or open any attachments** added in the email. Otherwise, your browser will be hijacked, or your device may become infected.
 
- In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
+ In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-## What to Do if You Fall for a Fake Facebook Protect Email Scam
+## What to Do if You Fall for a Fake Facebook Protect Email Scam ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
-
- If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
 
- Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple[things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple [things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
@@ -110,3 +108,24 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-feature-ray-ban-stories-functions-and-pricing/"><u>Facebook's Latest Feature: Ray-Ban Stories - Functions & Pricing</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-budget-friendly-steps-for-syncing-your-fb-content-schedule/"><u>5 Budget-Friendly Steps for Syncing Your FB Content Schedule</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-offers-a-digital-bitcoin-goat-parody/"><u>Zuckerberg Offers: A Digital Bitcoin-Goat Parody?</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-social-medias-negative-feedback-mechanism/"><u>Evaluating Social Media's Negative Feedback Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-direct-messaging-services-exclusively/"><u>Navigating Direct Messaging Services Exclusively</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-maximize-your-iphone-x-10-proven-strategies/"><u>2024 Approved  Maximize Your iPhone X  10 Proven Strategies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-realme-narzo-n53-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My Realme Narzo N53 Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-amateurs-to-pros-transformative-steps-in-gopro-timelapses/"><u>[New] From Amateurs to Pros  Transformative Steps in GoPro Timelapses</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-14-lock-screen-by-drfone-ios/"><u>How To Remove Flashlight From iPhone 14 Lock Screen</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-key-to-making-youtube-videos-stand-out-on-instagram-stories/"><u>[Updated] The Key to Making YouTube Videos Stand Out on Instagram Stories</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-flip-your-footage-easy-final-cut-pro-tutorial/"><u>Updated Flip Your Footage Easy Final Cut Pro Tutorial</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-poco-x6-pro-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Poco X6 Pro ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-discovering-the-free-world-of-vocal-transformation-rankings-and-reviews-top-7-list/"><u>Updated Discovering the Free World of Vocal Transformation Rankings & Reviews - Top 7 List</u></a></li>
+</ul></div>

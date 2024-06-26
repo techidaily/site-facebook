@@ -1,7 +1,7 @@
 ---
 title: "Impending Regulation Shake-Up: U.S. Strategies to Dismantle Tech Goliaths"
-date: 2024-06-20 20:49:42
-updated: 2024-06-23 10:26:39
+date: 2024-06-25T14:09:05.498Z
+updated: 2024-06-26T14:09:05.498Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/a208b6b47f62fc53f6719bf37fb44710d3bca87f0
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,26 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/whistleblowers-allege-fb-reprimands-honesty-in-ads/"><u>Whistleblowers Allege FB Reprimands Honesty in Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-scale-of-facebooks-user-exodus/"><u>The Real Scale of Facebook's User Exodus</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-pivotal-shifts-causing-facebooks-user-slide/"><u>Four Pivotal Shifts Causing Facebook's User Slide</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrospect-significant-stories-from-google/"><u>Retrospect: Significant Stories From Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-media-maze-to-delete-or-not/"><u>Navigating the Social Media Maze: To Delete or Not?</u></a></li>
+<li><a href="https://facebook.techidaily.com/withheld-implementation-date-for-whatsapps-new-privacy-agreement/"><u>Withheld Implementation Date for WhatsApp's New Privacy Agreement</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your Apple iPhone 12 mini</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-the-art-of-crafting-exclusive-cover-photos-on-instagram/"><u>[New] In 2024, Mastering the Art of Crafting Exclusive Cover Photos on Instagram</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-secret-to-capturing-seamless-google-classesmeets/"><u>The Secret to Capturing Seamless Google Classes/Meets</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweetvidsoundscape-instant-video-to-sound-for-2024/"><u>[New] TweetVidSoundscape  Instant Video-to-Sound for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-skyrocket-to-fame-with-these-30-innovative-tiktok-nicknames/"><u>In 2024, Skyrocket to Fame with These 30 Innovative TikTok Nicknames</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-exclusive-insta-stories-for-private-eyes/"><u>[New] 2024 Approved  Exclusive Insta Stories for Private Eyes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-on-apple-iphone-11-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even On Apple iPhone 11 If Youve Tried Everything</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-aspect-ratios-unveiled-a-complete-youtube-manual/"><u>[New] 2024 Approved  Aspect Ratios Unveiled  A Complete YOUTUBE Manual</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-poco-c55-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Poco C55? Try These Fixes</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-key-roles-played-by-everyone-involved-in-film-creation/"><u>Updated In 2024, Key Roles Played by Everyone Involved in Film Creation</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Escape Polarization: Clean Your Social Media Space"
-date: 2024-06-22 22:14:12
-updated: 2024-06-23 11:23:47
+date: 2024-06-25T14:32:37.166Z
+updated: 2024-06-26T14:32:37.166Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
 
  Here's how you can block political and other annoying content on your Facebook account.
 
-## Facebook's Timeline Can Get Swamped With Politics
-
-![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
+## Facebook's Timeline Can Get Swamped With Politics ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
 
@@ -35,11 +33,9 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
- We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
+ We've talked about [how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
-## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
-
-![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -47,13 +43,11 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
 
  You also have the option to**Snooze** that page, group, or person for 30 days. Most articles come from a small handful of sources. If you snooze every source that posts annoying articles, your feed will improve quickly.
 
- Alternatively, if a source is completely unbearable, you can[unfollow a page or person on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) entirely. This is particularly useful if you don't want to unfriend a person but want to stop seeing their posts.
+ Alternatively, if a source is completely unbearable, you can [unfollow a page or person on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) entirely. This is particularly useful if you don't want to unfriend a person but want to stop seeing their posts.
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-## 2\. Remove Your Political Views From Your Profile
-
-![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+## 2\. Remove Your Political Views From Your Profile ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -63,11 +57,9 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
-## 3\. Use a Browser Extension
+## 3\. Use a Browser Extension ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
-![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
-
- You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
+ You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
@@ -92,3 +84,26 @@ thumbnail: https://thmb.techidaily.com/d44947af2d23263a61b2bb19233d3717a7fd17839
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-impact-of-facebooks-secret-data/"><u>Exploring the Impact of Facebook's Secret Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/contemplating-metamorphosis-meta-ais-social-media-role/"><u>Contemplating Metamorphosis: Meta AI's Social Media Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-genesis-day-on-facebook-for-myself/"><u>Unraveling: The Genesis Day on Facebook for Myself</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-conversations-lighthearted-without-crossing-lines/"><u>Keeping Conversations Lighthearted without Crossing Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-sportsmen-leave-social-media-to-shun-online-harassment/"><u>Elite Sportsmen Leave Social Media to Shun Online Harassment</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-control-prevent-facebooks-oversee-usage/"><u>Take Control: Prevent Facebook’s Oversee Usage</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-mkv-video-trimming-made-easy-best-mac-apps-2023/"><u>New In 2024, MKV Video Trimming Made Easy Best Mac Apps 2023</u></a></li>
+<li><a href="https://fox-access.techidaily.com/streamlined-accessibility-learning-iphoneipad-techniques-for-podcast-downloads/"><u>Streamlined Accessibility  Learning iPhone/iPad Techniques for Podcast Downloads</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-poco-c55-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Poco C55 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-apple-iphone-14-pro-max-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and Apple iPhone 14 Pro Max The Right Way</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-prime-windows-11-recording-software-ranked-15-for-2024/"><u>[New] Prime Windows 11 Recording Software  Ranked #15 for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-guide-to-making-your-youtube-content-stand-out/"><u>Step-by-Step Guide to Making Your YouTube Content Stand Out</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-tackle-missing-thumbnails-on-youtube-shorts-for-2024/"><u>[New] How to Tackle Missing Thumbnails on YouTube Shorts for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-contacts-from-apple-iphone-13-mini-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Contacts from Apple iPhone 13 mini to iPhone Quickly | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-video-posts-twitter-no-retweets-needed-for-2024/"><u>Mastering Video Posts  Twitter, No Retweets Needed for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-vivo-s17-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Vivo S17 Face Lock?</u></a></li>
+</ul></div>

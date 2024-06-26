@@ -1,7 +1,7 @@
 ---
 title: England Athletics Endorses Digital Detox Movement
-date: 2024-06-21 19:58:11
-updated: 2024-06-23 11:13:24
+date: 2024-06-25T13:54:30.150Z
+updated: 2024-06-26T13:54:30.150Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,9 @@ thumbnail: https://thmb.techidaily.com/bc22e110eacd1143aa0bdeeb05b2f88960a893ae5
 
 ## England Sports' Social Media Blackout Has Begun
 
- We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
+ We reported previously that [English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
 
- According to a[Premier League statement](https://www.premierleague.com/news/2122300) , the blackout is now underway and will continue across the entire weekend, including Monday's UK public holiday.
+ According to a [Premier League statement](https://www.premierleague.com/news/2122300) , the blackout is now underway and will continue across the entire weekend, including Monday's UK public holiday.
 
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
@@ -60,3 +60,26 @@ thumbnail: https://thmb.techidaily.com/bc22e110eacd1143aa0bdeeb05b2f88960a893ae5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/getting-your-gone-facebook-comments-back/"><u>Getting Your Gone Facebook Comments Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fbs-covert-tracking-use-off-fb-settings/"><u>Unmasking Fb's Covert Tracking, Use Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-social-proof-without-crossing-lines/"><u>Harnessing the Power of Social Proof Without Crossing Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-allege-crackdown-on-authentic-marketing-strategies/"><u>Whistle-Blowers Allege Crackdown on Authentic Marketing Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-discovering-the-russian-facebook-alternative/"><u>What Is VK?: Discovering the Russian Facebook Alternative</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-chats-anticipating-facebooks-e2ee-move/"><u>Securing Chats: Anticipating Facebook's E2EE Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-behind-accepting-friend-requests-on-fb/"><u>Unveiling the Mystery Behind Accepting Friend Requests on FB</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-edit-wmv-files-for-free-top-5-video-editor-options-for-2024/"><u>Updated Edit WMV Files for Free Top 5 Video Editor Options for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-from-memories-to-reels-building-stellar-slideshows-for-facebook/"><u>[Updated] 2024 Approved  From Memories to Reels  Building Stellar SlideShows for Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-poco-f5-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Poco F5 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hero-black-vs-keymission-for-the-ultimate-cinematographer/"><u>[New] HERO Black vs Keymission  For the Ultimate Cinematographer</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-master-list-of-vimeo-video-capturers-for-2024/"><u>[New] Master List of Vimeo Video Capturers for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-step-by-step-walkthrough-the-5-essential-skills-to-record-sounds-on-a-mac/"><u>New In 2024, Step-by-Step Walkthrough The 5 Essential Skills to Record Sounds on a Mac</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-influencers-secrets-top-10-video-editing-apps-for-ig-success/"><u>[New] Influencers' Secrets  Top 10 Video Editing Apps for IG Success</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-10-free-avi-merger-tools-to-combine-avi-videos-effortlessly/"><u>New 2024 Approved 10 Free AVI Merger Tools to Combine AVI Videos Effortlessly</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/carryminati-the-youtube-money-trail-of-ajey-nagar-for-2024/"><u>CarryMinati  The YouTube Money Trail of Ajey Nagar for 2024</u></a></li>
+</ul></div>

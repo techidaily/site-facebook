@@ -1,7 +1,7 @@
 ---
 title: Access Your Audience on Facebook Page
-date: 2024-06-20 11:20:54
-updated: 2024-06-23 10:18:48
+date: 2024-06-25T14:04:09.163Z
+updated: 2024-06-26T14:04:09.163Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/9cea731b530f7b35cf528443775e7bde67a8420df
 
 ## How to See Who Follows You on Facebook on Mobile
 
- The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
+ The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have [followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
@@ -56,7 +56,7 @@ Close
 
  Moreover, you won't get the option to check your Facebook followers if you don't have any. Consequently, you won't see your followers even if you've followed the above steps, as there are none to see.
 
- You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
+ You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to [switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
@@ -116,3 +116,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-webs-benefits-the-top-7-societal-upsurges/"><u>Social Web’s Benefits: The Top 7 Societal Upsurges</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-sanctions-top-3-locations-where-facebook-is-forbidden/"><u>Internet Sanctions: Top 3 Locations Where Facebook Is Forbidden</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-fbcta-a-personal-perspective/"><u>The Impact of FBCTA: A Personal Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-like-or-not-to-like/"><u>Social Media: To Like or Not to Like?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-explores-advertising-avenues-with-new-features/"><u>Social Media Explores Advertising Avenues with New Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-secretly-developing-a-smartwatch-what-we-know-so-far/"><u>Facebook Is Secretly Developing a Smartwatch: What We Know So Far</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-effective-techniques-for-building-robust-podcast-rss-feeds/"><u>[Updated] In 2024, Effective Techniques for Building Robust Podcast RSS Feeds</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-mastering-facebook-call-recording-a-step-by-step-guide/"><u>[Updated] Mastering Facebook Call Recording  A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-critical-steps-in-logging-live-youtube-videos/"><u>2024 Approved  Critical Steps in Logging Live YouTube Videos</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-apple-iphone-11-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>4 Methods to Turn off Life 360 On Apple iPhone 11 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-sync-contacts-from-apple-iphone-6-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Sync Contacts from Apple iPhone 6 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-how-to-create-stunning-tiktok-videos-with-templates/"><u>[Updated] 2024 Approved  How To Create Stunning TikTok Videos With Templates</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-story-your-stage-youtube-video-mastery/"><u>[New] Your Story, Your Stage  YouTube Video Mastery</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-screensphere-comprehensively-global-plus-locally-connected/"><u>2024 Approved  ScreenSphere  Comprehensively Global + Locally Connected</u></a></li>
+</ul></div>

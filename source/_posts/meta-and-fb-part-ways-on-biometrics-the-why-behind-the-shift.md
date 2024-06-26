@@ -1,7 +1,7 @@
 ---
 title: "Meta and FB Part Ways on Biometrics: The Why Behind the Shift"
-date: 2024-06-21 14:55:29
-updated: 2024-06-23 12:39:36
+date: 2024-06-25T13:46:29.179Z
+updated: 2024-06-26T13:46:29.179Z
 tags:
   - facebook
 categories:
@@ -39,15 +39,15 @@ thumbnail: https://thmb.techidaily.com/e274a732c7d0d3f61527d48aecc65a65fbbf84ca4
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
 
- The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
+ The official reason, given in a [Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
  Meta, and big tech in general, is under increasing pressure by both regulators and users over its business practices and its handling of the immense amount of data it collects every day. Meta's decision to disable Facebook's facial recognition software must be understood with this in mind.
 
  In July 2020, Facebook had to pay $650 million to 1.6 million users in Illinois who had sued the social media company over creating and storing their faceprints as part of its photo tagging feature without prior notice or written consent.
 
- Just one year earlier, the[Federal Trade Commission (FTC) fined Facebook an eye-popping $5 billion](http://www.ftc.gov/news-events/press-releases/2019/07/ftc-imposes-5-billion-penalty-sweeping-new-privacy-restrictions) for inappropriately sharing information belonging to 87 million users with the now-dead British political consulting firm, Cambridge Analytica.
+ Just one year earlier, the [Federal Trade Commission (FTC) fined Facebook an eye-popping $5 billion](http://www.ftc.gov/news-events/press-releases/2019/07/ftc-imposes-5-billion-penalty-sweeping-new-privacy-restrictions) for inappropriately sharing information belonging to 87 million users with the now-dead British political consulting firm, Cambridge Analytica.
 
- At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
+ At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released [internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
@@ -76,3 +76,23 @@ thumbnail: https://thmb.techidaily.com/e274a732c7d0d3f61527d48aecc65a65fbbf84ca4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/establishing-foundation-for-healthy-fb-group-interactions/"><u>Establishing Foundation for Healthy FB Group Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-the-practicality-and-privacy-implications-of-social-app-sign-ins-via-facebook/"><u>Diving Deep Into the Practicality & Privacy Implications of Social App Sign-Ins via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-your-online-interests-one-page-at-a-time/"><u>Redefining Your Online Interests, One Page at a Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-this-person-is-unavailable-on-messenger-mean/"><u>What Does “This Person Is Unavailable on Messenger” Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-leverage-facebook-in-your-professional-life/"><u>Strategies to Leverage Facebook in Your Professional Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-deleting-your-social-media-snoop-records/"><u>Guide to Deleting Your Social Media Snoop Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-and-resolving-common-facebook-confusions/"><u>Unraveling & Resolving Common FaceBook Confusions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-nikon-video-post-production-tips-and-tricks-for-editing-your-clips/"><u>In 2024, Nikon Video Post-Production Tips and Tricks for Editing Your Clips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-youtube-potential-editing-after-the-upload-process/"><u>In 2024, Unlocking YouTube Potential  Editing After the Upload Process</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-mastering-twitter-videos-in-ultra-hd/"><u>[New] 2024 Approved  Mastering Twitter Videos in Ultra HD</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-maximizing-skype-quality-with-obs-studio-plugins/"><u>In 2024, Maximizing Skype Quality with OBS Studio Plugins</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-inside-the-tech-a-comprehensive-review-of-apowersofts-recorder-for-2024/"><u>[Updated] Inside the Tech  A Comprehensive Review of Apowersoft’s Recorder for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unveiling-top-8-crowd-favorites-in-ae-templates/"><u>[Updated] In 2024, Unveiling Top 8 Crowd Favorites in AE Templates</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-mobile-video-mastery-best-apps-for-video-stabilization/"><u>2024 Approved Mobile Video Mastery Best Apps for Video Stabilization</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-top-flight-tech-best-drone-gimbals/"><u>[New] 2024 Approved  Top Flight Tech  Best Drone Gimbals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-galaxy-s23-ultra-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on Galaxy S23 Ultra</u></a></li>
+</ul></div>

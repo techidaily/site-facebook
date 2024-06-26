@@ -1,7 +1,7 @@
 ---
 title: Twitter-Inspired Initiative for Informed Sharing on Facebook
-date: 2024-06-21 10:28:10
-updated: 2024-06-23 11:18:27
+date: 2024-06-25T14:30:12.363Z
+updated: 2024-06-26T14:30:12.363Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
 
  Twitter and Facebook have both been working to crack down on misinformation, with each employing similar measures to do so. The similarities in both platforms' responses became especially prominent amidst the COVID-19 pandemic.
 
- While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
+ While [Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
 
 ## Will Facebook Ever Be Free of Misinformation?
 
@@ -56,3 +56,27 @@ thumbnail: https://thmb.techidaily.com/e937e68a5b9ec03875dd350ca4501bcb740dbcf76
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/next-generation-personalization-oculuss-new-characters/"><u>Next Generation Personalization - Oculus’s New Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-friends-who-remain-unseen-on-fb/"><u>Disabling Friends Who Remain Unseen on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-love-the-shift-in-online-relationship-formation-on-facebook/"><u>Social Networking for Love: The Shift in Online Relationship Formation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-impact-study-in-us-detrimental-over-beneficial/"><u>Social Media's Impact Study in US: Detrimental Over Beneficial</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-potential-partners-in-a-click-facebooks-innovations-for-singles/"><u>Discovering Potential Partners in a Click: Facebook’s Innovations for Singles</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-conversations-the-countdown-for-fb-messengers-e2ee/"><u>Securing Your Conversations: The Countdown for FB Messenger's E2EE</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-metaverse/"><u>What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-tecno-phantom-v-fold-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Tecno Phantom V Fold Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-tecno-spark-10-pro-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Tecno Spark 10 Pro Reset Code | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-comprehensive-guide-to-podcast-rss-feed-crafting/"><u>In 2024, Comprehensive Guide to Podcast RSS Feed Crafting</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-the-echo-eradicator-recording-room-reduction/"><u>[New] In 2024, The Echo Eradicator  Recording Room Reduction</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-honor-play-40c-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Honor Play 40C Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-screen-savers-review-cutting-edge-video-gadgets/"><u>[New] Screen Savers Review  Cutting-Edge Video Gadgets</u></a></li>
+<li><a href="https://video-capture.techidaily.com/best-screen-recording-tips/"><u>Best Screen Recording Tips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-insiders-guide-to-leveraging-spotify-ads-effectively/"><u>In 2024, The Insider's Guide to Leveraging Spotify Ads Effectively</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-15-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 15 Plus without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-the-latest-tiktok-trends-what-to-observe/"><u>2024 Approved  The Latest TikTok Trends  What to Observe</u></a></li>
+</ul></div>

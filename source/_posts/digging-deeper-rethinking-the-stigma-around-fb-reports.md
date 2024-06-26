@@ -1,7 +1,7 @@
 ---
 title: "Digging Deeper: Rethinking The Stigma Around FB Reports"
-date: 2024-06-21 10:16:27
-updated: 2024-06-23 10:40:44
+date: 2024-06-25T14:30:34.410Z
+updated: 2024-06-26T14:30:34.410Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cb
 
  Here, we'll take a look at some reasons The Facebook Papers aren't as damning as they may first seem.
 
-**Note:** The Facebook Papers were released before[Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
+**Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
@@ -43,13 +43,13 @@ thumbnail: https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cb
 
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
- When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
+ When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
 
  Now, you can see why the reports are all photo-based, it's much easier to take a sneaky photo with your phone than it is to suspiciously copy files to a thumb drive.
 
  But, this fact means we have to give Facebook some benefit of the doubt. As you'll have no doubt seen, one of Facebook's reasons for denying the reports is that they mischaracterize the company by not providing the full context.
 
-> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by[Mark Zuckerberg](https://www.facebook.com/zuck) on[Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
+> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by [Mark Zuckerberg](https://www.facebook.com/zuck) on [Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
 
  While at first that may just sound like an excuse, Facebook is actually right. With just photos of select parts of documents, nobody (outside of Facebook) has read the documents in full.
 
@@ -102,3 +102,24 @@ thumbnail: https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-photo-update-a-step-by-step-guide/"><u>Mastering Facebook Photo Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digest-essential-highlights-from-googles-2022-press-announcements/"><u>Digest: Essential Highlights From Google's 2022 Press Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reels-to-compete-with-tiktoks-rising-star/"><u>Facebook's Reels to Compete With TikTok’s Rising Star?</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-rising-trends-causing-a-drop-in-facebooks-user-count/"><u>Four Rising Trends Causing a Drop in Facebook's User Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-this-years-top-technology-blunders/"><u>Evaluating This Year's Top Technology Blunders</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-success-uncover-the-best-5-free-facebook-timing-methods/"><u>Scheduling Success: Uncover the Best 5 Free Facebook Timing Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-social-networks-narrative-archives/"><u>Sifting Through Social Network's Narrative Archives</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Motorola Moto G84 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-motorola-moto-g-stylus-5g-2023-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Motorola Moto G Stylus 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-achieving-peak-audience-interaction-with-wirecast-on-facebook/"><u>[New] 2024 Approved  Achieving Peak Audience Interaction with Wirecast on Facebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-identifying-and-addressing-tiktok-technical-fails-for-2024/"><u>[Updated] Identifying and Addressing TikTok Technical Fails for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tips-to-rectify-broken-airdrop-connectivity-across-apple-gadgets/"><u>[New] Tips to Rectify Broken AirDrop Connectivity Across Apple Gadgets</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/bring-your-invitations-to-life-top-video-maker-apps-for-mobile/"><u>Bring Your Invitations to Life Top Video Maker Apps for Mobile</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-ultimate-guide-win-and-mac-vocal-alteration-tools-for-male-to-female-soundscaping/"><u>Updated In 2024, Ultimate Guide Win & Mac Vocal Alteration Tools for Male-to-Female Soundscaping</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-prime-techniques-for-digital-tv-recording-on-computers/"><u>2024 Approved  Prime Techniques for Digital TV Recording on Computers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprehensive-techniques-to-improve-mp4-soundtracks-using-srt-2024s-best-practices/"><u>Comprehensive Techniques to Improve MP4 Soundtracks Using SRT (2024'S Best Practices)</u></a></li>
+</ul></div>

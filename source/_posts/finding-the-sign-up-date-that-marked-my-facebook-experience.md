@@ -1,7 +1,7 @@
 ---
 title: Finding The Sign-Up Date That Marked My Facebook Experience
-date: 2024-06-22 21:11:22
-updated: 2024-06-23 10:50:44
+date: 2024-06-25T14:35:36.195Z
+updated: 2024-06-26T14:35:36.195Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expanding-professional-horizons-through-targeted-client-engagement-on-fb/"><u>Expanding Professional Horizons Through Targeted Client Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-integration-in-facebook-a-step-by-step-guide/"><u>Spotify Integration in Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-glances-the-ultimate-fb-privacy-guide/"><u>Eliminating Unwanted Glances: The Ultimate FB Privacy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-foundations-of-facebooks-operational-plan/"><u>Exploring the Foundations of Facebook's Operational Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/visual-vibes-crafting-an-attractive-profile-image/"><u>Visual Vibes: Crafting an Attractive Profile Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-news-feed-curation-by-fb/"><u>Behind-the-Scenes of News Feed Curation by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/rest-in-peace-but-not-on-your-timeline-fb-guide/"><u>Rest in Peace, but Not on Your Timeline - FB Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-learn-the-best-practices-for-capturing-instagram-live-feeds/"><u>2024 Approved  Learn the Best Practices for Capturing Instagram Live Feeds</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-x50iplus-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor X50i+ Devices</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-most-affordable-webcam-recording-devices-ranked/"><u>[New] Most Affordable Webcam Recording Devices Ranked</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-itel-p40plus-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Itel P40+ FRP Bypass</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-exclusive-insights-3-secrets-to-capture-every-moment-on-discord/"><u>[Updated] Exclusive Insights  3 Secrets to Capture Every Moment on Discord</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/text-motion-tracking-expert-approved-software-for-2024/"><u>Text Motion Tracking Expert-Approved Software for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-infusing-homes-with-suns-invisible-light/"><u>2024 Approved  Infusing Homes with Sun's Invisible Light</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-ultimate-guide-to-video-call-capturing-on-devices/"><u>In 2024, The Ultimate Guide to Video Call Capturing on Devices</u></a></li>
+</ul></div>

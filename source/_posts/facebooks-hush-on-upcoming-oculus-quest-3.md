@@ -1,7 +1,7 @@
 ---
 title: Facebook's Hush on Upcoming Oculus Quest 3
-date: 2024-06-20 18:52:19
-updated: 2024-06-23 10:14:55
+date: 2024-06-25T14:08:56.380Z
+updated: 2024-06-26T14:08:56.380Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
 ## There Won't Be an Oculus Pro in 2021
 
- In a recent Twitter Spaces Q&A (transcribed by[Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
+ In a recent Twitter Spaces Q&A (transcribed by [Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
 
 > People are also asking about the Quest 3, which doesn’t exist yet, and everyone who is listening to us who is a reporter there isn’t a Quest 3, there’s only a Quest 2...
 
- You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
+ You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that [Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 ## Will There Ever Be an Oculus Quest 3?
 
@@ -60,3 +60,27 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-filters-shifting-understanding-fbctas-role/"><u>The Filters Shifting: Understanding FBCTA's Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-era-chronicle-facebooks-2004-beginnings-to-meta-future/"><u>Digital Era Chronicle: Facebook’s 2004 Beginnings to Meta Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-opportunities-choosing-businesss-favorites/"><u>Optimal Online Opportunities: Choosing Business's Favorites</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-how-content-is-screened-by-facebook/"><u>Decoding How Content Is Screened by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-interaction-on-fb/"><u>Maximizing Audience Interaction on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/access-your-audience-on-facebook-page/"><u>Access Your Audience on Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-networking-experience-on-facebook-mobile/"><u>Elevate Your Social Networking Experience on Facebook Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-novel-network-nodes-a-guide-to-modern-fb-groups/"><u>Unveiling Novel Network Nodes: A Guide to Modern FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/shift-gears-modify-facebook-url-for-professionalism/"><u>Shift Gears: Modify Facebook URL for Professionalism</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-gopro-face-by-face-guide-to-selectivity-for-2024/"><u>[Updated] Gopro Face-By-Face Guide to Selectivity for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-oneplus-nord-n30-se-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on OnePlus Nord N30 SE and Browser | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-surveying-the-spectrum-of-windows-movie-maker-updates/"><u>[New] In 2024, Surveying the Spectrum of Windows Movie Maker Updates</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-color-grading-power-with-central-luts-for-2024/"><u>Harnessing Color Grading Power with Central Luts for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-tiktok-linking-made-simple-and-irreversible/"><u>In 2024, TikTok Linking Made Simple and Irreversible</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/vlc-video-record-a-critique-for-2024/"><u>VLC Video Record  A Critique for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-clipcomposer-critique-thorough-examination/"><u>[Updated] ClipComposer Critique – Thorough Examination</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/best-in-class-free-girl-vocal-mimicry-application-updated-edition-2024/"><u>Best-In-Class Free Girl Vocal Mimicry Application, Updated Edition 2024</u></a></li>
+</ul></div>

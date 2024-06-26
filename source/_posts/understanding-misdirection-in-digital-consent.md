@@ -1,7 +1,7 @@
 ---
 title: Understanding Misdirection in Digital Consent
-date: 2024-06-21 13:23:37
-updated: 2024-06-23 10:48:57
+date: 2024-06-25T14:40:38.022Z
+updated: 2024-06-26T14:40:38.022Z
 tags:
   - facebook
 categories:
@@ -48,17 +48,15 @@ The site lists 12 types of dark patterns to watch out for:
 
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
- You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
+ You can read more about these tactics on the Dark Patterns website, as well as our [list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy
-
-![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
- Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
+ Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled [Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
 ### 1\. Default Settings
 
@@ -132,7 +130,7 @@ The site lists 12 types of dark patterns to watch out for:
 
  Google's privacy dashboard is flashy and friendly. But it's not actually designed to help you manage your privacy.
 
- You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
+ You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called [Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
 ## Dark Patterns Are Rough for Privacy
 
@@ -155,3 +153,27 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-stance-on-online-communities-negative-dominant/"><u>U.S. Stance on Online Communities: Negative Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-suspension-from-facebook-tested-in-jan/"><u>Trump's Suspension From Facebook Tested in Jan</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-disguise-in-online-consent-forms/"><u>The Art of Disguise in Online Consent Forms</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-cyber-sleuth-unmasking-the-top-14-facebook-scams/"><u>Be a Cyber Sleuth: Unmasking the Top 14 Facebook Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-enhanced-privacy-settings-on-facebooks-redesigned-interface/"><u>Unlocking Enhanced Privacy Settings on Facebook’s Redesigned Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-interaction-on-fb/"><u>Maximizing Audience Interaction on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-building-industry-relationships-on-social-media-fb/"><u>A Step-by-Step Approach to Building Industry Relationships on Social Media: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-the-profile-picture-update-quagmire-on-facebook/"><u>Conquer the Profile Picture Update Quagmire on Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/omni-angle-mounting-mechanisms-for-2024/"><u>Omni-Angle Mounting Mechanisms for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-chromebook-screen-capture-4-easy-techniques/"><u>[New] In 2024, Chromebook Screen Capture  4 Easy Techniques</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-11-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 11 Pro Max You Should Try Out</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-insiders-tale-on-tiktok-mastery-two-ways-with-filmora/"><u>[Updated] In 2024, The Insider’s Tale on TikTok Mastery  Two Ways with Filmora</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-indispentic-vr-cinema-must-sees/"><u>[New] Indispentic VR Cinema Must-Sees</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-oppo-find-x6-pro-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Oppo Find X6 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts/"><u>[New] In 2024, The Ultimate Image Sharing Blueprint for YouTube Enthusiasts</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-mac-video-editing-essentials-create-stunning-movies/"><u>Updated Mac Video Editing Essentials Create Stunning Movies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-be-the-life-of-the-party-uploading-and-sharing-gifs-on-instagram-instant-guide/"><u>[Updated] Be the Life of the Party  Uploading & Sharing GIFs on Instagram [Instant Guide]</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-tecno-phantom-v-fold-by-drfone-android/"><u>How to Bypass FRP on Tecno Phantom V Fold?</u></a></li>
+</ul></div>

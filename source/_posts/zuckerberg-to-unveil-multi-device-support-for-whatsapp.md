@@ -1,7 +1,7 @@
 ---
 title: Zuckerberg to Unveil Multi-Device Support for WhatsApp
-date: 2024-06-21 10:26:34
-updated: 2024-06-23 11:47:30
+date: 2024-06-25T14:35:06.487Z
+updated: 2024-06-26T14:35:06.487Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/8f0f7ad73a0fa3da9b0369f5be30ef87f2772c066
 
 ## WhatsApp and Facebook CEOs Confirm New Messaging Features Are in the Works
 
- This information comes from the highest authority, Facebook CEO Mark Zuckerberg and WhatsApp CEO Will Cathcart themselves. In an unexpected group chat with[WABetaInfo](https://wabetainfo.com/will-cathcart-and-mark-zuckerberg-confirm-to-wabetainfo-3-features-to-come-on-whatsapp/) , the executives have apparently confirmed that multi-device capability will soon launch in beta capacity for fans of the popular messaging service.
+ This information comes from the highest authority, Facebook CEO Mark Zuckerberg and WhatsApp CEO Will Cathcart themselves. In an unexpected group chat with [WABetaInfo](https://wabetainfo.com/will-cathcart-and-mark-zuckerberg-confirm-to-wabetainfo-3-features-to-come-on-whatsapp/) , the executives have apparently confirmed that multi-device capability will soon launch in beta capacity for fans of the popular messaging service.
 
 One of the messages from Zuckerberg reads as follows:
 
@@ -65,3 +65,27 @@ One of the messages from Zuckerberg reads as follows:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-algorithm-why-it-hesitates-to-disable-suggests/"><u>Facebook Algorithm: Why It Hesitates to Disable Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-down-or-up-quick-ways-to-confirm/"><u>FB Down or Up: Quick Ways to Confirm</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-shift-unveiling-facebooks-metamorphosis/"><u>Social Network Shift: Unveiling Facebook’s Metamorphosis</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-secure-conversation-on-fb-real/"><u>Is Secure Conversation on FB Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-wealth-wisely-how-meta-aids-in-the-art-of-monetizing-reels/"><u>Creating Wealth Wisely: How Meta Aids in the Art of Monetizing Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-virtual-space-with-your-facebook-portal-tv/"><u>Navigating the Virtual Space with Your Facebook Portal TV</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-channel-visualization-selecting-the-ideal-size-and-placement-for-yt/"><u>[Updated] Channel Visualization  Selecting the Ideal Size and Placement for YT</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-sewing-techniques-in-tiktok-videos/"><u>[Updated] In 2024, Mastering Sewing Techniques in TikTok Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-exclusive-deals-and-previews-from-creators-for-2024/"><u>[New] Exclusive Deals & Previews From Creators for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-visionary-videography-top-cameras/"><u>[Updated] In 2024, Visionary Videography  Top Cameras</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-y17s-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo Y17s</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2023-mobile-download-for-fb-videos-cross-platform-for-2024/"><u>[New] 2023 Mobile Download for FB Videos, Cross-Platform for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-video-zoom-editors-of-the-year-roundup-for-2024/"><u>Best Video Zoom Editors of the Year - Roundup for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfecting-eq-adjustments-in-ableton/"><u>[Updated] Perfecting EQ Adjustments in Ableton</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-make-a-stunning-lyric-video-with-lyric-video-maker/"><u>[New] 2024 Approved  How to Make a Stunning Lyric Video with Lyric Video Maker</u></a></li>
+</ul></div>

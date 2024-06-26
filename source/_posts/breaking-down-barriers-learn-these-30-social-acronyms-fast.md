@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down Barriers: Learn These 30 Social Acronyms Fast"
-date: 2024-06-22 19:46:47
-updated: 2024-06-23 12:55:54
+date: 2024-06-25T14:17:54.729Z
+updated: 2024-06-26T14:17:54.729Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 ## 5\. DM
 
- A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
+ A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a [DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
 ## 6\. #F4F
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 ## 8\. RT
 
- On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can[turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
+ On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can [turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 ## 30\. FOMO
 
- FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
+ FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are [ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
 
 ## Never Get Left Behind
 
@@ -162,3 +162,23 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/uk-football-faction-steps-away-from-social-media-to-combat-hate-speech/"><u>UK Football Faction Steps Away From Social Media to Combat Hate Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quintessential-qanda-5-superior-biz-social-tools/"><u>The Quintessential Q&A: 5 Superior Biz Social Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-on-choosing-the-perfect-fb-profile-photo/"><u>Expert Tips on Choosing the Perfect Fb Profile Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-and-popularity-the-image-based-connection/"><u>Profile Pics & Popularity: The Image-Based Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-apple-iphone-15-pro-max-without-itunes-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked Apple iPhone 15 Pro Max Without iTunes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-laugh-fests-galore-the-best-joke-threads-on-tiktok/"><u>2024 Approved  Laugh Fests Galore  The Best Joke Threads on TikTok</u></a></li>
+<li><a href="https://change-location.techidaily.com/all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-secrets-of-xstream-studios-a-complete-review-for-2024/"><u>Unveiling the Secrets of XStream Studios - A Complete Review for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-transform-raw-footage-to-polished-youtube-stories-on-windows/"><u>[Updated] In 2024, Transform Raw Footage to Polished YouTube Stories on Windows</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-clearing-the-gusts-advanced-methods-for-removing-wind-effects-from-podcasts/"><u>Updated 2024 Approved Clearing the Gusts Advanced Methods for Removing Wind Effects From Podcasts</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-pros-guide-to-srt-alterations-on-a-macbook/"><u>[New] The Pro's Guide to SRT Alterations on a MacBook</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-5-tips-for-faster-editing-in-filmora/"><u>New 5 Tips for Faster Editing in Filmora</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-master-the-craft-powerdirector-2024-complete-guide-and-reviews/"><u>[Updated] Master the Craft  PowerDirector 2024 Complete Guide & Reviews</u></a></li>
+</ul></div>

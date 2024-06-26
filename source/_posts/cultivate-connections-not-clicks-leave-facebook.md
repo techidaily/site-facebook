@@ -1,7 +1,7 @@
 ---
 title: "Cultivate Connections, Not Clicks: Leave Facebook"
-date: 2024-06-20 13:22:42
-updated: 2024-06-23 10:23:43
+date: 2024-06-25T14:01:02.899Z
+updated: 2024-06-26T14:01:02.899Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/65fba9a952c6564fd879ce858daef732be8f2531c
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
- Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+ Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
 ### No Notifications
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/65fba9a952c6564fd879ce858daef732be8f2531c
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
- Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
 ## How to Deactivate Your Facebook Account
 
@@ -75,7 +75,7 @@ Close
 4. From**Account** , go to**Personal and account information** .
 5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
 
-1. Select**Deactivation and Deletion** to choose between both. There is a difference between[deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between [deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
 2. Tap**Continue to Account Deactivation** .
 3. Re-enter your Facebook password and press**Continue** .
 4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
@@ -84,11 +84,11 @@ Close
 7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
 8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
 
-**Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+**Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
 ### Via Desktop
 
- To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
+ To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
 
 1. After logging in, you will be directed to your Facebook Home page.
 2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
@@ -140,3 +140,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-facebook-renamed-itself-to-simplicity/"><u>How Facebook Renamed Itself to Simplicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-intruder-steps-for-detection-and-restoration/"><u>Facebook Intruder? Steps for Detection & Restoration</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-discussion-volume-on-your-social-media-hub/"><u>Elevate Discussion Volume on Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-group-discussions-via-channels-feature/"><u>Revolutionizing Group Discussions via Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-transform-the-chatbot-landscape-entirely/"><u>Can MetaAI Transform the Chatbot Landscape Entirely?</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-those-who-youve-shunned-on-facebook/"><u>Revisiting Those Who You’ve Shunned on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-facebook-memories-selective-sharing/"><u>Personalizing Facebook Memories: Selective Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dissecting-video-platform-features-youtube-vs-dailymention-for-2024/"><u>Dissecting Video Platform Features  YouTube Vs. DailyMention for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/perfecting-live-footage-with-fbx-recorder-for-2024/"><u>Perfecting Live Footage with FBX Recorder for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-clashing-kings-the-top-battle-royale-games/"><u>In 2024, Clashing Kings  The Top Battle Royale Games</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-crack-free-and-worry-free-how-to-get-filmora-for-free-legally/"><u>Updated 2024 Approved Crack-Free and Worry-Free How to Get Filmora for Free Legally</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-the-power-of-youtube-editing-a-compre-written-in-code-the-intricacies-of-javascript-functions/"><u>Discover the Power of YouTube Editing  A Compre Written in Code  The Intricacies of JavaScript Functions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/synergizing-visual-elements-best-text-plugins-reviewed/"><u>Synergizing Visual Elements  Best Text Plugins Reviewed</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-make-movies-on-the-go-top-10-android-video-editing-apps/"><u>New Make Movies on the Go Top 10 Android Video Editing Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-audiences-choice-for-best-action-capture-tools/"><u>2024 Approved  Audience's Choice for Best Action Capture Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premier-selection-incredible-platform-compatible-free-streaming-apps/"><u>[New] Premier Selection  Incredible, Platform-Compatible Free Streaming Apps</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-tech-savvy-academics-recording-education-talks-with-macos-for-2024/"><u>[Updated] Tech-Savvy Academics  Recording Education Talks with MacOS for 2024</u></a></li>
+</ul></div>

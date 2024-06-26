@@ -1,7 +1,7 @@
 ---
 title: Complete Blockade of All Fb Push Notifications
-date: 2024-06-22 12:51:21
-updated: 2024-06-23 11:41:57
+date: 2024-06-25T14:16:58.967Z
+updated: 2024-06-26T14:16:58.967Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/18d1ae3b93316df7253b6d9ca3430e2e7b9da85a6
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disentangle-your-social-networks-instagram-and-facebook/"><u>How to Disentangle Your Social Networks (Instagram & Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-artfully-crafted-online-ruses/"><u>Avoiding Artfully Crafted Online Ruses</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-new-beats-with-miniplayer-spotify-meets-facebook/"><u>Discover New Beats with Miniplayer: Spotify Meets Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-no-security-code-dilemma-with-your-facebook-account/"><u>Deciphering No-Security-Code Dilemma with Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-grounded-a-guide-to-understanding-stablecoin-basics/"><u>Staying Grounded: A Guide to Understanding Stablecoin Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchain-yourself-avoid-being-tagged-in-photos/"><u>Unchain Yourself: Avoid Being Tagged in Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-metaverse-facebooks-revolution-in-digital-spaces/"><u>Decoding the Metaverse: Facebook's Revolution in Digital Spaces</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-audiovisual-alchemy-formulating-your-youtube-playlist-for-2024/"><u>[Updated] Audiovisual Alchemy  Formulating Your YouTube Playlist for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-top-free-wmv-video-assembly-software/"><u>New The Top Free WMV Video Assembly Software</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-efficient-gaming-footage-with-camcapture-for-2024/"><u>[New] Efficient Gaming Footage with CamCapture for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/prime-viewer-iosandroidwindows-compatible/"><u>Prime Viewer  IOS/Android/Windows Compatible</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-audio-interfaces-unveiled-the-podcasters-must-have-list/"><u>Top Audio Interfaces Unveiled  The Podcaster's Must-Have List</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-6-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 6 to New iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-thrive-on-instavid-a-guide-to-creating-a-solid-video-marketing-framework/"><u>[Updated] 2024 Approved  Thrive on InstaVid  A Guide to Creating a Solid Video Marketing Framework</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-unbrick-a-dead-oppo-a79-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-masterclass-selecting-excellent-podcast-hosts/"><u>In 2024, Masterclass  Selecting Excellent Podcast Hosts</u></a></li>
+</ul></div>

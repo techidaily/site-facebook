@@ -1,7 +1,7 @@
 ---
 title: "Preserving Your Digital Footprint: Full Facebook Activity Archives"
-date: 2024-06-20 18:21:27
-updated: 2024-06-23 12:41:57
+date: 2024-06-25T14:16:32.997Z
+updated: 2024-06-26T14:16:32.997Z
 tags:
   - facebook
 categories:
@@ -27,14 +27,12 @@ thumbnail: https://thmb.techidaily.com/c10f5fc3a26c6243fb8c4940c266b426236bd87cd
 
  Since the file you're downloading is quite large, we'll cover the method most users will opt for—sending the request via your desktop browser.
 
-## How to Request Your Data on the Facebook Website
-
-![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
+## How to Request Your Data on the Facebook Website ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
-1. Log in to[Facebook.com](http://www.facebook.com) .
-2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to[Facebook.com/settings](http://www.facebook.com/settings) .
+1. Log in to [Facebook.com](http://www.facebook.com) .
+2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to [Facebook.com/settings](http://www.facebook.com/settings) .
 3. Click**Your Facebook Information** .
 4. Go to**Download Your Information** and click on**View** .
 5. Select what data points to include by checking the appropriate box under Deselect All, or maintain the default settings.
@@ -49,9 +47,7 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-## Customizing Your Facebook Data Download
-
-![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
+## Customizing Your Facebook Data Download ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 
@@ -89,7 +85,7 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
- Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
+ Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
 
@@ -103,7 +99,7 @@ Other downloadable datasets include:
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
 
- We've covered plenty of ways to[download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ We've covered plenty of ways to [download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
@@ -132,3 +128,27 @@ Other downloadable datasets include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-permanently-deleting-fb-account-android/"><u>Mastering the Art of Permanently Deleting FB Account (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebrand-yourself-with-a-new-facebook-profile-pic/"><u>Rebrand Yourself with a New Facebook Profile Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-deleting-fb-watch-history-and-its-benefits/"><u>Clearing Up: Deleting FB Watch History & Its Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-do-and-dont-of-social-media-keeping-your-privacy-intact/"><u>The Do and Don't of Social Media: Keeping Your Privacy Intact</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-second-life-make-a-comeback-as-we-head-into-the-metaverse/"><u>Could Second Life Make a Comeback as We Head Into the Metaverse?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-beneath-the-surface-exploring-the-invisible-aspects-of-viewing-stories/"><u>[Updated] 2024 Approved  Beneath the Surface  Exploring The Invisible Aspects of Viewing Stories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-the-power-of-your-youtube-channel-with-expert-editing-techniques/"><u>[New] Unleash the Power of Your YouTube Channel with Expert Editing Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-lenovo-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Lenovo Phones</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6 Plus with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-oppo-reno-10-proplus-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Oppo Reno 10 Pro+ 5G</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-realme-gt-5-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Realme GT 5 FRP Locks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-frenzied-funhouse-a-guide-to-wildest-tiktok-games/"><u>[Updated] 2024 Approved  Frenzied Funhouse  A Guide to Wildest TikTok Games</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Huawei Nova Y71? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-comparing-reels-and-stories-whats-the-best-choice-in-2024/"><u>[Updated] Comparing Reels & Stories  What's the Best Choice, In 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Is Facebook Down? How to Find Out and See When It's Back Up
-date: 2024-06-21 17:46:34
-updated: 2024-06-23 10:53:48
+date: 2024-06-25T14:48:42.952Z
+updated: 2024-06-26T14:48:42.952Z
 tags:
   - facebook
 categories:
@@ -35,19 +35,19 @@ thumbnail: https://thmb.techidaily.com/b279c06b6e6c3fd0e8d4629e4ec0cbf49c045cc7b
 
  If it works, you've isolated the issue to only your computer. Try another browser to make sure that it's not an issue with your current one, and restart your computer to clear up any temporary issues.
 
- In case you can't open any websites on your network, see[how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
+ In case you can't open any websites on your network, see [how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
 
 ### 2\. Check an Outage Detector Website
 
- Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as[Downdetector](https://downdetector.com/) .
+ Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as [Downdetector](https://downdetector.com/) .
 
- On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open[Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
+ On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open [Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
 
 ![Facebook Downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Downdetector.png)
 
  If you see a spike in issues recently, chances are good that Facebook is down for everyone. Further down the page, you'll find a map of where people reported Facebook issues from, comments, and whether the issues are with the website, app, or server connections.
 
- For a second opinion, you can also check[Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
+ For a second opinion, you can also check [Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/b279c06b6e6c3fd0e8d4629e4ec0cbf49c045cc7b
 
  While Downdetector and similar sites are a reliable source for Facebook (and other) outages, it's a good idea to supplement what you find there with other data. Twitter is one of the best places to find up-to-the-minute information about pretty much anything, including website outages.
 
- Head to[Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at[Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
+ Head to [Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at [Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
 
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
@@ -87,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/b279c06b6e6c3fd0e8d4629e4ec0cbf49c045cc7b
 
 ## Get Alerts When Facebook Goes Down in the Future
 
- If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like[DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
+ If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like [DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
 
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
 
@@ -114,3 +114,27 @@ thumbnail: https://thmb.techidaily.com/b279c06b6e6c3fd0e8d4629e4ec0cbf49c045cc7b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-facebooks-organizational-framework/"><u>Insightful Analysis: Facebook's Organizational Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/tap-into-new-streams-of-income-instagrams-latest-monetization-tools-for-artists/"><u>Tap Into New Streams of Income: Instagram’s Latest Monetization Tools for Artists</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-metas-status-symbol/"><u>Deciphering Meta's Status Symbol</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150747284-facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-lost-social-media-conversations-on-fb/"><u>Finding Lost Social Media Conversations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-business-focused-networks-for-maximum-engagement/"><u>Top Business-Focused Networks for Maximum Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/opting-out-the-emerging-consensus-among-iphone-owners/"><u>Opting Out: The Emerging Consensus Among iPhone Owners</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-to-connections-post-social-deletion/"><u>What Happens to Connections Post-Social Deletion?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-significance-of-leaked-social-media-data/"><u>Deciphering the Significance of Leaked Social Media Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-silent-voice-of-facebook/"><u>Identifying the Silent Voice of Facebook</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-streaming-strategy-is-vlc-worthy-to-challenge-mpc/"><u>In 2024, Streaming Strategy  Is VLC Worthy to Challenge MPC?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-strategies-for-effectively-swapping-gender-identity-in-digital-media-images-for-2024/"><u>[Updated] Strategies for Effectively Swapping Gender Identity in Digital Media Images for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-vivo-s17t-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Vivo S17t Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-zte-nubia-flip-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your ZTE Nubia Flip 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-best-free-downloaders-download-youtube-thumbnail-for-free/"><u>[Updated] In 2024, Best Free Downloaders  Download YouTube Thumbnail for Free</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-apple-iphone-11-pro-max-location-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Phone Number Locators To Track Apple iPhone 11 Pro Max Location | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-the-melodies-secrets-to-adding-soundtracks-on-insta/"><u>[Updated] Master the Melodies  Secrets to Adding Soundtracks on Insta</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-safe-sharing-starts-here-the-copyright-check-for-tiktok-videos/"><u>[Updated] Safe Sharing Starts Here  The Copyright Check for TikTok Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/uncover-5-powerful-speech-recognition-tools-for-your-mac/"><u>Uncover 5 Powerful Speech Recognition Tools for Your Mac</u></a></li>
+</ul></div>

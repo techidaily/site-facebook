@@ -1,7 +1,7 @@
 ---
 title: Muting Unsolicited Social Network Friend Alerts
-date: 2024-06-21 10:56:16
-updated: 2024-06-23 11:53:31
+date: 2024-06-25T14:49:34.524Z
+updated: 2024-06-26T14:49:34.524Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/privacy-control-removing-browsing-history-on-facebook/"><u>Privacy Control: Removing Browsing History on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-purpose-of-renaming-news-feed-on-facebook/"><u>What Is the Purpose of Renaming 'News Feed' On Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-a-secure-social-media-network/"><u>Constructing a Secure Social Media Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-integration-in-facebook-a-step-by-step-guide/"><u>Spotify Integration in Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifeline-cut-understanding-fb-ban-reasons/"><u>Lifeline Cut: Understanding Fb Ban Reasons</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-purge-facebooks-view-logs-today/"><u>Why You Should Purge Facebook's View Logs Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-music-infused-video-tutorials-for-enhanced-social-media-presence-fb-for-2024/"><u>[Updated] Music-Infused Video Tutorials for Enhanced Social Media Presence (FB) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-iphone-album-arrangement-masterclass-achieving-systematic-order-and-cloud-sync/"><u>[Updated] IPhone Album Arrangement Masterclass  Achieving Systematic Order & Cloud Sync</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-a-step-by-step-guide-to-youtube-comms-management/"><u>2024 Approved  A Step-by-Step Guide to YouTube Comms Management</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/infinity-refresh-top-5-hdmi-2ranetixx-gaming-screens-ps5/"><u>Infinity Refresh  Top 5 HDMI 2Ranetixx Gaming Screens [PS5]</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/end-curated-content-on-instagram/"><u>End Curated Content on Instagram</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-raw-footage-to-final-cut-chroma-mastery/"><u>[New] In 2024, From Raw Footage to Final Cut  Chroma Mastery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-ai-pixel-perfect-editor/"><u>In 2024, Innovative AI Pixel Perfect Editor</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-assessing-the-capabilities-of-yuneecs-typhoon-h-drone/"><u>2024 Approved  Assessing the Capabilities of Yuneec's Typhoon H Drone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-apple-iphone-se-2022-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-screen-scanning-mastery-using-fraps-tools/"><u>2024 Approved  Screen Scanning Mastery Using Fraps Tools</u></a></li>
+</ul></div>

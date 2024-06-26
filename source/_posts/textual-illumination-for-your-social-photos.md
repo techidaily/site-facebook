@@ -1,7 +1,7 @@
 ---
 title: Textual Illumination for Your Social Photos
-date: 2024-06-21 13:17:30
-updated: 2024-06-23 11:34:12
+date: 2024-06-25T14:20:57.491Z
+updated: 2024-06-26T14:20:57.491Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App
-
-![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -56,13 +54,11 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web
-
-![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
-1. Log in to[Facebook](https://www.facebook.com) on your browser.
+1. Log in to [Facebook](https://www.facebook.com) on your browser.
 2. Click on**Photo/Video** at the top of your Newsfeed or timeline.
 3. Select the desired photo.
 4. Hover over the photo and click**Edit** .
@@ -72,9 +68,7 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded
-
-![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -114,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-and-reactivating-your-fbs-hidden-security-codes/"><u>Retrieving and Reactivating Your FB's Hidden Security Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metaais-potential-in-dialogue-technology/"><u>Dissecting MetaAI's Potential in Dialogue Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://facebook.techidaily.com/build-your-career-with-smart-social-media-strategies/"><u>Build Your Career with Smart Social Media Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-is-expecting-more-bad-headlines-to-come/"><u>Why Facebook Is Expecting More Bad Headlines to Come</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveil-social-connectivity-transfer-facebook-storages-to-leading-services/"><u>Unveil Social Connectivity: Transfer Facebook Storages to Leading Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-blueprint-from-facebook-to-meta-innovation/"><u>Virtual Voyage Blueprint: From Facebook to Meta Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-havens-the-safest-social-media/"><u>Digital Havens: The Safest Social Media?</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-zte-nubia-z60-ultra-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On ZTE Nubia Z60 Ultra</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-culinary-carousel-swirling-up-top-food-network-names/"><u>[New] Culinary Carousel  Swirling Up Top Food Network Names</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-archive-alchemist-transforming-social-feeds-to-files-for-2024/"><u>[New] The Archive Alchemist  Transforming Social Feeds to Files for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-socialsound-maker-twitter-audio/"><u>[New] In 2024, SocialSound Maker  Twitter Audio</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-ultimate-guide-to-removing-tiktok-watermarks-for-free-for-2024/"><u>The Ultimate Guide to Removing TikTok Watermarks for Free for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-samsung-galaxy-xcover-6-pro-tactical-edition-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Samsung Galaxy XCover 6 Pro Tactical Edition to iPhone | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-time-lapse-techniques-for-samsung-enthusiasts/"><u>2024 Approved  Unveiling Time Lapse Techniques for Samsung Enthusiasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-10-standout-educational-websites-for-self-paced-learning/"><u>[Updated] 10 Standout Educational Websites for Self-Paced Learning</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>2024 Approved  Cutting Edge Computing  Select the Optimal Device for Video Editing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/master-iphone-multitasking-how-to-toggle-pip-on-youtube-app/"><u>Master iPhone Multitasking  How to Toggle PIP on YouTube App</u></a></li>
+</ul></div>

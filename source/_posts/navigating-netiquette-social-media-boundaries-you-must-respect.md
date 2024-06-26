@@ -1,7 +1,7 @@
 ---
 title: "Navigating Netiquette: Social Media Boundaries You Must Respect"
-date: 2024-06-21 17:26:11
-updated: 2024-06-23 12:53:24
+date: 2024-06-25T14:14:29.988Z
+updated: 2024-06-26T14:14:29.988Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans
-
-![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,11 +73,9 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
- Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
+ Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice
-
-![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -87,13 +83,11 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests
-
-![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
- If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
+ If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called [social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
@@ -132,3 +126,24 @@ thumbnail: https://thmb.techidaily.com/1d642682ec5cb6a6ea7cd33f84c3c6bed241d468d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/suing-for-privacy-whatsapp-vs-indian-government-regulations/"><u>Suing for Privacy: WhatsApp vs Indian Government Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-represents-your-online-pictures/"><u>Who Represents Your Online Pictures?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-authenticity-on-meta-platforms/"><u>Social Authenticity on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaai-a-next-gen-chatbot-enhancer/"><u>Decoding MetaAI: A Next-Gen Chatbot Enhancer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-shift-unveiling-facebooks-metamorphosis/"><u>Social Network Shift: Unveiling Facebook’s Metamorphosis</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-commits-5-million-in-support-of-pandemic-efforts/"><u>Facebook Commits $5 Million in Support of Pandemic Efforts</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundscapes-in-speeches-the-rise-of-facebooks-soundemojis/"><u>Soundscapes in Speeches: The Rise of Facebook's Soundemojis</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlock-your-tecno-spark-go-2023s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Tecno Spark Go (2023)s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-complete-guide-to-video-editing-in-windows-8-movie-maker/"><u>2024 Approved  The Complete Guide to Video Editing in Windows 8 Movie Maker</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-jotunheims-gambit-warriors-of-ragnarok-for-2024/"><u>[New] Jotunheim's Gambit  Warriors of Ragnarok for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-personalizing-video-covers-for-facebook/"><u>2024 Approved  Mastering the Art of Personalizing Video Covers for Facebook</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-video-editing-software-with-music-top-online-picks/"><u>Updated In 2024, Video Editing Software with Music Top Online Picks</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-top-free-wmv-video-assembly-software/"><u>New In 2024, The Top Free WMV Video Assembly Software</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/amplify-your-snapchat-experience-with-easy-voice-customization-for-2024/"><u>Amplify Your Snapchat Experience with Easy Voice Customization for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-breakthrough-tactics-for-efficient-home-podcasting/"><u>[New] 2024 Approved  Breakthrough Tactics for Efficient Home Podcasting</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-infinix-note-30i-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Infinix Note 30i Screen to PC Using WiFi | Dr.fone</u></a></li>
+</ul></div>

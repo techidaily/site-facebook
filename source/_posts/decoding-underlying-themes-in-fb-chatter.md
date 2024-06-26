@@ -1,7 +1,7 @@
 ---
 title: Decoding Underlying Themes in FB Chatter
-date: 2024-06-21 22:40:11
-updated: 2024-06-23 12:54:32
+date: 2024-06-25T14:47:32.424Z
+updated: 2024-06-26T14:47:32.424Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 ![Messenger Requests Main View](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Requests-Main-View.jpg)
 
- Until you reply, the other person can’t see if you’ve read their message or when you’re online on Messenger. Once you respond, Messenger will move the chat to your main inbox and treat it like any other. That person will then be able to see your online status, know that you’ve read their messages[via Messenger’s icons](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/) , and can call you.
+ Until you reply, the other person can’t see if you’ve read their message or when you’re online on Messenger. Once you respond, Messenger will move the chat to your main inbox and treat it like any other. That person will then be able to see your online status, know that you’ve read their messages [via Messenger’s icons](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/) , and can call you.
 
  For messages you aren’t interested in, click the**I don’t want to hear from \[name\]** link above the reply box.
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
  If this was your first time digging into your message requests box, you might be surprised how much is there. If you find that too many many messages are being filtered, or messages that should be caught in the filter are going to your primary inbox, you can adjust how Messenger deals with these.
 
- To do so on desktop, click the three-dot menu at the top-left of the chat page and choose**Preferences** . In this menu, click**Manage message delivery** , which will bring you to[the**Privacy** page](https://www.facebook.com/settings/?tab=privacy) of Facebook’s main Settings menu. The relevant settings are in the**How You Get Message Requests** section at the bottom.
+ To do so on desktop, click the three-dot menu at the top-left of the chat page and choose**Preferences** . In this menu, click**Manage message delivery** , which will bring you to [the**Privacy** page](https://www.facebook.com/settings/?tab=privacy) of Facebook’s main Settings menu. The relevant settings are in the**How You Get Message Requests** section at the bottom.
 
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/41b376d29e85724c5481e57f7a36ad6deb299d08d
 
 ### Potential Connections: Legitimate Requests
 
- In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+ In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your [number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can [use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
 
@@ -81,7 +81,7 @@ Close
 
 ## How to See Your Archived Messages on Messenger
 
- Archiving chats is one of[Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
+ Archiving chats is one of [Messenger’s lesser-known but useful features](https://www.makeuseof.com/useful-facebook-messenger-features/) . When you archive a conversation, it’s removed from your inbox but is still active. Next time someone sends a message in the chat, it will reappear in your main list.
 
  To archive a chat in Messenger, click the three-dot button that appears next to it in the list and choose**Archive chat** . On the mobile app, long-press on a conversation in your inbox to see this option.
 
@@ -93,11 +93,9 @@ Close
 
 ## How to Block People on Facebook Messenger
 
- To complete our discussion on managing hidden and unread messages on Messenger, don’t forget you can[block people on Messenger](https://www.makeuseof.com/how-to-block-and-unblock-messenger/) to prevent them from contacting you. To access this page, click the same three-dot menu in Messenger and choose**Preferences > Manage blocking** . This brings you to the[Blocking tab](https://www.facebook.com/settings/?tab=blocking) of your Facebook settings.
+ To complete our discussion on managing hidden and unread messages on Messenger, don’t forget you can [block people on Messenger](https://www.makeuseof.com/how-to-block-and-unblock-messenger/) to prevent them from contacting you. To access this page, click the same three-dot menu in Messenger and choose**Preferences > Manage blocking** . This brings you to the [Blocking tab](https://www.facebook.com/settings/?tab=blocking) of your Facebook settings.
 
- This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See
-
-![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
+ This page contains several ways to block people; choose**Block messages** and search for anyone you want to block. These people won’t be able to contact you on Messenger, but can still connect on Facebook. If you don’t want to hear from them at all, add them to the**Block users** list instead. See ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 ## Seek and Find Hidden Messages on Facebook Messenger
 
@@ -122,3 +120,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/suing-big-three-trump-accuses-silencing-of-public-voices/"><u>Suing Big Three: Trump Accuses Silencing of Public Voices</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-metaais-role-in-advancing-conversational-tech/"><u>Assessing MetaAI’s Role in Advancing Conversational Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-dimension-of-connection-the-metaverse-explained/"><u>A New Dimension of Connection: The Metaverse Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-copyright-to-my-shared-snapshots/"><u>Who Holds Copyright to My Shared Snapshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/lock-your-likes-making-photo-sharing-on-facebook-private/"><u>Lock Your Likes: Making Photo Sharing on Facebook Private</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-windows-10-webcam-recording-made-easy-top-10-software-for-2024/"><u>Updated Windows 10 Webcam Recording Made Easy Top 10 Software for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-12r-phone-without-password-by-drfone-android/"><u>How To Unlock OnePlus 12R Phone Without Password?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-mirroring-mastery-the-craft-of-comical-mocks/"><u>[Updated] Mirroring Mastery  The Craft of Comical Mocks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-standout-tiktok-pfp-designs-that-set-you-apart/"><u>[New] Standout TikTok PFP Designs That Set You Apart</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-selective-selections-notable-sites-for-snagging-snapalert-tunes/"><u>[Updated] Selective Selections  Notable Sites for Snagging SnapAlert Tunes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-samsung-galaxy-s24-ultra-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from Samsung Galaxy S24 Ultra</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-essential-insights-on-youtube-tvs-unique-features/"><u>In 2024, Essential Insights on YouTube TV's Unique Features</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-everything-you-need-to-know-about-xmlfiles-in-fcpx/"><u>New 2024 Approved Everything You Need to Know About XMLFiles in FCPX</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-eliminate-payment-for-cam-screen-recording-a-comparative-study/"><u>In 2024, Eliminate Payment for Cam Screen Recording – A Comparative Study</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+</ul></div>

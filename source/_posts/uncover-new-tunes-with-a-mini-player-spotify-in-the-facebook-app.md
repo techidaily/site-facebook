@@ -1,7 +1,7 @@
 ---
 title: Uncover New Tunes with a Mini Player – Spotify in the Facebook App
-date: 2024-06-21 13:35:58
-updated: 2024-06-23 10:52:12
+date: 2024-06-25T14:31:10.750Z
+updated: 2024-06-26T14:31:10.750Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/850c193e7db5e5c0dafad83a501e0d012a7f8ab4b
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
- In a post on[For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
+ In a post on [For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
 
  Also, it doesn’t matter whether you use Spotify for free or have a subscription since the built-in music player is available for everyone. Just with the usual limitations applied to anyone listening for free.
 
@@ -57,7 +57,7 @@ Close
 
 ## More Audio Features Are Coming Soon
 
- To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as[Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
+ To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -76,3 +76,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/exploring-how-quizzes-can-jeopardize-cyber-safety/"><u>Exploring How Quizzes Can Jeopardize Cyber Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-economy-of-eyeing-us-from-afar/"><u>The Economy of Eyeing Us From Afar</u></a></li>
+<li><a href="https://facebook.techidaily.com/legacy-management-keeping-or-clearing-a-deceaseds-facebook/"><u>Legacy Management: Keeping or Clearing a Deceased's Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pixels-perfection-leading-online-photo-correction-tech/"><u>2024 Approved  Pixels Perfection  Leading Online Photo Correction Tech</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/perfected-pics-made-easy-the-full-review-of-facetunes-updates/"><u>Perfected Pics Made Easy  The Full Review of Facetune's Updates</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-fb-video-grabber-hq-download-guide/"><u>[Updated] FB Video Grabber  HQ Download Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-ultimate-guide-to-recording-hulu-episodes-on-multiple-devices/"><u>[Updated] In 2024, The Ultimate Guide to Recording Hulu Episodes on Multiple Devices</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-how-to-archive-snaps-from-android-plus-mac-systems/"><u>[Updated] 2024 Approved  How to Archive Snaps From Android + Mac Systems</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-from-sideways-to-symmetry-the-instagram-chronicles-of-flipping-photos/"><u>[Updated] 2024 Approved  From Sideways to Symmetry  The Instagram Chronicles of Flipping Photos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-monetizing-popularity-pay-per-million-views/"><u>[Updated] Monetizing Popularity  Pay Per Million Views</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/captivating-viewers-with-tiktoks-best-captioning-practices-top-5-for-2024/"><u>Captivating Viewers with TikTok's Best Captioning Practices (Top 5) for 2024</u></a></li>
+</ul></div>

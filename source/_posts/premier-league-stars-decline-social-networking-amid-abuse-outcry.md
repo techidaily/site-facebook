@@ -1,7 +1,7 @@
 ---
 title: Premier League Stars Decline Social Networking Amid Abuse Outcry
-date: 2024-06-20 16:13:32
-updated: 2024-06-23 12:13:48
+date: 2024-06-25T13:55:48.511Z
+updated: 2024-06-26T13:55:48.511Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/6cb4391f5b78a0bded981255e816f25b4a4f4175f
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,22 @@ thumbnail: https://thmb.techidaily.com/6cb4391f5b78a0bded981255e816f25b4a4f4175f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/secure-sharing-space-removing-interaction-from-your-fb-content/"><u>Secure Sharing Space: Removing Interaction From Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-webs-benefits-the-top-7-societal-upsurges/"><u>Social Web’s Benefits: The Top 7 Societal Upsurges</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-which-platform-delivers-the-deeper-digital-community/"><u>Discovering Which Platform Delivers the Deeper Digital Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-people-who-follow-on-facebook/"><u>Uncovering People Who Follow on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reset-your-digital-boundaries-post-facebook-account-hack/"><u>Reset Your Digital Boundaries Post-Facebook Account Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-pictures-worth-more-than-a-thousand-written-words-facebooks-ai/"><u>A Picture's Worth More Than a Thousand Written Words - Facebook's AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-multi-group-posts-for-greater-engagement/"><u>Harnessing the Power of Multi-Group Posts for Greater Engagement</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-immediate-solution-for-podcast-livestreaming/"><u>[New] 2024 Approved  Immediate Solution for Podcast Livestreaming</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-vivo-v29e-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Vivo V29e Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovation-in-display-tech-top-10-of-4k-displays/"><u>[New] Innovation in Display Tech  #Top 10 of 4K Displays</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-detailed-review-obs-as-a-top-choice-for-screen-recorders/"><u>[Updated] 2024 Approved  Detailed Review  OBS as a Top Choice for Screen Recorders</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlock-the-potential-of-photography-with-adobe-motion-blur/"><u>[New] Unlock the Potential of Photography with Adobe Motion Blur</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pewdiepie-financial-overview-monetary-metrics/"><u>In 2024, PewDiePie Financial Overview – Monetary Metrics</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-getting-started-a-primer-on-screencastify-use/"><u>2024 Approved  Getting Started  A Primer on Screencastify Use</u></a></li>
+</ul></div>

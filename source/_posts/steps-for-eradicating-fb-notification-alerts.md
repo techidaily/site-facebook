@@ -1,7 +1,7 @@
 ---
 title: Steps for Eradicating Fb Notification Alerts
-date: 2024-06-21 11:54:43
-updated: 2024-06-23 12:42:41
+date: 2024-06-25T14:08:27.357Z
+updated: 2024-06-26T14:08:27.357Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/66f3a5314b7f0b6f994f976b66c33a57ff0466854
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-## How to Delete Facebook Notifications
-
-![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+## How to Delete Facebook Notifications ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -74,9 +72,7 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-### How to Turn Off Facebook Notifications by Category
-
-![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+### How to Turn Off Facebook Notifications by Category ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -99,9 +95,7 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-### How to Stop Facebook Notifications on Android
-
-![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+### How to Stop Facebook Notifications on Android ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -148,3 +142,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-network-sets-higher-barrier-against-fake-news-truths/"><u>Social Network Sets Higher Barrier Against Fake News Truths</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-leave-a-facebook-group/"><u>How to Leave a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-tactics-for-obtaining-a-refund-on-fb/"><u>Effective Tactics for Obtaining a Refund on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-tactics-against-online-platforms-shadowbans/"><u>Evasion Tactics Against Online Platform's Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-language-preferences-in-facebook-advertising/"><u>Navigating Language Preferences in Facebook Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/syncing-tunes-to-earnings-facebooks-music-strategy/"><u>Syncing Tunes to Earnings: Facebook’s Music Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-8-ways-to-interlink-socially/"><u>Digital Harmony: 8 Ways to Interlink Socially</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-airdate-selection-podcast-release-tactics/"><u>2024 Approved  Mastering Airdate Selection  Podcast Release Tactics</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-steps-to-successful-mac-video-capture/"><u>2024 Approved  Steps to Successful Mac Video Capture</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-the-art-of-anonymity-in-video-hiding-private-data/"><u>[New] In 2024, The Art of Anonymity in Video  Hiding Private Data</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-creative-potential-with-luts-in-cs6cc/"><u>2024 Approved  Unlocking Creative Potential with LUTs in CS6/CC</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-recover-hidden-shorts-thumbnails-in-videos-for-2024/"><u>[New] How to Recover Hidden Shorts' Thumbnails in Videos for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-key-to-making-youtube-videos-stand-out-on-instagram-stories-for-2024/"><u>The Key to Making YouTube Videos Stand Out on Instagram Stories for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/mastering-quicktime-video-editing-on-mac-a-beginners-guide/"><u>Mastering QuickTime Video Editing on Mac A Beginners Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-vivo-s17e-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Vivo S17e | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-insights-into-instagrams-selfie-verification-for-2024/"><u>[New] Insights Into Instagram's Selfie Verification for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-rundown-top-8-exceptional-free-online-translation-platforms/"><u>2024 Approved  A Rundown  Top 8 Exceptional Free Online Translation Platforms</u></a></li>
+</ul></div>

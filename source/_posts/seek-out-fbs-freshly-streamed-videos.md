@@ -1,7 +1,7 @@
 ---
 title: Seek Out FB’s Freshly Streamed Videos
-date: 2024-06-22 23:37:23
-updated: 2024-06-23 11:42:21
+date: 2024-06-25T14:42:20.015Z
+updated: 2024-06-26T14:42:20.015Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/6e5f95b25124810982ee054b31aff132061c491b9
 
 ## How to View Recently Watched Facebook Videos on the Web
 
- Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
+ Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to [find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
 
  Here's how to access Facebook's Activity log section on the web and view your recently watched videos:
 
@@ -107,3 +107,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/identity-infiltration-suspicious-social-sites/"><u>Identity Infiltration: Suspicious Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-concealing-your-facebook-content-via-archiving/"><u>Mastering the Art: Concealing Your Facebook Content via Archiving</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detective-work-finding-profile-connections-in-fb/"><u>Digital Detective Work: Finding Profile Connections in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-happiness-without-facebooks-chains/"><u>Unlock Happiness Without Facebook's Chains</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-silence-popular-apps-suddenly-inactive/"><u>Online Silence: Popular Apps Suddenly Inactive</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-persistent-social-media-advice-is-inevitable/"><u>Why Persistent Social Media Advice Is Inevitable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-identity-transformation-protocol/"><u>Understanding Facebook's Identity Transformation Protocol</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-10-best-no-cost-live-streaming-tools-android-and-iphone-guide/"><u>2024 Approved  10 Best No-Cost Live Streaming Tools  Android & iPhone Guide</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-xiaomi-14-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Xiaomi 14</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cutting-edge-visual-techniques-selecting-premium-camera-lenses-for-2024/"><u>[New] Cutting-Edge Visual Techniques  Selecting Premium Camera Lenses for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-14-pro-max-complete-guide-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone 14 Pro Max? Complete Guide</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-motion-blur-photo-with-gimp-step-by-step-guide/"><u>2024 Approved Motion Blur Photo With GIMP Step-By-Step Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-motorola-moto-g73-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Motorola Moto G73 5G Phones with/without a PC</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/step-by-step-webcam-recording-on-hp-systems/"><u>Step-by-Step Webcam Recording on HP Systems</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/1714191068178-new-are-you-looking-to-choose-the-right-online-gaming-intro-maker-without-a-watermark-facility-but-lost-in-the-world-of-the-web-then-the-solution-is-with-th/"><u>New Are You Looking to Choose the Right Online Gaming Intro Maker without a Watermark Facility but Lost in the World of the Web? Then, the Solution Is with This Ultimate Guide to an Online Intro Maker for Gaming for 2024</u></a></li>
+</ul></div>

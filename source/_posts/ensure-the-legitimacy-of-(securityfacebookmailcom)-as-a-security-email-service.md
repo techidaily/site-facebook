@@ -1,7 +1,7 @@
 ---
 title: Ensure the Legitimacy of @<security@facebookmail.com> as a Security Email Service
-date: 2024-06-20 23:22:12
-updated: 2024-06-23 10:15:46
+date: 2024-06-25T14:27:44.742Z
+updated: 2024-06-26T14:27:44.743Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
- When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
+ When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
@@ -77,17 +77,15 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
 **Don't click on any link or button** embedded in the email account that claims to activate Facebook Protect or supposedly enables you to log in. Otherwise, you could end up getting your Facebook account hacked. And certainly**don't download or open any attachments** added in the email. Otherwise, your browser will be hijacked, or your device may become infected.
 
- In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
+ In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-## What to Do if You Fall for a Fake Facebook Protect Email Scam
+## What to Do if You Fall for a Fake Facebook Protect Email Scam ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
-
- If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
 
- Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple[things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple [things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
@@ -110,3 +108,22 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-conversations-the-countdown-for-fb-messengers-e2ee/"><u>Securing Your Conversations: The Countdown for FB Messenger's E2EE</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-fb-profile-private-strangers-not/"><u>Keep Your FB Profile Private, Strangers' Not</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-novel-network-nodes-a-guide-to-modern-fb-groups/"><u>Unveiling Novel Network Nodes: A Guide to Modern FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicle-of-connections-digging-into-facebook-past/"><u>Chronicle of Connections: Digging Into Facebook Past</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-ascend-youtube-rankings-through-optimal-dating/"><u>[New] In 2024, Ascend YouTube Rankings Through Optimal Dating</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/the-ultimate-blueprint-for-a-thriving-tiktok-advertisement/"><u>The Ultimate Blueprint for a Thriving TikTok Advertisement</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-best-video-editing-apps-for-young-creators-free-and-paid-editions/"><u>New 2024 Approved Best Video Editing Apps for Young Creators Free and Paid Editions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-transforming-chat-frustrations-into-effective-google-meet-conversations-for-2024/"><u>[New] Transforming Chat Frustrations Into Effective Google Meet Conversations for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-creation-made-simple-youtubes-top-business-channels-listed/"><u>[Updated] In 2024, Channel Creation Made Simple  YouTube's Top Business Channels Listed</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-no-experience-necessary-video-editing-free-cutting-and-joining-software-for-2024/"><u>Updated No-Experience-Necessary Video Editing Free Cutting and Joining Software for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-macos-producing-high-quality-ootd-tiktoks/"><u>[New] 2024 Approved  Mastering MacOS  Producing High-Quality OOTD TikToks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-infinix-zero-30-5g-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Infinix Zero 30 5G | Dr.fone</u></a></li>
+</ul></div>

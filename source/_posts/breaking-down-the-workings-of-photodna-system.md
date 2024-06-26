@@ -1,7 +1,7 @@
 ---
 title: Breaking Down the Workings of PhotoDNA System
-date: 2024-06-20 22:47:38
-updated: 2024-06-23 11:11:21
+date: 2024-06-25T14:23:05.198Z
+updated: 2024-06-26T14:23:05.198Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,23 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/personal-brand-evolution-how-to-change-your-facebook-username/"><u>Personal Brand Evolution: How to Change Your Facebook Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-complete-disconnection-from-fb-alerts/"><u>Mastering Complete Disconnection From FB Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-which-facebook-device-benefits-you-most/"><u>Deciphering Which Facebook Device Benefits You Most</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-memories-a-guide-to-online-photo-collage-crafting/"><u>Blending Memories: A Guide to Online Photo Collage Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-vs-tiktok-can-facebook-strike-back/"><u>Reels vs TikTok: Can Facebook Strike Back?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-internet-use-less-facebook-more-action/"><u>Navigating Internet Use: Less Facebook, More Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-recovery-plan-for-compromised-facebook-profiles/"><u>Swift Recovery Plan for Compromised Facebook Profiles</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-front-runners-graphic-cards-for-4k-games-for-2024/"><u>[New] Front-Runners  Graphic Cards for 4K Games for 2024</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-xiaomi-13t-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-advanced-tips-for-nvidia-recorded-content/"><u>[Updated] 2024 Approved  Advanced Tips for NVIDIA Recorded Content</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-complete-handbook-to-adding-auditory-elements-to-ae-projects-revised/"><u>New In 2024, The Complete Handbook to Adding Auditory Elements to AE Projects, Revised</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-vn-video-editor-apk-review/"><u>New In 2024, VN Video Editor Apk Review</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-tutorials-on-how-to-transfer-photos-from-apple-iphone-xs-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>5 Tutorials on How to Transfer Photos From Apple iPhone XS to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/achieving-cohesion-in-content-with-flv-video-integration/"><u>Achieving Cohesion in Content with FlV Video Integration</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-enhancing-tiktok-visibility-boosting-followers-and-like-ratios-for-2024/"><u>[New] Enhancing TikTok Visibility  Boosting Followers & Like Ratios for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/laugh-riot-twitters-funniest-moments/"><u>Laugh Riot  Twitter's Funniest Moments</u></a></li>
+</ul></div>

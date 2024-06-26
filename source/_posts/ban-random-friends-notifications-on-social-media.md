@@ -1,7 +1,7 @@
 ---
 title: Ban Random Friends Notifications on Social Media
-date: 2024-06-22 20:53:52
-updated: 2024-06-23 10:34:40
+date: 2024-06-25T13:48:48.107Z
+updated: 2024-06-26T13:48:48.107Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/confronting-the-myth-why-facebook-is-still-here/"><u>Confronting the Myth: Why Facebook Is Still Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-chat-when-will-end-to-end-encryption-hit-fb/"><u>Protecting Privacy in Chat: When Will End-to-End Encryption Hit FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-files-and-their-unprecedented-public-reach/"><u>Facebook Files and Their Unprecedented Public Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/mimicry-on-instagram-identity-theft-concerns/"><u>Mimicry on Instagram: Identity Theft Concerns</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-expert-video-editing-techniques-for-instagram-success/"><u>[New] In 2024, Expert Video Editing Techniques for Instagram Success</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oneplus-nord-n30-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on OnePlus Nord N30 5G Devices</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-capture-clarity-at-no-cost-top-screen-recorder-for-windows-and-macos/"><u>In 2024, Capture Clarity at No Cost - Top Screen Recorder for Windows & MacOS</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-a-disable-iphone-13-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock a disable iPhone 13</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-audial-anachronism-exploring-top-rated-audio-reversers-of-the-year-2024/"><u>New Audial Anachronism Exploring Top-Rated Audio Reversers of the Year 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-video-marketing-excellence-on-instagram-crafting-a-winning-strategy-for-2024/"><u>[Updated] Video Marketing Excellence on Instagram  Crafting a Winning Strategy for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-download-and-installation-101-your-pathway-to-mastering-ez-grabber/"><u>[New] In 2024, Download & Installation 101  Your Pathway to Mastering EZ Grabber</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-littlecapture-reviews-on-small-recorder-apps/"><u>2024 Approved  LittleCapture Reviews on Small Recorder Apps</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-lenovo-thinkphone-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Lenovo ThinkPhone?</u></a></li>
+</ul></div>

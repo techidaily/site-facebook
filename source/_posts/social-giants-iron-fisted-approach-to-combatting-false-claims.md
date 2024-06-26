@@ -1,7 +1,7 @@
 ---
 title: Social Giant's Iron-Fisted Approach to Combatting False Claims
-date: 2024-06-20 23:18:59
-updated: 2024-06-23 11:48:20
+date: 2024-06-25T14:48:53.619Z
+updated: 2024-06-26T14:48:53.619Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/80d3fa767f44fdaa6b3c03730260a31e590107858
 
 ## Facebook Makes Misinformation Less Attractive
 
- Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
+ Facebook is making it even harder to encounter and share misinformation on the platform. In a post on [the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
 
  Facebook already lessens a post's reach if it contains misinformation, but the platform wants to take this a step further. If a user has shared misinformation several times in the past, Facebook plans to "reduce the distribution of all posts in News Feed from an individual's Facebook account."
 
@@ -66,3 +66,27 @@ thumbnail: https://thmb.techidaily.com/80d3fa767f44fdaa6b3c03730260a31e590107858
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/whistleblowers-allege-fb-reprimands-honesty-in-ads/"><u>Whistleblowers Allege FB Reprimands Honesty in Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-number-of-facebook-admirers/"><u>Examine the Number of Facebook Admirers</u></a></li>
+<li><a href="https://facebook.techidaily.com/single-word-multiple-ways-facebook-introduces-style-transforming-ai/"><u>Single Word, Multiple Ways: Facebook Introduces Style Transforming AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-net-safety-for-personal-photos-at-meta/"><u>Navigating Net Safety for Personal Photos at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-safe-social-space-free-from-religiouspolitical-views/"><u>Creating Safe Social Space: Free From Religious/Political Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-a-look-at-the-core-of-facebook-papers/"><u>Digging Deeper: A Look at the Core of Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-guide-updating-your-facebook-birthday/"><u>Simple Guide: Updating Your Facebook Birthday</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-customer-service-a-facebook-refund-journey/"><u>Navigating Customer Service: A Facebook Refund Journey</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/do-you-know-capcut-has-some-amazing-slow-motion-templates-you-can-utilize-read-this-article-to-access-the-slow-motion-capcut-templates-link-for-2024/"><u>Do You Know CapCut Has some Amazing Slow-Motion Templates You Can Utilize? Read This Article to Access the Slow-Motion CapCut Templates Link for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-chapter-division-in-youtube-videos-for-2024/"><u>Mastering Chapter Division in YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-picture-repository-platforms/"><u>Best Picture Repository Platforms</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-captivating-creations-top-10-engaging-filters-for-your-video/"><u>[Updated] Captivating Creations  Top 10 Engaging Filters for Your Video</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-huawei-nova-y91-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Huawei Nova Y91 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-fcpx-glitch-busters-quick-fixes-for-common-problems-for-2024/"><u>New FCPX Glitch Busters Quick Fixes for Common Problems for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-how-to-merge-video-and-audio/"><u>New How to Merge Video and Audio</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-utilizing-obs-in-android-setups-a-beginners-manual/"><u>[New] Utilizing OBS in Android Setups  A Beginner's Manual</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitter-chatter-on-the-hottest-tiktoks-for-2024/"><u>[Updated] Twitter Chatter on the Hottest TikToks for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-tiktok-book-list-for-every-genre-lover-for-2024/"><u>[New] The Ultimate TikTok Book List for Every Genre Lover for 2024</u></a></li>
+</ul></div>

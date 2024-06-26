@@ -1,7 +1,7 @@
 ---
 title: "Socializing Made Simple: Add New People on Facebook Messenger"
-date: 2024-06-20 13:10:51
-updated: 2024-06-23 12:30:16
+date: 2024-06-25T14:33:54.860Z
+updated: 2024-06-26T14:33:54.860Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,23 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/tight-knit-community-join-the-benefits-of-fb-groups/"><u>Tight-Knit Community: Join the Benefits of FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-titles-vs-displayed-usernames-clarity-for-users/"><u>Profile Titles vs Displayed Usernames: Clarity for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticated-by-america-enter-metas-us-platform/"><u>Authenticated by America – Enter Meta's US Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-birthday-on-facebook/"><u>How to Change Your Birthday on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-newest-videos-on-social-media-hub/"><u>Revealing Newest Videos on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/eco-friendly-total-renewable-energy-for-fb/"><u>Eco-Friendly: Total Renewable Energy for FB</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/things-you-should-know-when-unlocking-total-wireless-of-iphone-7-plus-by-drfone-ios/"><u>Things You Should Know When Unlocking Total Wireless Of iPhone 7 Plus</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-converting-mp4-to-mp3-best-converters-and-methods-for-2024/"><u>Updated The Ultimate Guide to Converting MP4 to MP3 Best Converters and Methods for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-screensnap-2023-the-new-standard-in-recording/"><u>[New] In 2024, ScreenSnap 2023 – The New Standard in Recording</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-capturing-essence-photos-meet-music-videos/"><u>In 2024, Capturing Essence  Photos Meet Music Videos</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-cutting-edge-mkv-editing-tools-for-mac/"><u>2024 Approved Cutting-Edge MKV Editing Tools for Mac</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-mastering-amr-files-comprehensive-amr-file-conversion-handbook/"><u>2024 Approved Mastering AMR Files Comprehensive AMR File Conversion Handbook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-6-plus-passcode-screen-by-drfone-ios/"><u>How to Unlock iPhone 6 Plus Passcode Screen?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/dive-into-apods-an-uncomplicated-download-guide/"><u>Dive Into APods  An Uncomplicated Download Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-becoming-a-master-at-the-art-of-engaging-thumbnails/"><u>[Updated] 2024 Approved  Becoming a Master at the Art of Engaging Thumbnails</u></a></li>
+</ul></div>

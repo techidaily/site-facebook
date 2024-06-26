@@ -1,7 +1,7 @@
 ---
 title: Secure Your Digital Footprint with Selective FB Sharing
-date: 2024-06-21 16:49:33
-updated: 2024-06-23 10:39:53
+date: 2024-06-25T14:31:53.825Z
+updated: 2024-06-26T14:31:53.825Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,11 @@ thumbnail: https://thmb.techidaily.com/bb00ebc3d89d1362ca9b186657d254b37c10a245e
 
 ## What Is a Restricted List on Facebook?
 
- The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any[Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
+ The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any [Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
 
  This allows you to stay friends with someone, so you can still see what they post, without them seeing yours. Give it a try for anyone who you can't bring yourself to unfriend yet.
 
- Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
+ Keep in mind that adding someone to your Restricted list is not the same as [blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 ## How to See Your Restricted List on Facebook
 
@@ -62,3 +62,27 @@ thumbnail: https://thmb.techidaily.com/bb00ebc3d89d1362ca9b186657d254b37c10a245e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-faces-accusation-over-promotional-integrity/"><u>Facebook Faces Accusation Over Promotional Integrity</u></a></li>
+<li><a href="https://facebook.techidaily.com/eyes-wide-open-preparing-for-bad-news-on-fb/"><u>Eyes Wide Open: Preparing for Bad News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-back-breaking-ties-on-facebook/"><u>Stepping Back: Breaking Ties on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-fbs-shared-memories-together/"><u>Revisiting FB's Shared Memories Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-banishing-your-faux-pas-fb-business-page/"><u>Step-by-Step Guide to Banishing Your Faux Pas - FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-ancient-news-feed-content-on-fb/"><u>Revisiting Ancient News Feed Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/leaders-in-controversy-the-top-6-of-tech/"><u>Leaders in Controversy: The Top 6 of Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-growth-on-social-networking-sites-a-guide/"><u>Professional Growth on Social Networking Sites: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/speculations-of-social-medias-ethical-standards-shift/"><u>Speculations of Social Media's Ethical Standards Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintain-your-anonymity-elude-these-three-risks/"><u>Maintain Your Anonymity: Elude These Three Risks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-g310-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Nokia G310 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-nokia-c12-pro-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Nokia C12 Pro without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-quick-fix-techniques-to-eliminate-unwanted-vocals-from-video-recordings/"><u>Updated In 2024, Quick Fix Techniques to Eliminate Unwanted Vocals From Video Recordings</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-unlock-engagement-the-optimal-aspect-ratios-for-linkedin-videos/"><u>New 2024 Approved Unlock Engagement The Optimal Aspect Ratios for LinkedIn Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-social-media-power-up-grouping-multiple-photos-and-vids-for-instagram/"><u>[New] 2024 Approved  Social Media Power-Up  Grouping Multiple Photos & Vids for Instagram</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-the-premier-selection-of-top-10-emoji-creation-tools-for-discord/"><u>[Updated] In 2024, The Premier Selection of Top 10 Emoji Creation Tools for Discord</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/capture-and-conserve-the-instagram-freedom-toolkit-for-2024/"><u>Capture and Conserve  The Instagram Freedom Toolkit for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mobile-security-focused-the-leading-10-free-video-calling-applications/"><u>2024 Approved  Mobile Security-Focused  The Leading 10 Free Video Calling Applications</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/authoritative-hubs-for-securing-lofi-melodies-and-visual-backdrops/"><u>Authoritative Hubs for Securing Lofi Melodies and Visual Backdrops</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/how-to-launch-snapchat-seamlessly-on-mac-systems-for-2024/"><u>How to Launch Snapchat Seamlessly on Mac Systems for 2024</u></a></li>
+</ul></div>

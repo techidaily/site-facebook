@@ -1,7 +1,7 @@
 ---
 title: "The Essentials of VK: Russia's Online Community Explored"
-date: 2024-06-21 15:24:23
-updated: 2024-06-23 10:47:47
+date: 2024-06-25T14:32:02.901Z
+updated: 2024-06-26T14:32:02.901Z
 tags:
   - facebook
 categories:
@@ -19,19 +19,15 @@ thumbnail: https://thmb.techidaily.com/78d24648f206f65b94f12ac351c4b3ce727b02ece
 
  There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
 
-## 1\. VK Is the Most Popular Social Media Website in Russia
-
-![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
+## 1\. VK Is the Most Popular Social Media Website in Russia ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
 
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
  With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
 
- According to[Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
+ According to [Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
 
-## 2\. VK is More Popular With Young Users
-
-![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
+## 2\. VK is More Popular With Young Users ![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
 
  Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
 
@@ -69,27 +65,25 @@ Some potential explanations for this difference include:
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
 
- It's not just that VK is more commonly used in Russia, either. According to one study courtesy of[Germany's Henrich Heine University](https://www.phil-fak.uni-duesseldorf.de/fileadmin/Redaktion/Institute/Informationswissenschaft/heck/Baran%5F%5F%5FStock%5FVkontakte.pdf) , VK users consider it to be the superior choice, with levels of indicated value twice as high as those asserted in favor of other social media brands. VK was considered to be more enjoyable and fun, easier to use, and more trustworthy overall by participants.
+ It's not just that VK is more commonly used in Russia, either. According to one study courtesy of [Germany's Henrich Heine University](https://www.phil-fak.uni-duesseldorf.de/fileadmin/Redaktion/Institute/Informationswissenschaft/heck/Baran%5F%5F%5FStock%5FVkontakte.pdf) , VK users consider it to be the superior choice, with levels of indicated value twice as high as those asserted in favor of other social media brands. VK was considered to be more enjoyable and fun, easier to use, and more trustworthy overall by participants.
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
 ## 6\. VK Has Suffered Major Security Breaches
 
- In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
+ In June 2016, VK actually experienced a significant [security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
 ## 7\. The Most Common Password on VK is "123456"
 
- One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
+ One insight gleaned from the breach described above is that [the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
 
  Many of these stolen passwords were stored in plaintext by VK, allowing some pioneering academics to crunch the numbers after the big spill. They found that over 700,000 people used the password "123456" and another 400,000 used "123456789".
 
  Other popular passwords included "qwerty," "1111111," and "123321".
 
-## 8\. VK's Website Design Rarely Changes
-
-![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
+## 8\. VK's Website Design Rarely Changes ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
 
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
 
@@ -122,3 +116,23 @@ Some potential explanations for this difference include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/simple-livestreams-without-visualaudio-distractions/"><u>Simple Livestreams Without Visual/Audio Distractions</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-shield-against-swings-understanding-stablecoin-mechanisms/"><u>A Shield Against Swings: Understanding Stablecoin Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/activist-attack-one-star-campaign-against-digital-app-store-ratings/"><u>Activist Attack: One Star Campaign Against Digital App Store Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-stance-on-metaverse-a-decision-of-distinction/"><u>Apple’s Stance on Metaverse - A Decision of Distinction</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-realme-c67-4g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Realme C67 4G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elevate-your-filmmaking-skills-for-ig-reels/"><u>[Updated] In 2024, Elevate Your Filmmaking Skills for IG Reels</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-speech-to-text-conversion-methods-for-2024/"><u>Updated Speech-to-Text Conversion Methods for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/blueprint-for-stellar-tiktok-campaigns-and-social-media-conquests/"><u>Blueprint for Stellar TikTok Campaigns and Social Media Conquests</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/zero-cost-wonders-traversing-the-terrain-of-tiktok-backdrops/"><u>Zero-Cost Wonders  Traversing the Terrain of TikTok Backdrops</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-streamlining-fb-message-transcription-with-expert-tips/"><u>[Updated] 2024 Approved  Streamlining FB Message Transcription with Expert Tips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-farm-frenzy-fun-pack-the-ultimate-agritainment-guide/"><u>[New] 2024 Approved  Farm Frenzy Fun-Pack  The Ultimate Agritainment Guide</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/transform-insta-videos-into-mp4-format-expert-methods-revealed-for-2024/"><u>Transform Insta Videos Into MP4 Format  Expert Methods Revealed for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovating-image-vision-mastering-hdr-in-photoshop-for-2024/"><u>Innovating Image Vision  Mastering HDR in Photoshop for 2024</u></a></li>
+</ul></div>

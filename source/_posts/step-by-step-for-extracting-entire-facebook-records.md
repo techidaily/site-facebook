@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step for Extracting Entire Facebook Records
-date: 2024-06-21 22:16:13
-updated: 2024-06-23 12:32:29
+date: 2024-06-25T14:14:38.042Z
+updated: 2024-06-26T14:14:38.042Z
 tags:
   - facebook
 categories:
@@ -27,14 +27,12 @@ thumbnail: https://thmb.techidaily.com/64d6132273fa0f5624faa24b024a9043c67b09153
 
  Since the file you're downloading is quite large, we'll cover the method most users will opt for—sending the request via your desktop browser.
 
-## How to Request Your Data on the Facebook Website
-
-![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
+## How to Request Your Data on the Facebook Website ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
-1. Log in to[Facebook.com](http://www.facebook.com) .
-2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to[Facebook.com/settings](http://www.facebook.com/settings) .
+1. Log in to [Facebook.com](http://www.facebook.com) .
+2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to [Facebook.com/settings](http://www.facebook.com/settings) .
 3. Click**Your Facebook Information** .
 4. Go to**Download Your Information** and click on**View** .
 5. Select what data points to include by checking the appropriate box under Deselect All, or maintain the default settings.
@@ -49,9 +47,7 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-## Customizing Your Facebook Data Download
-
-![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
+## Customizing Your Facebook Data Download ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 
@@ -89,7 +85,7 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
- Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
+ Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
 
@@ -103,7 +99,7 @@ Other downloadable datasets include:
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
 
- We've covered plenty of ways to[download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ We've covered plenty of ways to [download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
@@ -132,3 +128,23 @@ Other downloadable datasets include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/activate-shadow-like-interface-in-facebook-app/"><u>Activate Shadow-Like Interface in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-with-selective-fb-sharing/"><u>Secure Your Digital Footprint with Selective FB Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-social-texting-new-features-for-fbs-messaging-apps/"><u>Reimagined Social Texting: New Features for FB's Messaging Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fb-photos-the-power-of-alt-text/"><u>Unlocking FB Photos: The Power of Alt-Text</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unleash-creativity-premium-editors-for-mobile-and-desktop-oses/"><u>In 2024, Unleash Creativity  Premium Editors for Mobile & Desktop OSes</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-create-stunning-animations-with-these-free-tools-for-windows-and-mac/"><u>Updated Create Stunning Animations with These Free Tools for Windows and Mac</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-exploring-types-and-methods-of-touchless-technology/"><u>In 2024, Exploring Types and Methods of Touchless Technology</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-obs-vs-shadowplay-which-recording-tool-takes-the-prize/"><u>In 2024, OBS Vs ShadowPlay  Which Recording Tool Takes the Prize?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-social-score-best-tools-for-post-and-engagement/"><u>[Updated] Elevate Your Social Score  Best Tools for Post and Engagement</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-erase-an-iphone-15-pro-without-apple-id-password-by-drfone-ios/"><u>In 2024, How To Erase an iPhone 15 Pro Without Apple ID Password?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-securing-your-digital-footprint-when-leaving-discord/"><u>2024 Approved  Securing Your Digital Footprint When Leaving Discord</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-realme-12-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Realme 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimal-graphics-setup-for-high-res-editing/"><u>Optimal Graphics Setup for High Res Editing</u></a></li>
+</ul></div>

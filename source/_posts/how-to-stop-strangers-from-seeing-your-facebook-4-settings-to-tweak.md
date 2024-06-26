@@ -1,7 +1,7 @@
 ---
 title: "How to Stop Strangers From Seeing Your Facebook: 4 Settings to Tweak"
-date: 2024-06-22 18:21:23
-updated: 2024-06-23 10:40:36
+date: 2024-06-25T13:46:24.263Z
+updated: 2024-06-26T13:46:24.263Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,27 @@ thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b564
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/avoiding-flatness-in-your-online-life-with-3d-photos/"><u>Avoiding Flatness in Your Online Life with 3D Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-your-screen-instagram-live-wo-audiovideo/"><u>Quiet Your Screen: Instagram Live W/O Audio/Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-mirage-deceptive-identity-reproduction/"><u>Facebook Mirage: Deceptive Identity Reproduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-exit-facebook-group-interest/"><u>Step-by-Step Guide: Exit Facebook Group Interest</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-the-social-media-titans-temporarily-tremble/"><u>Why Did the Social Media Titans Temporarily Tremble?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-enhanced-privacy-hub-for-safer-browsing/"><u>Decoding Facebook’s Enhanced Privacy Hub for Safer Browsing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-innovating-your-videos-first-impression-on-youtube/"><u>[Updated] Innovating Your Video's First Impression on YouTube</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-say-goodbye-to-adobe-premiere-10-linux-alternatives-youll-love/"><u>New In 2024, Say Goodbye to Adobe Premiere 10 Linux Alternatives Youll Love</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/transcribing-speech-to-mp3-audio-format-for-diverse-platforms-for-2024/"><u>Transcribing Speech to MP3 Audio Format for Diverse Platforms for 2024</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-infinix-note-30-pro-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-angular-adjustments-on-youtube-videos-the-ultimate-2023-guide-for-2024/"><u>[Updated] Angular Adjustments on YouTube Videos - The Ultimate 2023 Guide for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-edit-videos-like-a-pro-10-free-android-apps-with-no-watermark/"><u>New 2024 Approved Edit Videos Like a Pro 10 Free Android Apps with No Watermark</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-crafting-a-compelling-video-story-with-b-roll-variety/"><u>[Updated] Crafting a Compelling Video Story with B-Roll Variety</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-motorola-moto-g34-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-lava-agni-2-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Lava Agni 2 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/how-to-connect-instagram-to-facebook-for-2024/"><u>How to Connect Instagram to Facebook for 2024</u></a></li>
+</ul></div>

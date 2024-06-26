@@ -1,7 +1,7 @@
 ---
 title: Telegram's Unexpected Boom Following FB Shutdown Hours
-date: 2024-06-21 22:19:26
-updated: 2024-06-23 12:41:15
+date: 2024-06-25T14:10:18.098Z
+updated: 2024-06-26T14:10:18.098Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/0cf9688fb864217953ed20bc37cbae8628a2ed0f2
 
 ## How Did Telegram Gain So Many Users in One Day?
 
- On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
+ On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all [went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
 
  Between them, they handle billions of messages every day, so once it became clear that the downtime was going to last for many hours rather than mere minutes, users quickly looked for alternatives.
 
@@ -35,9 +35,9 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
- Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
+ Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused [the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
- Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and[many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
+ Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and [many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
 
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
@@ -47,7 +47,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
  One enduring problem that every WhatsApp competitor faces is getting people to switch over to the service en masse. After all, what use is an instant messaging app if none of your friends have it installed?
 
- We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding[WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
+ We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding [WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
 
  This latest migration marked yet another large-scale move by users. Telegram is now starting to reach a critical mass whereby you could be missing out on conversations by not having the app installed.
 
@@ -55,7 +55,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ## It Wasn't All Perfect for Telegram
 
- While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
+ While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In [a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
 
 > "Users in the Americas may have experienced slower speed than usual as millions of users from these continents rushed to sign up for Telegram at the same time."
 
@@ -86,3 +86,27 @@ But why did Telegram benefit so much more than any of its rivals?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-rekindle-on-fb-breaking-past-barriers/"><u>How to Rekindle on FB: Breaking Past Barriers</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneous-insights-10-lightweight-android-helpers/"><u>Instantaneous Insights: 10 Lightweight Android Helpers</u></a></li>
+<li><a href="https://facebook.techidaily.com/netizens-network-8-strategies-to-merge-lives-digitally/"><u>Netizen's Network: 8 Strategies to Merge Lives Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/behavior-tracked-data-sold-the-new-trend/"><u>Behavior Tracked, Data Sold: The New Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-mysteries-of-metas-data-policy-overhaul/"><u>Unlocking the Mysteries of Meta’s Data Policy Overhaul</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+<li><a href="https://facebook.techidaily.com/bury-not-show-how-to-keep-fb-posts-from-others-eyes/"><u>Bury Not Show: How to Keep FB Posts From Others' Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-message-icons-on-social-media-platforms-like-fb/"><u>Essentials of Message Icons on Social Media Platforms Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-simple-steps-for-stellar-online-portrayals/"><u>6 Simple Steps for Stellar Online Portrayals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-lawsuit-amazon-vs-facebook-group-admins/"><u>The Lawsuit: Amazon Vs. Facebook Group Admins</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-xiaomi-redmi-note-12-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Xiaomi Redmi Note 12 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/1716068645426-updated-in-2024-premium-12-video-capture-apps-no-time-limit/"><u>[Updated] In 2024, Premium 12 Video Capture Apps, No Time Limit!</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-how-to-create-high-impact-educational-videotutorials/"><u>[New] 2024 Approved  How to Create High-Impact Educational Videotutorials</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-transforming-youtube-video-to-animated-gif-user-friendly-tips/"><u>2024 Approved  Transforming YouTube Video to Animated GIF  User-Friendly Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/finding-your-niche-making-money-with-video-content-for-2024/"><u>Finding Your Niche  Making Money with Video Content for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-leveraging-advanced-techniques-in-360-video-on-fb-live/"><u>2024 Approved  Leveraging Advanced Techniques in 360 Video on FB Live</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-photography-with-nikon-d7500/"><u>[New] Mastering Photography with Nikon D7500</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-total-review-demystifying-googles-podcast-app/"><u>In 2024, Total Review  Demystifying Google's Podcast App</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-still-to-motion-the-8-best-tools-to-animate-your-photos/"><u>2024 Approved From Still to Motion The 8 Best Tools to Animate Your Photos</u></a></li>
+</ul></div>

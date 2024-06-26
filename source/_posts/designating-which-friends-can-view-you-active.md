@@ -1,7 +1,7 @@
 ---
 title: Designating Which Friends Can View You Active
-date: 2024-06-21 20:49:59
-updated: 2024-06-23 10:15:14
+date: 2024-06-25T14:44:43.836Z
+updated: 2024-06-26T14:44:43.836Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/fe3425cd8bd2ff0c1232de1bab83bce21e82181cb
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,24 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagram-reload-trump-era/"><u>Facebook & Instagram Reload Trump Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-protection-in-mail-applications-implementing-robust-2fa-systems/"><u>Boosting Protection in Mail Applications - Implementing Robust 2FA Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-moment-for-facebooks-user-base/"><u>Peaking Moment for Facebook's User Base</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-and-why-telegram-flourished-during-fb-offline-hours/"><u>Dissecting How and Why Telegram Flourished During FB Offline Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/celebrating-googles-noteworthy-news/"><u>Celebrating Google's Noteworthy News</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-you-achieve-with-the-facebook-help-system/"><u>What Can You Achieve with the Facebook Help System?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-opening-up-to-unknown-facebook-friends/"><u>The Hidden Dangers of Opening Up to Unknown Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-boosting-your-snapstreak-essential-tips-and-tricks-for-2024/"><u>[Updated] Boosting Your Snapstreak  Essential Tips and Tricks for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-unlock-icloud-lock-from-your-iphone-12-and-ipad-by-drfone-ios/"><u>How to Unlock iCloud lock from your iPhone 12 and iPad?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-revolutionize-your-video-editing-workflow-with-64-bit-technology/"><u>In 2024, Revolutionize Your Video Editing Workflow with 64-Bit Technology</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-the-zen-of-zooming-tips-and-tricks-for-keeping-conversations-quiet-on-devices/"><u>New In 2024, The Zen of Zooming Tips and Tricks for Keeping Conversations Quiet on Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/selecting-the-perfect-no-fee-video-communication-tools/"><u>Selecting the Perfect No-Fee Video Communication Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/maximizing-the-potential-of-virtual-dialogue-secrets-from-a-pro-zoom-chat-guru-for-2024/"><u>Maximizing the Potential of Virtual Dialogue  Secrets From a Pro ZOOM Chat Guru for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-elite-escapade-experiences-the-finest-action-adventure-gems/"><u>In 2024, Elite Escapade Experiences  The Finest Action-Adventure Gems</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-unlock-premiere-pros-full-potential-system-requirements-and-setup-tips/"><u>2024 Approved Unlock Premiere Pros Full Potential System Requirements and Setup Tips</u></a></li>
+</ul></div>

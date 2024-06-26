@@ -1,7 +1,7 @@
 ---
 title: "Digital Wellbeing Alerts: Youth Advised to Limit Instagram"
-date: 2024-06-20 15:54:20
-updated: 2024-06-23 11:57:36
+date: 2024-06-25T14:08:50.303Z
+updated: 2024-06-26T14:08:50.303Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/7-key-ways-social-media-replaced-discussion-boards/"><u>7 Key Ways Social Media Replaced Discussion Boards</u></a></li>
+<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-meets-live-audience-with-facebooks-update/"><u>Social Media Meets Live Audience with Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-expression-online-how-to-update-your-profile-handle/"><u>Elevating Self-Expression Online: How to Update Your Profile Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-old-school-charm-may-reignite-interest-in-instagram/"><u>Why Old-School Charm May Reignite Interest in Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-in-user-interface-traps/"><u>The Hidden Dangers in User Interface Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-proof-system-worth-paying-for/"><u>Meta's Proof System: Worth Paying For?</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-reasons-you-should-take-a-break-from-social-media/"><u>7 Reasons You Should Take a Break From Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-privacy-conceal-your-likes-on-fb-and-ig/"><u>Social Media Privacy: Conceal Your Likes on FB & IG</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-top-5-tiktok-fonts-for-higher-engagement-in-23/"><u>In 2024, Top 5 TikTok Fonts for Higher Engagement in '23</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/discover-the-secret-to-hands-free-productivity-best-mac-speech-to-text-apps/"><u>Discover the Secret to Hands-Free Productivity Best Mac Speech-to-Text Apps</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-building-your-youtube-empire-kit-overview/"><u>2024 Approved  Building Your YouTube Empire  Kit Overview</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/4-ways-to-add-white-borders-on-mobile-and-desktop-for-2024/"><u>4 Ways to Add White Borders on Mobile and Desktop for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-no-cash-needed-for-youtube-audio-check-out-this-list-of-23-crackers/"><u>In 2024, No Cash Needed for YouTube Audio? Check Out This List of 23 Crackers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-nokia-c32-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Nokia C32 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-nokia-g22-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-easy-customization-free-youtube-visual-templates/"><u>[New] Easy Customization  Free YouTube Visual Templates</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-get-more-done-in-less-time-quicktime-player-video-speed-up-tips/"><u>New In 2024, Get More Done in Less Time QuickTime Player Video Speed Up Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-re-image-twitter-video-portrait-for-2024/"><u>[New] Re-Image Twitter Video Portrait for 2024</u></a></li>
+</ul></div>

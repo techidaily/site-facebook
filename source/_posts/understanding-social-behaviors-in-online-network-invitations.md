@@ -1,7 +1,7 @@
 ---
 title: Understanding Social Behaviors in Online Network Invitations
-date: 2024-06-22 16:32:37
-updated: 2024-06-23 11:17:45
+date: 2024-06-25T14:33:06.957Z
+updated: 2024-06-26T14:33:06.957Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/1ee4d598dddce3a6246087c27cdd3992445e17b0d
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
-## How to Find Out Whether Someone Denied Your Facebook Friend Request
-
-![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
+## How to Find Out Whether Someone Denied Your Facebook Friend Request ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
@@ -55,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/1ee4d598dddce3a6246087c27cdd3992445e17b0d
 
 ## Unfollowing vs. Unfriending on Facebook
 
- Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
+ Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on [following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
 
  From your Feed (**Home**) find a post from your overactive friend, click the arrowhead in the top right to expand the post menu, and click**Unfollow** . If you think the activity is only temporary, you can also snooze their messages for 30 days.
 
@@ -71,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/1ee4d598dddce3a6246087c27cdd3992445e17b0d
 
 ### 1\. Only Add People You Know
 
- Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its[Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
+ Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its [Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
 
  Consequently, Facebook might block you from sending friend requests for some time.
 
@@ -155,7 +153,7 @@ Keep in mind that if you do this, the person may be penalized.
 
 ### 2\. You Blocked the Other Person
 
- You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
+ You can't friend someone you've blocked. See if you can [unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
@@ -165,13 +163,13 @@ Keep in mind that if you do this, the person may be penalized.
 
  Neither you, nor your friend-to-be, can have more than 5,000 friends on Facebook. If one of you has crossed that limit, you can't send each other friend requests.
 
- If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
+ If you have too many friends, consider [converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
 
- According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
+ According to [the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
 
@@ -196,3 +194,27 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-giants-stream-nba-season-together/"><u>Social Giants Stream NBA Season Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-online-connections-on-fb/"><u>Discovering Hidden Online Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-validity-of-facebooks-security-mail-address/"><u>Investigating Validity of Facebook's Security Mail Address</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-vk-russias-social-network-explained/"><u>The Insight Into VK: Russia's Social Network Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-following-you-on-the-web/"><u>Who's Following You on the Web?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-multi-group-posts-for-greater-engagement/"><u>Harnessing the Power of Multi-Group Posts for Greater Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-photo-update-a-step-by-step-guide/"><u>Mastering Facebook Photo Update: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-life-rewind-what-happens-after-you-unplug/"><u>Real Life Rewind: What Happens After You Unplug</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-7-video-joiner-software-with-no-watermark-output/"><u>New In 2024, 7 Video Joiner Software with No Watermark Output</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-infinix-smart-7-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Infinix Smart 7 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/journeys-best-tools-top-10-vr-peripherals-guide/"><u>Journey's Best Tools  Top 10 VR Peripherals Guide</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/learn-how-to-craft-engaging-tiktok-captions-quickly/"><u>Learn How to Craft Engaging TikTok Captions Quickly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-booktok-list-must-read-masterpieces/"><u>The Ultimate BookTok List  Must-Read Masterpieces</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-12-mini-to-windows-10-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 12 mini to Windows 10? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-methods-for-creating-standout-instagram-collages/"><u>[Updated] Innovative Methods for Creating Standout Instagram Collages</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/stealthy-iphone-unwatermarked-tiktok-video-downloads-for-2024/"><u>Stealthy iPhone  Unwatermarked TikTok Video Downloads for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/capturing-velocity-hero-4-versus-ghost-s-racing/"><u>Capturing Velocity  Hero 4 Versus Ghost-S Racing</u></a></li>
+</ul></div>

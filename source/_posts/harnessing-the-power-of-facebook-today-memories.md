@@ -1,7 +1,7 @@
 ---
 title: Harnessing the Power of Facebook Today Memories
-date: 2024-06-20 20:32:55
-updated: 2024-06-23 11:49:56
+date: 2024-06-25T14:21:31.242Z
+updated: 2024-06-26T14:21:31.242Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ To share a memory from the On This Day feature:
 
 1. Open**Memories** from your Facebook menu. It will be available by tapping the three horizontal lines in the bottom right corner of your screen. Users who wish to access memories through the website can scroll through the menu on the left side of their Facebook homepage.
 2. Select the memory you wish to share.
-3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on [Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
@@ -83,7 +83,7 @@ To access your saved memories:
 
 Close
 
- To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
+ To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
@@ -95,7 +95,7 @@ Close
 
 ## Customization Options for the On This Day Feature
 
- If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
+ If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
 
 1. Open**Memories** from the Facebook**Menu** .
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
@@ -144,3 +144,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-remnrances-without-fbs-presence/"><u>Digital Remnrances Without FB’s Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-soccer-squads-banish-instagram-and-twitter-to-counteract-hate-speech/"><u>UK Soccer Squads Banish Instagram & Twitter to Counteract Hate Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-pressure-to-part-with-giphy-possibly/"><u>Facebook Faces Pressure to Part With Giphy Possibly</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-following-you-on-the-web/"><u>Who's Following You on the Web?</u></a></li>
+<li><a href="https://facebook.techidaily.com/purging-digital-traces-on-your-social-network/"><u>Purging Digital Traces on Your Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-unwanted-personalized-promos-in-social-networks/"><u>Navigate Through Unwanted Personalized Promos in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-quietude-in-the-face-of-facebook-alerts/"><u>Total Quietude in the Face of Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messenger-a-fortress-of-privacy/"><u>Is FB Messenger a Fortress of Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-group-discussions-with-channels-integration/"><u>Simplifying Group Discussions with Channels Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-home-network-integration-with-facebook-portals-features/"><u>Mastering Home Network Integration with Facebook Portals' Features</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-top-free-video-smoothers-for-professional-looking-footage/"><u>Updated In 2024, Top Free Video Smoothers for Professional-Looking Footage</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/accelerate-your-sluggish-vids-to-speedy-shots-on-android-for-2024/"><u>Accelerate Your Sluggish Vids to Speedy Shots on Android for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-sony-xperia-1-v-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Sony Xperia 1 V</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unleash-potential-advanced-techniques-in-instagram-loop-creation/"><u>[New] In 2024, Unleash Potential  Advanced Techniques in Instagram Loop Creation</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-top-mac-speech-to-text-apps-you-never-knew-existed-free-and-no-installation/"><u>Updated Top Mac Speech-to-Text Apps You Never Knew Existed Free & No Installation</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-tecno-camon-20-pro-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Tecno Camon 20 Pro 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/reverse-engineering-a-youtube-ban-for-2024/"><u>Reverse Engineering a YouTube Ban for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-cross-platform-video-uploading-twittertumblr/"><u>[Updated] Cross-Platform Video Uploading  Twitter/Tumblr</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-best-on-the-go-discord-video-recorder-apps/"><u>[New] Best On-the-Go Discord Video Recorder Apps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhance-your-video-understanding-windows-hdr/"><u>Enhance Your Video  Understanding Windows HDR</u></a></li>
+</ul></div>

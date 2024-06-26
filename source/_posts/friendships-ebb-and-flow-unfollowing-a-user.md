@@ -1,7 +1,7 @@
 ---
 title: "Friendship's Ebb and Flow: Unfollowing a User"
-date: 2024-06-21 21:49:47
-updated: 2024-06-23 10:25:20
+date: 2024-06-25T14:43:57.016Z
+updated: 2024-06-26T14:43:57.016Z
 tags:
   - facebook
 categories:
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/aa2122a37a5989c0b8e6135c848a9b094e794d7aa
 * Facebook will not notify the individual you choose to take a break from.
 * There's no limit to how long you can take a break, so you'll have to remember to manually revert the changes if you change your mind in the future.
 
- By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
+ By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or [blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
 ## How to Take a Break From Someone on Facebook
 
@@ -87,7 +87,7 @@ Here, you'll find three options.
 2. The second option is labeled**Edit individual posts** —this option helps you to individually edit posts you are tagged in.
 3. The third option is labeled**Edit all my posts and posts that I'm tagged in.** Use this option to untag yourself from every post you have in common with the friend you want to take a break from. To do this, simply tap on the option and then tap**Done** to save the changes.
 
- If you're using Facebook on the web, you can bypass navigating through menus by visiting the[Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on[how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ If you're using Facebook on the web, you can bypass navigating through menus by visiting the [Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on [how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
@@ -95,7 +95,7 @@ Here, you'll find three options.
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
 
-* Visit the[Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
+* Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
@@ -142,3 +142,26 @@ Here, you'll find three options.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-ultimate-method-for-fb-photo-and-video-downloads/"><u>The Ultimate Method for FB Photo and Video Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-generation-personalization-oculuss-new-characters/"><u>Next Generation Personalization - Oculus’s New Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-backs-new-content-platform-with-5m-financing/"><u>Social Network Backs New Content Platform with $5M Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-your-images-simplified-fb-guide/"><u>Concealing Your Images, Simplified: FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-suggested-feeds/"><u>Navigating Facebook's Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148506945-keep-your-fb-profile-private-strangers-not/"><u>Keep Your FB Profile Private, Strangers' Not!</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-brand-with-strategic-hashtags-in-the-realm-of-fb/"><u>Boost Your Brand with Strategic Hashtags in the Realm of FB</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-christian-ringtone-guide-selection-tips/"><u>2024 Approved  Christian Ringtone Guide – Selection Tips</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/prime-approaches-to-chronicle-lol-clashes-for-2024/"><u>Prime Approaches to Chronicle LOL Clashes for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/become-an-mp3-aficionado-expert-techniques-for-audio-editing-perfection/"><u>Become an MP3 Aficionado Expert Techniques for Audio Editing Perfection</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-expert-fb-media-downloader-enhanced-firefox-support/"><u>[Updated] 2024 Approved  Expert FB Media Downloader  Enhanced FireFox Support</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-samsung-galaxy-a25-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Samsung Galaxy A25 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/ever-heard-of-text-to-speech-how-about-speech-to-text-learn-more-about-it-in-this-article/"><u>Ever Heard of Text-to-Speech? How About Speech-to-Text? Learn More About It in This Article</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamlining-video-dispatch-to-facebook-from-youtube/"><u>2024 Approved  Streamlining Video Dispatch to Facebook From YouTube</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-unleash-creativity-top-lightweight-video-editing-software-for-professionals/"><u>Updated Unleash Creativity Top Lightweight Video Editing Software for Professionals</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ixing-shorts-the-thumbnail-not-showing-dilemma-for-2024/"><u>[New] Fixing Shorts  The Thumbnail Not Showing Dilemma for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-20-essential-youtube-tips-for-optimal-engagement/"><u>[New] Top 20 Essential YouTube Tips for Optimal Engagement</u></a></li>
+</ul></div>

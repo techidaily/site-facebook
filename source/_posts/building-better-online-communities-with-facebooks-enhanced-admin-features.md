@@ -1,7 +1,7 @@
 ---
 title: Building Better Online Communities with Facebook's Enhanced Admin Features
-date: 2024-06-22 15:22:27
-updated: 2024-06-23 12:41:36
+date: 2024-06-25T13:53:22.974Z
+updated: 2024-06-26T13:53:22.974Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
 ## Facebook Launches New Admin Tools to Moderate Groups
 
- In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
+ In a [blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
 
  Facebook explained that many of the new tools are based on user feedback and have actually been requested. The social media platform also added that there are more than 70 million active admins running Facebook groups, so it's likely that these new tools will prove to be a big benefit.
 
@@ -62,3 +62,24 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
+<li><a href="https://facebook.techidaily.com/visionaries-earning-vistas-creators-journey-with-metrics-and-money-through-reels/"><u>Visionaries Earning Vistas: Creators' Journey with Metrics & Money Through Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-optimizing-facebooks-memory-tool/"><u>Expert Tips for Optimizing Facebook's Memory Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-fun-without-fallout-online/"><u>Fostering Fun Without Fallout Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-choice-your-style-simplified-feed-management-on-social-media/"><u>Your Choice, Your Style: Simplified Feed Management on Social Media</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-perfecting-video-viewing-experience-how-to-eliminate-ambient-noise-in-desktop-playback-and-online-videos-future-proof-methods/"><u>2024 Approved Perfecting Video Viewing Experience How to Eliminate Ambient Noise in Desktop Playback and Online Videos (Future-Proof Methods)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-social-media-mastery-incorporating-polls-in-stories-for-2024/"><u>[New] Social Media Mastery  Incorporating Polls in Stories for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ultimate-10-battle-royale-matchups-for-2024/"><u>[Updated] Ultimate 10 Battle Royale Matchups for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-12-pro-max-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 12 Pro Max without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/x6-video-recovery-recover-deleted-videos-from-x6-by-fonelab-android-recover-video/"><u>X6 Video Recovery - Recover Deleted Videos from X6</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-from-tvs-to-monitors-5-vital-facts-about-16x9-aspect-ratio-calculators/"><u>Updated In 2024, From TVs to Monitors 5 Vital Facts About 16X9 Aspect Ratio Calculators</u></a></li>
+<li><a href="https://extra-information.techidaily.com/insights-into-the-world-of-touch-and-movement-detection/"><u>Insights Into the World of Touch and Movement Detection</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-f25-pro-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo F25 Pro 5G to Roku | Dr.fone</u></a></li>
+</ul></div>

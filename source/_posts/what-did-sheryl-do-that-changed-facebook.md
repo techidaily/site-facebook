@@ -1,7 +1,7 @@
 ---
 title: What Did Sheryl Do That Changed Facebook?
-date: 2024-06-22 22:58:54
-updated: 2024-06-23 10:51:58
+date: 2024-06-25T13:55:10.305Z
+updated: 2024-06-26T13:55:10.305Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
-## A Brief History of Sheryl Sandberg's Role at Facebook
-
-![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+## A Brief History of Sheryl Sandberg's Role at Facebook ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -49,21 +47,19 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
 
  Despite the denial, a whistleblower revealed in 2018 that Cambridge Analytica, a consulting firm working for Trump,[obtained the personal data of millions of Facebook users](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and used it for political ads. Sandberg acknowledged that Facebook had known about the privacy breach for a few years but did not act on it.
 
- At the time, she was in charge of Facebook's policy division and received a lot of backlash for the scandal. She later took responsibility for the incident and[expressed deep regret via a Facebook post](https://web.facebook.com/sheryl/posts/10160055807270177?pnref=story&%5Frdc=1&%5Frdr) for how the company handled it.
+ At the time, she was in charge of Facebook's policy division and received a lot of backlash for the scandal. She later took responsibility for the incident and [expressed deep regret via a Facebook post](https://web.facebook.com/sheryl/posts/10160055807270177?pnref=story&%5Frdc=1&%5Frdr) for how the company handled it.
 
  But during the US Capitol riots scandal in 2021, Sandberg took a different approach. She minimized Facebook's role in the chaos and passed the blame to other platforms. However, the Justice Department proved that the organizers of the mob primarily used Facebook to set the stage for the insurrection.
 
- In the same year, she was criticized for her silence following[claims made by former Facebook employee Frances Haugen](http://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) against the platform. These include allegations that Facebook's algorithms amplify hate, misinformation, and political unrest. Sandberg's colleague, Nick Clegg, stepped up to put out fires on behalf of the business instead.
+ In the same year, she was criticized for her silence following [claims made by former Facebook employee Frances Haugen](http://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) against the platform. These include allegations that Facebook's algorithms amplify hate, misinformation, and political unrest. Sandberg's colleague, Nick Clegg, stepped up to put out fires on behalf of the business instead.
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
-## Why Sheryl Sandberg Is Leaving Meta
-
-![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## Why Sheryl Sandberg Is Leaving Meta ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
- Sandberg told[The Washington Post](https://www.washingtonpost.com/technology/2022/06/01/sheryl-sandberg-leaves-facebook/) that she informed Zuckerberg of her resignation the weekend before making a public announcement. Considering how sudden her decision seems, we wonder if there may be any truth to the speculations.
+ Sandberg told [The Washington Post](https://www.washingtonpost.com/technology/2022/06/01/sheryl-sandberg-leaves-facebook/) that she informed Zuckerberg of her resignation the weekend before making a public announcement. Considering how sudden her decision seems, we wonder if there may be any truth to the speculations.
 
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
@@ -88,3 +84,27 @@ thumbnail: https://thmb.techidaily.com/c2e520b7fa2ea279c78f437762c6d9b1bb9afdd3b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/1719150171652-fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track!</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-guide-to-clearing-facebooks-notification-cache/"><u>Effortless Guide to Clearing Facebook's Notification Cache</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-showdown-of-corporate-and-casual-online-communities/"><u>The Ultimate Showdown of Corporate and Casual Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-heartbreak-strategies-for-retaining-purchases-on-facebook/"><u>Avoid Heartbreak: Strategies for Retaining Purchases on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shifting-landscape-tiktok-overtaking-facebooks-market-share/"><u>The Shifting Landscape: TikTok Overtaking Facebook's Market Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-group-leave-friction-the-facebook-way/"><u>Avoiding Group Leave Friction: The Facebook Way</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/essential-video-calls-phone-and-pcs-finest-tools-for-2024/"><u>Essential Video Calls  Phone & PC's Finest Tools for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-key-understanding-of-online-narration-art/"><u>2024 Approved  Key Understanding of Online Narration Art</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-visual-storytelling-live-broadcasts-of-360-videos-on-facebook/"><u>2024 Approved  Mastering Visual Storytelling  Live Broadcasts of 360 Videos on Facebook</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-offering-the-best-understanding-of-performing-imovie-slow-motion-video/"><u>New Offering The Best Understanding of Performing iMovie Slow Motion Video</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-educators-essential-video-recording-gadgets-top-10-picks/"><u>In 2024, Educator's Essential Video Recording Gadgets  Top 10 Picks</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo Y100A? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-samsung-galaxy-z-flip-5-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Samsung Galaxy Z Flip 5 FRP Locks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-vivo-y17s-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Vivo Y17s to Protect Your Individual Information</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-vivo-y100a-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Vivo Y100A</u></a></li>
+</ul></div>

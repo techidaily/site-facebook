@@ -1,7 +1,7 @@
 ---
 title: "Metaverse & VR Explained: Discerning 6 Fundamental Differences"
-date: 2024-06-20 13:53:19
-updated: 2024-06-23 10:32:24
+date: 2024-06-25T14:12:40.106Z
+updated: 2024-06-26T14:12:40.106Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  The term was originally used in the novel Snow Crash, originally published in 1992 by Neal Stephenson. In the novel, the metaverse is a virtual shared space that incorporates virtual reality, augmented reality, and the internet.
 
- The[idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
+ The [idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
 
  Rather than visiting websites using a browser, you will access information by navigating a virtual world with the option of using both virtual and augmented reality.
 
@@ -43,11 +43,11 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  The most notable difference between virtual reality and the metaverse is that while VR is now well understood, the metaverse really is not.
 
-[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent[Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
+[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent [Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
 
  These descriptions are pretty vague when compared to our understanding of virtual reality. It's also possible that even the tech companies themselves don't have a complete definition.
 
- According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has[an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
+ According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has [an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
 
  It's also possible to argue that the metaverse is nothing more than a buzzword to describe technological improvements in the existing internet.
 
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  As the owner of Oculus Rift, Facebook plays an important role in the development of virtual reality. But at the same time, they are just one player in a massive industry.
 
- The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced[Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
+ The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced [Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
 
  This means that, like VR, the metaverse is going to be bigger than a single company.
 
@@ -118,3 +118,24 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/music-moguls-understanding-the-new-earnings-opportunity-with-fb/"><u>Music Moguls: Understanding the New Earnings Opportunity with FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-strategy-behind-facebooks-news-to-just-feed-shift/"><u>Unpacking the Strategy Behind Facebook's News to Just Feed Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-downtime-tips-to-check-availability/"><u>Navigating Facebook Downtime – Tips to Check Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-functionalities-of-facebook-for-effective-team-collaboration/"><u>Top 8 Functionalities of Facebook for Effective Team Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-ways-to-detect-unauthorized-pc-access/"><u>Easy Ways to Detect Unauthorized PC Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-of-directed-posting-uncover-3-fb-tagging-ways/"><u>Decoding the Mystery of Directed Posting: Uncover 3 Fb Tagging Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-bespoke-fb-representation/"><u>Designing a Bespoke FB Representation</u></a></li>
+<li><a href="https://change-location.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/online-video-compression-made-easy-10-free-tools-to-try/"><u>Online Video Compression Made Easy 10 Free Tools to Try</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unleash-creativity-using-snapchat-to-edit-and-enhance-photos/"><u>[New] Unleash Creativity  Using Snapchat to Edit and Enhance Photos</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/are-you-aware-that-you-can-create-your-own-lower-thirds-for-video-read-this-article-for-a-tutorial-on-how-to-customize-one/"><u>Are You Aware that You Can Create Your Own Lower Thirds for Video? Read This Article for a Tutorial on How to Customize One</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-apple-iphone-se-2022-without-passcode-now-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock Apple iPhone SE (2022) Without Passcode Now</u></a></li>
+<li><a href="https://apple-account.techidaily.com/top-notch-solutions-for-disabled-apple-id-on-apple-iphone-6s-plus-making-it-possible-by-drfone-ios/"><u>Top-Notch Solutions for Disabled Apple ID On Apple iPhone 6s Plus Making It Possible</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-step-by-step-guide-to-mp4-and-beyond-vlc-conversions/"><u>A Step-by-Step Guide to MP4 and Beyond  VLC Conversions</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/camtasia-tutorial-change-video-speed/"><u>Camtasia Tutorial Change Video Speed</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Guarantee Stranger-Free Social Media Views on FB
-date: 2024-06-20 13:46:23
-updated: 2024-06-23 10:28:29
+date: 2024-06-25T14:43:59.024Z
+updated: 2024-06-26T14:43:59.024Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,27 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/speculations-of-social-medias-ethical-standards-shift/"><u>Speculations of Social Media's Ethical Standards Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-struggle-for-users-and-profits-amidst-the-tiktok-wave/"><u>Facebook’s Struggle for Users and Profits Amidst the TikTok Wave</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-social-venues-for-senior-citizens/"><u>Superior Social Venues For Senior Citizens</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-social-media-giants-wearable-device/"><u>Behind the Scenes: Social Media Giant's Wearable Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-grants-extension-exploring-reasons-behind-encryption-push-to-23/"><u>Meta Grants Extension: Exploring Reasons Behind Encryption Push to '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-dating-transformed-the-future-of-relationships/"><u>Facebook Dating Transformed: The Future of Relationships?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-facebook-linking-method-for-youtube-video-content/"><u>[New] 2024 Approved  Facebook Linking Method for YouTube Video Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-8-must-have-apps-for-instagram-schedulers-on-all-smartphones/"><u>[New] In 2024, The 8 Must-Have Apps for Instagram Schedulers on All Smartphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-finalized-choices-best-10-video-editing-tools-for-reels/"><u>[New] 2024 Approved  Finalized Choices  Best 10 Video Editing Tools for Reels</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-apples-finest-video-editing-software-for-creative-pros/"><u>New Apples Finest Video Editing Software for Creative Pros</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-overcoming-instagrams-video-length-restrictions/"><u>2024 Approved  Overcoming Instagram's Video Length Restrictions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-vivo-y100-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-free-vimeo-tutorial-to-craft-engaging-videos/"><u>2024 Approved  Free Vimeo Tutorial to Craft Engaging Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-iphone-cheat-sheet-for-insta-downloads/"><u>[New] The Ultimate iPhone Cheat Sheet for Insta Downloads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-variants-of-windows-movie-maker-a-comprehensive-list/"><u>In 2024, Variants of Windows Movie Maker  A Comprehensive List</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-avi-video-format-how-to-open-play-edit-avi-file/"><u>In 2024, AVI Video Format How to Open, Play, Edit AVI File?</u></a></li>
+</ul></div>

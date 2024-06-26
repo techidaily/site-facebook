@@ -1,7 +1,7 @@
 ---
 title: Personalizing Self-Safety Marker on Social Media
-date: 2024-06-22 14:35:11
-updated: 2024-06-23 12:19:30
+date: 2024-06-25T13:54:48.955Z
+updated: 2024-06-26T13:54:48.955Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ The process is the same whether using a mobile or desktop device.
 
 ![facebook crisis response page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-crisis-response-page.jpg)
 
-1. Go to[Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
+1. Go to [Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
 2. You’ll then see a list of active crises, including ones potentially affecting people you know.
 3. Click on the**Learn More** button for the relevant crisis.
 4. You may see a message at the top of the next page asking about your safety.
@@ -90,3 +90,23 @@ The process is the same whether using a mobile or desktop device.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrypting-the-secrets-of-social-media-invisibility/"><u>Decrypting the Secrets of Social Media Invisibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-uninterrupted-music-with-spotify-in-facebook/"><u>Achieve Uninterrupted Music with Spotify in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-dialogue-understanding-key-acronyms-and-phrases-in-online-communities/"><u>Decoding Digital Dialogue: Understanding Key Acronyms and Phrases in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-most-controversial-names-leading-tech-today/"><u>The Most Controversial Names Leading Tech Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-misinformation-how-social-networks-are-evolving/"><u>Tackling Misinformation: How Social Networks Are Evolving</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-visual-variety-with-b-roll-elements/"><u>In 2024, Maximizing Visual Variety with B Roll Elements</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/iphone-xs-data-recovery-an-infographic-to-conquer-iphone-data-loss-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>iPhone XS Data Recovery – An Infographic to Conquer iPhone Data Loss | Stellar</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-aptly-convert-speech-to-text-with-googles-innovative-tech/"><u>[Updated] 2024 Approved  Aptly Convert Speech to Text with Google's Innovative Tech</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-imovie-cropping-query-the-hidden-logic-behind-it/"><u>In 2024, IMovie Cropping Query  The Hidden Logic Behind It</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-top-6-text-to-speech-generators-for-youtube-videos-windows-mac-and/"><u>New Top 6 Text to Speech Generators for YouTube Videos Windows, Mac, And</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-seamlessly-add-pictures-to-youtube-videos/"><u>[New] How to Seamlessly Add Pictures to YouTube Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhancing-photo-views-in-windows-11-filter-plus-music-integration/"><u>Enhancing Photo Views in Windows 11  Filter + Music Integration</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-on-apple-iphone-14-pro-smoothly-by-drfone-ios/"><u>How To Remove iCloud On Apple iPhone 14 Pro Smoothly</u></a></li>
+</ul></div>

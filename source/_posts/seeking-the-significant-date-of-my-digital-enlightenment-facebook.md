@@ -1,7 +1,7 @@
 ---
 title: "Seeking the Significant Date of My Digital Enlightenment: Facebook"
-date: 2024-06-21 19:18:21
-updated: 2024-06-23 12:26:19
+date: 2024-06-25T14:37:39.762Z
+updated: 2024-06-26T14:37:39.762Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/c6cef7d8d098cc3ec193ea28736f5c8bb8a150dde
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/professional-progression-social-media-uses-demystified/"><u>Professional Progression: Social Media Uses Demystified</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-social-spaces-with-facebooks-audio-innovation/"><u>Reimagining Social Spaces with Facebook's Audio Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/protocol-for-leaving-a-digital-community-constructively/"><u>Protocol for Leaving a Digital Community Constructively</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-the-metaverse-understanding-6-significant-facebook-changes/"><u>Into the Metaverse: Understanding 6 Significant Facebook Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-files-and-their-unprecedented-public-reach/"><u>Facebook Files and Their Unprecedented Public Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-features-of-workplace-from-facebook-for-collaborative-project-management/"><u>8 Features of Workplace From Facebook for Collaborative Project Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-free-video-free-ig-live-experience/"><u>Audio-Free, Video-Free IG Live Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-tecno-pova-5-pro-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Tecno Pova 5 Pro 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-samsung-galaxy-f04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-do-i-sim-unlock-my-iphone-xr-by-drfone-ios/"><u>In 2024, How Do I SIM Unlock My iPhone XR?</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-vivo-y200e-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Vivo Y200e 5G Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-mastering-fcpx-tips-and-tricks-for-overcoming-common-obstacles/"><u>2024 Approved Mastering FCPX Tips and Tricks for Overcoming Common Obstacles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-boost-communication-merging-skype-and-zoom-functionality/"><u>In 2024, Boost Communication  Merging Skype and Zoom Functionality</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-comprehensive-list-of-podcast-visualizers/"><u>2024 Approved  A Comprehensive List of Podcast Visualizers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y100t-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y100t To Phone | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-vllo-on-mac-your-ultimate-guide-to-downloads-and-alternatives/"><u>New VLLO on Mac Your Ultimate Guide to Downloads and Alternatives</u></a></li>
+</ul></div>

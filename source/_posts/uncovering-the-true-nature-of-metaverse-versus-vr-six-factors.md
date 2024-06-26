@@ -1,7 +1,7 @@
 ---
 title: "Uncovering The True Nature of Metaverse Versus VR: Six Factors"
-date: 2024-06-20 17:45:11
-updated: 2024-06-23 10:55:49
+date: 2024-06-25T14:40:37.018Z
+updated: 2024-06-26T14:40:37.018Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
 
  The term was originally used in the novel Snow Crash, originally published in 1992 by Neal Stephenson. In the novel, the metaverse is a virtual shared space that incorporates virtual reality, augmented reality, and the internet.
 
- The[idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
+ The [idea of a metaverse](http://www.makeuseof.com/what-is-the-metaverse/) announced by Facebook and other tech companies does appear to be highly similar to this description. While the exact definition appears to depend on who is speaking, it's basically a new version of the internet that places a greater emphasis on virtual worlds.
 
  Rather than visiting websites using a browser, you will access information by navigating a virtual world with the option of using both virtual and augmented reality.
 
@@ -43,11 +43,11 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
 
  The most notable difference between virtual reality and the metaverse is that while VR is now well understood, the metaverse really is not.
 
-[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent[Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
+[According to Mark Zuckerberg](https://www.npr.org/2021/10/29/1050379828/facebook-changes-its-corporate-name-to-meta#:~:text=MARK%20ZUCKERBERG%3A%20You%20can%20kind,feel%20present%20with%20other%20people.) , the metaverse is "an embodied internet where instead of just viewing the content-you are in it". A recent [Microsoft announcement](https://news.microsoft.com/innovation-stories/mesh-for-microsoft-teams/) described it as "a persistent digital world that is inhabited by digital twins of people, places, and things".
 
  These descriptions are pretty vague when compared to our understanding of virtual reality. It's also possible that even the tech companies themselves don't have a complete definition.
 
- According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has[an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
+ According to Facebook, the decision to rebrand was a necessary part of building the metaverse. They wanted a name that better represented what they were working on. But it's certainly not the only plausible reason for doing so. Facebook has [an image problem](http://www.makeuseof.com/what-are-facebook-papers/) .
 
  It's also possible to argue that the metaverse is nothing more than a buzzword to describe technological improvements in the existing internet.
 
@@ -57,7 +57,7 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
 
  As the owner of Oculus Rift, Facebook plays an important role in the development of virtual reality. But at the same time, they are just one player in a massive industry.
 
- The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced[Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
+ The same is true for the metaverse. Facebook may have changed their name to Meta, but they are not the only company involved. Microsoft, for example, recently announced [Microsoft Mesh](https://www.makeuseof.com/microsoft-unveils-mesh-mixed-reality-platform/) , their version of a mixed-reality platform with similarities to the metaverse and its various definitions. Furthermore,[a recent Facebook statement](https://about.fb.com/news/2021/10/founders-letter/) alludes to the fact that they see themselves as building a part of the metaverse instead of the metaverse itself.
 
  This means that, like VR, the metaverse is going to be bigger than a single company.
 
@@ -118,3 +118,26 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/challenging-the-notion-of-facebook-supremacy/"><u>Challenging the Notion of 'Facebook Supremacy'</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-hd-content-efficient-posting-in-fb-app/"><u>Navigating HD Content: Efficient Posting in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-facebook-updates-on-the-cheap-a-guide-to-5-techniques/"><u>Organizing Facebook Updates on the Cheap: A Guide to 5 Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-social-data-downloading-every-post-like-share/"><u>Reclaiming Social Data: Downloading Every Post, Like, Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-grip-on-online-community-interaction/"><u>Social Media's Grip On Online Community Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/visionaries-earning-vistas-creators-journey-with-metrics-and-money-through-reels/"><u>Visionaries Earning Vistas: Creators' Journey with Metrics & Money Through Reels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-explore-the-journey-creating-a-one-of-a-kind-tiktok-hash/"><u>[New] In 2024, Explore the Journey  Creating a One-of-a-Kind TikTok Hash</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-top-free-video-trimming-tools-2023-edition-for-2024/"><u>New Top Free Video Trimming Tools 2023 Edition for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-elite-e-learning-platforms-beyond-udemy-explored/"><u>In 2024, Elite E-Learning Platforms Beyond Udemy Explored</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/comprehensive-list-of-no-download-online-gif-to-video-converters/"><u>Comprehensive List of No-Download Online GIF to Video Converters</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-tecno-phantom-v-fold-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Tecno Phantom V Fold Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-future-proofing-your-productions-innovative-audio-editing-software-roundup/"><u>Updated In 2024, Future-Proofing Your Productions Innovative Audio Editing Software Roundup</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-mkv-movies-content-on-edge-40-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Can’t view MKV movies content on Edge 40</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unleash-film-potential-on-instagram-with-these-3-edges-for-2024/"><u>[Updated] Unleash Film Potential on Instagram with These 3 Edges for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-13-pro-max-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone 13 Pro Max Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-2023s-most-secretive-digital-treasure-hunt/"><u>2024 Approved  2023'S Most Secretive Digital Treasure Hunt</u></a></li>
+</ul></div>

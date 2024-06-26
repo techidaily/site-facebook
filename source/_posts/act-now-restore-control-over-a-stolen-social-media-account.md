@@ -1,7 +1,7 @@
 ---
 title: Act Now! Restore Control Over a Stolen Social Media Account
-date: 2024-06-21 14:58:47
-updated: 2024-06-23 12:55:17
+date: 2024-06-25T14:49:13.830Z
+updated: 2024-06-26T14:49:13.830Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 
 ## How to Tell Whether Your Facebook Account Was Hacked
 
- You can[tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
+ You can [tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
 
 * You can no longer log in with your username and password.
 * A password reset email shows up in your inbox, but you didn't initiate a reset.
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 
  Did someone log in from a location or device you're not familiar with?
 
- Log into your Facebook account and click your profile image in the top right to expand the Account menu. From that menu, pick**Settings & privacy > Settings** , open the**Accounts Center** from the sidebar, and select[**Password and security**](https://accountscenter.facebook.com/password%5Fand%5Fsecurity) . This path works on both desktop and mobile.
+ Log into your Facebook account and click your profile image in the top right to expand the Account menu. From that menu, pick**Settings & privacy > Settings** , open the**Accounts Center** from the sidebar, and select [**Password and security**](https://accountscenter.facebook.com/password%5Fand%5Fsecurity) . This path works on both desktop and mobile.
 
  Under**Security checks** , expand the**Where you're logged in** option, and select your account. Now you can review a comprehensive list of devices from which you've most recently logged into your Facebook account and when they were active. You can select each individually or all at once to log them out. Be sure to change your password before you remove a suspicious login.
 
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/c8166e8b96eec7a32e2c5447a156a34a01b3ade6d
 
 Other signs that your account may have been hacked include:
 
-* Your personal data, including your password, email address, phone number, or name were changed by a third party. Within the[**Accounts Center**](https://accountscenter.facebook.com/) , go to**Personal details** and expand the**Contact info** option. Here you can see all email addresses and phone numbers associated with your account.
+* Your personal data, including your password, email address, phone number, or name were changed by a third party. Within the [**Accounts Center**](https://accountscenter.facebook.com/) , go to**Personal details** and expand the**Contact info** option. Here you can see all email addresses and phone numbers associated with your account.
 * Friend requests and private messages were sent from your account without your doing. From your account menu (click your profile image in the top right), select**Settings & privacy > Activity log** and look through all the events logged here.
 * Your timeline contains posts you didn't add or permit. To see your timeline, click your profile picture in the top right and select the profile you'd like to review.
 
@@ -70,7 +70,7 @@ Do this only if you're sure you can log back in.
 
 ### 1b. Reset Your Facebook Password
 
- If the hacker did change your password, and you need to[recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
+ If the hacker did change your password, and you need to [recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
@@ -84,7 +84,7 @@ Do this only if you're sure you can log back in.
 
  In my case, Facebook offered to send a recovery code to any of the email addresses I added to my account. We highly recommend that you specify multiple backup email addresses.
 
- Remember that you must keep those accounts equally secure, at least by using a strong password and ideally by[enabling two-factor authentication](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) on your email accounts.
+ Remember that you must keep those accounts equally secure, at least by using a strong password and ideally by [enabling two-factor authentication](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) on your email accounts.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
@@ -94,7 +94,7 @@ Do this only if you're sure you can log back in.
 
 ### 2\. Report the Facebook Hack
 
- If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
+ If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
 
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
@@ -124,13 +124,13 @@ Do this only if you're sure you can log back in.
 
 ## Improving Facebook's Privacy and Security Settings
 
- Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta[Accounts Center](https://accountscenter.facebook.com/) and review the following points:
+ Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta [Accounts Center](https://accountscenter.facebook.com/) and review the following points:
 
 * Under**Personal details** , review your contact info and add additional email addresses or mobile phone numbers that you have access to. Likewise, remove those you no longer have access to.
-* Under**Password and security** , set up extra security measures, including alerts about unrecognized logins and two-factor authentication. You can also launch Facebook's[security checkup](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) to guide you through all your options.
-* Under[**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
+* Under**Password and security** , set up extra security measures, including alerts about unrecognized logins and two-factor authentication. You can also launch Facebook's [security checkup](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) to guide you through all your options.
+* Under [**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
 
- These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
+ These settings not only [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can [use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
 ## How Do You Keep Your Facebook Account Safe?
 
@@ -151,3 +151,26 @@ Do this only if you're sure you can log back in.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/suing-g-f-t-trump-contests-alleged-online-content-control/"><u>Suing G-F-T: Trump Contests Alleged Online Content Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-on-social-networking-recognize-these-14-tricks-fast/"><u>Stay Safe on Social Networking: Recognize These 14 Tricks Fast</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-commercial-success-story-with-5-igfb-strategies/"><u>Crafting a Commercial Success Story with 5 IG/FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasked-truths-rethinking-the-significance-of-facebook-reports/"><u>Unmasked Truths: Rethinking the Significance of Facebook Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-the-watchful-eyes-of-facebook/"><u>Stop the Watchful Eyes of Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-the-top-10-imovie-like-apps-for-android-users/"><u>New 2024 Approved The Top 10 iMovie-Like Apps for Android Users</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-audio-broadcasts-networks-for-2024/"><u>Premier Audio Broadcasts Networks for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensively-capturing-your-messenger-conversations/"><u>2024 Approved  Comprehensively Capturing Your Messenger Conversations</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/from-large-files-to-tiny-previews-crafting-stunning-thumbnails-for-2024/"><u>From Large Files to Tiny Previews  Crafting Stunning Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aster-your-youtube-banner-essential-guide-for-creators/"><u>[New] Master Your YouTube Banner  Essential Guide for Creators</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-15-pro-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 15 Pro to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-uniting-fandoms-top-20-best-anime-songs/"><u>2024 Approved  Uniting Fandoms  Top 20 Best Anime Songs</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-omegle-exclusion-no-more-strategies-for-removal-from-the-blacklist/"><u>New Omegle Exclusion No More Strategies for Removal From the Blacklist</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-iphone-6-plus-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From iPhone 6 Plus Smoothly</u></a></li>
+</ul></div>

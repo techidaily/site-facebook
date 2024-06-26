@@ -1,7 +1,7 @@
 ---
 title: Critical Measures to Undo FB Account Breach Consequences
-date: 2024-06-21 11:58:21
-updated: 2024-06-23 12:32:55
+date: 2024-06-25T13:42:45.165Z
+updated: 2024-06-26T13:42:45.165Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
 ## How to Tell Whether Your Facebook Account Was Hacked
 
- You can[tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
+ You can [tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
 
 * You can no longer log in with your username and password.
 * A password reset email shows up in your inbox, but you didn't initiate a reset.
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
  Did someone log in from a location or device you're not familiar with?
 
- Log into your Facebook account and click your profile image in the top right to expand the Account menu. From that menu, pick**Settings & privacy > Settings** , open the**Accounts Center** from the sidebar, and select[**Password and security**](https://accountscenter.facebook.com/password%5Fand%5Fsecurity) . This path works on both desktop and mobile.
+ Log into your Facebook account and click your profile image in the top right to expand the Account menu. From that menu, pick**Settings & privacy > Settings** , open the**Accounts Center** from the sidebar, and select [**Password and security**](https://accountscenter.facebook.com/password%5Fand%5Fsecurity) . This path works on both desktop and mobile.
 
  Under**Security checks** , expand the**Where you're logged in** option, and select your account. Now you can review a comprehensive list of devices from which you've most recently logged into your Facebook account and when they were active. You can select each individually or all at once to log them out. Be sure to change your password before you remove a suspicious login.
 
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
 Other signs that your account may have been hacked include:
 
-* Your personal data, including your password, email address, phone number, or name were changed by a third party. Within the[**Accounts Center**](https://accountscenter.facebook.com/) , go to**Personal details** and expand the**Contact info** option. Here you can see all email addresses and phone numbers associated with your account.
+* Your personal data, including your password, email address, phone number, or name were changed by a third party. Within the [**Accounts Center**](https://accountscenter.facebook.com/) , go to**Personal details** and expand the**Contact info** option. Here you can see all email addresses and phone numbers associated with your account.
 * Friend requests and private messages were sent from your account without your doing. From your account menu (click your profile image in the top right), select**Settings & privacy > Activity log** and look through all the events logged here.
 * Your timeline contains posts you didn't add or permit. To see your timeline, click your profile picture in the top right and select the profile you'd like to review.
 
@@ -70,7 +70,7 @@ Do this only if you're sure you can log back in.
 
 ### 1b. Reset Your Facebook Password
 
- If the hacker did change your password, and you need to[recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
+ If the hacker did change your password, and you need to [recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
@@ -84,7 +84,7 @@ Do this only if you're sure you can log back in.
 
  In my case, Facebook offered to send a recovery code to any of the email addresses I added to my account. We highly recommend that you specify multiple backup email addresses.
 
- Remember that you must keep those accounts equally secure, at least by using a strong password and ideally by[enabling two-factor authentication](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) on your email accounts.
+ Remember that you must keep those accounts equally secure, at least by using a strong password and ideally by [enabling two-factor authentication](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) on your email accounts.
 
 ![Facebook Password Recovery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-password-recovery.jpg)
 
@@ -94,7 +94,7 @@ Do this only if you're sure you can log back in.
 
 ### 2\. Report the Facebook Hack
 
- If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
+ If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
 
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
@@ -124,13 +124,13 @@ Do this only if you're sure you can log back in.
 
 ## Improving Facebook's Privacy and Security Settings
 
- Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta[Accounts Center](https://accountscenter.facebook.com/) and review the following points:
+ Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta [Accounts Center](https://accountscenter.facebook.com/) and review the following points:
 
 * Under**Personal details** , review your contact info and add additional email addresses or mobile phone numbers that you have access to. Likewise, remove those you no longer have access to.
-* Under**Password and security** , set up extra security measures, including alerts about unrecognized logins and two-factor authentication. You can also launch Facebook's[security checkup](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) to guide you through all your options.
-* Under[**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
+* Under**Password and security** , set up extra security measures, including alerts about unrecognized logins and two-factor authentication. You can also launch Facebook's [security checkup](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) to guide you through all your options.
+* Under [**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
 
- These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
+ These settings not only [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can [use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
 ## How Do You Keep Your Facebook Account Safe?
 
@@ -151,3 +151,27 @@ Do this only if you're sure you can log back in.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailoring-the-digital-space-how-facebook-will-assess-news-feeds/"><u>Tailoring the Digital Space: How Facebook Will Assess News Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pioneering-project-how-spotify-and-facebook-are-building-boombox/"><u>The Pioneering Project: How Spotify and Facebook Are Building Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-cleaning-up-your-social-sphere/"><u>Unveiling the Process: Cleaning up Your Social Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-list-of-approved-content/"><u>Decoding Facebook's List of Approved Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-dollars-in-the-digital-domain-of-dialogue/"><u>Making Dollars in the Digital Domain of Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-metaai-poised-to-become-a-conversational-technology-leader/"><u>Is MetaAI Poised to Become a Conversational Technology Leader?</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-latest-watches-in-facebook/"><u>Quick Guide to Latest Watches in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-unleash-your-creativity-best-hand-drawing-whiteboard-animation-tools-2023/"><u>2024 Approved Unleash Your Creativity Best Hand Drawing Whiteboard Animation Tools 2023</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-ultimate-ad-free-android-video-maker/"><u>[Updated] 2024 Approved  Ultimate Ad-Free Android Video Maker</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-virtualdub-a-comprehensive-review-and-comparison-to-rivals/"><u>New In 2024, Virtualdub A Comprehensive Review and Comparison to Rivals</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-elevate-your-wit-crafting-memes-with-kapwing/"><u>[New] In 2024, Elevate Your Wit  Crafting Memes with Kapwing</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/visionaries-of-interactive-marvel-worlds/"><u>Visionaries of Interactive Marvel Worlds</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-professional-photography-meets-social-media-dslr-and-computer-syncopation/"><u>2024 Approved  Professional Photography Meets Social Media  DSLR and Computer Syncopation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-optimize-video-playback-with-snapchat-tricks/"><u>In 2024, Optimize Video Playback with Snapchat Tricks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-nokia-c22-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Nokia C22 | Dr.fone</u></a></li>
+</ul></div>

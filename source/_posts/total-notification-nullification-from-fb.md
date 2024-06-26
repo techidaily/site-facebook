@@ -1,7 +1,7 @@
 ---
 title: Total Notification Nullification From FB
-date: 2024-06-21 20:27:11
-updated: 2024-06-23 12:50:19
+date: 2024-06-25T14:47:15.678Z
+updated: 2024-06-26T14:47:15.678Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c36628b8a77d9c8656bc14c8b8281e34c21620e43
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/c36628b8a77d9c8656bc14c8b8281e34c21620e43
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/can-consumers-trust-their-smartphones-with-privacy-intact/"><u>Can Consumers Trust Their Smartphones With Privacy Intact?</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencer-impact-covid-misinformation-spread/"><u>Influencer Impact: Covid Misinformation Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-virtual-world-why-it-calls-for-attention/"><u>The Facebook Virtual World - Why It Calls for Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
+<li><a href="https://facebook.techidaily.com/2022s-worst-of-the-tech-world-exposed/"><u>2022'S Worst of the Tech World Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-exclusivity-recognize-illicit-facebook-access/"><u>Ensure Exclusivity – Recognize Illicit Facebook Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/cease-and-desist-stop-fb-notifications/"><u>Cease and Desist: Stop FB Notifications</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-adjusting-obs-encoding-settings/"><u>[Updated] 2024 Approved  Adjusting OBS Encoding Settings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-vivo-s18-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Vivo S18 Phone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/complete-guide-to-make-a-super-easy-rotating-video-effect-for-2024/"><u>Complete Guide to Make a Super Easy Rotating Video Effect for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-channel-appeal-with-free-professional-banner-designs/"><u>[New] Enhance Channel Appeal with Free, Professional Banner Designs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/top-10-igtv-channels-you-should-start-following/"><u>Top 10 IGTV Channels You Should Start Following</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-speech-understanding-no-financial-requirement/"><u>[Updated] Speech Understanding  No Financial Requirement</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-essence-of-elegance-premium-filters-for-your-snap/"><u>In 2024, The Essence of Elegance  Premium Filters for Your Snap</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-mobile-masterpieces-best-video-invitation-creators-for-ios-and-android/"><u>Updated 2024 Approved Mobile Masterpieces Best Video Invitation Creators for iOS and Android</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-uncomplicated-techniques-for-adding-igtv-to-your-story/"><u>[Updated] Uncomplicated Techniques for Adding IGTV to Your Story</u></a></li>
+</ul></div>

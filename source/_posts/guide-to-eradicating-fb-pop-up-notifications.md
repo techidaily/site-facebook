@@ -1,7 +1,7 @@
 ---
 title: Guide to Eradicating Fb Pop-Up Notifications
-date: 2024-06-21 20:13:41
-updated: 2024-06-23 11:36:19
+date: 2024-06-25T14:29:47.612Z
+updated: 2024-06-26T14:29:47.612Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/5c068034f0080166994d164493cb808318b6f6a0f
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-## How to Delete Facebook Notifications
-
-![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+## How to Delete Facebook Notifications ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -74,9 +72,7 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-### How to Turn Off Facebook Notifications by Category
-
-![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+### How to Turn Off Facebook Notifications by Category ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -99,9 +95,7 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-### How to Stop Facebook Notifications on Android
-
-![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+### How to Stop Facebook Notifications on Android ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -148,3 +142,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/channel-synergy-transforming-groups-on-the-platform/"><u>Channel Synergy: Transforming Groups on the Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-most-impactful-press-stories-of-google/"><u>Dissecting the Most Impactful Press Stories of Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook/"><u>How to Disconnect Your Instagram Account From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-fix-facebook-notifications-not-loading/"><u>How to Fix Facebook Notifications Not Loading</u></a></li>
+<li><a href="https://facebook.techidaily.com/nullify-all-social-media-interruptions-by-fb/"><u>Nullify All Social Media Interruptions by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-personalized-content-a-deep-dive/"><u>Facebook’s Personalized Content: A Deep Dive</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-sending-your-security-code-how-to-fix-it/"><u>Facebook Not Sending Your Security Code? How to Fix It</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-asmr-apps-for-android-and-ios-you-should-know/"><u>[Updated] 2024 Approved  Best ASMR Apps for Android and iOS You Should Know</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-customizing-teams-background-priorpost-meeting/"><u>[Updated] In 2024, Customizing Teams Background Prior/Post-Meeting</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-how-to-access-facebooks-just-watched-video-list-for-2024/"><u>[New] How To Access Facebook’s Just-Watched Video List for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-basic-tools-to-advanced-systems-prepping-for-transformation/"><u>In 2024, From Basic Tools to Advanced Systems  Prepping for Transformation</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-the-ultimate-guide-to-free-3gp-video-rotation-top-5-choices/"><u>2024 Approved The Ultimate Guide to Free 3GP Video Rotation Top 5 Choices</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-whatsapp-broadcasting-share-your-tweets-video-style/"><u>2024 Approved  WhatsApp Broadcasting  Share Your Tweets Video-Style</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-tailor-film-duration-for-youtube-submission/"><u>In 2024, Tailor Film Duration for YouTube Submission</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Poco M6 Pro 4G | Dr.fone</u></a></li>
+</ul></div>

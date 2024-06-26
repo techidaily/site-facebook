@@ -1,7 +1,7 @@
 ---
 title: Explore Relational Threads in FB History
-date: 2024-06-20 12:43:39
-updated: 2024-06-23 11:38:44
+date: 2024-06-25T13:46:13.441Z
+updated: 2024-06-26T13:46:13.441Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-apple-skips-joining-facebook-in-metaverse-journey/"><u>Why Apple Skips Joining Facebook in Metaverse Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealing-newest-videos-on-social-media-hub/"><u>Revealing Newest Videos on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-check-scan-for-unauthorized-account-use/"><u>Social Security Check: Scan for Unauthorized Account Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secure-way-to-delete-your-facebook-account-android/"><u>The Secure Way to Delete Your Facebook Account (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-crafting-visually-striking-fb-ad-videos-for-2024/"><u>[Updated] Crafting Visually Striking FB Ad Videos for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-streamlining-visual-storytelling-best-plugin-choices-in-ae/"><u>[Updated] Streamlining Visual Storytelling  Best Plugin Choices in AE</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-destinations-amplifying-youtube-videos-for-2024/"><u>Premier Destinations Amplifying YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-tools-upload-and-convert-vids-for-tweeting/"><u>[New] Premier Tools  Upload & Convert Vids for Tweeting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-softer-side-of-promotion-elevating-your-audience-count/"><u>[New] The Softer Side of Promotion  Elevating Your Audience Count</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-taking-views-viral-the-ultimate-guide-for-youtube-success/"><u>[Updated] Taking Views Viral  The Ultimate Guide for YouTube Success</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-tecno-spark-20-proplus-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sketchsquad-full-scrutiny-and-step-by-step-guidebook-24/"><u>SketchSquad Full Scrutiny & Step-by-Step Guidebook '24</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-if-you-want-to-make-cartoon-on-your-phone-we-will-present-you-with-10-best-cartoon-video-maker-app-on-android-and-iphone-check-it-out/"><u>Updated In 2024, If You Want to Make Cartoon on Your Phone, We Will Present You with 10 Best Cartoon Video Maker App on Android and iPhone. Check It Out</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "The Power of Pithy Posting: A List of 30 Key SMARTs for Online Success"
-date: 2024-06-21 18:10:27
-updated: 2024-06-23 11:48:19
+date: 2024-06-25T14:08:32.440Z
+updated: 2024-06-26T14:08:32.440Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/267d92bf94270151f5bfac8360b3ac61e42f156ac
 
 ## 5\. DM
 
- A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
+ A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a [DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
 ## 6\. #F4F
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/267d92bf94270151f5bfac8360b3ac61e42f156ac
 
 ## 8\. RT
 
- On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can[turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
+ On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can [turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/267d92bf94270151f5bfac8360b3ac61e42f156ac
 
 ## 30\. FOMO
 
- FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
+ FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are [ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
 
 ## Never Get Left Behind
 
@@ -162,3 +162,26 @@ thumbnail: https://thmb.techidaily.com/267d92bf94270151f5bfac8360b3ac61e42f156ac
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/enhancing-global-reach-with-multi-language-posts-on-facebook/"><u>Enhancing Global Reach with Multi-Language Posts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-instagrams-latest-revenue-options-for-content-makers/"><u>Unlocking Potential: Instagram's Latest Revenue Options for Content Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-fb-password-with-minimal-hassle/"><u>Reclaim Your FB Password with Minimal Hassle</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-community-oversight-facebooks-latest-update/"><u>Revolutionizing Community Oversight: Facebook's Latest Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-tech-trends-top-4-revelations-for-the-informed/"><u>Overlooked Tech Trends: Top 4 Revelations for the Informed</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-lava-storm-5g-by-fonelab-android-recover-music/"><u>How to recover old music from your Lava Storm 5G</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-unraveling-the-process-of-gaining-facebooks-blue-badge/"><u>[Updated] 2024 Approved  Unraveling the Process of Gaining Facebook's Blue Badge</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-tailored-audio-connector-for-podcasting-pros/"><u>[New] Tailored Audio Connector for Podcasting Pros</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[New] In 2024, Best 10 YouTube Volume Boosters for Windows, macOS, Android, and iPhone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-kinemaster-app-for-android-complete-review-2023/"><u>2024 Approved  KineMaster App for Android - Complete Review 2023</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-gif-animation-made-easy-top-free-makers-for-2024/"><u>New GIF Animation Made Easy Top Free Makers for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-catchy-tracks-the-20-top-rapping-beats-you-cant-miss-on-tiktok/"><u>In 2024, Catchy Tracks  The 20 Top Rapping Beats You Can't Miss on TikTok</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-rapid-reader-advanced-windows-photoshop/"><u>[Updated] Rapid Reader - Advanced Windows Photoshop</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-unveiling-the-facts-dispelling-common-misconceptions-about-daw-software/"><u>New Unveiling the Facts Dispelling Common Misconceptions About DAW Software</u></a></li>
+</ul></div>

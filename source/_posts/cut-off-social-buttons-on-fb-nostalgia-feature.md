@@ -1,7 +1,7 @@
 ---
 title: Cut Off Social Buttons on FB Nostalgia Feature
-date: 2024-06-20 16:22:53
-updated: 2024-06-23 12:27:46
+date: 2024-06-25T14:18:47.244Z
+updated: 2024-06-26T14:18:47.244Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
 
  Journalist Julia MacFarlane, for instance, got an unpleasant reminder of one of the scarring experiences in her life:
 
- Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer[wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
+ Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer [wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
 
 > Those of us who lived through the death of loved ones, or spent extended time in the hospital, or were hit by divorce or losing a job or any one of a hundred crises, we might not want another look at this past year. To show me Rebecca's face and say "Here's what your year looked like!" is jarring. It feels wrong, and coming from an actual person, it would be wrong. Coming from code, it's just unfortunate. These are hard, hard problems. It isn't easy to programmatically figure out if a picture has a ton of Likes because it's hilarious, astounding, or heartbreaking.
 
@@ -47,9 +47,7 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
-## How to Block Dates or Date Ranges in Facebook Memories
-
-![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+## How to Block Dates or Date Ranges in Facebook Memories ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
@@ -60,19 +58,17 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
 
  That's it, memories from that particular date range won't show up.
 
-## How to Turn Off Facebook Memories Notifications
+## How to Turn Off Facebook Memories Notifications ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
 
-![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-
- You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
+ You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
 1. On a computer browser, click on**Memories** on the left-hand side of your Facebook home screen.
 2. Click**Notifications** .
 3. Choose from**All Memories** ,**Highlights** or**None** .
 
- That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
+ That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for [Facebook Memories](https://www.facebook.com/memories/) .
 
- If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
+ If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's [Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 ## Learn to Live with Your Past
 
@@ -93,3 +89,27 @@ thumbnail: https://thmb.techidaily.com/1a06e5fd0d5cec8ff438d2d94c98e453ecdfe96f9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-implicit-communication-on-fbc-platform/"><u>Unraveling Implicit Communication on FBC Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-intractability-of-social-media-feeds/"><u>Dissecting the Intractability of Social Media Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-data-analysis-with-8-crowdflower-features/"><u>Master the Art of Data Analysis with 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-opinion-digital-life-negates-benefits/"><u>Majority Opinion: Digital Life Negates Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-leap-into-mobility-with-go-update/"><u>Portal’s Leap Into Mobility with Go Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secret-messaging-safety-questioned/"><u>Facebook's Secret Messaging Safety Questioned</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-privacy-illusions-online/"><u>Navigating Through Privacy Illusions Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-windows-10-capture-miniapp-for-2024/"><u>[Updated] Windows 10 Capture MiniApp for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-video-marketing-how-to-plan-your-strategy-with-ideas-for-2024/"><u>[New] Instagram Video Marketing  How to Plan Your Strategy with Ideas for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-depth-look-the-prime-snipping-options-on-macos/"><u>[New] In-Depth Look  The Prime Snipping Options on macOS</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-realme-12-pro-5g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Realme 12 Pro 5G Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unlocking-zoom-potentials-a-complete-guide-to-excellent-audio-recordings/"><u>[New] Unlocking Zoom Potentials  A Complete Guide to Excellent Audio Recordings</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-12plus-stunning-instagram-gif-stickers-and-how-to-make-and-find/"><u>Updated 2024 Approved 12+ Stunning Instagram GIF Stickers and How to Make & Find</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-recovering-from-a-mistaken-tiktok-reload/"><u>[Updated] In 2024, Recovering From a Mistaken TikTok Reload</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-mastering-screen-capture-a-compreenas-android-guide/"><u>[Updated] 2024 Approved  Mastering Screen Capture  A Compreenas Android Guide</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-htc-u23-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from HTC U23 Devices</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-advanced-techniques-for-quieter-video-calls-on-skype/"><u>[New] In 2024, Advanced Techniques for Quieter Video Calls on Skype</u></a></li>
+</ul></div>

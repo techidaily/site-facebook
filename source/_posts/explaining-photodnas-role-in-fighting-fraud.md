@@ -1,7 +1,7 @@
 ---
 title: Explaining PhotoDNA's Role in Fighting Fraud
-date: 2024-06-20 17:51:38
-updated: 2024-06-23 10:53:22
+date: 2024-06-25T14:37:15.606Z
+updated: 2024-06-26T14:37:15.606Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-impending-shake-up-meta-vs-european-social-media-giants/"><u>The Impending Shake-Up: Meta Vs. European Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-bells-and-whistles-resetting-facebook-passwords/"><u>Bring Back the Bells & Whistles - Resetting Facebook Passwords</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-big-with-these-5-facebook-and-instagram-hacks/"><u>Earn Big with These 5 Facebook and Instagram Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-purity-drive-excluding-polityfaith-talk/"><u>Social Media Purity Drive: Excluding Polity/Faith Talk</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-purpose-of-instagrams-unplugged-message/"><u>Discovering the Purpose of Instagram's 'Unplugged' Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-revenue-streams-instagrams-new-perks-for-artists/"><u>Expanding Revenue Streams: Instagram's New Perks for Artists</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-inside-out-unpacking-avs-editors-functionality-with-user-testimonials-and-substitute-solutions/"><u>Updated 2024 Approved Inside Out Unpacking AVS Editors Functionality with User Testimonials & Substitute Solutions</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/detailed-procedures-for-elevating-youtube-clips-through-wm-maker-for-2024/"><u>Detailed Procedures for Elevating YouTube Clips Through WM Maker for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/decoding-the-mystery-of-where-are-my-youtube-comments-for-2024/"><u>Decoding the Mystery of Where Are My YouTube Comments for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-iphone-15-pro-max-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On iPhone 15 Pro Max in the Best Ways</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-top-10-memes-blending-hilarity-and-emotional-depth-on-insta-for-2024/"><u>[New] Top 10 Memes Blending Hilarity and Emotional Depth on Insta for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/10-free-linux-video-editors-that-rival-adobe-premiere/"><u>10 Free Linux Video Editors That Rival Adobe Premiere</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-imaginative-imagery-the-art-of-altered-text-presentation/"><u>[New] Imaginative Imagery  The Art of Altered Text Presentation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-art-of-monitoring-youtube-discussions/"><u>[New] The Art of Monitoring YouTube Discussions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-restoring-clear-vision-fixing-iphone-lens-out-of-focus/"><u>2024 Approved  Restoring Clear Vision  Fixing iPhone Lens Out-of-Focus</u></a></li>
+</ul></div>

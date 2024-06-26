@@ -1,7 +1,7 @@
 ---
 title: "Beyond Virtuality: Deciphering the Metaverse Mystery"
-date: 2024-06-20 18:26:39
-updated: 2024-06-23 10:16:21
+date: 2024-06-25T14:12:15.346Z
+updated: 2024-06-26T14:12:15.346Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/b707c0511382e78c7bbc2631c8c2ac749bfdb8b7d
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept
-
-![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -41,7 +39,7 @@ So, what is the metaverse?
 
 Yet.
 
- In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with[The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
+ In a presentation to his company workers, Facebook CEO Mark Zuckerberg expressed his desire to build an actual metaverse. Later, in an interview with [The Verge](https://www.theverge.com/22588022/mark-zuckerberg-facebook-ceo-metaverse-interview) , Zuckerberg said, “You can think of it \[the metaverse\] as the successor to the mobile internet,” while also acknowledging that “it’s certainly not something that any one company is going to build.”
 
 > You can think about it as an embodied internet, where instead of just viewing the content—you are in it. And you feel present with other people as if you were in other places . . . but the metaverse isn’t just virtual reality. It’s going to be accessible across all of our different computing platforms; VR and AR, but also PC, and also mobile devices and game consoles
 
@@ -49,9 +47,7 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse
-
-![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -73,9 +69,7 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors
-
-![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -86,9 +80,7 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet
-
-![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -111,3 +103,24 @@ Yet.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bury-your-photos-deep-in-private-settings/"><u>Bury Your Photos Deep in Private Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-go-facebooks-move-towards-mobile-accessibility/"><u>Portal Go: Facebook's Move Towards Mobile Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-switching-approach-for-disconnected-facebook-accounts/"><u>Agile Switching Approach for Disconnected Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-comments-securing-your-social-media-content/"><u>Concealing Comments: Securing Your Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/yearly-summary-the-hottest-podcasts-reviewed-and-rated/"><u>Yearly Summary: The Hottest Podcasts Reviewed & Rated</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/revel-in-social-network-supporters/"><u>Revel in Social Network Supporters</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-honor-magic-6-is-unlocked-by-drfone-android/"><u>How To Check if Your Honor Magic 6 Is Unlocked</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-guard-against-gimmicky-validations-instagrams-hidden-hazard/"><u>[Updated] In 2024, Guard Against Gimmicky Validations  Instagram's Hidden Hazard</u></a></li>
+<li><a href="https://extra-information.techidaily.com/hidden-harmonics-discreetly-lowering-garageband-tones/"><u>Hidden Harmonics  Discreetly Lowering Garageband Tones</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-zero-to-trendsetter-solo-podcast-success-story/"><u>In 2024, From Zero to Trendsetter  Solo Podcast Success Story</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-achieving-smooth-transitions-utilizing-audio-ducking-for-elegant-music-fades-in-powerdirector/"><u>New In 2024, Achieving Smooth Transitions Utilizing Audio Ducking for Elegant Music Fades in PowerDirector</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-oppo-reno-11-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Oppo Reno 11 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-pathway-to-professional-pc-livestreams-with-tiktok-for-2024/"><u>[New] The Pathway to Professional PC Livestreams with TikTok for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-balancing-viral-potential-with-long-term-traction-in-videos/"><u>[Updated] Balancing Viral Potential with Long-Term Traction in Videos</u></a></li>
+</ul></div>

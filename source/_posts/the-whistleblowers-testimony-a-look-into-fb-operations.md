@@ -1,7 +1,7 @@
 ---
 title: "The Whistleblower's Testimony: A Look Into FB Operations"
-date: 2024-06-21 16:13:54
-updated: 2024-06-23 10:35:15
+date: 2024-06-25T13:44:04.136Z
+updated: 2024-06-26T13:44:04.136Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/609392eeb7e6d07659b5310d5497d83d3c111a4e7
 
 ## The Whistleblower's Testimony: A Look Into FB Operations
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,27 @@ thumbnail: https://thmb.techidaily.com/609392eeb7e6d07659b5310d5497d83d3c111a4e7
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/leap-into-change-how-to-revamp-facebook-details/"><u>Leap Into Change: How to Revamp Facebook Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unearth-facebook-accounts-youve-locked-out/"><u>How to Unearth Facebook Accounts You've Locked Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencer-impact-covid-misinformation-spread/"><u>Influencer Impact: Covid Misinformation Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-decline-social-networking-amid-abuse-outcry/"><u>Premier League Stars Decline Social Networking Amid Abuse Outcry</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-tiktok-losing-its-ground-can-facebooks-reel-offer-relief/"><u>Is TikTok Losing Its Ground? Can Facebook's Reel Offer Relief?</u></a></li>
+<li><a href="https://facebook.techidaily.com/erase-all-fb-activity-notices-effectively/"><u>Erase All Fb Activity Notices Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-news-streams-user-opinions-on-social-networking-sites/"><u>Reimagining News Streams: User Opinions on Social Networking Sites</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-essentials-checklist-what-you-must-know-before-sharing-4k-videos-on-youtube/"><u>[New] Essentials Checklist - What You Must Know Before Sharing 4K Videos on Youtube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unleashing-storytelling-potential-making-youtube-trailers-in-filmora-for-2024/"><u>Unleashing Storytelling Potential  Making YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-revolutionary-ideas-to-empower-your-webcam-for-2024/"><u>[New] Revolutionary Ideas to Empower Your Webcam for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-no-complications-approach-switching-up-flipper-voices-in-windows-domain/"><u>2024 Approved  No-Complications Approach  Switching Up Flipper Voices in Windows Domain</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-chortle-central-top-10-tweet-humor-for-2024/"><u>[Updated] Chortle Central  Top 10 Tweet Humor for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/windows-screen-imaging-technique-for-2024/"><u>Windows Screen Imaging Technique for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-ultimate-guide-to-vimeo-record-features-for-2024/"><u>[Updated] The Ultimate Guide to Vimeo Record Features for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-oppo-find-x7-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Oppo Find X7 without App | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-the-ultimate-list-28-top-rated-video-to-gif-converters-for-2024/"><u>New The Ultimate List 28 Top-Rated Video to GIF Converters for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/premier-10-layouts-ae-text-edition-for-2024/"><u>Premier 10 Layouts  AE Text Edition for 2024</u></a></li>
+</ul></div>

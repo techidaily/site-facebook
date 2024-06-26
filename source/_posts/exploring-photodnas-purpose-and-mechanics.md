@@ -1,7 +1,7 @@
 ---
 title: Exploring PhotoDNA's Purpose & Mechanics
-date: 2024-06-20 10:23:37
-updated: 2024-06-23 10:31:42
+date: 2024-06-25T14:48:32.886Z
+updated: 2024-06-26T14:48:32.886Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,22 @@ thumbnail: https://thmb.techidaily.com/150a758dee3602d845be20dca449cfe34839f49d0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-acts-of-support-masked-likes-across-platforms/"><u>Vanishing Acts of Support: Masked Likes Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/weekends-boosted-by-facebooks-live-shopping-fridays/"><u>Weekends Boosted by Facebook’s Live Shopping Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-social-texting-new-features-for-fbs-messaging-apps/"><u>Reimagined Social Texting: New Features for FB's Messaging Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-for-fb-chatters-schedule-revealed-soon/"><u>E2EE for FB Chatters: Schedule Revealed Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-time-offline-is-an-investment-in-happiness/"><u>Why Time Offline Is an Investment in Happiness</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elite-templates-for-premiere-pro-free-for-2024/"><u>[Updated] Elite Templates for Premiere Pro - FREE for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-fans-access-more-from-your-twitch-channel/"><u>2024 Approved  Facebook Fans  Access More From Your Twitch Channel</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-from-concept-to-completion-an-instagram-video-strategy-manual/"><u>[Updated] In 2024, From Concept to Completion  An Instagram Video Strategy Manual</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-3-sites-to-find-free-asus-unlock-codes-to-unlock-your-asus-phone-by-drfone-android/"><u>In 2024, Top 3 Sites to Find Free Asus Unlock Codes to Unlock Your Asus Phone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-future-is-here-free-innovative-fb-story-enhancers/"><u>2024 Approved  The Future Is Here  Free, Innovative FB Story Enhancers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-how-to-restore-windows-photo-viewer-in-windows-10-2-methods/"><u>In 2024, How to Restore Windows Photo Viewer in Windows 10 (2 Methods)</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-keep-it-lighthearted-a-straightforward-guide-to-posting-gifs-on-instagram/"><u>In 2024, Keep It Lighthearted  A Straightforward Guide to Posting GIFs on Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-unlocking-the-full-potential-of-iphone-7-screen-save/"><u>[Updated] Unlocking the Full Potential of iPhone 7 Screen Save</u></a></li>
+</ul></div>

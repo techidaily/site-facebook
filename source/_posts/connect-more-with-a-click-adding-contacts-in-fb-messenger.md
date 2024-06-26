@@ -1,7 +1,7 @@
 ---
 title: "Connect More with a Click: Adding Contacts in FB Messenger"
-date: 2024-06-22 14:38:14
-updated: 2024-06-23 10:17:54
+date: 2024-06-25T14:07:58.443Z
+updated: 2024-06-26T14:07:58.443Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,23 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-see-every-like-post-and-comment-youve-made-on-facebook/"><u>How to See Every Like, Post, and Comment You've Made on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-reinventing-instagrams-app-design/"><u>The Allure of Reinventing Instagram's App Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-verification-metas-gold-tier-badge/"><u>Invest in Verification: Metas Gold Tier Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-the-metaverse-an-in-depth-analysis/"><u>Facebook & The Metaverse: An In-Depth Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-image-posts-with-built-in-descriptions-on-fb/"><u>Seamless Image Posts with Built-In Descriptions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-fix-facebook-notifications-not-loading/"><u>How to Fix Facebook Notifications Not Loading</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-conveying-content-via-discord-optimizing-video-sharing/"><u>2024 Approved  Conveying Content via Discord  Optimizing Video Sharing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-optimize-your-media-output-with-our-top-10-online-subtitles-tools/"><u>[Updated] Optimize Your Media Output With Our Top 10 Online Subtitles Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-xiaomi-redmi-k70e-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Xiaomi Redmi K70E Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-6-plus-drfone-by-drfone-ios/"><u>The Best Methods to Unlock the iPhone Locked to Owner for iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-hasty-photographers-guide-to-google-collage-magic/"><u>In 2024, The Hasty Photographer's Guide to Google Collage Magic</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-tecno-spark-20-proplus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Tecno Spark 20 Pro+ Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-elite-selection-personal-video-replay-software-12/"><u>[New] Elite Selection  Personal Video Replay Software (12)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ting-snug-winter-scenes-as-video-sets-for-2024/"><u>Selecting Snug Winter Scenes as Video Sets for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-8-unexpected-ways-to-add-emoji-to-photo-online/"><u>Updated 8 Unexpected Ways to Add Emoji to Photo Online</u></a></li>
+</ul></div>

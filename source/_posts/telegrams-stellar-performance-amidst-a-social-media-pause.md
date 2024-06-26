@@ -1,7 +1,7 @@
 ---
 title: Telegram's Stellar Performance Amidst a Social Media Pause
-date: 2024-06-22 19:56:38
-updated: 2024-06-23 10:29:36
+date: 2024-06-25T14:45:15.569Z
+updated: 2024-06-26T14:45:15.569Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/69247ac14d53a4d423914a7a567f7db5686b08abe
 
 ## How Did Telegram Gain So Many Users in One Day?
 
- On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
+ On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all [went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
 
  Between them, they handle billions of messages every day, so once it became clear that the downtime was going to last for many hours rather than mere minutes, users quickly looked for alternatives.
 
@@ -35,9 +35,9 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
- Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
+ Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused [the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
- Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and[many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
+ Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and [many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
 
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
@@ -47,7 +47,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
  One enduring problem that every WhatsApp competitor faces is getting people to switch over to the service en masse. After all, what use is an instant messaging app if none of your friends have it installed?
 
- We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding[WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
+ We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding [WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
 
  This latest migration marked yet another large-scale move by users. Telegram is now starting to reach a critical mass whereby you could be missing out on conversations by not having the app installed.
 
@@ -55,7 +55,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ## It Wasn't All Perfect for Telegram
 
- While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
+ While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In [a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
 
 > "Users in the Americas may have experienced slower speed than usual as millions of users from these continents rushed to sign up for Telegram at the same time."
 
@@ -86,3 +86,24 @@ But why did Telegram benefit so much more than any of its rivals?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/camouflaging-connections-in-facebook/"><u>Camouflaging Connections in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-facebooks-messaging/"><u>Protecting Privacy in Facebook's Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundscapes-in-speeches-the-rise-of-facebooks-soundemojis/"><u>Soundscapes in Speeches: The Rise of Facebook's Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-upcoming-us-antitrust-measures-against-major-tech-firms/"><u>Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-giants-stream-nba-season-together/"><u>Social Giants Stream NBA Season Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/pursuing-new-frontiers-fb-sets-aside-5m-for-groundbreaking-content-creator-tools/"><u>Pursuing New Frontiers: FB Sets Aside $5M for Groundbreaking Content Creator Tools</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-key-steps-in-archiving-lol-gaming-history/"><u>[New] 2024 Approved  Key Steps in Archiving LOL Gaming History</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-have-you-tried-a-discord-boost-before-what-does-a-discord-server-boost-entail-and-is-it-worthwhile-what-are-the-advantages-heres-a-quick-guide-t/"><u>New In 2024, Have You Tried a Discord Boost Before? What Does a Discord Server Boost Entail, and Is It Worthwhile? What Are the Advantages? Heres a Quick Guide to Assist You in Making Your Decision</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-cutting-edge-approaches-merging-obs-with-facebook-live/"><u>[Updated] 2024 Approved  Cutting-Edge Approaches  Merging OBS with Facebook Live</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-the-best-free-vob-video-editing-programs-for-windows-and-macos/"><u>New The Best Free VOB Video Editing Programs for Windows and macOS</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Itel A60s | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/create-your-own-whatsapp-ringtone-a-comprehensive-guide-to-ios-and-android-for-2024/"><u>Create Your Own WhatsApp Ringtone - A Comprehensive Guide to iOS & Android for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-art-of-video-enhancement-expert-guidance/"><u>In 2024, The Art of Video Enhancement Expert Guidance</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transforming-unboxing-magic-7-ways/"><u>Transforming Unboxing Magic  7 Ways</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-converting-social-media-audio-to-personalized-mobile-alerts/"><u>[Updated] Converting Social Media Audio to Personalized Mobile Alerts</u></a></li>
+</ul></div>

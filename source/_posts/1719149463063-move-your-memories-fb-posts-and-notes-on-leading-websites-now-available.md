@@ -1,7 +1,7 @@
 ---
 title: "Move Your Memories: FB Posts & Notes on Leading Websites Now Available."
-date: 2024-06-22 23:34:27
-updated: 2024-06-23 10:22:54
+date: 2024-06-25T14:44:33.788Z
+updated: 2024-06-26T14:44:33.788Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/5996397f505d52b0f60ffe77c36fd8859621590a5
 
 ## Export Facebook Notes and Posts to Three Major Services
 
- As announced on[Facebook Newsroom](https://about.fb.com/news/2021/04/transfer-your-facebook-posts-and-notes-with-our-expanded-data-portability-tool/) , the social giant will allow users to transfer their posts and notes to three popular online services. You'll be able to export your posts and notes to Google Docs, Blogger, and WordPress.com.
+ As announced on [Facebook Newsroom](https://about.fb.com/news/2021/04/transfer-your-facebook-posts-and-notes-with-our-expanded-data-portability-tool/) , the social giant will allow users to transfer their posts and notes to three popular online services. You'll be able to export your posts and notes to Google Docs, Blogger, and WordPress.com.
 
 In Facebook's own words:
 
@@ -43,7 +43,7 @@ In Facebook's own words:
 
  If you haven't used the data transfer tool before, the following should help you out:
 
-1. Open the[Facebook](https://www.facebook.com/) site, click the down-arrow icon at the top-right corner, select**Settings & Privacy** , and then select**Settings** .
+1. Open the [Facebook](https://www.facebook.com/) site, click the down-arrow icon at the top-right corner, select**Settings & Privacy** , and then select**Settings** .
 2. Click**Your Facebook Information** on the left.
 3. Select**Transfer a Copy of Your Information** on the right.
 4. Choose either**Posts** or**Notes** to transfer.
@@ -73,3 +73,27 @@ In Facebook's own words:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/stealthy-likers-fb-post-privacy-tips/"><u>Stealthy Likers: FB Post Privacy Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-metaai-vs-typical-chatbot-platforms/"><u>The Rise of MetaAI vs Typical Chatbot Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-an-enhanced-fb-imagery/"><u>Strategic Timing for an Enhanced Fb Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-clear-guidelines-for-your-facebook-community/"><u>Crafting Clear Guidelines for Your Facebook Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-ghosted-photo-posts-in-chats-and-messenger/"><u>Alert for Ghosted Photo Posts in Chats and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-watch-project-hints-at-dual-cam-features-in-upcoming-devices/"><u>FB Watch Project Hints at Dual Cam Features in Upcoming Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-facebook-enhancement-reels-rooms-in-story-panels/"><u>Impending Facebook Enhancement: Reels, Rooms in Story Panels?</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-ethically-taking-control-of-online-interactions-using-facebooks-innovative-tools/"><u>Engage Ethically: Taking Control of Online Interactions Using Facebook’s Innovative Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-locate-people-youve-shut-out-of-your-fb-life/"><u>How To Locate People You’ve Shut Out of Your FB Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-easy-entryway-initiating-a-live-discussion-on-instagram/"><u>In 2024, Easy Entryway  Initiating a Live Discussion on Instagram</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-enable-monetization-on-youtube-for-mobile-devices-a-2024-guide/"><u>[New] How to Enable Monetization on YouTube for Mobile Devices  A 2024 Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-vivo-v29-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Vivo V29 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/daybreaks-dream-10-most-exquisite-websites-for-hd-skies/"><u>Daybreak's Dream  10 Most Exquisite Websites for HD Skies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-motorola-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Motorola Android SIM Unlock APK</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-2-methods-to-add-effects-on-tiktok/"><u>[Updated] 2 Methods To Add Effects On TikTok</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-primary-tape-scrutiny-study-summary/"><u>In 2024, Primary Tape Scrutiny Study Summary</u></a></li>
+<li><a href="https://apple-account.techidaily.com/guide-on-how-to-remove-apple-id-from-iphone-6-by-drfone-ios/"><u>Guide on How To Remove Apple ID From iPhone 6</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-huawei-p60-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Huawei P60? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-trending-memes-galore-unique-themes-for-any-event/"><u>[New] Trending Memes Galore  Unique Themes for Any Event</u></a></li>
+</ul></div>

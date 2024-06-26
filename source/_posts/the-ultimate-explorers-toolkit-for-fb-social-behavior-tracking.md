@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Explorer's Toolkit for FB Social Behavior Tracking
-date: 2024-06-22 15:43:46
-updated: 2024-06-23 12:28:38
+date: 2024-06-25T14:14:47.088Z
+updated: 2024-06-26T14:14:47.088Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
 
 ## How to View and Review Your Activity on Facebook
 
- You can[use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can[find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
+ You can [use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can [find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
 
 1. Click your**profile picture** in the top right-hand corner of Facebook on your desktop.
 2. Select**Settings & Privacy** , then click**Activity Log** .  
@@ -58,3 +58,24 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/methodology-of-removing-spam-from-online-discussions/"><u>Methodology of Removing Spam From Online Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/likes-and-dislikes-analyzing-the-negative-side-effects/"><u>Likes and Dislikes: Analyzing the Negative Side Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-media-5-pathways-to-earn-more/"><u>Leveraging Social Media: 5 Pathways to Earn More</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-revolutionary-ai-the-speedy-vanguard/"><u>Meta's Revolutionary AI: The Speedy Vanguard</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-plans-trump-ban-review-for-jan-23/"><u>Facebook Plans Trump Ban Review for Jan '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-grounded-a-guide-to-understanding-stablecoin-basics/"><u>Staying Grounded: A Guide to Understanding Stablecoin Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-a-more-pleasant-online-space-escaping-irksome-fb-ads/"><u>Strategies for a More Pleasant Online Space: Escaping Irksome FB Ads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-by-step-guide-to-boost-your-social-media-presence-with-instagram-hashtags/"><u>2024 Approved  Step-by-Step Guide to Boost Your Social Media Presence with Instagram Hashtags</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-5-gif-to-video-converters-online-no-need-to-download/"><u>2024 Approved  Best 5 GIF to Video Converters Online [No Need to Download]</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/get-rid-of-corrupt-excel-2007-file-by-stellar-guide/"><u>Get Rid of corrupt Excel 2007 File</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/precision-zoom-youtube-video-expansion-for-2024/"><u>Precision Zoom  YouTube Video Expansion for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/leading-edge-16-youtube-intros-that-skyrocket-views-for-2024/"><u>Leading Edge  16 YouTube Intros That Skyrocket Views for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitvidsync-ios-tool-to-seamlessly-save-twitter-vids/"><u>[New] In 2024, TwitVidsync  IOS Tool to Seamlessly Save Twitter Vids</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-free-high-quality-screencast-spotless/"><u>[New] 2024 Approved  Free High-Quality Screencast, Spotless</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-x-sonic-recorder-desktop-format/"><u>In 2024, X-Sonic Recorder  Desktop Format</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-best-video-cutting-software-for-windows-and-web/"><u>New In 2024, Best Video Cutting Software for Windows and Web</u></a></li>
+</ul></div>

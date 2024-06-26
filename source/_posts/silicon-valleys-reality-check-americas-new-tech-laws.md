@@ -1,7 +1,7 @@
 ---
 title: "Silicon Valley's Reality Check: America's New Tech Laws"
-date: 2024-06-21 12:21:26
-updated: 2024-06-23 10:21:59
+date: 2024-06-25T13:49:19.318Z
+updated: 2024-06-26T13:49:19.318Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/0cc9ca6810c238dfdd969844d2250493a479c3321
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/ensuring-security-while-utilizing-connected-websites-and-apps-in-fb/"><u>Ensuring Security While Utilizing Connected Websites & Apps in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-messenger-kids-sleep-mode-for-better-usage/"><u>Understanding Messenger Kids' Sleep Mode for Better Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/abridging-from-social-media-leave-facebook-on-android/"><u>Abridging From Social Media: Leave Facebook on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-permanently-deleting-fb-account-android/"><u>Mastering the Art of Permanently Deleting FB Account (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pre-deletion-dilemma-balancing-connectivity-and-privacy/"><u>The Pre-Deletion Dilemma: Balancing Connectivity and Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-download-all-favorites-without-spending/"><u>[Updated] 2023  Download All Favorites Without Spending</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-uncover-the-top-7-android-alternatives-for-ad-free-browsing/"><u>2024 Approved  Uncover the Top 7 Android Alternatives for Ad-Free Browsing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/lenovo-thinkphone-messages-recovery-recover-deleted-messages-from-lenovo-thinkphone-by-fonelab-android-recover-messages/"><u>Lenovo ThinkPhone Messages Recovery - Recover Deleted Messages from Lenovo ThinkPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-oppo-a79-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Oppo A79 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-unleash-a-flood-of-supporters-attain-a-million-ish-on-ig-each-month/"><u>[Updated] 2024 Approved  Unleash a Flood of Supporters  Attain a Million-Ish on IG Each Month</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-audiences-delighted-best-editors-to-transform-youtube-shorts/"><u>In 2024, Audiences Delighted  Best Editors to Transform Youtube Shorts</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-integrating-spotify-and-discord-a-complete-guide/"><u>[New] 2024 Approved  Integrating Spotify & Discord  A Complete Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/journey-through-gaming-landscapes-with-kinemaster-and-discover-its-best-competitors/"><u>Journey Through Gaming Landscapes with KineMaster & Discover Its Best Competitors</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Carolyn Everson Ends Tenure at Facebook
-date: 2024-06-20 23:50:56
-updated: 2024-06-23 12:42:43
+date: 2024-06-25T14:38:03.299Z
+updated: 2024-06-26T14:38:03.299Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/dc576bce0a179ba7a635140f867e3e38f81d54c67
 
 ## Facebook Loses Its Top Ad Executive
 
- Carolyn Everson, now former vice president of Facebook's Global Business Group, has[posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
+ Carolyn Everson, now former vice president of Facebook's Global Business Group, has [posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
 
  Everson worked at Facebook for more than ten years, and thus is no doubt largely responsible for turning it into the advertising giant it is today.
 
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/dc576bce0a179ba7a635140f867e3e38f81d54c67
 
  Related: [How Social Networks Make Money](https://www.makeuseof.com/tag/how-do-social-networks-make-money-case-wondering/)
 
- There's also talk of Everson working at TikTok, but[ByteDance CFO Shouzi Chew was appointed the new CEO](https://www.makeuseof.com/tiktok-ceo-bytedance-cfo/) in early May, so that seems rather unlikely. Unless, of course, she settles for another position.
+ There's also talk of Everson working at TikTok, but [ByteDance CFO Shouzi Chew was appointed the new CEO](https://www.makeuseof.com/tiktok-ceo-bytedance-cfo/) in early May, so that seems rather unlikely. Unless, of course, she settles for another position.
 
  Everson's departure is the second recent change to Facebook's executive structure. In early June, Marne Levine was promoted to chief business officer (a role above Everson's former position) after David Fischer resigned.
 
@@ -68,3 +68,22 @@ thumbnail: https://thmb.techidaily.com/dc576bce0a179ba7a635140f867e3e38f81d54c67
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-memorable-3d-image-for-facebook-friends/"><u>How to Create a Memorable 3D Image for Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-expression-online-how-to-update-your-profile-handle/"><u>Elevating Self-Expression Online: How to Update Your Profile Handle</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-exceptional-quality-hd-video-documenters/"><u>[New] In 2024, Exceptional Quality HD Video Documenters</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-improve-your-videos-with-these-free-stabilization-apps/"><u>New In 2024, Improve Your Videos with These Free Stabilization Apps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-perfect-your-visuals-on-insta-with-these-borders/"><u>2024 Approved  Perfect Your Visuals on Insta with These Borders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pro-hunters-choice-best-camcorders-unveiled-for-2024/"><u>Pro Hunters Choice  Best Camcorders Unveiled for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-solve-mkv-lagging-problem-in-redmi-note-13-pro-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>How to solve MKV lagging problem in Redmi Note 13 Pro 5G?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-platform-face-off-going-live-with-obstwitch/"><u>[Updated] 2024 Approved  The Platform Face-Off  Going Live with OBS/Twitch</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-ultimate-pathway-for-storytellers-mastery-over-facebook-live-feature-for-2024/"><u>[New] The Ultimate Pathway for Storytellers  Mastery Over Facebook Live Feature for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-how-to-convert-aiff-to-mp3-for-2024/"><u>Updated How to Convert AIFF to MP3 for 2024</u></a></li>
+</ul></div>

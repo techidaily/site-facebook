@@ -1,7 +1,7 @@
 ---
 title: Thriving in Silence - 6 Advantages to Exiting Facebook
-date: 2024-06-20 17:12:12
-updated: 2024-06-23 12:48:22
+date: 2024-06-25T14:32:09.419Z
+updated: 2024-06-26T14:32:09.419Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/1b2195440e349b5f0884d1401c71f047053f6f528
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-## 1\. Facebook Tracks You Around the Web
+## 1\. Facebook Tracks You Around the Web ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
-![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
-
- Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
 
@@ -45,9 +43,7 @@ thumbnail: https://thmb.techidaily.com/1b2195440e349b5f0884d1401c71f047053f6f528
 
 Bottom line: Facebook sees you as a lab rat.
 
-## 3\. Fake News
-
-![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+## 3\. Fake News ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -55,7 +51,7 @@ Bottom line: Facebook sees you as a lab rat.
 
  However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
 
- But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that [Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
@@ -63,17 +59,15 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
 
- Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+ Here's a Zuckerberg quote from [The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
 
 > "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
 
  Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
 
- Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+ Facebook wants you to overlook settings, so it can use your data. If you want [a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-## 5\. Facebook Has Forgotten Its Roots
-
-![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+## 5\. Facebook Has Forgotten Its Roots ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
@@ -114,3 +108,23 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/next-level-of-socializing-messengers-new-ar-dimensions/"><u>Next Level of Socializing: Messenger’s New AR Dimensions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-policy-shift-for-trumps-page/"><u>Facebook Policy Shift for Trump's Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-set-to-sever-ties-with-giphy-soon/"><u>Is Facebook Set to Sever Ties with Giphy Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-of-facebooks-hidden-dialogue/"><u>Security of Facebook's Hidden Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-future-interactive-enhancements-to-stories-panel/"><u>Facebook's Future: Interactive Enhancements to Stories Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-elevate-your-fb-pages-guardianship/"><u>Essential Guide: Elevate Your FB Page's Guardianship</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-sharing-of-phone-numbers-on-fb-chat/"><u>Unintended Sharing of Phone Numbers on FB Chat?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-comprehensible-pathway-to-erase-instagram-account/"><u>In 2024, The Comprehensible Pathway to Erase Instagram Account</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-transform-your-tech-skills-mastering-screen-capture-in-macos-for-2024/"><u>[New] Transform Your Tech Skills  Mastering Screen Capture in macOS for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-key-steps-to-accurate-and-effective-market-research-analysis/"><u>2024 Approved  Key Steps to Accurate and Effective Market Research Analysis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-c55-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme C55? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/how-to-blur-faces-or-objects-in-youtube-videos/"><u>How to Blur Faces or Objects in YouTube Videos</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-learn-how-to-mute-video-audio-on-windows-10-naturally-and-economically/"><u>2024 Approved Learn How to Mute Video Audio on Windows 10 Naturally and Economically</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y27-4g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y27 4G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/concluding-your-digital-identity-on-instagram/"><u>Concluding Your Digital Identity on Instagram</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-from-simple-to-sophisticated-mastering-zd-softs-video-recording-techniques/"><u>[Updated] 2024 Approved  From Simple to Sophisticated  Mastering ZD Soft's Video Recording Techniques</u></a></li>
+</ul></div>

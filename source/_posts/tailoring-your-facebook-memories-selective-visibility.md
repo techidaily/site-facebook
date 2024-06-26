@@ -1,7 +1,7 @@
 ---
 title: "Tailoring Your Facebook Memories: Selective Visibility"
-date: 2024-06-20 13:43:24
-updated: 2024-06-23 10:47:37
+date: 2024-06-25T13:47:31.285Z
+updated: 2024-06-26T13:47:31.285Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/fbcf05b0c32ba329cf6957ae3248e625c39ba58c1
 
  Journalist Julia MacFarlane, for instance, got an unpleasant reminder of one of the scarring experiences in her life:
 
- Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer[wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
+ Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer [wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
 
 > Those of us who lived through the death of loved ones, or spent extended time in the hospital, or were hit by divorce or losing a job or any one of a hundred crises, we might not want another look at this past year. To show me Rebecca's face and say "Here's what your year looked like!" is jarring. It feels wrong, and coming from an actual person, it would be wrong. Coming from code, it's just unfortunate. These are hard, hard problems. It isn't easy to programmatically figure out if a picture has a ton of Likes because it's hilarious, astounding, or heartbreaking.
 
@@ -47,9 +47,7 @@ thumbnail: https://thmb.techidaily.com/fbcf05b0c32ba329cf6957ae3248e625c39ba58c1
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
-## How to Block Dates or Date Ranges in Facebook Memories
-
-![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+## How to Block Dates or Date Ranges in Facebook Memories ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
@@ -60,19 +58,17 @@ thumbnail: https://thmb.techidaily.com/fbcf05b0c32ba329cf6957ae3248e625c39ba58c1
 
  That's it, memories from that particular date range won't show up.
 
-## How to Turn Off Facebook Memories Notifications
+## How to Turn Off Facebook Memories Notifications ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
 
-![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-
- You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
+ You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
 1. On a computer browser, click on**Memories** on the left-hand side of your Facebook home screen.
 2. Click**Notifications** .
 3. Choose from**All Memories** ,**Highlights** or**None** .
 
- That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
+ That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for [Facebook Memories](https://www.facebook.com/memories/) .
 
- If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
+ If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's [Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 ## Learn to Live with Your Past
 
@@ -93,3 +89,24 @@ thumbnail: https://thmb.techidaily.com/fbcf05b0c32ba329cf6957ae3248e625c39ba58c1
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-verdict-yet-facebook-board-postpones-judgment/"><u>No Verdict Yet: Facebook Board Postpones Judgment</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-link-your-social-accounts-on-xbox/"><u>How to Link Your Social Accounts on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagramfacebook-support-a-short-lived-meta-drops-trip/"><u>Instagram/Facebook Support: A Short-Lived Meta Drops Trip</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-grounded-a-guide-to-understanding-stablecoin-basics/"><u>Staying Grounded: A Guide to Understanding Stablecoin Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-a-look-at-the-core-of-facebook-papers/"><u>Digging Deeper: A Look at the Core of Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-shadowing-on-your-profile/"><u>Demystifying the Shadowing on Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-maintains-full-usability-despite-non-acceptance-of-policies/"><u>WhatsApp Maintains Full Usability Despite Non-Acceptance of Policies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-tips-and-tricks-for-efficient-use-of-steams-switch-controllers/"><u>[Updated] Tips & Tricks for Efficient Use of Steam’s Switch Controllers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-animation-dynamic-bouncy-text-techniques/"><u>[Updated] In 2024, Crafting Animation  Dynamic, Bouncy Text Techniques</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/techniques-for-optimizing-the-file-size-of-broadcast-content/"><u>Techniques for Optimizing the File Size of Broadcast Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-effective-audio-capture-for-your-zoom-sessions/"><u>[Updated] In 2024, Effective Audio Capture for Your Zoom Sessions</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/efficiently-handling-youtube-short-issues/"><u>Efficiently Handling YouTube Short Issues</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-master-snapchat-essential-strategies-for-snappy-snaps/"><u>[New] In 2024, Master Snapchat  Essential Strategies for Snappy Snaps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/fastest-8-tech-to-grab-screen-frames/"><u>Fastest 8 Tech to Grab Screen Frames</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unveiling-the-techniques-of-premium-vr-gametime-captures/"><u>[New] Unveiling the Techniques of Premium VR Gametime Captures</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-elevate-your-live-experience-top-10-choices/"><u>2024 Approved  How to Elevate Your Live Experience  Top 10 Choices</u></a></li>
+</ul></div>

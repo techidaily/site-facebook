@@ -1,7 +1,7 @@
 ---
 title: Hidden Stories That Could Change Your Perception of Tech Today!
-date: 2024-06-21 19:37:25
-updated: 2024-06-23 11:42:22
+date: 2024-06-25T13:47:10.088Z
+updated: 2024-06-26T13:47:10.088Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/7a3b2432a9d08b9e553576af71c0365aa49f025a4
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks
-
-![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -35,9 +33,7 @@ thumbnail: https://thmb.techidaily.com/7a3b2432a9d08b9e553576af71c0365aa49f025a4
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet
-
-![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -47,11 +43,9 @@ thumbnail: https://thmb.techidaily.com/7a3b2432a9d08b9e553576af71c0365aa49f025a4
 
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
- Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+ Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse
-
-![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/7a3b2432a9d08b9e553576af71c0365aa49f025a4
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War
-
-![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -98,3 +90,24 @@ thumbnail: https://thmb.techidaily.com/7a3b2432a9d08b9e553576af71c0365aa49f025a4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-5-most-noteworthy-tech-failures-in-recent-times/"><u>The 5 Most Noteworthy Tech Failures in Recent Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-beyond-facebook-the-future-outlook/"><u>Data Beyond Facebook: The Future Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-beyond-words-interpreting-icons-and-symbols-on-fb/"><u>The Language Beyond Words: Interpreting Icons and Symbols on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-informed-facebook-usage-via-its-transparency-hub/"><u>The Path to Informed Facebook Usage via Its Transparency Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149455836-top-social-network-cast-your-vote/"><u>Top Social Network: Cast Your Vote!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-p55plus-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on P55+</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximize-engagement-with-ideal-video-dimensions-on-insta/"><u>[Updated] In 2024, Maximize Engagement with Ideal Video Dimensions on Insta</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-best-practices-for-configuring-and-measuring-fb-instream-ads/"><u>[New] 2024 Approved  Best Practices for Configuring and Measuring FB Instream Ads</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-x-flip-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo X Flip to iPhone | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/revolutionize-your-feed-with-these-10-insta-tools/"><u>Revolutionize Your Feed with These 10 Insta-Tools</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-rights-and-recourse-following-sudden-account-suspension-on-fb/"><u>[Updated] In 2024, Rights and Recourse Following Sudden Account Suspension on FB</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-building-a-solid-foundation-youtube-video-script-basics/"><u>[New] Building a Solid Foundation  YouTube Video Script Basics</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-12-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 12 Easily & Safely | Dr.fone</u></a></li>
+</ul></div>

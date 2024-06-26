@@ -1,7 +1,7 @@
 ---
 title: "Virtual Gathering Made Easy: Using Your Facebook Portal TV"
-date: 2024-06-20 22:51:52
-updated: 2024-06-23 10:17:18
+date: 2024-06-25T13:47:43.568Z
+updated: 2024-06-26T13:47:43.568Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
- The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
+ The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
 
@@ -55,9 +55,7 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV
-
-![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -87,9 +85,7 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi
-
-![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -108,9 +104,7 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know
-
-![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -141,3 +135,26 @@ Your Portal TV has two clips.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/encrypting-convo-on-fb-and-ig-delayed-to-next-years-start/"><u>Encrypting Convo on FB & IG Delayed to Next Year's Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/through-a-screen-analyzing-modern-lifes-negative-effects/"><u>Through a Screen: Analyzing Modern Life's Negative Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-not-seen-status-on-chat-platforms/"><u>Decoding 'Not Seen' Status on Chat Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-invisible-lines-in-online-social-networks/"><u>Interpreting the Invisible Lines in Online Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-how-content-is-screened-by-facebook/"><u>Decoding How Content Is Screened by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-gaining-viral-recognition/"><u>Strategies for Gaining Viral Recognition</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-page-administration-selecting-admins/"><u>Navigating Page Administration - Selecting Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-id-discarding-what-does-it-mean-for-facebook-users-protection/"><u>Facial ID Discarding: What Does It Mean for Facebook Users' Protection?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-checklist-for-fpv-drone-propeller-selection/"><u>[New] The Ultimate Checklist for FPV Drone Propeller Selection</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-embracing-iphones-shutter-speed-magic-for-dynamic-images/"><u>[New] Embracing iPhone’s Shutter Speed Magic for Dynamic Images</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-laugh-ledger-noteworthy-personalities-in-tiktok/"><u>[Updated] Laugh Ledger  Noteworthy Personalities in TikTok</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-lava-blaze-curve-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Lava Blaze Curve 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-eco-scene-blueprints-download-free-guides-for-professional-filmmakers/"><u>[New] 2024 Approved  Eco-Scene Blueprints  Download Free Guides for Professional Filmmakers</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-capture-the-moment-with-these-cutting-edge-snapchat-filters/"><u>[Updated] 2024 Approved  Capture the Moment with These Cutting-Edge Snapchat Filters</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-creating-viral-hashtag-campaigns-on-twitter/"><u>[Updated] 2024 Approved  Creating Viral Hashtag Campaigns on Twitter</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-top-3-best-mp3-volume-booster-online-for-2024/"><u>New Top 3 Best MP3 Volume Booster Online for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-connectivity-adding-url-content/"><u>[Updated] Instagram Connectivity  Adding URL Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-from-classic-quests-to-complex-escapades/"><u>[New] From Classic Quests to Complex Escapades</u></a></li>
+</ul></div>

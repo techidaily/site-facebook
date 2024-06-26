@@ -1,7 +1,7 @@
 ---
 title: The Future Beckons as Meta Drops Tests on Popular Platforms
-date: 2024-06-20 17:22:48
-updated: 2024-06-23 12:34:34
+date: 2024-06-25T13:45:51.404Z
+updated: 2024-06-26T13:45:51.404Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/be8ed6a4e78ad75b0aa927e5deab19fb5e1ff02b9
 
  For now, at least, Meta is "winding down digital collectibles (NFTs) for now to focus on other ways to support creators, people, and businesses," moving focus to other monetization opportunities like Meta Pay and Reels.
 
- Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
+ Meta rolled out [NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
 ## What's Next for Meta, Crypto, and the Metaverse?
 
@@ -52,3 +52,26 @@ thumbnail: https://thmb.techidaily.com/be8ed6a4e78ad75b0aa927e5deab19fb5e1ff02b9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/trouble-brewing-as-trust-fades-in-giant-internet-firms/"><u>Trouble Brewing as Trust Fades in Giant Internet Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-your-screen-instagram-live-wo-audiovideo/"><u>Quiet Your Screen: Instagram Live W/O Audio/Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/peel-layers-of-personalities-with-messengers-quiz-mechanics/"><u>Peel Layers of Personalities with Messenger's Quiz Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-online-world-keeping-fb-free-from-strangers-views/"><u>Secure Your Online World: Keeping FB Free From Strangers' Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-facebooks-tool-for-mindful-boundary-setting/"><u>Harnessing Facebook’s Tool for Mindful Boundary Setting</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stay-ahead-finding-the-most-trendy-fb-groups/"><u>How to Stay Ahead: Finding the Most Trendy FB Groups</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/asterclass-in-cinematography-best-lenses-to-invest-in-for-2024/"><u>[New] Masterclass in Cinematography  Best Lenses to Invest In for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/3d-ray-traced-settings-in-after-effects-a-comprehensive-guide/"><u>3D Ray Traced Settings In After Effects A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-beginning-your-blog-journey-for-financial-gain/"><u>In 2024, Beginning Your Blog Journey for Financial Gain</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premiere-e-lecture-label-lever/"><u>2024 Approved  Premiere E-Lecture Label Lever</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/online-broadcast-battle-fb-live-and-yt-live-vs-tweetstreams/"><u>Online Broadcast Battle  FB LIVE & YT Live Vs. TweetStreams</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mastering-3d-video-effects-a-windows-tutorial-for-beginners-for-2024/"><u>Mastering 3D Video Effects A Windows Tutorial for Beginners for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-conversion-techniques-youtube-to-mpeg-encoding/"><u>2024 Approved  Best Conversion Techniques  YouTube to MPEG Encoding</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-tecno-camon-20-to-mac-drfone-by-drfone-android/"><u>How to Mirror Tecno Camon 20 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-from-live-demos-to-recordings-harness-ezvide-power/"><u>[New] In 2024, From Live Demos to Recordings  Harness EZvide Power</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-rising-stars-top-10-gamers-on-tiktok/"><u>[Updated] 2024 Approved  The Rising Stars  Top 10 Gamers on TikTok</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Tailoring FB Privacy to Block Uninvited Peeks
-date: 2024-06-20 20:51:55
-updated: 2024-06-23 11:25:36
+date: 2024-06-25T13:52:05.988Z
+updated: 2024-06-26T13:52:05.988Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,23 @@ thumbnail: https://thmb.techidaily.com/99216a5fd24020f4e914206166919d3aff0939ed3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unfollowing-the-strategy-behind-instagrams-take-away-campaign/"><u>'Unfollowing': The Strategy Behind Instagram’s Take-Away Campaign</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-persistent-social-media-advice-is-inevitable/"><u>Why Persistent Social Media Advice Is Inevitable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vanishing-acts-of-support-masked-likes-across-platforms/"><u>Vanishing Acts of Support: Masked Likes Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-your-fb-fanbase-hidden-secrets/"><u>Discover Your FB Fanbase Hidden Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-intruder-in-your-digital-life/"><u>Detecting Intruder in Your Digital Life</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-listing-of-affordable-visual-content-sites/"><u>Major Listing of Affordable Visual Content Sites</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/crafting-winning-twitter-sponsored-content-for-2024/"><u>Crafting Winning Twitter Sponsored Content for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-revenue-on-youtube-shorts/"><u>[Updated] Mastering Revenue on YouTube Shorts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-expert-approach-to-negative-picture-tones/"><u>2024 Approved  The Expert Approach to Negative Picture Tones</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-tale-of-two-faces-iphone-x-and-samsung-compared-for-2024/"><u>A Tale of Two Faces  IPhone X & Samsung Compared for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-change-youtube-playback-speed-to-speed-up-or-slow-down-video-for-2024/"><u>How to Change YouTube Playback Speed to Speed Up or Slow Down Video for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-identifying-tech-giants-iphone-x-and-samsungs-face-recognition/"><u>[New] Identifying Tech Giants  IPhone X & Samsung's Face Recognition</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo F25 Pro 5G | Dr.fone</u></a></li>
+</ul></div>

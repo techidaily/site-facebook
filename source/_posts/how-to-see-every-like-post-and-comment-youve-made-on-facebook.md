@@ -1,7 +1,7 @@
 ---
 title: How to See Every Like, Post, and Comment You've Made on Facebook
-date: 2024-06-22 10:56:10
-updated: 2024-06-23 12:14:49
+date: 2024-06-25T14:38:27.038Z
+updated: 2024-06-26T14:38:27.038Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/20be038a3e48f613b2c652d4cbdf605ae5da9fdcf
 
 ## How to View and Review Your Activity on Facebook
 
- You can[use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can[find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
+ You can [use Facebook's search function](https://www.makeuseof.com/tag/5-facebook-search-tips/) to find the settings you are looking for. For example, there are quite a few ways you can [find anything on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , but to find everything you've ever liked on Facebook, all you need to do is to go to your**Activity Log** and this is how you do it:
 
 1. Click your**profile picture** in the top right-hand corner of Facebook on your desktop.
 2. Select**Settings & Privacy** , then click**Activity Log** .  
@@ -58,3 +58,23 @@ thumbnail: https://thmb.techidaily.com/20be038a3e48f613b2c652d4cbdf605ae5da9fdcf
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/join-the-elite-us-members-gain-metas-seal-of-approval/"><u>Join the Elite: U.S. Members Gain Meta's Seal of Approval</u></a></li>
+<li><a href="https://facebook.techidaily.com/nbafever-grows-as-facebook-twitter-stream-games/"><u>NBAFever Grows as Facebook, Twitter Stream Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-locked-out-mastering-password-resets-on-facebook/"><u>No More Locked Out! Mastering Password Resets on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-of-platforms-can-facebooks-reels-outmaneuver-tiktok/"><u>The Battle of Platforms: Can Facebook’s Reels Outmaneuver TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-avatars-amplifying-friendship-in-whatsapp-exchanges/"><u>Facebook Avatars: Amplifying Friendship in WhatsApp Exchanges</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sabbatical-what-teens-should-consider-before-continued-use-of-instagram/"><u>Social Media Sabbatical: What Teens Should Consider Before Continued Use of Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-breaks-tradition-whatsapp-delivers-2fa-codes/"><u>Instagram Breaks Tradition: WhatsApp Delivers 2FA Codes</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/from-flat-to-fabulous-best-tools-for-converting-videos-to-vr/"><u>From Flat to Fabulous Best Tools for Converting Videos to VR</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-alice-johnson-and-ethan-smith-phd-department-of-musicology-university-of-harmonia-open-access-copyright-2023-by-dr-johnson-and-prof-smith-this/"><u>2024 Approved Alice Johnson and Ethan Smith, Ph.D., Department of Musicology, University of Harmonia (Open Access). Copyright © 2023 by Dr. Johnson and Prof. Smith. This Work Is Licensed Under a Creative Commons Attribution-Share Alike 4.0 License</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-twitter-video-tools-effortless-video-uploading-for-2024/"><u>Top Twitter Video Tools  Effortless Video Uploading for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-vivo-y78-5g-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Vivo Y78 5G</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-go-viral-on-youtube-with-impressive-music-reaction-content/"><u>[Updated] In 2024, How to Go Viral on YouTube with Impressive Music Reaction Content</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-a14-4g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy A14 4G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-master-mp4-uploader-and-downloader-fb-edition/"><u>[New] Master MP4 Uploader & Downloader  FB Edition</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-samsung-galaxy-a23-5g-frp-bypass-by-drfone-android/"><u>About Samsung Galaxy A23 5G FRP Bypass</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-the-complete-blueprint-to-infuse-life-with-emojis-in-your-discord-statuses-for-2024/"><u>[New] The Complete Blueprint to Infuse Life with Emojis in Your Discord Statuses for 2024</u></a></li>
+</ul></div>

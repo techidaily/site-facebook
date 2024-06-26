@@ -1,7 +1,7 @@
 ---
 title: What's Changing in the Landscape of U.S. Antitrust
-date: 2024-06-20 16:32:47
-updated: 2024-06-23 12:50:58
+date: 2024-06-25T14:42:36.109Z
+updated: 2024-06-26T14:42:36.109Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,24 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/investigating-the-past-facebooks-lost-posts/"><u>Investigating the Past: Facebook's Lost Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151213607-curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-management-securing-your-social-media-space-with-admins/"><u>Mastery Over Management: Securing Your Social Media Space with Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-to-prominence-in-the-social-sphere/"><u>Journey to Prominence in the Social Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/augmented-reality-takes-a-leap-forward-on-messenger/"><u>Augmented Reality Takes a Leap Forward on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-people-you-might-know-feature-on-social-media-site/"><u>Stop 'People You Might Know' Feature on Social Media Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-virtual-governance-facebooks-advanced-administrator-aids/"><u>Facilitating Virtual Governance: Facebook’s Advanced Administrator Aids</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-websites-to-access-text-styling-resources/"><u>2024 Approved  Best Websites to Access Text Styling Resources</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-from-play-to-pixels-compreehensive-ps4-recording-with-obs-studio/"><u>[Updated] From Play to Pixels  Compreehensive PS4 Recording with OBS Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-the-blueprint-to-hitting-it-big-with-instagram-videos/"><u>[Updated] In 2024, The Blueprint to Hitting It Big with Instagram Videos</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-audience-captivation-technique-how-to-personalize-your-speech-with-audacitys-vocal-effects/"><u>In 2024, Audience Captivation Technique How to Personalize Your Speech with Audacitys Vocal Effects</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-8-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 8</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-empowering-video-content-with-advanced-aiseesoft-tech/"><u>In 2024, Empowering Video Content with Advanced Aiseesoft Tech</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-oppo-reno-10-pro-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Oppo Reno 10 Pro 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-apple-iphone-x-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Leave a Life360 Group On Apple iPhone X Without Anyone Knowing? | Dr.fone</u></a></li>
+</ul></div>

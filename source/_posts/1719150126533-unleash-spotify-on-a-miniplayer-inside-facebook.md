@@ -1,7 +1,7 @@
 ---
 title: Unleash Spotify on a Miniplayer Inside Facebook
-date: 2024-06-22 12:23:13
-updated: 2024-06-23 10:54:51
+date: 2024-06-25T14:22:59.185Z
+updated: 2024-06-26T14:22:59.185Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
- In a post on[For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
+ In a post on [For the Record](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/) , the streaming service announced the launch of its miniplayer within the Facebook app. The new feature is available on both iOS and Android.
 
  Also, it doesn’t matter whether you use Spotify for free or have a subscription since the built-in music player is available for everyone. Just with the usual limitations applied to anyone listening for free.
 
@@ -57,7 +57,7 @@ Close
 
 ## More Audio Features Are Coming Soon
 
- To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as[Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
+ To better compete with Clubhouse and its many copycats, Facebook has decided to implement other audio features such as [Live Audio Rooms and Soundbites](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) . These should arrive in the summer of 2021.
 
  Image Credit:[Spotify](https://newsroom.spotify.com/2021-04-26/share-explore-and-discover-music-and-podcasts-via-spotify-in-the-facebook-app/)
 
@@ -76,3 +76,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-up-hidden-previous-facebook-content/"><u>Digging up Hidden Previous Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-safe-browsing-facebooks-privacy-and-security-blueprint/"><u>Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-pressure-to-part-with-giphy-possibly/"><u>Facebook Faces Pressure to Part With Giphy Possibly</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-music-monetization-scheme-explained/"><u>Facebook's New Music Monetization Scheme Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-users-creating-several-personal-profiles-in-a-facebook-snapshot/"><u>The Case for Users Creating Several Personal Profiles in a Facebook Snapshot</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-exclusivity-recognize-illicit-facebook-access/"><u>Ensure Exclusivity – Recognize Illicit Facebook Access</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/color-lut-in-video-how-to-color-grade-your-video-for-2024/"><u>Color Lut in Video -How to Color Grade Your Video for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-how-to-create-datamoshing-effect-to-your-footage-in-after-effects/"><u>2024 Approved How to Create Datamoshing Effect to Your Footage in After Effects?</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Spy on Text Messages from Computer & Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/anon-mode-unveiling-instagram-stories-across-oses-for-2024/"><u>Anon Mode  Unveiling Instagram Stories Across OSes for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-12-mini-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone 12 mini Properly | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-persistent-display-transcription/"><u>[Updated] 2024 Approved  Persistent Display Transcription</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/bring-life-to-film-projects-3-inexpensive-techniques-for-iphones-music-integration-for-2024/"><u>Bring Life to Film Projects  3 Inexpensive Techniques for iPhones Music Integration for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-mastering-facebook-video-the-ultimate-aspect-ratio-cheat-sheet-for-2024/"><u>Updated Mastering Facebook Video The Ultimate Aspect Ratio Cheat Sheet for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-audio-conversion-made-easy-12-essential-tools-you-need/"><u>New 2024 Approved Audio Conversion Made Easy 12 Essential Tools You Need</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-enhancing-meetings-with-top-5-free-and-paid-zoom-transcribers/"><u>[Updated] Enhancing Meetings with Top 5 Free & Paid Zoom Transcribers</u></a></li>
+</ul></div>

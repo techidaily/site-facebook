@@ -1,7 +1,7 @@
 ---
 title: Concealed Contacts on Facebook Platform
-date: 2024-06-22 13:15:15
-updated: 2024-06-23 12:13:52
+date: 2024-06-25T14:05:12.812Z
+updated: 2024-06-26T14:05:12.812Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,7 @@ The steps are similar on Facebook's desktop website.
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
- On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
+ On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other [ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
@@ -100,3 +100,27 @@ The steps are similar on Facebook's desktop website.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/moment-of-no-internet-facebook-and-co-outage/"><u>Moment of No Internet: Facebook and Co. Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-private-profile-access/"><u>Secrets of Private Profile Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-data-breaches-how-common/"><u>Social Network Data Breaches: How Common?</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-purchasing-on-fb-unveiled-for-fridays/"><u>Live Purchasing on FB Unveiled for Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-a-case-study/"><u>Unplugging From Social Media: A Case Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-writing-and-publishing-on-facebook-multi-lang/"><u>Best Practices for Writing and Publishing on Facebook (Multi-Lang)</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-free-video-dubbing-software-for-pc-top-picks/"><u>New In 2024, Free Video Dubbing Software for PC Top Picks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-navigating-the-path-to-wealthy-video-creators-via-vimeos-revenue-streams-for-2024/"><u>[New] Navigating the Path to Wealthy Video Creators via Vimeo's Revenue Streams for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-prime-image-editing-techniques/"><u>[New] Prime Image Editing Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-13-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone 13 online without SIM Card?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unmasking-the-vanished-youtube-recommendations-on-facebook/"><u>2024 Approved  Unmasking the Vanished YouTube Recommendations on Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/digital-sound-capturing-101-your-path-to-proficiency/"><u>Digital Sound Capturing 101  Your Path to Proficiency</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-mastering-free-audio-recording-using-audacitys-capabilities/"><u>Updated Mastering Free Audio Recording Using Audacitys Capabilities</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-audio-alchemy-for-mac-the-premier-mp3-mixing-app/"><u>Updated In 2024, Audio Alchemy for Mac The Premier MP3 Mixing App</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-apple-iphone-se-2022-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From Apple iPhone SE (2022)? 5 Tips You Must Know</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-how-to-decide-on-video-frames-per-second-comparing-30-vs-60-for-2024/"><u>[Updated] How to Decide on Video Frames Per Second? Comparing 30 Vs. 60 for 2024</u></a></li>
+</ul></div>

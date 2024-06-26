@@ -1,7 +1,7 @@
 ---
 title: Who Runs Today's Facebook?
-date: 2024-06-20 15:34:24
-updated: 2024-06-23 11:16:13
+date: 2024-06-25T13:53:17.899Z
+updated: 2024-06-26T13:53:17.899Z
 tags:
   - facebook
 categories:
@@ -27,19 +27,19 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
  Following a series of serious scandals, Facebook wiped (or tried to wipe) the slate clean with a rebrand. From October 2021, Facebook's parent company would be known as Meta,[according to CEO Mark Zuckerberg](https://about.fb.com/news/2021/10/founders-letter/) .
 
- Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
+ Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of [the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
- In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
+ In the [statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
- Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to[SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
+ Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to [SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
 
  The Class A shares are what normal investors can buy on the stock market, and they come with one vote per share. Class B shares, which are primarily owned by Mark Zuckerberg and a small group of insiders, have 10 votes each.
 
- Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to[CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
+ Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to [CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
@@ -72,3 +72,26 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/does-your-phone-listen-to-you-for-ads-or-is-it-just-coincidence/"><u>Does Your Phone Listen to You for Ads? Or Is It Just Coincidence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-account-the-friendly-facebook-fixerup/"><u>Unlock Your Account - The Friendly Facebook Fixerup</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-control-removing-browsing-history-on-facebook/"><u>Privacy Control: Removing Browsing History on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-fact-based-online-world-during-the-outbreak/"><u>Building a Fact-Based Online World During the Outbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-likers-fb-post-privacy-tips/"><u>Stealthy Likers: FB Post Privacy Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-which-facebook-portable-screen-suits-you-best/"><u>Assessing Which Facebook Portable Screen Suits You Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/improving-loading-performance-of-facebook-alertsposts/"><u>Improving Loading Performance of Facebook Alerts/Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-landslide-tech-giants-go-dark-for-days/"><u>Online Landslide: Tech Giants Go Dark for Days</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-facebook-update-integrating-reels-and-rooms-in-stories/"><u>Potential Facebook Update: Integrating Reels & Rooms in Stories</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-by-step-guide-to-automated-iphone-podcast-downloads/"><u>Step-By-Step Guide to Automated iPhone Podcast Downloads</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-unlock-fcpxs-full-potential-top-10-free-plug-ins/"><u>In 2024, Unlock FCPXs Full Potential Top 10 Free Plug-Ins</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tailoring-your-headline-for-job-searches/"><u>Tailoring Your Headline for Job Searches</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-twitter-memes-downloaded-easily-for-windows-users-for-2024/"><u>[New] Twitter Memes Downloaded Easily for Windows Users for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-look-lg-bp350-screen-resolution-and-aspect-ratio/"><u>2024 Approved  In-Depth Look  LG BP350 Screen Resolution and Aspect Ratio</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-asus-rog-phone-8-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Asus ROG Phone 8 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/grasping-the-nuances-in-youtube-viewer-reactions-for-2024/"><u>Grasping the Nuances in YouTube Viewer Reactions for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-techniques-uploading-youtube-videos-on-iphoneipad/"><u>Top Techniques  Uploading YouTube Videos on iPhone/iPad</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-are-apples-new-processors-revolutionizing-editing-tech/"><u>2024 Approved  Are Apple's New Processors Revolutionizing Editing Tech?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-prime-video-picks-the-extreme-favorites-for-2024/"><u>[Updated] Prime Video Picks  The Extreme Favorites for 2024</u></a></li>
+</ul></div>

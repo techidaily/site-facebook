@@ -1,7 +1,7 @@
 ---
 title: How Safe Is My Phone Info From Social Media Leaks?
-date: 2024-06-21 15:38:41
-updated: 2024-06-23 12:28:54
+date: 2024-06-25T14:20:36.881Z
+updated: 2024-06-26T14:20:36.881Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,9 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
 
  According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
 
- Back in 2018, unknown entities[accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide[third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
 
- Alon Gal, the chief technology officer of the cybercrime intelligence firm[Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
 
 > "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
 
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected
-
-![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -77,13 +75,11 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
 
  If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
 
- Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is[to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts
-
-![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 
@@ -126,3 +122,26 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/maintain-your-anonymity-elude-these-three-risks/"><u>Maintain Your Anonymity: Elude These Three Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-for-justice-pal-activist-efforts-impact-fb-store-scores/"><u>Hacking for Justice? Pal-Activist Efforts Impact FB Store Scores</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-ensure-your-online-safety-on-social-platforms-like-fb/"><u>Alert! Ensure Your Online Safety on Social Platforms Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-social-media-chatter-deleting-comments-effortlessly/"><u>How to Clear Social Media Chatter: Deleting Comments Effortlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-business-focused-networks-for-maximum-engagement/"><u>Top Business-Focused Networks for Maximum Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-course-of-my-virtual-journey-starts-with-facebook/"><u>Charting the Course of My Virtual Journey Starts with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-an-absence-from-messenger/"><u>What Lies Behind an Absence From Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-how-to-utilize-fb-help-center-services/"><u>Understanding How to Utilize FB Help Center Services</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-create-alluring-haul-and-try-on-videography-a-comprehensive-overview/"><u>2024 Approved  How to Create Alluring Haul & Try-On Videography  A Comprehensive Overview</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-enhance-and-clean-up-youtube-footage-borderless-tutorial/"><u>[New] In 2024, Enhance and Clean Up YouTube Footage  Borderless Tutorial</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoiding-a-zero-traffic-disaster-the-top-ten-reasons-and-remedies-for-youtube-anonymity/"><u>Avoiding a Zero Traffic Disaster  The Top Ten Reasons and Remedies for YouTube Anonymity</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-the-ultimate-list-28-video-to-gif-converter-options/"><u>In 2024, The Ultimate List 28 Video to GIF Converter Options</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-poco-x5-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-how-to-trim-and-cut-vimeo-videos/"><u>[Updated] In 2024, How to Trim and Cut Vimeo Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-inspirational-vloggers-amongst-tiktoks-elite-for-2024/"><u>[Updated] Inspirational Vloggers Amongst TikTok's Elite for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-15-top-pics-collage-apps/"><u>Updated 15 Top Pics Collage Apps</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-nokia-c02-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Nokia C02? | Dr.fone</u></a></li>
+</ul></div>

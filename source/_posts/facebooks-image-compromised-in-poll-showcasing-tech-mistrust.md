@@ -1,7 +1,7 @@
 ---
 title: Facebook's Image Compromised in Poll Showcasing Tech Mistrust
-date: 2024-06-20 20:17:34
-updated: 2024-06-23 11:56:21
+date: 2024-06-25T14:24:09.629Z
+updated: 2024-06-26T14:24:09.629Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/f65801f01aff4d3373b4cf2db5d1bc7ed704b50a0
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,24 @@ thumbnail: https://thmb.techidaily.com/f65801f01aff4d3373b4cf2db5d1bc7ed704b50a0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-did-social-networks-temporarily-freeze-up/"><u>Why Did Social Networks Temporarily Freeze Up?</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-solitude-6-reasons-to-abandon-facebook/"><u>The Power of Solitude - 6 Reasons to Abandon Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-mirage-of-masks-on-modern-networks/"><u>Avoiding the Mirage of Masks on Modern Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-language-of-facebook-to-capture-attention/"><u>Mastering the Language of Facebook to Capture Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-sleep-mode-a-comprehensive-guide-to-messenger-kids-efficiency/"><u>Utilizing Sleep Mode: A Comprehensive Guide to Messenger Kids Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/sunlit-surfaces-fb-operations-bathed-in-solar-energy/"><u>Sunlit Surfaces: FB Operations Bathed in Solar Energy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-viral-beats-cutting-edge-music-for-youtube-short-videos/"><u>[New] Viral Beats  Cutting-Edge Music for YouTube Short Videos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-raw-footage-to-final-cut-adopting-luts-in-premiere/"><u>[New] From Raw Footage to Final Cut  Adopting LUTs in Premiere</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-iphone-15-pro-max-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile iPhone 15 Pro Max online without SIM Card?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-access-royalty-free-beats-for-your-vlog-and-more-for-2024/"><u>[Updated] Access Royalty-Free Beats for Your Vlog & More for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/obtaining-customized-animation-emojis-on-discord-without-a-premium-account/"><u>Obtaining Customized Animation Emojis on Discord Without a Premium Account</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-unveiling-the-role-of-authenticity-in-online-self-portraits-for-2024/"><u>[New] Unveiling the Role of Authenticity in Online Self-Portraits for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-ultimate-guide-10-leading-audio-to-text-transcription-applications-freepaid/"><u>Updated In 2024, The Ultimate Guide 10 Leading Audio-to-Text Transcription Applications (Free/Paid)</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-bring-back-the-80s-best-vhs-effect-apps-for-iphone-and-android-devices/"><u>2024 Approved Bring Back the 80S Best VHS Effect Apps for iPhone and Android Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fusing-music-and-photos-online/"><u>2024 Approved  Fusing Music and Photos Online</u></a></li>
+</ul></div>

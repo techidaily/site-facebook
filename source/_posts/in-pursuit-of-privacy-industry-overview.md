@@ -1,7 +1,7 @@
 ---
 title: "In Pursuit of Privacy: Industry Overview"
-date: 2024-06-21 16:50:47
-updated: 2024-06-23 10:32:18
+date: 2024-06-25T14:05:32.738Z
+updated: 2024-06-26T14:05:32.738Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/b1b16b978e702d1684a58d03b101e8cae7dbba962
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
-### Granular Data Gathering
-
-![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+### Granular Data Gathering ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/b1b16b978e702d1684a58d03b101e8cae7dbba962
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-### Emotional Volatility
-
-![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+### Emotional Volatility ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -57,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/b1b16b978e702d1684a58d03b101e8cae7dbba962
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
- According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
+ According to [Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many [teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
  With this, we know that this willingness to pay can sometimes be rooted in darker places, which are not of necessity. So while platforms like social media do a lot to connect people, they also counterintuitively create toxic environments.
 
@@ -65,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/b1b16b978e702d1684a58d03b101e8cae7dbba962
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-### Ease of Transactions
-
-![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
+### Ease of Transactions ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -77,15 +71,13 @@ thumbnail: https://thmb.techidaily.com/b1b16b978e702d1684a58d03b101e8cae7dbba962
 
 ![Amazon echo speaker beside a TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/rsz_loewe-technology-skqnm8v6dok-unsplash-1.jpg)
 
- In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a[49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
+ In fact, a prime example of surveillance capitalism-driven conspicuous consumption is no other the the world's largest retailer, Amazon. With a [49.1 percent](https://techcrunch.com/2018/07/13/amazons-share-of-the-us-e-commerce-market-is-now-49-or-5-of-all-retail-spend/) ecommerce market share in the US alone, Amazon has transitioned from being an online marketplace to developing smart home products such as wandering smart speakers, security robots, home thermostats, and so on.
 
- With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with[human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to[destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly[steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
+ With an unprecedented amount of data at their fingertips, Amazon has billions of items they push towards their consumers at exactly the right moment. Aside from this, Amazon is rife with [human rights abuses in its supply chain](https://www.oxfamamerica.org/press/oxfam-urges-amazon-address-human-rights-risks-its-supply-chain-and-protect-its-workers/) , known to [destroy of millions in unsold stock](https://www.itv.com/news/2021-06-21/amazon-destroying-millions-of-items-of-unsold-stock-in-one-of-its-uk-warehouses-every-year-itv-news-investigation-finds) , and allegedly [steals product data](https://www.wsj.com/articles/amazon-scooped-up-data-from-its-own-sellers-to-launch-competing-products-11587650015) from small businesses and independent sellers.
 
- In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
+ In addition, Amazon's Prime membership which offers free and fast shipping also [hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-### The Commodification of Personal Experiences
-
-![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+### The Commodification of Personal Experiences ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -120,3 +112,26 @@ In fact, we are already running out of ways to opt out.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/troubleshooting-cannot-log-in-to-your-facebook-profile/"><u>Troubleshooting: Cannot Log In to Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/guarantee-stranger-free-social-media-views-on-fb/"><u>Guarantee Stranger-Free Social Media Views on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-timeline-enhance-your-online-social-experience/"><u>Tailoring the Timeline: Enhance Your Online Social Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153298705-essential-silicon-insights-lost-but-now-found-top-4-discoveries/"><u>Essential Silicon Insights, Lost But Now Found - Top 4 Discoveries!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcast-experience-what-to-listen-to/"><u>The Ultimate 2022 Podcast Experience - What to Listen To</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fbs-covert-tracking-use-off-fb-settings/"><u>Unmasking Fb's Covert Tracking, Use Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-conquest-raising-the-bar-for-your-fb-group/"><u>Community Conquest: Raising the Bar for Your Fb Group</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-and-retrieve-picturesvideos-from-a-water-damaged-iphone-12-mini-that-wont-turn-on-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix & Retrieve Pictures/Videos From a Water Damaged iPhone 12 mini That Wont Turn on | Stellar</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-poco-x6-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Poco X6 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-video-visionaries-mastering-the-art-of-sharing-pictures-on-youtube/"><u>[Updated] Video Visionaries  Mastering the Art of Sharing Pictures on YouTube</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fixing-problematic-youtube-shorts-thumbnails-display/"><u>[New] In 2024, Fixing Problematic YouTube Shorts Thumbnails Display</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-select-a-youtube-gaming-introduction-maker-free-or-paid-edition-for-2024/"><u>[Updated] How to Select a YouTube Gaming Introduction Maker  Free or Paid Edition for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-integrating-slug-lines-into-your-writing-process/"><u>In 2024, Integrating Slug Lines Into Your Writing Process</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-y28-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo Y28 5G online without jailbreak</u></a></li>
+</ul></div>

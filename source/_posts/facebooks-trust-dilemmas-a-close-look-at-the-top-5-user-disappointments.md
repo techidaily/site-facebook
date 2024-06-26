@@ -1,7 +1,7 @@
 ---
 title: "Facebook’s Trust Dilemmas: A Close Look at the Top 5 User Disappointments"
-date: 2024-06-21 16:53:23
-updated: 2024-06-23 12:22:32
+date: 2024-06-25T14:27:48.751Z
+updated: 2024-06-26T14:27:48.751Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef2
 
 ## 1\. Facebook Beacon Tracking
 
- Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to[show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
+ Facebook Beacon was launched to show targeted ads to users from third-party websites. It also encouraged people to share their activities with friends as well. Facebook Beacon saved the data of users' spending habits to [show targeted ads on Facebook](http://www.makeuseof.com/why-are-you-seeing-certain-ads-on-facebook/) —nothing different from what happens now.
 
  However, the feature soon became controversial. Users reported it to be invading their personal life a little too much. The main issue with the feature was that there was no option to stop this data from being shared with your friends. People soon caught up with this significant breach of personal consent.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef2
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-## 2\. Copying Competitors and Not Offering Something New
-
-![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
+## 2\. Copying Competitors and Not Offering Something New ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
@@ -39,17 +37,15 @@ Close
 
  Facebook might be a social media monopoly in the present world, but we cannot call its whole journey innovative. From copying the same features and adding a slightly different effect, Facebook has been under scrutiny.
 
- Snapchat was the first app to launch the concept of 24-hour stories, but did you notice what happened afterward? The apps owned by Meta, such as Facebook, Instagram, and WhatsApp, soon followed suit. All these apps have the same feature with different layouts. This hold of power and[social dominance of Meta is quite scary](https://www.makeuseof.com/why-you-should-be-concerned-about-meta/) .
+ Snapchat was the first app to launch the concept of 24-hour stories, but did you notice what happened afterward? The apps owned by Meta, such as Facebook, Instagram, and WhatsApp, soon followed suit. All these apps have the same feature with different layouts. This hold of power and [social dominance of Meta is quite scary](https://www.makeuseof.com/why-you-should-be-concerned-about-meta/) .
 
- Apart from the Stories, there are some other[features that Facebook copied from other apps](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) . Facebook Marketplace is a buy-and-sell group that lets peers sell and purchase stuff from each other. There are different platforms like Gumtree providing the same services.
+ Apart from the Stories, there are some other [features that Facebook copied from other apps](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) . Facebook Marketplace is a buy-and-sell group that lets peers sell and purchase stuff from each other. There are different platforms like Gumtree providing the same services.
 
  Facebook Reels is a concept taken from TikTok that lets users create short videos with transitional effects and sounds and appears to many people following the same interests.
 
  So, will Facebook take some action and bring creativity to the table? Maybe, maybe not. Only time can tell.
 
-## 3\. Data Harvesting Through Quizzes and Third-Party Apps
-
-![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
+## 3\. Data Harvesting Through Quizzes and Third-Party Apps ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
@@ -57,19 +53,17 @@ Close
 
  Some common things these third-party apps usually ask for are your name, gender, age, language, email address, and Facebook account—it seems pretty harmless.
 
- But the[Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) revealed just how much data harvesting was possible with these quizzes. Cambridge Analytica was a British political consulting firm that collected data from Facebook users. All that information was then used for political purposes. Upon discovery, this matter was considered unethical and a total breach of privacy.
+ But the [Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) revealed just how much data harvesting was possible with these quizzes. Cambridge Analytica was a British political consulting firm that collected data from Facebook users. All that information was then used for political purposes. Upon discovery, this matter was considered unethical and a total breach of privacy.
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
-## 4\. The Spread of Fake News
-
-![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
+## 4\. The Spread of Fake News ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 
  This can directly relate to Facebook's ability to promote a particular post in users' feeds. Unsurprisingly, many authoritative figures use this failure to meet their political and personal ambitions.
 
- Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and[business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
+ Facebook took notice of this issue a while ago and is trying to take steps against the propagation of false news. People are also advised to follow the Facebook pages from authentic news channels only. Genuine Facebook accounts and [business pages are verified by Facebook](https://www.makeuseof.com/verify-facebook-business-page/) and have a checkmark beside their name.
 
 ## 5\. Failure to Moderate in Developing Countries
 
@@ -106,3 +100,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/modify-contact-settings-in-facebook-account/"><u>Modify Contact Settings in Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-make-life-better-without-your-phone/"><u>5 Ways to Make Life Better Without Your Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-exposed-to-these-certain-fb-campaigns/"><u>Why Am I Exposed to These Certain Fb Campaigns?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-protection-system-activation-process/"><u>Mastering Facebook's Protection System: Activation Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-strategy-behind-facebooks-news-to-just-feed-shift/"><u>Unpacking the Strategy Behind Facebook's News to Just Feed Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-dominance-youtubes-best-female-gamers-for-2024/"><u>Digital Dominance  YouTube's Best Female Gamers for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-tips-for-seamless-integration-of-pip-in-microsoft-edge/"><u>[New] Expert Tips for Seamless Integration of PIP in Microsoft Edge</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-unleash-your-creativity-3-simple-video-game-recording-tools/"><u>Updated In 2024, Unleash Your Creativity 3 Simple Video Game Recording Tools</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-the-ultimate-list-of-whatsapp-status-video-makers-free-plus-paid/"><u>2024 Approved The Ultimate List of WhatsApp Status Video Makers Free + Paid</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-the-ultimate-guide-to-animation-drawing-top-software-picks/"><u>Updated The Ultimate Guide to Animation Drawing Top Software Picks</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-everything-from-apple-iphone-xs-to-iphone-8x11-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Everything from Apple iPhone XS to iPhone 8/X/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/upgrade-your-video-presentations-zooming-through-filter-techniques/"><u>Upgrade Your Video Presentations  Zooming Through Filter Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-battery-life-to-final-cut-a-drone-editors-journey/"><u>[New] From Battery Life to Final Cut  A Drone Editor's Journey</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-oppo-find-n3-flip-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Oppo Find N3 Flip Phones? | Dr.fone</u></a></li>
+</ul></div>

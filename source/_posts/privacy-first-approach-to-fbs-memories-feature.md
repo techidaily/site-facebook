@@ -1,7 +1,7 @@
 ---
 title: Privacy-First Approach to FB's Memories Feature
-date: 2024-06-20 23:41:50
-updated: 2024-06-23 10:55:41
+date: 2024-06-25T14:01:19.165Z
+updated: 2024-06-26T14:01:19.165Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
 
  Journalist Julia MacFarlane, for instance, got an unpleasant reminder of one of the scarring experiences in her life:
 
- Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer[wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
+ Renowned web developer Eric Meyer went through a horrible year after his daughter died. He didn't want to recap the pain. But Facebook sent him a popup notification in his timeline that showed his daughter's face surrounded by illustrations of dancing people and balloons. Meyer [wrote on his blog](http://meyerweb.com/eric/thoughts/2014/12/24/inadvertent-algorithmic-cruelty/) :
 
 > Those of us who lived through the death of loved ones, or spent extended time in the hospital, or were hit by divorce or losing a job or any one of a hundred crises, we might not want another look at this past year. To show me Rebecca's face and say "Here's what your year looked like!" is jarring. It feels wrong, and coming from an actual person, it would be wrong. Coming from code, it's just unfortunate. These are hard, hard problems. It isn't easy to programmatically figure out if a picture has a ton of Likes because it's hilarious, astounding, or heartbreaking.
 
@@ -47,9 +47,7 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
-## How to Block Dates or Date Ranges in Facebook Memories
-
-![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+## How to Block Dates or Date Ranges in Facebook Memories ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
@@ -60,19 +58,17 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
 
  That's it, memories from that particular date range won't show up.
 
-## How to Turn Off Facebook Memories Notifications
+## How to Turn Off Facebook Memories Notifications ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
 
-![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-
- You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
+ You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
 1. On a computer browser, click on**Memories** on the left-hand side of your Facebook home screen.
 2. Click**Notifications** .
 3. Choose from**All Memories** ,**Highlights** or**None** .
 
- That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
+ That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for [Facebook Memories](https://www.facebook.com/memories/) .
 
- If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
+ If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's [Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 ## Learn to Live with Your Past
 
@@ -93,3 +89,27 @@ thumbnail: https://thmb.techidaily.com/bcbbbb17c516407e41023c9df84564d9e208249f4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-intern-to-innovator-the-metamate-movement/"><u>From Intern to Innovator: The Metamate Movement</u></a></li>
+<li><a href="https://facebook.techidaily.com/latest-watches-on-facebook-unveiled/"><u>Latest Watches on Facebook Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/reignite-real-connections-without-politics/"><u>Reignite Real Connections Without Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-safe-from-sneaky-purchases-avoidance-of-facebook-marketplace-frauds/"><u>Staying Safe From Sneaky Purchases: Avoidance of Facebook Marketplace Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-reemerge-and-thrive-amidst-the-new-age-of-metaversal-exploration/"><u>Can LLife Reemerge and Thrive Amidst The New Age of Metaversal Exploration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-nightmares-8-disturbing-realities-explored/"><u>Social Network Nightmares: 8 Disturbing Realities Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-majority-of-covid-myths-link-to-12-influencers/"><u>The Majority of Covid Myths Link to 12 Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-non-responsive-users-in-messaging/"><u>The Implications of Non-Responsive Users in Messaging</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/mastering-on-screen-captions-in-tiktok-videos/"><u>Mastering On-Screen Captions in TikTok Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-video-preservation-straightforward-techniques-unpacked/"><u>[Updated] In 2024, Instagram Video Preservation  Straightforward Techniques Unpacked</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-reveal-content-authenticity-top-marker-eliminators/"><u>In 2024, Reveal Content Authenticity  Top Marker Eliminators</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-radiant-registering-and-unregistering-rites/"><u>[Updated] Radiant Registering and Unregistering Rites</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-record-the-screen-of-the-iphone-7-for-2024/"><u>[New] How to Record the Screen Of The iPhone 7 for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-masterclass-perfecting-the-art-of-facial-recording/"><u>[Updated] 2024 Approved  Masterclass  Perfecting the Art of Facial Recording</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/twitvid-mover-iphone-video-transfer-tool/"><u>TwitVid Mover  IPhone Video Transfer Tool</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-boosting-your-gaming-footage-on-latest-windows-11/"><u>In 2024, Boosting Your Gaming Footage on Latest Windows 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-get-off-youtube-with-these-top-non-youtube-phones-and-tablets-videos-sites/"><u>In 2024, Get Off YouTube with These Top Non-YouTube Phones and Tablets Videos Sites</u></a></li>
+</ul></div>

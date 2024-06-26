@@ -1,7 +1,7 @@
 ---
 title: How to Avoid Facebook Reels Habit
-date: 2024-06-20 17:35:44
-updated: 2024-06-23 12:55:27
+date: 2024-06-25T14:02:45.346Z
+updated: 2024-06-26T14:02:45.346Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/c1b8f5eb5059b436ba72d1c75d15b589d4913c1c7
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discovering-the-operation-principles-behind-photodna/"><u>Discovering the Operation Principles Behind PhotoDNA</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-personal-brand-on-social-media/"><u>Elevating Personal Brand on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-time-for-social-media-impact/"><u>Leveraging Time for Social Media Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/steady-as-she-goes-unveiling-the-world-of-crypto-stability-coins/"><u>Steady as She Goes: Unveiling the World of Crypto Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/rank-the-networks-that-keep-us-connected/"><u>Rank the Networks That Keep Us Connected</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-top-10-real-time-audio-amplifiers-for-windows-os/"><u>In 2024, Top 10 Real-Time Audio Amplifiers for Windows OS</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-honor-x8b-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Honor X8b Location by Number | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-exclusive-list-of-8-leading-android-group-calling-apps/"><u>[New] Exclusive List of 8 Leading Android Group Calling Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-network-growth-strategy-share-twitch-live-links-on-fb/"><u>[Updated] 2024 Approved  Network Growth Strategy  Share Twitch Live Links on FB</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pioneering-techniques-for-superior-fullscreen-presentation-in-premiere/"><u>[New] Pioneering Techniques for Superior Fullscreen Presentation in Premiere</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-mastering-google-meet-customization-filter-and-effect-techniques-for-2024/"><u>[Updated] Mastering Google Meet Customization  Filter & Effect Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-95-sharp-humor-in-tiktoks-best-joke-threads-for-2024/"><u>[New] 95 Sharp Humor in TikTok's Best Joke Threads for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-iphone-13-pro-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve iPhone 13 Pro Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-elemental-story-framework/"><u>[New] Elemental Story Framework</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-depth-review-of-ivona-text-to-speech-by-nextup-technologies/"><u>New In-Depth Review of Ivona Text to Speech by NextUp Technologies</u></a></li>
+</ul></div>

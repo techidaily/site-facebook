@@ -1,7 +1,7 @@
 ---
 title: A Complete Archive of Your Facebook Journey
-date: 2024-06-20 20:29:11
-updated: 2024-06-23 11:33:35
+date: 2024-06-25T14:20:14.134Z
+updated: 2024-06-26T14:20:14.134Z
 tags:
   - facebook
 categories:
@@ -27,14 +27,12 @@ thumbnail: https://thmb.techidaily.com/4b1ffe0e9ed18703ac5b5f01f74dc018a2d149745
 
  Since the file you're downloading is quite large, we'll cover the method most users will opt for—sending the request via your desktop browser.
 
-## How to Request Your Data on the Facebook Website
-
-![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
+## How to Request Your Data on the Facebook Website ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
-1. Log in to[Facebook.com](http://www.facebook.com) .
-2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to[Facebook.com/settings](http://www.facebook.com/settings) .
+1. Log in to [Facebook.com](http://www.facebook.com) .
+2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to [Facebook.com/settings](http://www.facebook.com/settings) .
 3. Click**Your Facebook Information** .
 4. Go to**Download Your Information** and click on**View** .
 5. Select what data points to include by checking the appropriate box under Deselect All, or maintain the default settings.
@@ -49,9 +47,7 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-## Customizing Your Facebook Data Download
-
-![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
+## Customizing Your Facebook Data Download ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 
@@ -89,7 +85,7 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
- Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
+ Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
 
@@ -103,7 +99,7 @@ Other downloadable datasets include:
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
 
- We've covered plenty of ways to[download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ We've covered plenty of ways to [download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
@@ -132,3 +128,23 @@ Other downloadable datasets include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/maximizing-user-participation-in-stories-polls/"><u>Maximizing User Participation in Stories Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-making-your-mark-with-facebook-events/"><u>How-To: Making Your Mark with Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-help-center-and-what-can-you-use-it-for/"><u>What Is Facebook Help Center and What Can You Use It For?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-separate-your-spotify-from-facebook-connection/"><u>How to Separate Your Spotify From Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-realme-gt-neo-5-device-sim-by-drfone-android/"><u>Easily Unlock Your Realme GT Neo 5 Device SIM</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/selfie-showstoppers-adding-whimsy-with-the-cartoon-lens-for-2024/"><u>Selfie Showstoppers  Adding Whimsy with the Cartoon Lens for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/full-spectrum-review-google-podcasts-app-explained/"><u>Full Spectrum Review  Google Podcasts App Explained</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-kinemaster-insider-the-art-of-seamless-video-transitions/"><u>In 2024, Kinemaster Insider  The Art of Seamless Video Transitions</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-programs-17-superior-aids-to-remove-outlines-for-2024/"><u>Leading Programs  17 Superior Aids to Remove Outlines for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unveiling-the-secret-sauce-for-astonishing-gifs-from-vimeo-videos/"><u>[Updated] 2024 Approved  Unveiling the Secret Sauce for Astonishing GIFs From Vimeo Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/apple-iphone-15-pro-mirror-to-pc-top-apps-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 15 Pro Mirror to PC? Top Apps You Must Know | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-craft-your-podcasts-identity-with-ai-name-generators/"><u>[Updated] In 2024, Craft Your Podcast's Identity with AI Name Generators</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-leading-e-stores-for-securely-downloading-youtube-ringtones/"><u>[Updated] Leading E-Stores for Securely Downloading YouTube Ringtones</u></a></li>
+</ul></div>

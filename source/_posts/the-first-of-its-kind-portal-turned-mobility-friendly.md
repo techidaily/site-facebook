@@ -1,7 +1,7 @@
 ---
 title: "The First of Its Kind: Portal Turned Mobility-Friendly"
-date: 2024-06-22 13:17:54
-updated: 2024-06-23 11:46:59
+date: 2024-06-25T13:53:07.236Z
+updated: 2024-06-26T13:53:07.236Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/04735b88e1441114a8925bb5e15d2369f293d2c3a
 
  We'll take a look at the new product and how it differs from other devices in the Portal family.
 
-## Video Chatting and More on the Go
-
-![facebook portal go charger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-portal-go-charger-1.jpg)
+## Video Chatting and More on the Go ![facebook portal go charger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-portal-go-charger-1.jpg)
 
  Portal Go brings the usual smart camera experience but with a unique twist. Thanks to a built-in battery, the device can be taken from room to room in a home during a Zoom video call or anything else.
 
@@ -41,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/04735b88e1441114a8925bb5e15d2369f293d2c3a
 
 ## Pre-Order the Facebook Portal Go Now
 
- The Facebook Portal Go[retails for $199](https://portal.facebook.com/products/portal-go/) . You can preorder the device now directly from Facebook. Orders will start shipping on October 19.
+ The Facebook Portal Go [retails for $199](https://portal.facebook.com/products/portal-go/) . You can preorder the device now directly from Facebook. Orders will start shipping on October 19.
 
 ## A New Way to Use Facebook Portal
 
@@ -64,3 +62,26 @@ thumbnail: https://thmb.techidaily.com/04735b88e1441114a8925bb5e15d2369f293d2c3a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailored-teardown-customizing-the-deletion-of-your-facebook-profile/"><u>Tailored Teardown: Customizing the Deletion of Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-conversation-privacy-on-fb-upheld/"><u>Is Conversation Privacy on FB Upheld?</u></a></li>
+<li><a href="https://facebook.techidaily.com/modern-buzz-spots-ranking-the-most-popular-online-communities/"><u>Modern Buzz Spots: Ranking the Most Popular Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-user-access-changing-screens-on-facebook/"><u>Accelerated User Access: Changing Screens on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-invisible-barriers-shadowban-in-digital-realms/"><u>Avoiding the Invisible Barriers (Shadowban) in Digital Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/shift-gears-modify-facebook-url-for-professionalism/"><u>Shift Gears: Modify Facebook URL for Professionalism</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-not-seen-status-on-chat-platforms/"><u>Decoding 'Not Seen' Status on Chat Platforms</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/perfecting-volume-control-strategies-for-seamless-audio-transitions-for-2024/"><u>Perfecting Volume Control Strategies for Seamless Audio Transitions for 2024</u></a></li>
+<li><a href="https://techidaily.com/update-drivers-with-device-manager-in-windows-10-by-drivereasy-guide/"><u>Update drivers with Device Manager in Windows 10</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-moto-g84-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Moto G84 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-factory-unlock-your-telstra-apple-iphone-15-by-drfone-ios/"><u>In 2024, How To Factory Unlock Your Telstra Apple iPhone 15</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevate-your-gaming-with-fbx-capture-pro/"><u>Elevate Your Gaming with FBX Capture Pro</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-easyrecorder-straightforward-windows-10-tool/"><u>2024 Approved  EasyRecorder - Straightforward Windows 10 Tool</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hrift-in-tech-streaming-free-seminars-on-youtube-for-2024/"><u>[New] Thrift in Tech  Streaming FREE Seminars on YouTube for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/2-ways-to-monitor-realme-narzo-60-5g-activity-drfone-by-drfone-virtual-android/"><u>2 Ways to Monitor Realme Narzo 60 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-exploring-leading-apps-to-purify-recordings-from-distractive-noises-for-2024/"><u>New Exploring Leading Apps to Purify Recordings From Distractive Noises for 2024</u></a></li>
+</ul></div>

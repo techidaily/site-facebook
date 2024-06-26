@@ -1,7 +1,7 @@
 ---
 title: Assessing the Value of Online Dislikes
-date: 2024-06-21 13:51:36
-updated: 2024-06-23 11:29:44
+date: 2024-06-25T13:51:25.748Z
+updated: 2024-06-26T13:51:25.748Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,13 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
 ## Pros to the Dislike Button Hiding Its Numbers
 
- YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
+ YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the [number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
 ### Hate Campaigns Leave Less of an Impact
 
- A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
+ A major reason YouTube shared for [hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
 
  The company explained that hateful campaigns against creators and their content have always been a part of YouTube culture, and they wanted to do something about it.
 
@@ -37,9 +37,7 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-### Less Stress When Posting
-
-![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+### Less Stress When Posting ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/380105e59c8959c0073d444abec887193c4b497ad
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
 
-### It Helps Your Mental Health
-
-![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
+### It Helps Your Mental Health ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
 
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
@@ -67,9 +63,7 @@ What's more, it goes beyond affecting only the poster.
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
-### You Can't Discern Helpfulness
-
-![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
+### You Can't Discern Helpfulness ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -79,9 +73,7 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-### You Can't Tell if It's Worth Seeing
-
-![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
+### You Can't Tell if It's Worth Seeing ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
 
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
@@ -97,7 +89,7 @@ What's more, it goes beyond affecting only the poster.
 
 ### Does It Make Sense for the Platform at All?
 
- Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
+ Twitter is dipping its toes into the dislike pool by introducing a [downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
 
  Since it came on the social media scene, Twitter has historically not had anything in the vein of a dislike button. However, it's potentially looking to change that.
 
@@ -111,7 +103,7 @@ What's more, it goes beyond affecting only the poster.
 
  How can you not have a dislike button if it's an integral part of the platform?
 
- Since its inception, Reddit has had both up and downvote buttons. People use the downvote to share that the post was bad, unoriginal, stolen, doesn't fit the topic, or for a myriad of other reasons. Reddit without downvotes wouldn't be Reddit at all, and[users love the platforms](https://www.makeuseof.com/reasons-reddit-best-social-media-platform/) as is.
+ Since its inception, Reddit has had both up and downvote buttons. People use the downvote to share that the post was bad, unoriginal, stolen, doesn't fit the topic, or for a myriad of other reasons. Reddit without downvotes wouldn't be Reddit at all, and [users love the platforms](https://www.makeuseof.com/reasons-reddit-best-social-media-platform/) as is.
 
  Going on Reddit today, you'll find that it has hidden the exact count of the downvote button, like YouTube. But, it has also hidden the count of the upvote one. You can still click whichever button you want to, but you won't see the exact separate count of the upvotes and downvotes. Instead, you get the sum total of both hovering in the middle.
 
@@ -140,3 +132,27 @@ What's more, it goes beyond affecting only the poster.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-future-facebooks-stance-on-metaverse/"><u>Decoding the Future: Facebook's Stance on Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metaais-potential-in-dialogue-technology/"><u>Dissecting MetaAI's Potential in Dialogue Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-conversations-with-facebooks-newly-secured-dms-and-calls/"><u>Protect Your Conversations with Facebook’s Newly Secured DMs & Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-feed-mastering-customization-in-facebooks-world/"><u>Crafting Your Feed: Mastering Customization in Facebook's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-meizu-21-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-collect-audio-files-from-fb-newsfeeds/"><u>[New] In 2024, Collect Audio Files From FB Newsfeeds</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-quickening-realities-with-hyperlapse-methods-for-2024/"><u>[Updated] Quickening Realities with Hyperlapse Methods for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-speedy-realignment-youtube-videos-for-mac-views/"><u>In 2024, Speedy Realignment  YouTube Videos for MAC Views</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-crafting-an-efficient-youtube-subscription-path/"><u>2024 Approved  Crafting an Efficient YouTube Subscription Path</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unveiling-8-exceptional-mirrorless-cameras-for-vloggers-for-2024/"><u>Unveiling 8 Exceptional Mirrorless Cameras for Vloggers for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-the-beat-engineers-handbook-designing-sounds-for-the-silver-screen/"><u>Updated 2024 Approved The Beat Engineers Handbook Designing Sounds for the Silver Screen</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/prime-video-recorders-head-on-screen-viewing/"><u>Prime Video Recorders  Head-On Screen Viewing</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-your-first-dive-into-the-world-of-zoom-webinar-hosting/"><u>2024 Approved  Your First Dive Into the World of Zoom Webinar Hosting</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-securely-capturing-instagrams-downloadable-videos-explained-computers-and-macs/"><u>2024 Approved  Securely Capturing Instagrams  Downloadable Videos Explained (Computers & Macs)</u></a></li>
+</ul></div>

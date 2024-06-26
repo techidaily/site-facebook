@@ -1,7 +1,7 @@
 ---
 title: Strengthening Society One Like at a Time
-date: 2024-06-22 14:37:16
-updated: 2024-06-23 11:52:30
+date: 2024-06-25T14:29:13.894Z
+updated: 2024-06-26T14:29:13.894Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends
-
-![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -33,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy
-
-![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -49,13 +45,11 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication
-
-![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
- Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with[social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
+ Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with [social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
 
  Writing a Tweet takes all of 20 seconds, and with cross-posting to other social networks switched on, that update can reach everyone you want it to reach (and probably more besides) in an instant.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller
-
-![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -77,9 +69,7 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships
-
-![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -87,13 +77,11 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  Social networks can put you (back) in touch with people who you have lots in common with, and that common ground is often the starting point for long-lasting relationships.
 
- As painful as breakups can be (even with the help of[breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
+ As painful as breakups can be (even with the help of [breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster
-
-![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -107,9 +95,7 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground
-
-![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -140,3 +126,26 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-facebooks-hidden-insights-a-complete-history-log/"><u>Unlocking Facebook's Hidden Insights: A Complete History Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc</u></a></li>
+<li><a href="https://facebook.techidaily.com/trends-in-account-compromises-on-websites/"><u>Trends in Account Compromises on Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-future-of-chat-when-will-fb-introduce-e2ee/"><u>Securing the Future of Chat: When Will FB Introduce E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-power-7-social-benefits-explored/"><u>Digital Dialogue’s Power: 7 Social Benefits Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticker-ads-in-facebook-stories-test-for-marketers/"><u>Sticker Ads in Facebook Stories: Test for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-within-the-world-of-facebook-dating/"><u>What Lies Within the World of Facebook Dating?</u></a></li>
+<li><a href="https://facebook.techidaily.com/purging-past-posts-a-social-media-detox-journey/"><u>Purging Past Posts: A Social Media Detox Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-your-community-choose-an-fb-admin/"><u>Empowering Your Community: Choose an FB Admin</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-essential-aspect-ratio-tips-for-social-media-videos/"><u>[New] In 2024, Essential Aspect Ratio Tips for Social Media Videos</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/harmonizing-your-media-playback-expert-guide-to-adjusting-decibels-in-vlc-for-2024/"><u>Harmonizing Your Media Playback Expert Guide to Adjusting Decibels in VLC for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-samsung-galaxy-xcover-7-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Samsung Galaxy XCover 7 Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quick-tutorial-for-top-memes-kinemaster/"><u>[Updated] Quick Tutorial for Top Memes  KineMaster</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-perfect-playlist-placement-techniques-for-youtube/"><u>In 2024, Perfect Playlist Placement Techniques for YouTube</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-best-lyric-video-maker-software-online/"><u>New 2024 Approved Best Lyric Video Maker Software Online</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-tecno-spark-go-2023-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Tecno Spark Go (2023) to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-how-to-do-velocity-edits-on-pc/"><u>Updated How to Do Velocity Edits on PC</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-capture-clash-challenge-obs-meets-shadowgl/"><u>In 2024, Capture Clash Challenge  OBS Meets ShadowGL</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-elevating-your-content-becoming-a-staff-pick-favorite-on-vimeo/"><u>[New] Elevating Your Content  Becoming a Staff Pick Favorite on Vimeo</u></a></li>
+</ul></div>

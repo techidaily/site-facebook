@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Allege FB Reprimands Honesty in Ads
-date: 2024-06-22 20:44:47
-updated: 2024-06-23 10:11:13
+date: 2024-06-25T14:13:03.713Z
+updated: 2024-06-26T14:13:03.713Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/527ec40dbef906cadfd5828e1a10f887ec75fd463
 
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
- In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
+ In a post on the [Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 ## Facebook Responds to Signal's Move
 
@@ -72,3 +72,27 @@ Facebook responded with the following statement to the media:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/constructing-a-secure-social-media-network/"><u>Constructing a Secure Social Media Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-likes-on-your-facebook-posts/"><u>How to Hide Likes on Your Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/anonymity-awaits-silent-likes-on-fbig/"><u>Anonymity Awaits: Silent Likes on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/considering-facebooks-role-in-streamlining-multi-app-sign-in-processes/"><u>Considering Facebook's Role in Streamlining Multi-App Sign-In Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-mobile-facebook-exploration/"><u>Mastery Over Mobile Facebook Exploration</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-market-dominance-challenged-by-facebooks-personalized-link-service/"><u>Apple's Market Dominance Challenged by Facebook’s Personalized Link Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/compreenas-unlocking-your-facebook-blocked-friends-names/"><u>Compreenas: Unlocking Your Facebook Blocked Friends’ Names</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prime-picks-the-top-6-online-networks-for-corporate-success/"><u>In 2024, Prime Picks  The Top 6 Online Networks for Corporate Success</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-lava-agni-2-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Lava Agni 2 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/expert-the-5-best-free-wmv-video-editors-for-2024/"><u>Expert- The 5 Best Free WMV Video Editors for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-vivo-v27-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Vivo V27 Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-screens-on-windows-with-best-no-cost-recorder-tools-for-2024/"><u>Mastering Screens on Windows with Best No-Cost Recorder Tools for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-the-top-6-helmet-mounts-to-upgrade-your-adventure-photography/"><u>[New] Exploring The Top 6 Helmet Mounts to Upgrade Your Adventure Photography</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-the-visual-blueprint-understanding-social-media-aspect-ratios-for-success/"><u>Updated In 2024, The Visual Blueprint Understanding Social Media Aspect Ratios for Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebook-story-viewer-view-facebook-stories-anonymously/"><u>[New] 2024 Approved  Facebook Story Viewer  View Facebook Stories Anonymously</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-essential-tips-for-navigating-discord-spoilers/"><u>2024 Approved  Essential Tips for Navigating Discord Spoilers</u></a></li>
+</ul></div>

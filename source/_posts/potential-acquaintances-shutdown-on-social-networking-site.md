@@ -1,7 +1,7 @@
 ---
 title: 'Potential Acquaintances' Shutdown on Social Networking Site
-date: 2024-06-21 13:52:27
-updated: 2024-06-23 11:27:20
+date: 2024-06-25T14:11:04.345Z
+updated: 2024-06-26T14:11:04.345Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unplug-from-the-world-discover-3-anti-facebook-locales/"><u>Unplug From the World: Discover 3 Anti-Facebook Locales</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-the-surveillance-germany-orders-cease-of-facebooks-whatsapp-data-gathering/"><u>Stop the Surveillance: Germany Orders Cease of Facebook's WhatsApp Data Gathering</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-policy-2023-politics-and-religion-out-of-sight/"><u>Facebook Policy 2023: Politics and Religion Out of Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-favorites-hiding-facebook-affection/"><u>Unseen Favorites: Hiding Facebook Affection</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-after-unlinking-from-social-networks/"><u>Life After Unlinking From Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-support-for-nfts-in-meta-drops-trial-phase/"><u>Cutting-Edge Support for NFTs in Meta Drops Trial Phase</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-countdown-for-metas-default-e2e-encryption-adoption-by-2023/"><u>The Countdown for Meta's Default E2E Encryption Adoption by 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/proxy-pages-or-real-people-unmask-online-suspects/"><u>Proxy Pages or Real People? Unmask Online Suspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-mirage-deceptive-identity-reproduction/"><u>Facebook Mirage: Deceptive Identity Reproduction</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-disabled-apple-iphone-xs-maxipad-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock Disabled Apple iPhone XS Max/iPad Without Computer</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/all-inclusive-guide-what-is-googles-podcast-service-for-2024/"><u>All-Inclusive Guide  What Is Google's Podcast Service for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-seeding-strategies-for-valheim-prosperity/"><u>[New] Seeding Strategies for Valheim Prosperity</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-crystal-clear-playback-top-5-ultra-hd-gaming-displays-with-hdmi-21-ps5/"><u>[New] 2024 Approved  Crystal Clear Playback  Top 5 Ultra HD Gaming Displays with HDMI 2.1 [PS5]</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-kinemaster-mastery-and-excellent-online-alternatives/"><u>In 2024, The Ultimate Guide to KineMaster Mastery & Excellent Online Alternatives</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/effortless-melodies-free-facebook-download/"><u>Effortless Melodies  Free Facebook Download</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-engage-and-learn-students-choice-of-best-historical-youtubes/"><u>[Updated] In 2024, Engage & Learn  Students' Choice of Best Historical YouTubes</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-harmonysoft-masterclass-exploring-the-intricacies-of-avs-editing-features-customer-testimonials-and-similar-products/"><u>New HarmonySoft Masterclass Exploring the Intricacies of AVS Editing Features, Customer Testimonials & Similar Products</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-elevate-your-gameplay-top-5-recording-strategies-for-roblox-and-macos/"><u>2024 Approved  Elevate Your Gameplay  Top 5 Recording Strategies for Roblox & macOS</u></a></li>
+</ul></div>

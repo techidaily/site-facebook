@@ -1,7 +1,7 @@
 ---
 title: "Be a Cyber Sleuth: Unmasking the Top 14 Facebook Scams"
-date: 2024-06-20 21:50:28
-updated: 2024-06-23 10:46:22
+date: 2024-06-25T14:34:18.745Z
+updated: 2024-06-26T14:34:18.745Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,17 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  From scammers asking for all kinds of additional postage costs, to people pretending to be legitimate businesses, to people selling authentic "celebrity signed merchandise", there are definitely a lot of things to be aware of before performing any type of transaction.
 
- Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
+ Make sure you learn [how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
- These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+ These days there are a [few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 ## 5\. Facebook Job Advertisement Scams
 
- Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
+ Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are [red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
 ## 7\. Charity Scams
 
- This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+ This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check [Charity Navigator](https://www.charitynavigator.org/) or [CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
 
 ## 8\. Scams Posing As Official Pages
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
 
  Whatever it is, their purpose is to win your trust, and they may even do this by chatting to you for weeks or months. If you happen to fall for one of these scammers, at some point, they will ask you for money.
 
- They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
+ They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are [some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
 ## 12\. Loan Lending Scams
 
@@ -118,3 +118,26 @@ thumbnail: https://thmb.techidaily.com/d1e396e3c497492ee5cb72e95e743dcb132cd92c3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/inhibit-people-you-may-know-alerts-on-social-network/"><u>Inhibit 'People You May Know' Alerts on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-of-promotional-marketing-deciphering-the-role-of-hashtags-on-fb/"><u>The Puzzle of Promotional Marketing: Deciphering the Role of #Hashtags on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-relationship-timelines-on-fb/"><u>Navigating Relationship Timelines on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-dialogue-dynamics-stylish-textual-elements/"><u>Enhancing Dialogue Dynamics: Stylish Textual Elements</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-pioneer-trumps-online-revival/"><u>The Digital Pioneer: Trumps Online Revival</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deterrents-enhanced-sanctions-to-halt-misinformation/"><u>Digital Deterrents: Enhanced Sanctions to Halt Misinformation</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unifying-social-media-platforms-tiktok-and-fb-connected/"><u>[Updated] Unifying Social Media Platforms  TikTok & FB Connected</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-global-youtube-elite-earnings-leader-for-2024/"><u>[New] Global YouTube Elite Earnings Leader for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-expert-tips-add-ons-that-elevate-your-vimeo-video/"><u>[New] Expert Tips  Add-Ons that Elevate Your Vimeo Video</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-tecno-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Tecno Phones with/without a PC</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-radiant-realms-creating-exceptional-hdr-with-photoshop/"><u>[New] Radiant Realms  Creating Exceptional HDR with Photoshop</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-quick-ways-to-retain-live-chat-transcripts/"><u>[New] 2024 Approved  Quick Ways to Retain Live Chat Transcripts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/maximizing-online-exposure-on-youtube-by-keeping-up-creative-commons-usage-for-2024/"><u>Maximizing Online Exposure on YouTube by Keeping Up Creative Commons Usage for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-vegas-or-premiere-choosing-the-best-video-editing-software-for-your-needs/"><u>In 2024, Vegas or Premiere? Choosing the Best Video Editing Software for Your Needs</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-streamline-your-browsing-with-these-7-android-centric-adblockers/"><u>[New] Streamline Your Browsing with These 7 Android-Centric AdBlockers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-from-device-to-tv-a-simple-guide-to-streaming-local-videos-on-chromecast/"><u>New In 2024, From Device to TV A Simple Guide to Streaming Local Videos on Chromecast</u></a></li>
+</ul></div>

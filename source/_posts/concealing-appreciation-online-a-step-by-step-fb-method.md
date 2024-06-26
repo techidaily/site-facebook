@@ -1,7 +1,7 @@
 ---
 title: "Concealing Appreciation Online: A Step-by-Step FB Method"
-date: 2024-06-22 22:39:48
-updated: 2024-06-23 10:13:35
+date: 2024-06-25T14:07:57.423Z
+updated: 2024-06-26T14:07:57.423Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/a4fdcd80183f244d65d1a43dcdc553851a248e6cf
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-### Hiding the Facebook Reaction Count on Mobile
-
-![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+### Hiding the Facebook Reaction Count on Mobile ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
@@ -66,7 +64,7 @@ Your new settings are saved automatically.
 
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
- If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
+ If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 ## Depressurize Your Experience on Facebook
 
@@ -87,3 +85,23 @@ Your new settings are saved automatically.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reclaim-your-lost-facebook-activity-pieces-by-piece/"><u>Reclaim Your Lost Facebook Activity Pieces by Piece</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-and-using-messengers-without-facebook-connection/"><u>Exploring and Using Messengers without Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/anonymity-awaits-silent-likes-on-fbig/"><u>Anonymity Awaits: Silent Likes on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-attract-candidates-posting-job-ads-on-facebook/"><u>How to Attract Candidates: Posting Job Ads on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-break-next-in-line-youths-choice-to-unfollow-instagram/"><u>Social Media Break: Next in Line? Youths' Choice to Unfollow Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-audiences-in-fb-posts/"><u>Mastering the Art of Captivating Audiences in FB Posts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-top-value-360-cameras-simplifying-visual-storytelling/"><u>In 2024, Top Value 360° Cameras Simplifying Visual Storytelling</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-listening-experience-how-to-add-podcasts-via-ipadiphone/"><u>[Updated] The Ultimate Listening Experience  How to Add Podcasts via iPad/iPhone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-call-history-from-galaxy-f54-5g-by-fonelab-android-recover-call-logs/"><u>Easy steps to recover deleted call history from Galaxy F54 5G</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-from-photos-to-masterpieces-5-recommended-slideshow-creators-for-2024/"><u>New From Photos to Masterpieces 5 Recommended Slideshow Creators for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-tethering-airpods-on-computers/"><u>Updated 2024 Approved A Comprehensive Guide to Tethering AirPods on Computers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-s17t-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo S17t online without jailbreak</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/in-2024-green-screen-editing-on-a-mac-software-comparison-and-recommendations/"><u>In 2024, Green Screen Editing on a Mac Software Comparison and Recommendations</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-solutions-for-missing-shorts-thumbnails-on-youtube/"><u>[Updated] In 2024, Solutions for Missing Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-nubia-red-magic-9-proplus-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Nubia Red Magic 9 Pro+ Phone</u></a></li>
+</ul></div>

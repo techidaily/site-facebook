@@ -1,7 +1,7 @@
 ---
 title: Misinformation Currents Linked to Influencer Actions
-date: 2024-06-21 16:44:59
-updated: 2024-06-23 10:25:12
+date: 2024-06-25T14:21:41.287Z
+updated: 2024-06-26T14:21:41.287Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,26 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-your-facebook-interactions-with-these-3-tag-tactics/"><u>Accelerate Your Facebook Interactions with These 3 Tag Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unleashed-3-reasons-to-worry/"><u>Meta Unleashed: 3 Reasons to Worry</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-next-chapter-fbs-move-into-physical-retail-expansion/"><u>Anticipating the Next Chapter: FB's Move Into Physical Retail Expansion</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-emails-ever-obsolete/"><u>Are Emails Ever Obsolete?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-everyone-together-online-posts-for-complete-groups/"><u>Bringing Everyone Together Online: Posts for Complete Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-wont-limit-account-functionality-if-you-dont-accept-its-new-privacy-policy/"><u>WhatsApp Won't Limit Account Functionality If You Don't Accept Its New Privacy Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-heartfelt-gaming-premium-3ds-emulators-android-friendly/"><u>[Updated] 2024 Approved  Heartfelt Gaming  Premium 3DS Emulators, Android-Friendly</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Huawei Nova Y71? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-realme-gt-neo-5-se-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Realme GT Neo 5 SE Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-slow-motion-cameras-ranked/"><u>2024 Approved  Best Slow-Motion Cameras Ranked</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-ultimate-mac-toolkit-comprehensive-screen-and-voice-logging/"><u>[New] In 2024, Ultimate Mac Toolkit  Comprehensive Screen & Voice Logging</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-iphone-xs-max-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve iPhone XS Max Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-resize-your-video-in-a-flash-tips-and-tricks/"><u>2024 Approved Resize Your Video in a Flash Tips and Tricks</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-explore-these-viral-tiktok-challenges-now/"><u>[Updated] Explore These Viral TikTok Challenges Now</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-iphone-and-ipads-best-video-player-compilation-top-10/"><u>In 2024, IPhone & iPad's Best Video Player Compilation (Top 10)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-techniques-to-purge-background-from-photos-using-photopea/"><u>In 2024, Techniques to Purge Background From Photos Using Photopea</u></a></li>
+</ul></div>

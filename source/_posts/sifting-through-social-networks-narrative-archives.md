@@ -1,7 +1,7 @@
 ---
 title: Sifting Through Social Network's Narrative Archives
-date: 2024-06-22 20:33:29
-updated: 2024-06-23 11:56:15
+date: 2024-06-25T14:44:11.061Z
+updated: 2024-06-26T14:44:11.061Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tenfold-tips-for-taming-the-textual-territories/"><u>Tenfold Tips for Taming the Textual Territories</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-whatsapp-sues-over-indian-it-regulation-concerns/"><u>Tech Giant WhatsApp Sues Over Indian IT Regulation Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-sharing-space-removing-interaction-from-your-fb-content/"><u>Secure Sharing Space: Removing Interaction From Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-away-from-tech-stress-with-facebooks-daily-reminders/"><u>Break Away From Tech Stress with Facebook's Daily Reminders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-privacy-and-security-checklist/"><u>The Ultimate Facebook Privacy and Security Checklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-protocol-for-reactivating-deactivated-fb-id/"><u>Essential Protocol for Reactivating Deactivated FB ID</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/accessing-your-own-custom-designed-youtube-melodies-for-2024/"><u>Accessing Your Own Custom-Designed Youtube Melodies for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/2024-approved-translate-videos-and-subtitles-with-veedio/"><u>2024 Approved Translate Videos and Subtitles with Veed.io</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-live-broadcast-faceoff-obs-vs-shadowtoolkit/"><u>[Updated] 2024 Approved  Live Broadcast Faceoff  OBS Vs. ShadowToolkit</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-the-best-mac-video-editors-similar-to-windows-movie-maker-2024-update/"><u>Updated The Best Mac Video Editors Similar to Windows Movie Maker (2024 Update)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-sites-for-extracting-text-aesthetics-packs/"><u>2024 Approved  Leading Sites for Extracting Text Aesthetics Packs</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-tiktok-writers-and-performers-the-creme-de-la-creme/"><u>2024 Approved  TikTok' Writers & Performers, The Crème De La Crème</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-synchronized-screenscape-tv-loops-of-online-media/"><u>[Updated] Synchronized Screenscape  TV Loops of Online Media</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Samsung Galaxy A05 | Dr.fone</u></a></li>
+</ul></div>

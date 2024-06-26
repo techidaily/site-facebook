@@ -1,7 +1,7 @@
 ---
 title: Full Ban on Facebook Delivery of Notifications
-date: 2024-06-20 14:56:27
-updated: 2024-06-23 12:35:45
+date: 2024-06-25T13:50:03.489Z
+updated: 2024-06-26T13:50:03.489Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/c834e1885a4b3f3f1ee7dd2c9fc2dd5ec6f5c9eae
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-evade-facebooks-watchful-eye/"><u>How to Evade Facebook's Watchful Eye</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-ascendancy-in-social-media-marketing/"><u>Cryptocurrency's Ascendancy in Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-tools-for-social-media-embarrassment-extraction/"><u>7 Key Tools for Social Media Embarrassment Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-digital-footsteps-follow-us-forever/"><u>Do Digital Footsteps Follow Us Forever?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-ultimate-screencast-handbook-adept-techniques-and-tools/"><u>[Updated] In 2024, Ultimate Screencast Handbook  Adept Techniques & Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/stories-decoded-whats-inside-for-2024/"><u>Mini Stories Decoded  What's Inside for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/optimize-your-social-presence-with-efficient-fb-covers-for-2024/"><u>Optimize Your Social Presence with Efficient FB Covers for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/laughs-teardrops-and-snickers-in-10-best-ig-memes-groups-for-2024/"><u>Laughs, Teardrops & Snickers in 10 Best IG Memes Groups for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-mastering-computer-monitor-recording-via-zdsoft/"><u>2024 Approved  Mastering Computer Monitor Recording via ZDSoft</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-free-yourself-from-cash-for-sound-the-best-18-audio-crackers-on-youtube-for-2024/"><u>[Updated] Free Yourself From Cash for Sound  The Best 18 Audio Crackers on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-distinctive-fb-video-aspects/"><u>[New] Distinctive FB Video Aspects</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: FB Status Unraveled – How to Know It’s Online
-date: 2024-06-22 20:30:29
-updated: 2024-06-23 11:42:35
+date: 2024-06-25T14:21:26.618Z
+updated: 2024-06-26T14:21:26.618Z
 tags:
   - facebook
 categories:
@@ -35,19 +35,19 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
  If it works, you've isolated the issue to only your computer. Try another browser to make sure that it's not an issue with your current one, and restart your computer to clear up any temporary issues.
 
- In case you can't open any websites on your network, see[how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
+ In case you can't open any websites on your network, see [how to troubleshoot your home internet connection](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) for help.
 
 ### 2\. Check an Outage Detector Website
 
- Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as[Downdetector](https://downdetector.com/) .
+ Once you've confirmed that your network connection is working properly, you should next check to see if other people have reported a problem accessing Facebook. There are plenty of websites to do this, such as [Downdetector](https://downdetector.com/) .
 
- On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open[Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
+ On this page, search for "Facebook" using the bar at the top of the page, or click its name from the list below to open [Downdetector's Facebook hub](https://downdetector.com/status/facebook/) . This includes a graph of how many people have reported issues accessing Facebook in the last 24 hours. Click**I have a problem with Facebook** to report your own issue.
 
 ![Facebook Downdetector](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Downdetector.png)
 
  If you see a spike in issues recently, chances are good that Facebook is down for everyone. Further down the page, you'll find a map of where people reported Facebook issues from, comments, and whether the issues are with the website, app, or server connections.
 
- For a second opinion, you can also check[Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
+ For a second opinion, you can also check [Down for Everyone or Just Me](https://downforeveryoneorjustme.com/) , which is accessible via the shorter URL**downfor.io** . Here, enter a URL and the site will check if it's down globally. This makes it easy to see if Facebook is down everywhere or there's just a problem in your area (or on your network).
 
 ![Down For Everyone Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Down-For-Everyone-Facebook.png)
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
  While Downdetector and similar sites are a reliable source for Facebook (and other) outages, it's a good idea to supplement what you find there with other data. Twitter is one of the best places to find up-to-the-minute information about pretty much anything, including website outages.
 
- Head to[Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at[Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
+ Head to [Twitter's search page](https://twitter.com/explore) and run a search for "Facebook down" or "Facebook outage." If Facebook is having an issue, you'll likely see loads of tweets complaining about it. You can also look at [Facebook's official Twitter profile](https://twitter.com/facebook) , which should post updates in the case of extended outages.
 
 ![Twitter Facebook Down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Facebook-Down.png)
 
@@ -87,7 +87,7 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
 ## Get Alerts When Facebook Goes Down in the Future
 
- If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like[DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
+ If you're a heavy Facebook user and want to know quickly next time it goes down, you can use a free service like [DownNotifier.com](https://www.downnotifier.com/) . Just enter**<www.facebook.com>** into its URL bar, along with your email address for notification, and choose**When the site is offline** .
 
 ![DownNotifier Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/DownNotifier-Facebook.png)
 
@@ -114,3 +114,26 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/should-you-use-facebook-to-log-into-other-apps-6-pros-and-cons/"><u>Should You Use Facebook to Log Into Other Apps? 6 Pros and Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-into-a-reflective-mirror-of-you/"><u>Transforming Facebook Into a Reflective Mirror of You</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-not-seen-status-on-chat-platforms/"><u>Decoding 'Not Seen' Status on Chat Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-fights-for-users-with-legal-suit-against-india/"><u>Tech Giant Fights for Users with Legal Suit Against India</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-what-counts-as-a-joke-on-fb/"><u>Clarifying What Counts as a Joke on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/sanctioned-resistance-fb-groups-defy-immunization-bans/"><u>Sanctioned Resistance: FB Groups Defy Immunization Bans</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-john-doe-to-jane-smith-mastering-the-facebook-renaming-journey/"><u>From John Doe to Jane Smith: Mastering the Facebook Renaming Journey</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-the-compreenas-for-effective-screenshares-on-zoom/"><u>In 2024, The Compreenas for Effective Screenshares on Zoom</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-advanced-method-for-combining-gopro-footage-with-full-spherical-vids/"><u>2024 Approved  Advanced Method for Combining GoPro Footage with Full Spherical Vids</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-duosync-advanced-auditory-coordination-toolkit-for-premiere-pro-professionals/"><u>2024 Approved DuoSync Advanced Auditory Coordination Toolkit for Premiere Pro Professionals</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-go-big-go-viral-channel-tiktok-trends-into-instagram-reels-for-2024/"><u>[New] Go Big, Go Viral  Channel TikTok Trends Into Instagram Reels for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flash-clip-content-wizard-for-2024/"><u>[New] Flash Clip Content Wizard for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-enhancing-mobile-audio-clarity-ranking-the-best-apps-to-improve-iphone-and-android-sound/"><u>2024 Approved Enhancing Mobile Audio Clarity Ranking the Best Apps to Improve iPhone & Android Sound</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-realme-v30t-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-lgs-new-tech-horizon-in-bp550/"><u>In 2024, Exploring LG's New Tech Horizon in BP550</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-20-youtube-playlists-bringing-you-the-beat/"><u>2024 Approved  Essential 20 YouTube Playlists Bringing You the Beat</u></a></li>
+</ul></div>

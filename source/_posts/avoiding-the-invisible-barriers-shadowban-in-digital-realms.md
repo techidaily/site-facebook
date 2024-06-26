@@ -1,7 +1,7 @@
 ---
 title: Avoiding the Invisible Barriers (Shadowban) in Digital Realms
-date: 2024-06-20 16:15:18
-updated: 2024-06-23 12:42:18
+date: 2024-06-25T14:34:16.725Z
+updated: 2024-06-26T14:34:16.725Z
 tags:
   - facebook
 categories:
@@ -51,9 +51,9 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
  Some users have claimed that X (formerly Twitter) had shadowbanned them. The claims began in 2016, with accusations that Twitter was shadowbanning people that supported the Republican Party in the US.
 
- However, the situation escalated in 2018, after[Vice News](https://news.vice.com/en%5Fus/article/43paqq/twitter-is-shadow-banning-prominent-republicans-like-the-rnc-chair-and-trump-jrs-spokesman) claimed that Twitter was shadowbanning prominent Republican politicians, which was soon followed by a tweet from the then-President of the US, Donald Trump.
+ However, the situation escalated in 2018, after [Vice News](https://news.vice.com/en%5Fus/article/43paqq/twitter-is-shadow-banning-prominent-republicans-like-the-rnc-chair-and-trump-jrs-spokesman) claimed that Twitter was shadowbanning prominent Republican politicians, which was soon followed by a tweet from the then-President of the US, Donald Trump.
 
- Twitter was quick to respond, and while Vice News said that Twitter had "fixed" the shadowbans, Twitter claimed in a[blog post](https://blog.twitter.com/official/en%5Fus/topics/company/2018/Setting-the-record-straight-on-shadow-banning.html) that they have never actually used the practice. The blog post said that Twitter instead used ranking, which ranked tweets from "bad-faith actors".
+ Twitter was quick to respond, and while Vice News said that Twitter had "fixed" the shadowbans, Twitter claimed in a [blog post](https://blog.twitter.com/official/en%5Fus/topics/company/2018/Setting-the-record-straight-on-shadow-banning.html) that they have never actually used the practice. The blog post said that Twitter instead used ranking, which ranked tweets from "bad-faith actors".
 
  Apparently, Twitter determines these according to several factors which have to do with the authenticity of the account, and how the one uses the account.
 
@@ -61,9 +61,9 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
 ### Shadowbanning on Instagram
 
- Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to[check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
+ Instagram has had more than its fair share of complaints from users about how their posts reach only a few of their followers. The shadowban claims began in 2017\. This happened after posts from some users stopped appearing for users that did not follow them, especially under the hashtag search. But there are now ways to [check if you have been shadowbanned on Instagram.](https://www.makeuseof.com/shadowbanned-instagram-how-to-check/)
 
- Instagram has addressed some of these claims on the[Instagram Help Center](https://help.instagram.com/613868662393739/?helpref=uf%5Fshare) . The company notes that content that is offensive or sensitive may be limited from the Explore page or Suggestions, and users will still see content from all accounts they follow.
+ Instagram has addressed some of these claims on the [Instagram Help Center](https://help.instagram.com/613868662393739/?helpref=uf%5Fshare) . The company notes that content that is offensive or sensitive may be limited from the Explore page or Suggestions, and users will still see content from all accounts they follow.
 
  However, this did not convince everyone. If you follow some smaller accounts on Instagram with a few thousand followers, you might have seen them complain about low reach all of a sudden.
 
@@ -79,11 +79,9 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
 
  Zuckerberg re-emphasized this point in a Joe Rogan podcast in 2022, saying that Facebook only limits posts that are proven to be false or engage in harmful content that is against the community guidelines. But, it makes mistakes.
 
- Zuckerberg has assured users that they are constantly working on the flaws. You can also simply[get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
+ Zuckerberg has assured users that they are constantly working on the flaws. You can also simply [get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
 
-### Shadowbanning on TikTok
-
-![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
+### Shadowbanning on TikTok ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
 
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
@@ -118,3 +116,27 @@ thumbnail: https://thmb.techidaily.com/edd57a156bbf7df4d7711f42029b2540d33e03363
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-three-step-roadmap-to-efficiently-tag-friends-on-facebook/"><u>The Three-Step Roadmap to Efficiently Tag Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-reels-on-facebook/"><u>How to Create Reels on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-refreshing-your-facebook-visual-representation/"><u>Swiftly Refreshing Your Facebook Visual Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-removing-facial-identification-risk-facebook-users-security/"><u>Will Removing Facial Identification Risk Facebook Users' Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-video-annoyance-solutions-to-get-them-playing/"><u>Facebook Video Annoyance: Solutions to Get Them Playing</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-erasing-your-fb-watch-history/"><u>Understanding & Erasing Your FB Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-privacy-predicament-pinpointing-the-9-suspicious-social-behaviors/"><u>Online Privacy Predicament: Pinpointing the 9 Suspicious Social Behaviors</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-fb-presence-with-the-right-choice-of-photo/"><u>Transform Your FB Presence with the Right Choice of Photo</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-infinix-note-30-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/simplified-guide-instant-deletion-methods-for-youtube-discussions-for-2024/"><u>Simplified Guide  Instant Deletion Methods for Youtube Discussions for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-no-budget-no-problem-16-free-and-easy-to-use-video-editing-tools/"><u>2024 Approved No Budget, No Problem 16 Free and Easy-to-Use Video Editing Tools</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-v30-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo V30 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-lava-agni-2-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Lava Agni 2 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unleashing-creativity-in-drone-video-post-production/"><u>In 2024, Unleashing Creativity in Drone Video Post-Production</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-infinix-smart-8-hd-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Infinix Smart 8 HD Phone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-complete-process-for-exporting-audio-from-audacity-to-mp3-format/"><u>Updated The Complete Process for Exporting Audio From Audacity to MP3 Format</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/mkv-video-trimming-made-easy-best-mac-apps-2023/"><u>MKV Video Trimming Made Easy Best Mac Apps 2023</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-in-depth-analysis-of-sound-purification-with-adobe-audition-tools/"><u>In 2024, In-Depth Analysis of Sound Purification with Adobe Audition Tools</u></a></li>
+</ul></div>

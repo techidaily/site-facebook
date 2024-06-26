@@ -1,7 +1,7 @@
 ---
 title: Exploring Changes in Facebook's Content Organization
-date: 2024-06-21 16:19:19
-updated: 2024-06-23 10:20:20
+date: 2024-06-25T13:56:26.295Z
+updated: 2024-06-26T13:56:26.295Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
 
 ## Facebook Splits Feed Into Two Tabs
 
- In this[Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
+ In this [Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
 
 > One of the most requested features for Facebook is to make sure people don't miss friends' posts. So today we're launching a Feeds tab where you can see posts from your friends, groups, Pages and more separately in chronological order. The app will still open to a personalized feed on the Home tab, where our discovery engine will recommend the content we think you'll care most about. But the Feeds tab will give you a way to customize and control your experience further.
 
@@ -49,19 +49,17 @@ There are at least two major reasons why this has happened.
 
  The**Feeds** tab will do this by exclusively showing you content that you have subscribed to in chronological order. You can customize this content further by creating a favorites list.
 
- According to a[Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and[personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
+ According to a [Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and [personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
-### Fight Back Against TikTok
+### Fight Back Against TikTok ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
 
-![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
-
- According to[The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
+ According to [The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
 
  Meta is undoubtedly aware of TikTok's incredible growth. Since Meta cannot buy TikTok, it will do the next best thing: copy TikTok.
 
  Thus, the**Home** tab will push content to you from across Facebook based on what the algorithm thinks you are interested in, just like TikTok's**For You** page does.
 
- After[finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
+ After [finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
 
 ## Meta Will Continue to Innovate, With a Close Eye on TikTok
 
@@ -86,3 +84,27 @@ There are at least two major reasons why this has happened.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/to-socialize-all-your-accounts-assessing-the-benefits-and-potential-vulnerabilities-of-facebook-login/"><u>To Socialize All Your Accounts: Assessing the Benefits and Potential Vulnerabilities of Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-altered-connotations-on-facebook-pages/"><u>Demystifying the Altered Connotations on Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-elite-vs-the-titans-of-twitter-blue-and-meta-gold/"><u>Identity Elite: Vs. The Titans of Twitter Blue & Meta Gold</u></a></li>
+<li><a href="https://facebook.techidaily.com/mutual-growth-social-medias-7-societal-boosters/"><u>Mutual Growth: Social Media's 7 Societal Boosters</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-facebook-in-modern-work-environments/"><u>The Role of Facebook in Modern Work Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-in-the-virtual-realm-8-methods-to-connect/"><u>Social Synergy in the Virtual Realm: 8 Methods to Connect</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-amazon-lawsuit-against-facebook-group-admins/"><u>Dissecting the Amazon Lawsuit Against Facebook Group Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-video-subtitle-enhancement-essential-online-tools-explored/"><u>[Updated] Mastering Video Subtitle Enhancement  Essential Online Tools Explored</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-affinity-photo-demystified/"><u>In 2024, Affinity Photo Demystified</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-strategic-use-of-instagram-story-sections-for-brands/"><u>[New] In 2024, The Strategic Use of Instagram Story Sections for Brands</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamline-animated-subscribe-buttons-in-filmora-for-youtube-success/"><u>In 2024, Streamline Animated Subscribe Buttons in Filmora for YouTube Success</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-pros-guide-to-iphone-voice-memos-and-more/"><u>[New] The Pro's Guide to iPhone Voice Memos and More</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/navigating-the-monetization-maze-on-youtube/"><u>Navigating the Monetization Maze on Youtube</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-top-10-sound-extractors-to-extract-sound-from-video-2023/"><u>In 2024, Top 10 Sound Extractors to Extract Sound From Video 2023</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-atandt-iphone-14-with-3-methods-by-drfone-ios/"><u>How to Unlock AT&T iPhone 14 with 3 Methods</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pushing-boundaries-spotlight-on-top-6-digital-innovators-for-2024/"><u>Pushing Boundaries  Spotlight on Top 6 Digital Innovators for 2024</u></a></li>
+</ul></div>

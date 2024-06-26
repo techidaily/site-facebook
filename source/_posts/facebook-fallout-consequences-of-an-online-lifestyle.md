@@ -1,7 +1,7 @@
 ---
 title: "Facebook Fallout: Consequences of an Online Lifestyle"
-date: 2024-06-20 14:42:58
-updated: 2024-06-23 11:28:45
+date: 2024-06-25T13:55:29.255Z
+updated: 2024-06-26T13:55:29.255Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
 ## How Social Media Is Bad for You
 
- You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
+ You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While [social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly [positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
@@ -33,21 +33,19 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  So how do you use social media without causing yourself psychological distress? If you turn to the same research (and common sense), the recommended amount of time you should spend on social networks is around half an hour per day. As with many other potential ills in life, it's all about moderation.
 
- If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
+ If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-## 2\. Cyberbullying
-
-![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+## 2\. Cyberbullying ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
- Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
+ Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows [what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
 
  While social media makes it easier to meet new people and make friends, it also enables cruel people to tear into others with little effort. Perpetrators of bullying can use the anonymity that (some) social networks provide to gain people's trust and then terrorize them in front of their peers. For instance, they might create a fake profile and act friendly to a classmate, then later betray and embarrass them online.
 
  These online attacks often leave deep mental scars and even drive people to hurt themselves or take their own lives, in some cases. And as it turns out, cyberbullying doesn't just affect kids. Adults can become victims of online abuse, too. Since screens hide our faces, you can end up being a jerk on social media and other websites without even realizing it.
 
- Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
+ Learn [how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
 ## 3\. FOMO (Fear of Missing Out)
 
@@ -55,11 +53,9 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  FOMO is just what it sounds like: a form of anxiety that you get when you're scared of missing out on a positive experience that someone else is having. For example, you might constantly check your messages to see if anyone has invited you out, or focus on your Instagram feed all day to make sure that nobody is doing something cool without you. You may also see pictures of something fun that your friends were able to do, feeling left out that you couldn't go because you had another responsibility.
 
- This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
+ This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-## 4\. Unrealistic Expectations
-
-![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+## 4\. Unrealistic Expectations ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  But in reality, you have no way of knowing whether this is all a farce. While it looks great on the surface, that person could be in massive debt, on bad terms with their significant other, or desperate for Instagram likes as a form of validation.
 
- One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and[YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
+ One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and [YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
@@ -95,17 +91,15 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-## 7\. General Addiction
-
-![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+## 7\. General Addiction ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
 
- At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
+ At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of [the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
- Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
+ Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our [guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -128,3 +122,23 @@ thumbnail: https://thmb.techidaily.com/07fa8cadb13240ad4114bdffce36c4f17cee86cd9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-authenticity-on-meta-platforms/"><u>Social Authenticity on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-digital-misappropriation-of-intriguing-selfies/"><u>Halt Digital Misappropriation of Intriguing Selfies</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-senior-centric-digital-hubs/"><u>Superior Senior-Centric Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/escape-polarization-clean-your-social-media-space/"><u>Escape Polarization: Clean Your Social Media Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-to-the-9-signs-of-unauthorized-account-access/"><u>Alert to the 9 Signs of Unauthorized Account Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-the-full-power-of-facebook-with-these-crucial-configs/"><u>Unleash the Full Power of Facebook with These Crucial Configs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/finding-the-free-visual-trove-online/"><u>Finding the Free Visual Trove Online</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-hear-the-difference-explore-the-best-voice-changer-software-for-smartphones/"><u>[New] In 2024, Hear the Difference  Explore the Best Voice Changer Software for Smartphones</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-mastering-photo-dimensions-how-to-choose-the-right-aspect-ratio/"><u>Updated In 2024, Mastering Photo Dimensions How to Choose the Right Aspect Ratio</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-6s-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 6s</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-gt-5frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme GT 5FRP Lock</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-next-moment-examination-alternate-strategies/"><u>[New] Next Moment Examination  Alternate Strategies</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-digital-dialogue-preservation-guide/"><u>In 2024, Digital Dialogue Preservation Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-samsung-galaxy-a24-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Samsung Galaxy A24 Phone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-navigating-digital-discussions-with-ease-essential-advice-for-successful-zoom-meetings/"><u>2024 Approved  Navigating Digital Discussions with Ease  Essential Advice for Successful Zoom Meetings</u></a></li>
+</ul></div>

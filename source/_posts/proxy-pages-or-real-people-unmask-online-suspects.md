@@ -1,7 +1,7 @@
 ---
 title: Proxy Pages or Real People? Unmask Online Suspects
-date: 2024-06-20 19:30:21
-updated: 2024-06-23 12:13:53
+date: 2024-06-25T13:57:12.625Z
+updated: 2024-06-26T13:57:12.625Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/d50bbc29912cb43ec93cd3720edb01228fbd6306e
 
  Sometimes, people simply steal what they find or like. A lot of fake (or bot) accounts use celebrity shots or stock photos. But some users take a more personal route, finding it more advantageous to steal photos from the average Joe, making the impersonation less obvious.
 
- It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for[scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
+ It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for [scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
 
  There were cases where the impersonation victims knew their perpetrators. The offenders had a personal vendetta against the victim, so they made a fake account. These accounts are often more convincing as the impersonator may have access to sensitive information about family, friends, and demographics that make the profiles much more believable.
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/d50bbc29912cb43ec93cd3720edb01228fbd6306e
 
 ![instructions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instructions-1.png)
 
- Social media administrators rightly take this seriously. Even[Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
+ Social media administrators rightly take this seriously. Even [Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
 
  Fortunately, removing fake profiles can be a relatively simple process.
 
@@ -100,3 +100,27 @@ thumbnail: https://thmb.techidaily.com/d50bbc29912cb43ec93cd3720edb01228fbd6306e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/deciphering-photodna-an-overview-of-its-functioning/"><u>Deciphering PhotoDNA: An Overview of Its Functioning</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-prestige-exclusive-badge-from-meta/"><u>Achieve Prestige: Exclusive Badge From Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-message-memorable-stylized-text-in-chats/"><u>Making Your Message Memorable: Stylized Text in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-implementation-of-facebooks-mtfc-mechanism/"><u>Stepwise Implementation of Facebook's MTFC Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-see-a-surge-in-crypto-commercials/"><u>Social Media to See a Surge in Crypto Commercials</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-targeted-fb-ad-sightings/"><u>Explanation for Targeted FB Ad Sightings?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-event-creation-on-facebook-with-ease/"><u>Navigating Event Creation on Facebook with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-quiet-social-media-interaction-minimization/"><u>Keep It Quiet: Social Media Interaction Minimization</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-six-innovative-full-frame-cinematographers/"><u>Leading Six Innovative Full Frame Cinematographers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhance-video-subtitles-with-these-essential-online-resources-and-apps/"><u>Enhance Video Subtitles with These Essential Online Resources & Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-art-of-visual-excellence-leveraging-enhancer-22/"><u>[New] The Art of Visual Excellence - Leveraging Enhancer 2.2</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/uncomplicated-pc-record-functionality-for-2024/"><u>Uncomplicated PC Record Functionality for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-comprehensive-analysis-of-frozen-treat-screen-capture/"><u>[New] Comprehensive Analysis of Frozen Treat Screen Capture</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-mobile-mastery-the-best-gb-emulation-apps-for-2024/"><u>[New] Mobile Mastery  The Best GB Emulation Apps for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-enhance-content-categorization-top-picks-for-the-7-cheapest-youtube-taggification-apps/"><u>[Updated] Enhance Content Categorization  Top Picks for the 7 Cheapest Youtube Taggification Apps</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-a-guide-to-incorporating-dramatic-audio-elements-into-cinematic-musical-designs/"><u>New 2024 Approved A Guide to Incorporating Dramatic Audio Elements Into Cinematic Musical Designs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-14-plus-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a38-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Oppo A38 Phone Pattern Lock without Factory Reset</u></a></li>
+</ul></div>

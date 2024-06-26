@@ -1,7 +1,7 @@
 ---
 title: "Revised Tips: Youngsters Advised Against Insta Use"
-date: 2024-06-20 20:16:57
-updated: 2024-06-23 11:28:42
+date: 2024-06-25T14:22:34.455Z
+updated: 2024-06-26T14:22:34.455Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,27 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/collective-charisma-cultivating-a-thriving-online-band/"><u>Collective Charisma: Cultivating a Thriving Online Band</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-friday-fbs-enhanced-online-retail-hours/"><u>New Friday: FB's Enhanced Online Retail Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-a-case-study/"><u>Unplugging From Social Media: A Case Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-minimizing-facebooks-annoying-targeted-ads/"><u>The Ultimate Guide to Minimizing Facebook's Annoying Targeted Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-4-revolutionary-shifts-in-social-networking/"><u>The Impact: 4 Revolutionary Shifts in Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-innovation-facebook-and-its-stealthy-smartwatch/"><u>Whispers of Innovation: Facebook and Its Stealthy Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-captivating-fb-backgrounds/"><u>Unveiling the Secrets to Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-base-resists-app-tracking/"><u>IPhone User Base Resists App Tracking</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-realme-narzo-60-pro-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Realme Narzo 60 Pro 5G Phone Screen?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-the-ultimate-cheat-sheet-to-creating-captivating-slow-motion-on-tiktok/"><u>In 2024, The Ultimate Cheat Sheet to Creating Captivating Slow Motion on TikTok</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-nuances-in-physical-gesture-detection/"><u>2024 Approved  Exploring the Nuances in Physical Gesture Detection</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-essential-knowledge-for-saving-app-activity/"><u>In 2024, Essential Knowledge for Saving App Activity</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-evaluating-screen-recording-software-obs-vs-bandicam/"><u>[Updated] Evaluating Screen Recording Software  OBS vs Bandicam</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-use-vlc-for-easy-webcam-footage-save/"><u>[Updated] In 2024, Use VLC for Easy Webcam Footage Save</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-understanding-and-utilizing-facebooks-live-feature-a-complete-overview/"><u>2024 Approved  Understanding and Utilizing Facebook's Live Feature  A Complete Overview</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-oppo-reno-11f-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Oppo Reno 11F 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-deciphering-how-t-series-earns-via-youtube/"><u>In 2024, Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-deleted-iphone-se-2020-whatsapp-attachments-on-mac-and-windows-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Recover Deleted iPhone SE (2020) WhatsApp Attachments on Mac and Windows | Stellar</u></a></li>
+</ul></div>

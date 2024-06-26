@@ -1,7 +1,7 @@
 ---
 title: "Concealing Your Images, Simplified: FB Guide"
-date: 2024-06-22 13:21:33
-updated: 2024-06-23 12:28:50
+date: 2024-06-25T14:30:28.441Z
+updated: 2024-06-26T14:30:28.441Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/4a2496ce821a6c52eaf0cfecea597eea88a887661
 
  You can change the privacy of an entire album on Facebook to save time, rather than needing to make photos private one by one.
 
- However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can[untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
+ However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can [untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
 
  To make a photo album private on Facebook's Android or iOS app, follow these steps:
 
@@ -119,7 +119,7 @@ Close
 
 * Select**Only me** and click**Done** to save your changes.
 
- You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
+ You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid [the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
 
 ## Who Can See My Photos on Facebook? How to Check
 
@@ -131,7 +131,7 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
- This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
+ This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
@@ -155,7 +155,7 @@ Close
 
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
- Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
+ Having a [Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can [make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -178,3 +178,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/apples-focus-on-innovation-over-metaverse-entry/"><u>Apple's Focus on Innovation Over Metaverse Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-weekend-with-fbs-live-purchasing-hours/"><u>Enhance Your Weekend with FB's Live Purchasing Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-securing-your-facebook-pics/"><u>Strategies for Securing Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-personalized-link-blueprint-eclipses-standard-apple-services/"><u>Facebook’s Personalized Link Blueprint Eclipses Standard Apple Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-new-facebook-structure-revelations/"><u>Understanding New Facebook Structure Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day!</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-pixels-assembling-images-into-a-facebook-collection/"><u>Personalizing Pixels: Assembling Images Into a Facebook Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-brands-social-influence-more-likes-and-shares/"><u>Boosting Your Brand's Social Influence: More Likes and Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-protocol-for-reactivating-deactivated-fb-id/"><u>Essential Protocol for Reactivating Deactivated FB ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-power-uncertainty-looms-over-social-media-ruling-timing/"><u>Panel of Power: Uncertainty Looms Over Social Media Ruling Timing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-picsart-the-ultimate-2024-guide/"><u>[New] Exploring PicsArt  The Ultimate 2024 Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/free-end-credits-excellence-top-6-tutorials/"><u>Free End Credits Excellence  Top 6 Tutorials</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-streamlining-sound-rate-controls-a-guide-to-faster-tempo-tweaks/"><u>2024 Approved Streamlining Sound Rate Controls A Guide to Faster Tempo Tweaks</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/mastering-sound-quality-eliminating-unwanted-audio-from-recording-spaces/"><u>Mastering Sound Quality Eliminating Unwanted Audio From Recording Spaces</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-video-to-mp3-how-to-download-instagram-audio-content/"><u>New From Video to MP3 How to Download Instagram Audio Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-restored-full-screen-in-obs/"><u>[New] 2024 Approved  Restored  Full Screen in OBS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-iphone-12-mini-icloud-activation-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing iPhone 12 mini iCloud Activation Lock</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-everything-that-you-need-to-know-about-video-montages-ideas-techniques-and-software/"><u>New In 2024, Everything That You Need to Know About Video Montages- Ideas, Techniques, and Software</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oneplus-open-device-sim-by-drfone-android/"><u>Easily Unlock Your OnePlus Open Device SIM</u></a></li>
+</ul></div>

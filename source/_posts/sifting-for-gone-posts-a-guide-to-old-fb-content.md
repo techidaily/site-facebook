@@ -1,7 +1,7 @@
 ---
 title: "Sifting for Gone Posts: A Guide to Old FB Content"
-date: 2024-06-20 22:59:38
-updated: 2024-06-23 12:59:23
+date: 2024-06-25T14:34:49.410Z
+updated: 2024-06-26T14:34:49.410Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,23 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/preventive-practices-at-play-how-meta-halt-intimate-photo-sharing/"><u>Preventive Practices at Play: How Meta Halt Intimate Photo Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-hidden-organizational-diagram/"><u>Discovering Facebook's Hidden Organizational Diagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/hold-your-breath-for-oculus-quest-iii-schedule-change/"><u>Hold Your Breath for Oculus Quest III Schedule Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-more-influence-in-minutes-join-a-facebook-group/"><u>Gain More Influence in Minutes: Join a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disclaimer-know-what-to-share-what-not-to-on-social/"><u>Digital Disclaimer: Know What to Share, What Not to on Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-privacy-illusions-online/"><u>Navigating Through Privacy Illusions Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-step-into-the-future-our-curated-list-of-the-top-9-next-gen-ai-voice-systems-to-revolutionize-your-2023-experience/"><u>In 2024, Step Into the Future Our Curated List of the Top 9 Next-Gen AI Voice Systems to Revolutionize Your 2023 Experience</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-seamless-social-setup-from-desktops-to-phones/"><u>[New] 2024 Approved  Seamless Social Setup  From Desktops to Phones</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-perfect-photos-at-a-click-top-captioning-software/"><u>2024 Approved  Perfect Photos at a Click  Top Captioning Software</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-how-to-for-harnessing-hd-video-from-facebook-feeds/"><u>[Updated] 2024 Approved  The How-To for Harnessing HD Video From Facebook Feeds</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/get-1k-followers-every-month-on-instagram-for-2024/"><u>Get 1K Followers Every Month on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-360-fb-live-broadcasts-for-2024/"><u>Mastering 360 FB Live Broadcasts for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-crafting-quality-content-image-submission-for-youtubers/"><u>2024 Approved  Crafting Quality Content  Image Submission for YouTubers</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/the-5-highest-rated-audio-mixers-suited-to-mac-systems/"><u>The 5 Highest-Rated Audio Mixers Suited to Mac Systems</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-fb-video-content-sharing-from-windows-pc-ios-android/"><u>In 2024, Unlocking FB Video Content Sharing From Windows PC, iOS, Android</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Keep Your FB Profile Private, Strangers' Not
-date: 2024-06-22 18:31:14
-updated: 2024-06-23 11:17:44
+date: 2024-06-25T14:20:40.909Z
+updated: 2024-06-26T14:20:40.909Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff4
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff4
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff4
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,27 @@ thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/spotify-playback-techniques-in-social-media-apps/"><u>Spotify Playback Techniques in Social Media Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-securityfacebookmailcom-as-fbs-safety-mail/"><u>Confirming the Authenticity of @security@facebookmail.com as FB's Safety Mail</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-content-consumption-for-focused-productivity/"><u>Curbing Content Consumption for Focused Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-optimal-social-media-imagery/"><u>Unveiling Secrets to Optimal Social Media Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendly-fun-in-the-digital-age-staying-positive/"><u>Friendly Fun in the Digital Age: Staying Positive</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-dominance-saturated-with-facebook/"><u>Is Social Media Dominance Saturated with Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-on-user-privacy-online/"><u>Assault on User Privacy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-the-scales-unpacking-crypto-stability-coins/"><u>Balancing the Scales: Unpacking Crypto Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-cyber-sleuth-unmasking-the-top-14-facebook-scams/"><u>Be a Cyber Sleuth: Unmasking the Top 14 Facebook Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-deals-avoiding-phony-propositions-on-fb-marketplace/"><u>Unmasking Fake Deals: Avoiding Phony Propositions on FB Marketplace</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-itel-p55t-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Itel P55T Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sony-a6400-fixing-the-invisible-video-playback/"><u>2024 Approved  Sony A6400  Fixing the Invisible Video Playback</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revolutionize-your-online-presence-with-these-eight-strategies/"><u>Revolutionize Your Online Presence with These Eight Strategies</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-locating-high-quality-fart-noise-generators-for-sound-design/"><u>2024 Approved Locating High-Quality Fart Noise Generators for Sound Design</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-soothing-20-country-songs-your-guide-to-serene-dancing-on-tiktok/"><u>[New] Soothing 20 Country Songs  Your Guide to Serene Dancing on TikTok</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-complete-process-of-logging-google-meet-chats-for-2024/"><u>[Updated] The Complete Process of Logging Google Meet Chats for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-make-a-lasting-impression-top-trailer-creation-tools/"><u>Updated In 2024, Make a Lasting Impression Top Trailer Creation Tools</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-essentials-unleashed-8-products-that-are-changing-the-business-landscape/"><u>[New] In 2024, Essentials Unleashed  8 Products That Are Changing the Business Landscape</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-selected-best-5-youtube-script-writing-ai-customized-for-you/"><u>2024 Approved Selected Best 5 YouTube Script Writing AI Customized for You</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/master-your-tiktok-income-leading-money-calculators-for-2024/"><u>Master Your TikTok Income  Leading Money Calculators for 2024</u></a></li>
+</ul></div>

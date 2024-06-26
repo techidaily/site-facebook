@@ -1,7 +1,7 @@
 ---
 title: Navigating Page Administration - Selecting Admins
-date: 2024-06-21 16:24:56
-updated: 2024-06-23 11:18:13
+date: 2024-06-25T14:00:35.937Z
+updated: 2024-06-26T14:00:35.937Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ You actually have five roles to choose from on a Facebook page:
 
 ### 3\. Click on Page Roles
 
- The**Page roles** tab is all about assembling your team. If you want to know exactly what each role can access, read[Facebook’s](https://www.facebook.com/help/289207354498410) [guide](http://www.facebook.com/help/289207354498410) carefully before making any decisive moves.
+ The**Page roles** tab is all about assembling your team. If you want to know exactly what each role can access, read [Facebook’s](https://www.facebook.com/help/289207354498410) [guide](http://www.facebook.com/help/289207354498410) carefully before making any decisive moves.
 
  When you’re sure you want a new admin for your Facebook page and you have someone ready for the role, go to the**Assign a new Page role** section.
 
@@ -126,3 +126,27 @@ The app usually asks for your password to reach the final steps.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tenfold-tips-for-taming-the-textual-territories/"><u>Tenfold Tips for Taming the Textual Territories</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-creativity-a-step-by-step-to-using-soundmojis-on-fb/"><u>Unlocking Creativity: A Step-by-Step to Using Soundmojis on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-secure-online-transactions-at-fb-marketplace/"><u>Your Guide to Secure Online Transactions at FB Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-brands-social-influence-more-likes-and-shares/"><u>Boosting Your Brand's Social Influence: More Likes and Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-facebook-privacy-tips-7-ways-to-enhance-security/"><u>Top Facebook Privacy Tips: 7 Ways to Enhance Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-hearts-online-facebooks-pioneering-dating-innovations/"><u>Connecting Hearts Online: Facebook’s Pioneering Dating Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/accrue-badges-by-purchasing-meta-verification/"><u>Accrue Badges by Purchasing Meta Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanded-social-footprint-distribute-instagram-reels-to-facebook-network/"><u>Expanded Social Footprint: Distribute Instagram Reels to Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-print-of-chat-formatting-highlights-and-caps/"><u>The Fine Print of Chat Formatting: Highlights & Caps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-leveraging-social-influence-a-guide-to-biz-success-on-snap/"><u>[Updated] In 2024, Leveraging Social Influence  A Guide to Biz Success on Snap</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-audiotrack-evaluation/"><u>In 2024, AudioTrack Evaluation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-integrated-marketing-campaigns-for-brand-and-video-platforms/"><u>[New] Integrated Marketing Campaigns for Brand and Video Platforms</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-conversion-made-simple-youtube-to-mp3-mac-edition-for-2024/"><u>Audio Conversion Made Simple  YouTube to MP3, Mac Edition for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-how-to-add-musicaudio-to-a-gif-on-mac/"><u>New In 2024, How to Add Music/Audio to a GIF on Mac?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elevating-youtube-performance-consistency-in-cc-usage/"><u>[Updated] 2024 Approved  Elevating YouTube Performance  Consistency in CC Usage</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/amass-1000-supporters-for-your-channel/"><u>Amass 1,000 Supporters for Your Channel</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-tecno-spark-10c-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713942812323-best-8-online-gif-to-apng-converters-for-2024/"><u>Best 8 Online GIF to APNG Converters for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-ultimate-stop-motion-animation-guide-software-options-and-tutorials/"><u>Updated In 2024, Ultimate Stop Motion Animation Guide Software Options and Tutorials</u></a></li>
+</ul></div>

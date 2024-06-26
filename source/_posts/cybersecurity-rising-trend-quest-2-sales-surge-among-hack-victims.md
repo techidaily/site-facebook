@@ -1,7 +1,7 @@
 ---
 title: Cybersecurity Rising Trend - Quest 2 Sales Surge Among Hack Victims
-date: 2024-06-20 21:54:18
-updated: 2024-06-23 10:30:34
+date: 2024-06-25T13:46:04.146Z
+updated: 2024-06-26T13:46:04.146Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/7cdccda0c1b455cde02be352d145a5b4b55f977ca
 
 ## Does Buying an Oculus Rift Restore Your Facebook Account?
 
- According to an[NPR report](https://www.npr.org/2021/08/02/1023801277/your-facebook-account-was-hacked-getting-help-may-take-weeks-or-299?t=1627998422775) , it can take weeks for a hacked Facebook account to return to the rightful owner, such is the volume facing the Facebook security and accounts teams.
+ According to an [NPR report](https://www.npr.org/2021/08/02/1023801277/your-facebook-account-was-hacked-getting-help-may-take-weeks-or-299?t=1627998422775) , it can take weeks for a hacked Facebook account to return to the rightful owner, such is the volume facing the Facebook security and accounts teams.
 
  One canny user spotted an opportunity to dodge the line and followed a tip found on Reddit. The tip suggested purchasing a new Oculus Quest 2\. As Facebook owns Oculus and you need a working Facebook account to use the VR headset, surely Facebook would oblige and get your account back into your hands, right?
 
@@ -33,7 +33,7 @@ Surprisingly, it worked.
 
 ## Is Facebook Support Really That Bad?
 
- According to the people purchasing a $300 VR headset, yes, Facebook support is awful, and that's without getting into[Facebook's privacy issues](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/) .
+ According to the people purchasing a $300 VR headset, yes, Facebook support is awful, and that's without getting into [Facebook's privacy issues](https://www.makeuseof.com/should-you-trust-facebook-with-oculus-quest-2-privacy/) .
 
  As with most major tech companies (nay, most major companies in any sector), Facebook makes it almost impossible to contact. If you want to talk to a real person, you're straight out of luck.
 
@@ -62,3 +62,22 @@ Surprisingly, it worked.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-faces-accusation-over-promotional-integrity/"><u>Facebook Faces Accusation Over Promotional Integrity</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-perfection-designing-a-tailored-cover-photo-that-celebrates-you-and-your-avatar/"><u>Profile Perfection: Designing a Tailored Cover Photo that Celebrates You and Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-for-your-facebook-image-overhaul/"><u>Strategic Planning for Your Facebook Image Overhaul</u></a></li>
+<li><a href="https://facebook.techidaily.com/freeing-up-from-facebooks-pervasive-tracking/"><u>Freeing Up From Facebook's Pervasive Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-your-facebook-account-when-you-cant-log-in/"><u>How to Recover Your Facebook Account When You Can't Log In</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-rescheduled-introduction-of-user-agreement-changes/"><u>WhatsApp's Rescheduled Introduction of User Agreement Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-techniques-for-capturing-and-transferring-fb-media/"><u>Efficient Techniques for Capturing and Transferring FB Media</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-audio-treasures-for-video-crafting/"><u>[Updated] Ultimate Audio Treasures for Video Crafting</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-a-novices-approach-to-acquiring-picture-frames/"><u>[New] A Novice's Approach to Acquiring Picture Frames</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-proven-methods-for-assessing-youtube-channel-profitability/"><u>[Updated] Proven Methods for Assessing YouTube Channel Profitability</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-the-ultimate-guide-to-hand-drawing-whiteboard-animation-software/"><u>Updated 2024 Approved The Ultimate Guide to Hand Drawing Whiteboard Animation Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expertly-alter-imagesvideo-with-mobile-3dluts/"><u>[New] Expertly Alter Images/Video with Mobile 3DLUTs</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-amplify-your-youtube-audience-three-livestream-strategies/"><u>[Updated] Amplify Your YouTube Audience  Three Livestream Strategies</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-the-ultimate-list-10-vegas-pro-alternatives-for-mac-users-free-paid-and-everything-in-between/"><u>New 2024 Approved The Ultimate List 10 Vegas Pro Alternatives for Mac Users (Free, Paid, and Everything in Between)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-leading-gopro-filmmaking-platforms/"><u>[New] Leading GoPro Filmmaking Platforms</u></a></li>
+</ul></div>

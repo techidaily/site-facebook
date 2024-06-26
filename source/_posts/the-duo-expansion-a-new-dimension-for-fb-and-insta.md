@@ -1,7 +1,7 @@
 ---
 title: "The Duo Expansion: A New Dimension for FB and Insta"
-date: 2024-06-20 10:52:32
-updated: 2024-06-23 10:40:21
+date: 2024-06-25T14:39:35.612Z
+updated: 2024-06-26T14:39:35.612Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/053654aac9195ea45d1f77852c408a3b2770cc6c8
 
 ## Meta Tests New Cross-Platform Account Center Features
 
- Meta announced the test of the new Accounts Center features in a[post on the Meta Newsroom](https://about.fb.com/news/2022/09/accounts-center-facebook-and-instagram/) . The new features will allow you to receive your notifications for Facebook and Instagram in one place, as well as create and link existing accounts.
+ Meta announced the test of the new Accounts Center features in a [post on the Meta Newsroom](https://about.fb.com/news/2022/09/accounts-center-facebook-and-instagram/) . The new features will allow you to receive your notifications for Facebook and Instagram in one place, as well as create and link existing accounts.
 
  The new features are being tested globally on the iOS and Android apps, as well as the web version of the Accounts Center platform. The center is accessible through both the Instagram and Facebook apps, in your account settings menus.
 
@@ -33,7 +33,7 @@ Meta notes:
 
 > Each of these new features uses the Meta brand to make it clear and easy to understand that you are interacting with a feature that works across more than one Meta technology, and to make the process as streamlined as possible.
 
- If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
+ If you want to [make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
 
 ## Accounts Center May Expand to More Apps
 
@@ -62,3 +62,26 @@ Meta notes:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/exploring-virtual-societal-divisions-with-facebook/"><u>Exploring Virtual Societal Divisions with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-illusion-fake-account-detection/"><u>Online Illusion: Fake Account Detection</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-interests-secret-fb-and-insta-like-hiding/"><u>Keeping Your Interests Secret: FB & Insta Like Hiding</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-people-you-may-know-notifications/"><u>Reject 'People You May Know' Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fails-an-exploration-of-22/"><u>The Biggest Tech Fails: An Exploration of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filters-shifting-understanding-fbctas-role/"><u>The Filters Shifting: Understanding FBCTA's Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-online-reputation-the-best-free-tools-for-social-management/"><u>Boost Your Online Reputation - The Best FREE Tools for Social Management</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-samsung-galaxy-a34-5g-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Samsung Galaxy A34 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-enrich-your-viewing-habit-with-essential-movie-channels/"><u>[New] 2024 Approved  Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-10-for-mac-gif-capturing-expert-reviews-for-2024/"><u>Top 10 for Mac GIF Capturing  Expert Reviews for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-imovie-for-windows-10-no-here-are-the-top-alternatives-for-2024/"><u>New IMovie for Windows 10? No! Here Are the Top Alternatives for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-from-disruption-to-deliberation-repairing-the-fidelity-of-frequencies-for-2024/"><u>New From Disruption to Deliberation Repairing the Fidelity of Frequencies for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-unlock-your-creative-flow-sharing-hundreds-of-photos-and-vids-on-ig/"><u>[Updated] In 2024, Unlock Your Creative Flow  Sharing Hundreds of Photos and Vids on IG</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-creating-revenue-streams-on-snapchat/"><u>[Updated] 2024 Approved  Creating Revenue Streams on Snapchat</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-6-top-online-mp4-croppers/"><u>In 2024, 6 Top Online MP4 Croppers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-motorola-g54-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Motorola G54 5G</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/cut-expenses-create-wow-download-high-quality-templates-for-videos-for-2024/"><u>Cut Expenses, Create Wow - Download High-Quality Templates for Videos for 2024</u></a></li>
+</ul></div>

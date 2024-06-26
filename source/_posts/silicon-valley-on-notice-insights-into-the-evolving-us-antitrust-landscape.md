@@ -1,7 +1,7 @@
 ---
 title: "Silicon Valley on Notice: Insights Into the Evolving U.S. Antitrust Landscape"
-date: 2024-06-21 11:26:27
-updated: 2024-06-23 11:30:40
+date: 2024-06-25T13:53:55.058Z
+updated: 2024-06-26T13:53:55.058Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/7d51f3f0aee270ec2782becb99c1a414abb8cba30
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,27 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-forecast-of-social-media-turmoil-fb-edition/"><u>The Forecast of Social Media Turmoil: FB Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-releases-ray-bans-stories-delving-into-usability-and-cost/"><u>Facebook Releases Ray-Bans Stories - Delving Into Usability and Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-facebook-presence-picture/"><u>Customizing Your Facebook Presence Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-operation-and-purpose-of-photodna-algorithm/"><u>The Operation and Purpose of PhotoDNA Algorithm</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-facebook-with-this-simple-reset-guide/"><u>Unlock Facebook With This Simple Reset Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-customizable-url-pairings-on-facebook/"><u>Enhancing Interaction with Customizable URL Pairings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-marketplace-unveiled-facebooks-new-friday-venture/"><u>Virtual Marketplace Unveiled: Facebook's New Friday Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-content-how-to-disable-auto-feed-suggestions/"><u>Unseen Content: How to Disable Auto-Feed Suggestions</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-tiktok-to-instagram-stardom-replicating-popular-reel-techniques/"><u>From TikTok to Instagram Stardom  Replicating Popular Reel Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-harnessing-adobe-curves-to-shape-your-images/"><u>2024 Approved  Harnessing Adobe Curves to Shape Your Images</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-techniques-for-separating-beats-in-song-arrangements/"><u>New In 2024, Techniques for Separating Beats in Song Arrangements</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-which-software-is-best-for-video-stabilization-without-any-cost-in-this-article-i-will-share-some-of-the-best-free-software-for-stabilizing-videos-after/"><u>New Which Software Is Best for Video Stabilization without Any Cost? In This Article, I Will Share some of the Best Free Software for Stabilizing Videos After Recording on Windows and Mac Computers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-sports-channel-via-macos-step-by-step-guide/"><u>2024 Approved  Building a Sports Channel via macOS  Step by Step Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-repeat-repeat-repeat-10-best-free-video-looping-services/"><u>New Repeat, Repeat, Repeat 10 Best Free Video Looping Services</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-change-gps-location-on-vivo-v29-pro-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Vivo V29 Pro Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-secureyourcam-top-10-reviews-for-protected-shopping/"><u>[New] In 2024, SecureYourCam  Top 10 Reviews for Protected Shopping</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-google-chats-mastery-key-elements-4-ways-for-2024/"><u>[New] Google Chats Mastery  Key Elements, #4 Ways for 2024</u></a></li>
+</ul></div>

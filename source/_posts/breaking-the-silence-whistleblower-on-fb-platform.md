@@ -1,7 +1,7 @@
 ---
 title: "Breaking the Silence: Whistleblower on FB Platform"
-date: 2024-06-22 20:47:58
-updated: 2024-06-23 10:30:56
+date: 2024-06-25T14:41:48.168Z
+updated: 2024-06-26T14:41:48.168Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
 
 ## Breaking the Silence: Whistleblower on FB Platform
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,27 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/schedule-resilience-with-helpful-facebook-reminder-features/"><u>Schedule Resilience with Helpful Facebook Reminder Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-whistleblowers-guide-to-understanding-facebook-data/"><u>The Whistleblower's Guide to Understanding Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindfulness-in-motion-understanding-instagrams-break-initiative/"><u>Mindfulness in Motion: Understanding Instagram’s Break Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-account-with-instagrams-whatsapp-code-alerts/"><u>Secure Your Account with Instagram's WhatsApp Code Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-safety-with-2fa-for-email-platforms-like-gmail-and-outlook/"><u>Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-upcoming-us-antitrust-measures-against-major-tech-firms/"><u>Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-social-texting-new-features-for-fbs-messaging-apps/"><u>Reimagined Social Texting: New Features for FB's Messaging Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/elevate-your-broadcast-impact-with-these-5-tips-for-twitch-streamers/"><u>Elevate Your Broadcast Impact with These 5 Tips for Twitch Streamers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/vdq-quickscreen-recorder-report-in-depth-analysis-for-2024/"><u>VDQ QuickScreen Recorder Report  In-Depth Analysis for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-calming-chorus-proven-voices-aid-sleep-for-2024/"><u>The Calming Chorus  Proven Voices Aid Sleep for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-package-ppt-for-visual-storytelling/"><u>In 2024, Package PPT for Visual Storytelling</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-lava-blaze-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-strategic-dual-streaming-tactics-for-a-wider-viewership/"><u>[New] Strategic Dual Streaming Tactics for a Wider Viewership</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-precision-and-playfulness-building-high-quality-gifs/"><u>[Updated] Precision and Playfulness  Building High-Quality GIFs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unwanted-no-more-top-7-android-apps-to-eliminate-ads/"><u>[Updated] Unwanted No More! Top 7 Android Apps to Eliminate Ads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-epicurean-epiphanies-filming-feast-creation/"><u>[New] In 2024, Epicurean Epiphanies  Filming Feast Creation</u></a></li>
+</ul></div>

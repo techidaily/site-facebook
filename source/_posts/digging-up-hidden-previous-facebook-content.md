@@ -1,7 +1,7 @@
 ---
 title: Digging up Hidden Previous Facebook Content
-date: 2024-06-21 16:54:55
-updated: 2024-06-23 12:48:46
+date: 2024-06-25T14:31:29.971Z
+updated: 2024-06-26T14:31:29.971Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,26 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-invisible-lines-in-online-social-networks/"><u>Interpreting the Invisible Lines in Online Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-sharing-vacancies-via-facebook/"><u>Tips for Sharing Vacancies via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-revolutionizing-conversational-intelligence/"><u>MetaAI: Revolutionizing Conversational Intelligence</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-news-feed-a-hub-for-targeted-business-promotions/"><u>Facebook's Upcoming News Feed: A Hub for Targeted Business Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-diaries-redrawn-unpacking-the-four-core-platform-impacts/"><u>Digital Diaries Redrawn: Unpacking the Four Core Platform Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-breakdown-major-social-media-failure/"><u>Communication Breakdown: Major Social Media Failure</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-xiaomi-redmi-a2plus-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Xiaomi Redmi A2+ Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-y27s-phone-by-drfone-android/"><u>How to Reset a Locked Vivo Y27s Phone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-download-youtube-audio-in-minutes-a-beginners-guide/"><u>Updated Download YouTube Audio in Minutes A Beginners Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-record-like-a-pro-10-best-free-music-production-software/"><u>2024 Approved Record Like a Pro 10 Best Free Music Production Software</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-11-add-ons-for-the-dji-phantom-4-masterclass/"><u>Top 11 Add-Ons for the DJI Phantom 4 Masterclass</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-avoid-commonplace-channel-titles-finding-uniqueness-with-filmora-for-2024/"><u>[Updated] Avoid Commonplace Channel Titles  Finding Uniqueness with Filmora for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-finding-audio-tapes-with-real-glass-break-sounds/"><u>2024 Approved Finding Audio Tapes with Real Glass Break Sounds</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/diversify-earnings-multiplying-revenue-with-mobile-video-content-for-2024/"><u>Diversify Earnings  Multiplying Revenue with Mobile Video Content for 2024</u></a></li>
+</ul></div>

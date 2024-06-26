@@ -1,7 +1,7 @@
 ---
 title: Safeguarding Public Consciousness From Pandemic Myths Online
-date: 2024-06-22 16:42:14
-updated: 2024-06-23 12:51:38
+date: 2024-06-25T14:18:16.748Z
+updated: 2024-06-26T14:18:16.748Z
 tags:
   - facebook
 categories:
@@ -27,19 +27,17 @@ Here's what social media platforms can do to tackle the issue.
 
  This becomes easier when the public is not well-informed about COVID-19 and vaccines, and has a lack of trust in authoritative sources, such as the government, scientists and healthcare professionals.
 
- In June 2020, BBC News reported that social media companies were[not doing enough to curb the spread of false news](https://www.bbc.co.uk/news/technology-52903680) relating to COVID-19 and the COVID-19 vaccine.
+ In June 2020, BBC News reported that social media companies were [not doing enough to curb the spread of false news](https://www.bbc.co.uk/news/technology-52903680) relating to COVID-19 and the COVID-19 vaccine.
 
 [Facebook](https://about.fb.com/news/2021/02/reaching-billions-of-people-with-covid-19-vaccine-information/) has since released a statement claiming to take action against this by sharing and promoting authoritative information about COVID-19 vaccines, as well as combating misinformation by removing false claims on the topic.
 
- In a report released in March 2021, the[Center for Countering Digital Hate](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) found that of the anti-vaccine content that had been circulated on Facebook and Twitter more than 812,000 times between February 1 and March 16, 2021, 65 percent came from just 12 accounts.
+ In a report released in March 2021, the [Center for Countering Digital Hate](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) found that of the anti-vaccine content that had been circulated on Facebook and Twitter more than 812,000 times between February 1 and March 16, 2021, 65 percent came from just 12 accounts.
 
  Read more:[Report Finds That Most COVID-19 Misinformation Was Spread by These 12 Influencers](https://www.makeuseof.com/study-covid-misinformation-spread-by-influencers/)
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
-
-![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
+## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 
@@ -53,7 +51,7 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  When you search the COVID-19 hashtag or topic on Twitter, at the top you'll find a resource portal and options to find out more about COVID-19 and vaccine-related information in your country.
 
- You might spot a warning under posts with misleading COVID-19 information, too. Any tweet from a user promoting 5G conspiracy theories has a blue exclamation mark with a message from Twitter on getting the facts about COVID-19 and links to[a story debunking the claim](https://twitter.com/i/events/1246086575043178496) .
+ You might spot a warning under posts with misleading COVID-19 information, too. Any tweet from a user promoting 5G conspiracy theories has a blue exclamation mark with a message from Twitter on getting the facts about COVID-19 and links to [a story debunking the claim](https://twitter.com/i/events/1246086575043178496) .
 
  Facebook has banned more than a billion fake accounts, taken down 12 million posts that spread misinformation about COVID-19 vaccines, and says it has hired fact-checkers around the world.
 
@@ -114,3 +112,24 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discover-your-most-loved-digital-network/"><u>Discover Your Most Loved Digital Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-into-savings-how-websites-bank-on-relationships/"><u>Socializing Into Savings: How Websites Bank on Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-conquest-raising-the-bar-for-your-fb-group/"><u>Community Conquest: Raising the Bar for Your Fb Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-triple-nation-bans-facebook-find-out/"><u>Which Triple Nation Bans Facebook? Find Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/uninterrupted-watching-resolving-non-playing-facebook-videos/"><u>Uninterrupted Watching: Resolving Non-Playing Facebook Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-10-facts-on-russias-internet-culture-hub/"><u>What Is VK?: 10 Facts on Russia’s Internet Culture Hub</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-redefining-engagement-virtual-reality-in-education/"><u>[Updated] Redefining Engagement  Virtual Reality in Education</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/exploring-differences-between-igtv-and-youtube-for-effective-posts/"><u>Exploring Differences Between IGTV and YouTube for Effective Posts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-your-first-step-on-twitter-creating-an-account/"><u>[Updated] In 2024, Your First Step on Twitter  Creating an Account</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-guide-using-old-school-film-tricks-today/"><u>[New] Ultimate Guide  Using Old-School Film Tricks Today</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-amplifying-your-impact-voice-customization-in-instagram-media/"><u>[New] 2024 Approved  Amplifying Your Impact  Voice Customization in Instagram Media</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-choreographing-gripping-podcast-endings/"><u>[Updated] Choreographing Gripping Podcast Endings</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Samsung Galaxy S23 FE? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-juicing-your-journey-to-tiktok-stardom-in-10-steps/"><u>[New] 2024 Approved  Juicing Your Journey to TikTok Stardom in 10 Steps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/ultimate-guides-to-3d-type-exploration/"><u>Ultimate Guides to 3D Type Exploration</u></a></li>
+</ul></div>

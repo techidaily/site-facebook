@@ -1,7 +1,7 @@
 ---
 title: "Safeguard Yourself: Essential Online Disclosures to Avoid"
-date: 2024-06-20 11:26:36
-updated: 2024-06-23 11:13:32
+date: 2024-06-25T13:57:49.766Z
+updated: 2024-06-26T13:57:49.766Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans
-
-![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,11 +73,9 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
- Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
+ Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice
-
-![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -87,13 +83,11 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests
-
-![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
- If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
+ If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called [social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
@@ -132,3 +126,26 @@ thumbnail: https://thmb.techidaily.com/76cb87841297f436650576e356aab992c1ddd1148
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-diaries-redrawn-unpacking-the-four-core-platform-impacts/"><u>Digital Diaries Redrawn: Unpacking the Four Core Platform Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-private-profile-access/"><u>Secrets of Private Profile Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/sidestep-fbs-2fa-loss-of-device-with-ease/"><u>Sidestep FB’s 2FA Loss of Device with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-sphere-with-these-3-efficient-fb-tagging-tactics/"><u>Supercharge Your Social Sphere with These 3 Efficient Fb Tagging Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-describing-images-on-facebook/"><u>Guidelines for Describing Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponed-enforcement-period-for-whatsapps-new-privacy-terms/"><u>Postponed Enforcement Period for WhatsApp's New Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/containing-cyber-cheats-metas-commitment-to-confidentiality/"><u>Containing Cyber Cheats: Meta's Commitment to Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-full-implementation-of-e2e-encryption-delayed-to-next-year/"><u>Why Meta's Full Implementation of E2E Encryption Delayed to Next Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unleash-creativity-the-best-9-gif-recorders-to-preserve-windows-animation/"><u>[New] 2024 Approved  Unleash Creativity  The Best 9 GIF Recorders to Preserve Windows Animation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-bites-and-bloopers-tasty-talents-on-tiktok/"><u>In 2024, Bites & Bloopers  Tasty Talents on TikTok</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-harmonyheed-evaluating-audio-artifacts/"><u>In 2024, HarmonyHeed  Evaluating Audio Artifacts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagrams-green-screen-magic/"><u>[New] In 2024, Mastering Instagram's Green Screen Magic</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-fast-format-transformation-youtube-for-mac-ratio/"><u>[New] 2024 Approved  Fast Format Transformation  YouTube for Mac Ratio</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-ffxp-an-in-depth-guide/"><u>In 2024, Unveiling FFXP  An In-Depth Guide</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-ultimate-list-of-prime-video-favorites-on-twittersphere/"><u>In 2024, The Ultimate List of Prime Video Favorites on Twittersphere</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-xiaomi-14-pro-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-apple-iphone-6s-plus-and-android-phones-by-drfone-ios/"><u>Top IMEI Unlokers for Apple iPhone 6s Plus and Android Phones</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/samsung-image-maker-insights-and-overview-2023-for-2024/"><u>Samsung Image Maker  Insights & Overview 2023 for 2024</u></a></li>
+</ul></div>

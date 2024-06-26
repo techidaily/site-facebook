@@ -1,7 +1,7 @@
 ---
 title: Exiting the Browser Without Using FB App
-date: 2024-06-22 12:46:32
-updated: 2024-06-23 12:25:30
+date: 2024-06-25T14:21:21.595Z
+updated: 2024-06-26T14:21:21.595Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,9 @@ Close
 
 Close
 
- There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also[opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
+ There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also [opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
 
- You can also[use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
+ You can also [use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
@@ -82,3 +82,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/innovating-interaction-facebooks-enriched-auditory-experience/"><u>Innovating Interaction: Facebook’s Enriched Auditory Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-enterprise-excellence-select-5-powerful-platforms/"><u>Exploring Enterprise Excellence: Select 5 Powerful Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-8-ways-to-interlink-socially/"><u>Digital Harmony: 8 Ways to Interlink Socially</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-alternatives-to-twitter/"><u>Exploring Alternatives to Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intersection-of-convenience-and-caution-analyzing-the-impact-of-using-facebook-login/"><u>The Intersection of Convenience and Caution: Analyzing the Impact of Using Facebook Login</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-getting-started-with-iphone-speech-recordings/"><u>[New] Getting Started with iPhone Speech Recordings</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/streamlined-video-editing-solutions-for-all/"><u>Streamlined Video Editing Solutions for All</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-poco-m6-5g-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Poco M6 5G</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-essential-meme-template-toolkit/"><u>[Updated] The Essential Meme Template Toolkit</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-2024-approved-10-popular-cartoon-characters-that-you-wont-want-to-miss/"><u>Updated 2024 Approved 10 Popular Cartoon Characters That You Wont Want to Miss</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713962653807-updated-do-you-want-to-professionally-blur-the-background-in-your-video-read-this-article-to-find-out-the-easiest-way-to-blur-the-background-in-videos-using/"><u>Updated Do You Want to Professionally Blur the Background in Your Video? Read This Article to Find Out the Easiest Way to Blur the Background in Videos Using Adobe After Effects for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-elevate-your-vimeo-media-with-well-defined-chapters/"><u>2024 Approved  Elevate Your Vimeo Media with Well-Defined Chapters</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-10-leading-alternatives-for-interacting-and-networking-in-cyberspace/"><u>Updated In 2024, 10 Leading Alternatives for Interacting and Networking in Cyberspace</u></a></li>
+</ul></div>

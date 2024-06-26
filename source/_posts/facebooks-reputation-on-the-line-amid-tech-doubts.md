@@ -1,7 +1,7 @@
 ---
 title: Facebook's Reputation on the Line Amid Tech Doubts
-date: 2024-06-22 10:53:37
-updated: 2024-06-23 12:42:32
+date: 2024-06-25T14:19:36.417Z
+updated: 2024-06-26T14:19:36.417Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,23 @@ thumbnail: https://thmb.techidaily.com/52f669a15e335bb29d06275250544e9470586ee07
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-privacy-price-avoid-facebooks-web-logging-feature/"><u>The Privacy Price: Avoid Facebook’s Web Logging Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-for-singles-deciphering-new-facebook-features/"><u>Social Networking for Singles: Deciphering New Facebook Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-interactions-how-to-unearth-pasts-on-fb/"><u>Unseen Interactions: How to Unearth Pasts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-fumbles-of-the-current-era/"><u>The Biggest Tech Fumbles of the Current Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-likes-gaining-perspective-without-platforms/"><u>Life Beyond Likes: Gaining Perspective Without Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-network-5-ways-to-use-social-media-careers/"><u>Maximize Your Network: 5 Ways to Use Social Media Careers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-craze-on-be-a-star-viral-tiktok-challenges-you-cant-miss/"><u>[Updated] In 2024, Craze on, Be a Star!  Viral TikTok Challenges You Can't Miss</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-speedy-streams-start-here-snapchat-for-starters/"><u>[Updated] Speedy Streams Start Here  Snapchat for Starters</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-ideal-10-video-editing-software-for-windowspc-tiktoks/"><u>[New] In 2024, Ideal 10 Video Editing Software for Windows/PC TikToks</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-android/"><u>How to Screen Mirroring Samsung Galaxy XCover 6 Pro Tactical Edition? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-cultivating-a-commercial-community-earnings-through-fb-engagement/"><u>[Updated] Cultivating a Commercial Community  Earnings Through FB Engagement</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/discovering-top-webinar-platforms/"><u>Discovering Top Webinar Platforms</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/securing-your-digital-footprint-when-leaving-discord/"><u>Securing Your Digital Footprint When Leaving Discord</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-essential-guide-to-apples-iphone-camera-evolution-in-ios-11/"><u>[Updated] The Essential Guide to Apple's iPhone Camera Evolution in iOS 11</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-bring-your-logo-to-life-top-10-free-animated-logo-makers/"><u>2024 Approved Bring Your Logo to Life Top 10 Free Animated Logo Makers</u></a></li>
+</ul></div>

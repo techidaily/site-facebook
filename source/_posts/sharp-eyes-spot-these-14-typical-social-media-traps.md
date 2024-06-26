@@ -1,7 +1,7 @@
 ---
 title: Sharp Eyes! Spot These 14 Typical Social Media Traps
-date: 2024-06-20 20:59:43
-updated: 2024-06-23 11:57:46
+date: 2024-06-25T13:59:57.826Z
+updated: 2024-06-26T13:59:57.826Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,17 @@ thumbnail: https://thmb.techidaily.com/176a1a151aeb9ebfdcfd4bd623625c32ca353b5d8
 
  From scammers asking for all kinds of additional postage costs, to people pretending to be legitimate businesses, to people selling authentic "celebrity signed merchandise", there are definitely a lot of things to be aware of before performing any type of transaction.
 
- Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
+ Make sure you learn [how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
- These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+ These days there are a [few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 ## 5\. Facebook Job Advertisement Scams
 
- Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
+ Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are [red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/176a1a151aeb9ebfdcfd4bd623625c32ca353b5d8
 
 ## 7\. Charity Scams
 
- This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+ This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check [Charity Navigator](https://www.charitynavigator.org/) or [CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
 
 ## 8\. Scams Posing As Official Pages
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/176a1a151aeb9ebfdcfd4bd623625c32ca353b5d8
 
  Whatever it is, their purpose is to win your trust, and they may even do this by chatting to you for weeks or months. If you happen to fall for one of these scammers, at some point, they will ask you for money.
 
- They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
+ They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are [some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
 ## 12\. Loan Lending Scams
 
@@ -118,3 +118,24 @@ thumbnail: https://thmb.techidaily.com/176a1a151aeb9ebfdcfd4bd623625c32ca353b5d8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-family-connections-with-facebook-portal-tv/"><u>Unlocking Family Connections with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-digital-safety-with-2fa-for-email-platforms-like-gmail-and-outlook/"><u>Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/count-of-friends-liking-you-online/"><u>Count of Friends Liking You Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-optimizing-facebooks-memory-tool/"><u>Expert Tips for Optimizing Facebook's Memory Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-from-facebook-strengthens-who-covid-19-fund/"><u>$5 Million From Facebook Strengthens WHO COVID-19 Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-feature-ray-ban-stories-functions-and-pricing/"><u>Facebook's Latest Feature: Ray-Ban Stories - Functions & Pricing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-explainer-leveraging-facebooks-transparency-toolkit/"><u>The Ultimate Explainer: Leveraging Facebook’s Transparency Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-from-political-spam-transform-your-feed/"><u>Unplug From Political Spam: Transform Your Feed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-best-video-brightness-editors-online-and-desktop-tools/"><u>Updated In 2024, Best Video Brightness Editors Online & Desktop Tools</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-debunking-the-myths-5-misconceptions-about-16x9-ratio-calculators-cleared-up/"><u>Updated In 2024, Debunking the Myths 5 Misconceptions About 16X9 Ratio Calculators Cleared Up</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-optimal-record-solution-chromebook-edition-for-2024/"><u>[Updated] Optimal Record Solution  Chromebook Edition for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-skip-past-fb-video-ads-effectively/"><u>In 2024, Skip Past FB Video Ads Effectively</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-xiaomi-14-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Xiaomi 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swiftly-upload-to-twitter-premium-video-convertors-guide/"><u>2024 Approved  Swiftly Upload to Twitter  Premium Video Convertors Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-easy-youtube-file-transfer-techniques/"><u>[New] 2024 Approved  Easy YouTube File Transfer Techniques</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-enhance-visibility-on-yt-key-aspects-of-channel-art-and-banner-size/"><u>[Updated] Enhance Visibility on YT  Key Aspects of Channel Art & Banner Size</u></a></li>
+</ul></div>

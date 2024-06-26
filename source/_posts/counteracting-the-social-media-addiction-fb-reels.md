@@ -1,7 +1,7 @@
 ---
 title: "Counteracting the Social Media Addiction: FB Reels"
-date: 2024-06-22 12:15:14
-updated: 2024-06-23 11:13:47
+date: 2024-06-25T14:01:01.883Z
+updated: 2024-06-26T14:01:01.883Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-facebook-group-assembly-blueprints/"><u>Step-by-Step Guide: Facebook Group Assembly Blueprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-image-boosting-likes-and-following-with-photo-tactics/"><u>Maximizing Your Image: Boosting Likes & Following with Photo Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-metas-authenticated-us-community/"><u>Join Meta's Authenticated US Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-digital-suggestions-a-tweet-insta-facebook-guide/"><u>Disable Digital Suggestions: A Tweet-Insta-Facebook Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-dominance-saturated-with-facebook/"><u>Is Social Media Dominance Saturated with Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-yourself-from-facebook-shared-pics/"><u>Eliminate Yourself From Facebook Shared Pics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/zero-price-green-screen-resources/"><u>Zero-Price Green Screen Resources</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/optimal-mac-screen-capturing-unveiling-the-top-5-strategies/"><u>Optimal Mac Screen Capturing  Unveiling The Top 5 Strategies</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-13-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 13 with iTunes</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/best-study-partners-in-history-top-10-youtubers-and-channels-for-2024/"><u>Best Study Partners in History  Top 10 Youtubers & Channels for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-knowledge-of-asmr-media/"><u>[Updated] Mastering the Knowledge of ASMR Media</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/camtasia-video-editing-essentials-how-to-adjust-playback-speed/"><u>Camtasia Video Editing Essentials How to Adjust Playback Speed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-cinematic-edge-master-the-top-5-camera-skills/"><u>The Cinematic Edge  Master the Top 5 Camera Skills</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-tips-and-tricks-recording-conversations-on-whatsapp/"><u>[New] In 2024, Tips and Tricks  Recording Conversations on WhatsApp</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-streamline-your-media-convert-fb-videos-to-mp4-hd1080p-for-free/"><u>[New] 2024 Approved  Streamline Your Media - Convert FB Videos to MP4 HD/1080P for Free</u></a></li>
+</ul></div>

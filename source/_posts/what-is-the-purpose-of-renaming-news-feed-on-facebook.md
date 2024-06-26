@@ -1,7 +1,7 @@
 ---
 title: What Is the Purpose of Renaming 'News Feed' On Facebook?
-date: 2024-06-21 22:30:41
-updated: 2024-06-23 10:16:58
+date: 2024-06-25T14:15:47.549Z
+updated: 2024-06-26T14:15:47.549Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/b3b1cb7d8c5c52c25843bc952abd6a00ab0cd811c
 
  Facebook's News Feed will now simply be known as the "Feed", but Facebook does not offer any real details as to why.
 
- "This is just a name change and does not impact the app experience more broadly," a company spokesperson said in an email to[The Verge](https://www.theverge.com/2022/2/15/22935080/facebook-meta-news-feed-renaming-branding-political-content-misinformation?scrolla=5eb6d68b7fedc32c19ef33b4) .
+ "This is just a name change and does not impact the app experience more broadly," a company spokesperson said in an email to [The Verge](https://www.theverge.com/2022/2/15/22935080/facebook-meta-news-feed-renaming-branding-political-content-misinformation?scrolla=5eb6d68b7fedc32c19ef33b4) .
 
 Not so fast.
 
@@ -29,7 +29,7 @@ Not so fast.
 
  Indeed, a bill called The Social Media NUDGE Act has already been drafted, which seeks to slow down the spread of harmful content and misinformation on social media.
 
- Facebook made at least two changes to how it distributes news prior to this announcement. In October 2019, the company launched[Facebook News](https://about.fb.com/news/2019/10/introducing-facebook-news/) in the US.
+ Facebook made at least two changes to how it distributes news prior to this announcement. In October 2019, the company launched [Facebook News](https://about.fb.com/news/2019/10/introducing-facebook-news/) in the US.
 
  Facebook News is a dedicated place for news on Facebook in the bookmarks section, which independent journalists moderate.
 
@@ -39,7 +39,7 @@ Not so fast.
 
  With this renaming, Facebook has closed the loop. Posts by your friends, groups, pages you follow, and others will now be in the Feed.
 
- Politics and current affairs will now be in Facebook News; according to[Axios](https://www.axios.com/facebook-news-tab-traffic-378e8106-d7f8-481e-b500-e334d3beda3e.html) , US, UK, and German publishers included in the News tab credit Facebook News for referring 30% of all the Facebook traffic they get.
+ Politics and current affairs will now be in Facebook News; according to [Axios](https://www.axios.com/facebook-news-tab-traffic-378e8106-d7f8-481e-b500-e334d3beda3e.html) , US, UK, and German publishers included in the News tab credit Facebook News for referring 30% of all the Facebook traffic they get.
 
  Therefore, segregating the news away from regular updates by your friends and family is a legally smart move for Facebook. It will certainly help their case with regulators if it drives down misinformation. In that regard, a change from News Feed to Feed makes sense.
 
@@ -66,3 +66,27 @@ Not so fast.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-amend-your-birthday-details-on-facebook/"><u>How to Amend Your Birthday Details on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-out-facebooks-covert-user-countdown/"><u>Digging Out Facebook's Covert User Countdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-network-5-ways-to-use-social-media-careers/"><u>Maximize Your Network: 5 Ways to Use Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-through-its-transparent-governance-space/"><u>Understanding Facebook Through Its Transparent Governance Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-communication-tools-stepping-away-from-fb-messenger/"><u>Alternative Communication Tools: Stepping Away From FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-new-interpretations-for-facebooks-altered-page-designations/"><u>Unpacking New Interpretations for Facebook's Altered Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-strategies-for-elevating-content-exposure-on-fb/"><u>The Key Strategies for Elevating Content Exposure on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-apple-way-no-sync-with-facebooks-metaverse-blueprint/"><u>The Apple Way: No Sync with Facebook's Metaverse Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-wont-limit-account-functionality-if-you-dont-accept-its-new-privacy-policy/"><u>WhatsApp Won't Limit Account Functionality If You Don't Accept Its New Privacy Policy</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitters-most-popular-amazon-originals-in-2e23/"><u>[Updated] 2024 Approved  Twitter's Most Popular Amazon Originals in 2E'23</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-master-your-snapchats-the-top-6-editing-apps-for-both-devices/"><u>[New] 2024 Approved  Master Your Snapchats  The Top 6 Editing Apps for Both Devices</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-ultimate-tutorial-how-to-add-a-countdown-timer-in-obs/"><u>[New] Ultimate Tutorial  How To Add a Countdown Timer in OBS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-the-world-of-kinemaster-and-ranking-10-online-competitors-for-2024/"><u>Explore the World of KineMaster & Ranking 10 Online Competitors for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-assemble-your-own-google-vr-viewing-device/"><u>[Updated] Assemble Your Own Google VR Viewing Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-enhancing-your-video-with-professional-voice-overs-for-2024/"><u>[Updated] Enhancing Your Video with Professional Voice Overs for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-mastering-audio-extraction-a-guide-for-video-files-on-windows-macos-and-mobile-devices/"><u>Updated 2024 Approved Mastering Audio Extraction A Guide for Video Files on Windows, MacOS, and Mobile Devices</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-unleash-potential-mastering-minecraft-recordings-with-macos-technology/"><u>[New] In 2024, Unleash Potential  Mastering Minecraft Recordings with macOS Technology</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/motorola-edge-40-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Edge 40 Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/creating-powerful-learning-through-video-an-in-depth-guide/"><u>Creating Powerful Learning Through Video  An In-Depth Guide</u></a></li>
+</ul></div>

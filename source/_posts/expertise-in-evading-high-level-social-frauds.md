@@ -1,7 +1,7 @@
 ---
 title: Expertise in Evading High-Level Social Frauds
-date: 2024-06-20 17:56:54
-updated: 2024-06-23 10:26:49
+date: 2024-06-25T14:09:53.231Z
+updated: 2024-06-26T14:09:53.231Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/d54fa6180dfbcf214df4f9458a0e28f5138815530
 
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
-## 1\. Instragam Celebrity Scam
-
-![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
+## 1\. Instragam Celebrity Scam ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -48,9 +46,7 @@ There are some simple things you can do to avoid this kind of scam:
 * Always do thorough research of a celebrity's management team before committing to any form of payment.
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
-## 2\. Telegram Cryptocurrency Scam
-
-![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
+## 2\. Telegram Cryptocurrency Scam ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
 
@@ -68,15 +64,13 @@ There are some simple things you can do to avoid this kind of scam:
 * Lots of inactive participants.
 * Messages in the group are mostly sent by the same accounts.
 
- To fleece unsuspecting Telegram group members, the scammers ask them to invest in a cryptocurrency mining operation. It could be to pay for a "cryptocurrency mining rig" or some bogus tool that they'll claim will be[used for mining cryptocurrency](https://www.makeuseof.com/fake-android-crypto-mining-apps/) . Once the target makes a payment, they kick them out of the group or use other means to squeeze them of even more money.
+ To fleece unsuspecting Telegram group members, the scammers ask them to invest in a cryptocurrency mining operation. It could be to pay for a "cryptocurrency mining rig" or some bogus tool that they'll claim will be [used for mining cryptocurrency](https://www.makeuseof.com/fake-android-crypto-mining-apps/) . Once the target makes a payment, they kick them out of the group or use other means to squeeze them of even more money.
 
  In some instances, after victims make a payment, the scammers give them something in return. In such a case, the cybercriminal's goal is to build trust in order to get as much money as possible from their victims in the long run.
 
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
-## 3\. Facebook Dating Scams
-
-![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
+## 3\. Facebook Dating Scams ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 
@@ -106,9 +100,9 @@ Of course, that's all fake.
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
 
- They switch tactics frequently. When the internet catches up with one, they switch to another. In order to stay safe online, it's important to[stay informed about scam trends](https://www.makeuseof.com/tag/top-5-internet-fraud-scams-time/) and avoid questionable entities that ask you to perform any financial transaction online.
+ They switch tactics frequently. When the internet catches up with one, they switch to another. In order to stay safe online, it's important to [stay informed about scam trends](https://www.makeuseof.com/tag/top-5-internet-fraud-scams-time/) and avoid questionable entities that ask you to perform any financial transaction online.
 
- According to the US's[Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
+ According to the US's [Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
 
 <ins class="adsbygoogle"
@@ -125,3 +119,24 @@ Of course, that's all fake.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-community-spotlight-a-guide-for-public-access/"><u>Facebook's Community Spotlight: A Guide for Public Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-following-you-on-the-web/"><u>Who's Following You on the Web?</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-your-presence-profitably-top-5-monetization-tactics-on-fbig/"><u>Propel Your Presence Profitably: Top 5 Monetization Tactics on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-thief-strikes-again-learning-the-9-hack-signals-early/"><u>The Invisible Thief Strikes Again: Learning the 9 Hack Signals Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-mobility-centric-portal-model/"><u>Facebook Unveils Mobility-Centric Portal Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-latest-watches-in-facebook/"><u>Quick Guide to Latest Watches in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-12-prominent-oppo-f25-pro-5g-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo F25 Pro 5G Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oost-your-channels-traffic-and-value-with-innovative-hashtags-for-2024/"><u>[New] Boost Your Channels' Traffic & Value with Innovative Hashtags for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-decoding-the-best-timing-strategies-for-instagram-posts-for-2024/"><u>[Updated] Decoding the Best Timing Strategies for Instagram Posts for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-xiaomi-redmi-note-12r-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Xiaomi Redmi Note 12R FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-transform-fb-video-tunes-to-mp3/"><u>In 2024, Transform Fb Video Tunes to MP3</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-saga-selection-the-top-10-best-action-adventure-games/"><u>[New] In 2024, Saga Selection  The Top 10 Best Action-Adventure Games</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-how-to-record-console-gameplay-on-computer/"><u>[New] How to Record Console Gameplay on Computer</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-samsung-galaxy-f04-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Samsung Galaxy F04 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-motorola-g54-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Motorola G54 5G? Look No Further | Dr.fone</u></a></li>
+</ul></div>

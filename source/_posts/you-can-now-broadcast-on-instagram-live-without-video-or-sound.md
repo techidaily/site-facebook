@@ -1,7 +1,7 @@
 ---
 title: You Can Now Broadcast on Instagram Live Without Video or Sound
-date: 2024-06-22 19:16:40
-updated: 2024-06-23 11:46:58
+date: 2024-06-25T14:13:04.716Z
+updated: 2024-06-26T14:13:04.716Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/29c87a2813101a91590a08620c363a707a12be2c1
 
  For those of you who use Instagram Live, it may please you to know that you no longer have to run video or audio feeds in order to broadcast. So, if you want, you're able to broadcast a blank screen now, or just show your video feed if you don't want environmental sounds bleeding into your stream.
 
- Instagram has yet to announce the extra features officially beyond a tweet, but[TechCrunch](https://techcrunch.com/2021/04/29/instagram-live-takes-on-clubhouse-with-options-to-mute-and-turn-off-the-video/) broke the news, explaining the features in more detail.
+ Instagram has yet to announce the extra features officially beyond a tweet, but [TechCrunch](https://techcrunch.com/2021/04/29/instagram-live-takes-on-clubhouse-with-options-to-mute-and-turn-off-the-video/) broke the news, explaining the features in more detail.
 
 ## Why Would You Disable Your Camera and Mic on Instagram Live?
 
@@ -64,3 +64,22 @@ thumbnail: https://thmb.techidaily.com/29c87a2813101a91590a08620c363a707a12be2c1
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/withheld-implementation-date-for-whatsapps-new-privacy-agreement/"><u>Withheld Implementation Date for WhatsApp's New Privacy Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-did-sheryl-do-that-changed-facebook/"><u>What Did Sheryl Do That Changed Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connecting-friends-to-global-community-facebook-as-meta-reimagined/"><u>From Connecting Friends to Global Community - Facebook as Meta Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reclaim-your-cash-the-fb-reimbursement-route/"><u>How to Reclaim Your Cash: The FB Reimbursement Route</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-to-a-frozen-profile/"><u>Unlocking the Secrets to a Frozen Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/refine-your-facebook-experience-ideal-mobile-settings/"><u>Refine Your Facebook Experience: Ideal Mobile Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-gesture-based-functionality/"><u>Navigating Facebook’s Gesture-Based Functionality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagrams-best-practices-for-sensational-video-loops/"><u>[New] In 2024, Instagram's Best Practices for Sensational Video Loops</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-adventure-recorder-garmin-virb-ultra-30-tests/"><u>The Ultimate Adventure Recorder - Garmin VIRB Ultra 30 Tests</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gopro-showdown-full-review-and-ratings/"><u>In 2024, GoPro Showdown  Full Review and Ratings</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-premier-robotic-companions-online/"><u>[New] 2024 Approved  Premier Robotic Companions Online</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/vibrant-soundscapes-10-melodies-that-elevate-your-video-montages/"><u>Vibrant Soundscapes 10 Melodies That Elevate Your Video Montages</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-nubia-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Nubia</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-diving-into-user-preferences-a-tiktok-vs-snapchat-breakdown/"><u>In 2024, Diving Into User Preferences  A TikTok Vs Snapchat Breakdown</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-hilarious-threads-the-tweeter-treasury/"><u>[New] Hilarious Threads  The Tweeter Treasury</u></a></li>
+</ul></div>

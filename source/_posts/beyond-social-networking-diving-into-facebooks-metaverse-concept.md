@@ -1,7 +1,7 @@
 ---
 title: "Beyond Social Networking: Diving Into Facebook's Metaverse Concept"
-date: 2024-06-22 15:54:21
-updated: 2024-06-23 12:45:46
+date: 2024-06-25T13:59:30.808Z
+updated: 2024-06-26T13:59:30.808Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
-## The Effects of a Granular Customer Profile
-
-![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
+## The Effects of a Granular Customer Profile ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
 
@@ -57,13 +55,11 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
 
  With this in mind, it’s necessary to understand that most governments still don’t have the full grasp of the social, economic, and psychological impact the internet has on people. In many ways, this lack of tech knowledge by governing bodies puts regulation on the back seat.
 
- In recent years, Facebook has been accused of several alarming things, from helping[manipulate election results](https://www.makeuseof.com/tag/facebook-data-influence-elections/) , allowing the rise of politicization on all sides, and even giving advertisers the power to know intimate details about their users without their consent.
+ In recent years, Facebook has been accused of several alarming things, from helping [manipulate election results](https://www.makeuseof.com/tag/facebook-data-influence-elections/) , allowing the rise of politicization on all sides, and even giving advertisers the power to know intimate details about their users without their consent.
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
-## A Battle Among Giants
-
-![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
+## A Battle Among Giants ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -94,3 +90,27 @@ thumbnail: https://thmb.techidaily.com/b60c1fc9251ee88631c28dd2623940b69aaa41245
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/life-beyond-likes-gaining-perspective-without-platforms/"><u>Life Beyond Likes: Gaining Perspective Without Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-risks-in-casual-social-media-quizzes-analyzed/"><u>Cyber Risks in Casual Social Media Quizzes Analyzed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-anonymous-shares-in-social-media-clans/"><u>Enabling Anonymous Shares in Social Media Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/unplugging-from-social-media-a-case-study/"><u>Unplugging From Social Media: A Case Study</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-mimics-style-through-image-based-text-recognition/"><u>AI Mimics Style Through Image-Based Text Recognition</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicle-of-connections-digging-into-facebook-past/"><u>Chronicle of Connections: Digging Into Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-pre-deletion-reflections-for-a-social-media-break/"><u>Essential Factors: Pre-Deletion Reflections for a Social Media Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-trails-capital-treks-an-analysis/"><u>Consumer Trails, Capital Treks: An Analysis</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/starting-strong-key-equipment-for-youtube-success-for-2024/"><u>Starting Strong  Key Equipment for YouTube Success for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-boost-your-video-virality-essential-tiktok-lyrics/"><u>[New] 2024 Approved  Boost Your Video Virality  Essential TikTok Lyrics</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/videopad-video-editor-review-the-best-choice-for-beginners-and-pros-alike/"><u>Videopad Video Editor Review The Best Choice for Beginners and Pros Alike</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-demystifying-how-tseries-capitalizes-on-youtube-audience-reach/"><u>[Updated] Demystifying How TSeries Capitalizes on YouTube Audience Reach</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-embark-on-the-journey-defining-and-developing-style-and-niche/"><u>[New] 2024 Approved  Embark on the Journey  Defining & Developing Style and Niche</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unveiling-absence-of-recommended-videos-on-facebook/"><u>[New] Unveiling  Absence of Recommended Videos on Facebook</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/from-visionary-to-victory-channel-command-school-for-2024/"><u>From Visionary to Victory  Channel Command School for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-switching-between-safe-mode-and-picture-in-picture-on-iosmacos/"><u>In 2024, Switching Between Safe Mode & Picture In Picture on iOS/MacOS</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/community-cinema-collector-for-2024/"><u>Community Cinema Collector for 2024</u></a></li>
+</ul></div>

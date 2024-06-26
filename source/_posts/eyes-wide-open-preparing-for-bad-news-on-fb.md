@@ -1,7 +1,7 @@
 ---
 title: "Eyes Wide Open: Preparing for Bad News on FB"
-date: 2024-06-21 23:24:44
-updated: 2024-06-23 10:47:14
+date: 2024-06-25T14:09:55.258Z
+updated: 2024-06-26T14:09:55.258Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/9fa9e4346708270d82530e01172580b66a8c63e17
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,27 @@ thumbnail: https://thmb.techidaily.com/9fa9e4346708270d82530e01172580b66a8c63e17
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/untangling-instagram-from-facebook-services/"><u>Untangling Instagram From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-just-delete-a-comprehensive-list-to-consider-before-leaving-fb/"><u>Why Not Just Delete? A Comprehensive List to Consider Before Leaving FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-social-interaction-with-integrated-fb-channels/"><u>Seamless Social Interaction with Integrated FB Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-sphere-with-these-3-efficient-fb-tagging-tactics/"><u>Supercharge Your Social Sphere with These 3 Efficient Fb Tagging Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-fb-presence-with-the-right-choice-of-photo/"><u>Transform Your FB Presence with the Right Choice of Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-your-facebook-interactions-with-these-3-tag-tactics/"><u>Accelerate Your Facebook Interactions with These 3 Tag Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-clampdown-on-big-tech-understanding-us-antitrust-measures/"><u>Assessing the Clampdown on Big Tech: Understanding U.S. Antitrust Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-digital-disguises-on-social-media/"><u>Deconstructing Digital Disguises on Social Media</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-migrating-from-spotify-to-a-personalized-youtube-music-list/"><u>2024 Approved  Migrating From Spotify to a Personalized YouTube Music List</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-using-sticker-queries-on-instagram/"><u>In 2024, The Ultimate Guide to Using Sticker Queries on Instagram</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-12-pro-and-ipad-securely-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 12 Pro and iPad Securely</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-oppo-find-x7-ultra-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Oppo Find X7 Ultra without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-xiaomi-13t-pro-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Xiaomi 13T Pro FRP</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-guide-to-the-best-video-speed-controller-extensions/"><u>The Ultimate Guide to The Best Video Speed Controller Extensions</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-the-art-of-flawless-conversion-video-to-mp3-without-quality-drop/"><u>In 2024, The Art of Flawless Conversion Video to MP3 without Quality Drop</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-tecno-pova-6-pro-5g-drfone-by-drfone-android/"><u>How to Screen Mirroring Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-videography-splitter-verdict-top-cam-or-not/"><u>2024 Approved  Videography Splitter Verdict  Top Cam or Not?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-12-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 12 | Dr.fone</u></a></li>
+</ul></div>

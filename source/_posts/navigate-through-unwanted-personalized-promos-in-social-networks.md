@@ -1,7 +1,7 @@
 ---
 title: Navigate Through Unwanted Personalized Promos in Social Networks
-date: 2024-06-22 18:55:18
-updated: 2024-06-23 12:26:27
+date: 2024-06-25T13:53:46.311Z
+updated: 2024-06-26T13:53:46.311Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,7 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
-## How to Minimize Targeted Ads on Instagram
-
-![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
+## How to Minimize Targeted Ads on Instagram ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
 
@@ -85,11 +83,9 @@ Close
 
  To view the ads you have recently engaged with, tap **Ad activity** under**General info** .
 
- To learn how to block ads about specific brands or topics on Instagram, read our guide on[how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
+ To learn how to block ads about specific brands or topics on Instagram, read our guide on [how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
-## How to Minimize Targeted Ads on Twitter
-
-![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
+## How to Minimize Targeted Ads on Twitter ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
 
@@ -135,3 +131,24 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-ray-ban-stories-on-facebook-what-can-you-expect/"><u>Unveiling Ray-Ban Stories on Facebook - What Can You Expect?</u></a></li>
+<li><a href="https://facebook.techidaily.com/developing-your-graphical-social-identity/"><u>Developing Your Graphical Social Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-and-the-immersive-delineating-metavirtualitys-six-aspects/"><u>The Virtual and the Immersive: Delineating Metavirtuality's Six Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-down-how-to-find-out-and-see-when-its-back-up/"><u>Is Facebook Down? How to Find Out and See When It's Back Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/bury-your-photos-deep-in-private-settings/"><u>Bury Your Photos Deep in Private Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unlimited-video-editing-top-10-free-online-editors-with-no-watermark/"><u>New In 2024, Unlimited Video Editing Top 10 Free Online Editors with No Watermark</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-streamlining-video-communication-in-laptop-using-whatsapp-desktop/"><u>2024 Approved  Streamlining Video Communication in Laptop Using WhatsApp Desktop</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-innovative-platforms-to-connect-visually-videochat-alternatives-to-omegle-for-2024/"><u>Updated Innovative Platforms to Connect Visually Videochat Alternatives to Omegle for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-upload-like-a-pro-the-ultimate-guide-to-photo-videos-and-online-success/"><u>[Updated] Upload Like a Pro  The Ultimate Guide to Photo Videos and Online Success</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-propel-participation-through-unique-custom-story-queries-for-2024/"><u>[Updated] Propel Participation Through Unique, Custom Story Queries for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-flight-gear-to-upgrade-your-phantom-4-drone/"><u>Essential Flight Gear to Upgrade Your Phantom 4 Drone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/digital-mastery-top-10-instagram-enhancers/"><u>Digital Mastery  Top 10 Instagram Enhancers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/exclusive-reveal-top-downloading-tools-for-fans-of-apples-ios-and-facebook/"><u>Exclusive Reveal  Top Downloading Tools for Fans of Apple's iOS and Facebook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-jest-jar-compreenas-best-no-cost-templates/"><u>[Updated] Jest Jar  Compreenas Best No-Cost Templates</u></a></li>
+</ul></div>

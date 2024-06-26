@@ -1,7 +1,7 @@
 ---
 title: Enhancing Safety Settings for Kids’ Profile in Messengers
-date: 2024-06-20 11:12:13
-updated: 2024-06-23 12:37:55
+date: 2024-06-25T14:22:12.913Z
+updated: 2024-06-26T14:22:12.913Z
 tags:
   - facebook
 categories:
@@ -37,11 +37,11 @@ Here's a look at the different fields you can add...
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
 
- Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the[safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
+ Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the [safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
 
 ### Edit Name
 
- When you[start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
+ When you [start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
 
 ## How to Add Your Child’s Information in Messenger Kids
 
@@ -71,13 +71,11 @@ Close
 4. Tap**Controls** from the top tabs. This will navigate you to the customizable settings.
 5. Select**Edit Info** . It will open your kid’s**Account Details** . Here, you can edit your child’s first name, surname, date of birth, and pronouns and add or remove the profile picture.
 
-**Download:** Facebook for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
+**Download:** Facebook for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
 
-**Download:** Messenger Kids for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
+**Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture
-
-![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -89,9 +87,7 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -103,9 +99,7 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -128,7 +122,7 @@ Follow these steps:
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
-5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
+5. Select**Controls** to access a menu with all the relevant features. Thanks to [updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
@@ -161,3 +155,22 @@ Follow these steps:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/dissecting-speculations-the-future-name-of-facebook/"><u>Dissecting Speculations: The Future Name of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-different-post-formats-for-optimal-social-media-reach/"><u>Exploring Different Post Formats for Optimal Social Media Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vast-majority-of-iphone-users-are-opting-out-of-app-tracking/"><u>The Vast Majority of iPhone Users Are Opting Out of App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaviews-and-screenscapes-distinguishing-metaverse-from-vrs-six-aspects/"><u>Metaviews & Screenscapes: Distinguishing Metaverse From VR's Six Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-evading-cybernetic-swindlers/"><u>Master the Art of Evading Cybernetic Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-samsung-galaxy-a05-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Samsung Galaxy A05 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-top-5-digital-audio-file-organizers-for-seamless-mp3-management/"><u>New 2024 Approved Top 5 Digital Audio File Organizers for Seamless MP3 Management</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-5-display-choices-to-enhance-ps5xbox-playtime-for-2024/"><u>[Updated] Top 5 Display Choices to Enhance PS5/Xbox Playtime for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-get-that-perfect-fit-resize-videos-to-instagram-standards-using-mac/"><u>[New] Get That Perfect Fit  Resize Videos to Instagram Standards Using Mac</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pinnacle-teaser-film-assortment/"><u>2024 Approved  Pinnacle Teaser Film Assortment</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fleet-footed-fun-prime-pc-and-mobile-game-picks/"><u>2024 Approved  Fleet-Footed Fun  Prime PC and Mobile Game Picks</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-streamline-your-sound-game-expert-guide-for-using-voicemod-in-discord/"><u>2024 Approved  Streamline Your Sound Game  Expert Guide for Using VoiceMod in Discord</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-11-to-android-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 11 to Android? | Dr.fone</u></a></li>
+</ul></div>

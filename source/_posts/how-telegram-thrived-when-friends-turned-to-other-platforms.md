@@ -1,7 +1,7 @@
 ---
 title: How Telegram Thrived When Friends Turned to Other Platforms
-date: 2024-06-22 14:40:13
-updated: 2024-06-23 11:23:30
+date: 2024-06-25T14:45:54.991Z
+updated: 2024-06-26T14:45:54.991Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/fe074f06665304f02bb44d59a2cf2f7a7e742cf6a
 
 ## How Did Telegram Gain So Many Users in One Day?
 
- On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all[went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
+ On Monday, October 4, the Facebook owned-triumvirate of apps—Facebook, Instagram, and WhatsApp—all [went offline simultaneously](https://www.makeuseof.com/why-facebook-whatsapp-instagram-offline-six-hours/) .
 
  Between them, they handle billions of messages every day, so once it became clear that the downtime was going to last for many hours rather than mere minutes, users quickly looked for alternatives.
 
@@ -35,9 +35,9 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ![telegram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/telegram.png)
 
- Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused[the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
+ Telegram has been steadily growing in popularity over the last few years. Indeed, we've espoused [the virtues of Telegram](https://www.makeuseof.com/reasons-why-people-leaving-whatsapp-for-telegram/) several times on this very site.
 
- Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and[many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
+ Features such as secret chats, self-destructing messages, unlimited storage, larger group chats, multi-platform support, multi-session support, channels, a way to save messages, customizable bots, message scheduling, and [many more features](https://www.makeuseof.com/tag/useful-telegram-features/) have all seen it chip away at WhatsApp's userbase over the last few years.
 
  All of these features have helped it become the de facto number two behind WhatsApp in many people's minds, so installing it during a time of crisis was a no-brainer.
 
@@ -47,7 +47,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
  One enduring problem that every WhatsApp competitor faces is getting people to switch over to the service en masse. After all, what use is an instant messaging app if none of your friends have it installed?
 
- We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding[WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
+ We had already seen a massive migration to Telegram occur in January 2021 after the debacle surrounding [WhatsApp's new privacy policy](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) .
 
  This latest migration marked yet another large-scale move by users. Telegram is now starting to reach a critical mass whereby you could be missing out on conversations by not having the app installed.
 
@@ -55,7 +55,7 @@ But why did Telegram benefit so much more than any of its rivals?
 
 ## It Wasn't All Perfect for Telegram
 
- While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In[a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
+ While October 4 was clearly a very good day for Telegram, it wasn't all smooth sailing. In [a Telegram post](https://t.me/durov/170) , CEO Pavel Durov noted that some users had experienced slower speeds due to the massive influx of new users.
 
 > "Users in the Americas may have experienced slower speed than usual as millions of users from these continents rushed to sign up for Telegram at the same time."
 
@@ -86,3 +86,27 @@ But why did Telegram benefit so much more than any of its rivals?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/interactivity-or-intrusion-cybersecurity-risks-on-fb-quizzes/"><u>Interactivity or Intrusion? Cybersecurity Risks on FB Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-impact-of-facebooks-secret-data/"><u>Exploring the Impact of Facebook's Secret Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-reemerge-and-thrive-amidst-the-new-age-of-metaversal-exploration/"><u>Can LLife Reemerge and Thrive Amidst The New Age of Metaversal Exploration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-if-facebook-has-peaked-popularity/"><u>Assessing If Facebook Has Peaked Popularity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-upgrade-enhanced-messenger-instagram-communication-awaits/"><u>Facebook's Chat Upgrade: Enhanced Messenger, Instagram Communication Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-proof-system-worth-paying-for/"><u>Meta's Proof System: Worth Paying For?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-privacy-price-avoid-facebooks-web-logging-feature/"><u>The Privacy Price: Avoid Facebook’s Web Logging Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrypting-the-secrets-of-social-media-invisibility/"><u>Decrypting the Secrets of Social Media Invisibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/prompt-your-way-to-enlightened-social-media-posts-at-facebook/"><u>Prompt Your Way to Enlightened Social Media Posts at Facebook</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-definition-horizons-with-sony-unraveling-xperia-xz-for-2024/"><u>High-Definition Horizons with Sony - Unraveling Xperia XZ for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-top-android-video-editing-apps-for-free-and-paid-users/"><u>New Best Top Android Video Editing Apps for Free and Paid Users</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-the-best-of-the-best-highlight-video-creation-tools-compared-for-2024/"><u>New The Best of the Best Highlight Video Creation Tools Compared for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/guide-on-how-to-free-up-iphone-12-pro-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Free Up iPhone 12 Pro Space | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-zero-to-hero-amplifying-youtube-influence-via-famebit-partnerships/"><u>From Zero to Hero  Amplifying YouTube Influence via FameBit Partnerships</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-pro-converter-mp4-videos-for-social-media-fb-focus/"><u>In 2024, Pro Converter  MP4 Videos for Social Media (FB Focus)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-step-by-step-guide-establishing-your-first-youtube-profile/"><u>[Updated] Step-by-Step Guide  Establishing Your First YouTube Profile</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-chromebook-zoom-techniques-unveiled/"><u>[Updated] Expert Chromebook Zoom Techniques Unveiled</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-most-effective-sales-strategies-unveiled-with-these-leading-15-fb-analyzers/"><u>In 2024, The Most Effective Sales Strategies Unveiled with These Leading 15 FB Analyzers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-insightful-rank-watchers-optimizing-your-video-performance/"><u>In 2024, Insightful Rank Watchers  Optimizing Your Video Performance</u></a></li>
+</ul></div>

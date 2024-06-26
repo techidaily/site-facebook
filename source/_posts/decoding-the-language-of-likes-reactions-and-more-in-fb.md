@@ -1,7 +1,7 @@
 ---
 title: Decoding the Language of Likes, Reactions & More in FB
-date: 2024-06-20 17:21:56
-updated: 2024-06-23 10:53:26
+date: 2024-06-25T14:33:25.080Z
+updated: 2024-06-26T14:33:25.080Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
  While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
 
- If[Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
+ If [Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
 
  Some of the most important icons when creating a post on Facebook are in your**Post audience** window, accessible from the button right under your name on the post.
 
@@ -76,7 +76,7 @@ What do these Facebook symbols mean?
 * **Lock (Only me)** : Only you can see the post.
 * **Gear (Custom)** : Add or remove friends or friends lists who can see the post.
 
- It's very easy to customize the privacy of every Facebook post. There are limits, however. Explore Facebook's notification symbols and meanings all you want, but[seeing who viewed your Facebook profile](https://www.makeuseof.com/tag/can-really-see-viewed-facebook-profile/) is still a no-go. Even so, you have plenty of options to play with.
+ It's very easy to customize the privacy of every Facebook post. There are limits, however. Explore Facebook's notification symbols and meanings all you want, but [seeing who viewed your Facebook profile](https://www.makeuseof.com/tag/can-really-see-viewed-facebook-profile/) is still a no-go. Even so, you have plenty of options to play with.
 
  Another icon that might interest you when posting on your mobile device is a button with Instagram's logo on it. Toggle this feature to share your post on that platform, too.
 
@@ -106,7 +106,7 @@ What do these Facebook symbols mean?
 
 ## Facebook Navigation Symbols
 
- There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
+ There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and [try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
 
 ### Facebook Menu Icons
 
@@ -159,7 +159,7 @@ What do these Facebook symbols mean?
 * **Recent ad activity** : See ads you interacted with.
 * **Saved** : View your collection of Saved Facebook posts.
 
- Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
+ Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from [downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to [boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
 ## Symbols on Facebook: Explained
 
@@ -184,3 +184,26 @@ What do these Facebook symbols mean?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discover-the-power-play-in-your-fb-friends-list-management/"><u>Discover the Power Play in Your FB Friends List Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-business-page-removal-guide/"><u>Mastering Facebook Business Page Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/detection-of-fading-chat-evidence-on-messenger/"><u>Detection of Fading Chat Evidence on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/reacquiring-facebook-login-post-code-loss-scenario/"><u>Reacquiring Facebook Login Post-Code Loss Scenario</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-aggressors-dark-patterns-and-data-breaches/"><u>Invisible Aggressors: Dark Patterns and Data Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-connectivity-through-facebook-portals/"><u>Unlocking the Potential of Social Connectivity Through Facebook Portals</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-allege-crackdown-on-authentic-marketing-strategies/"><u>Whistle-Blowers Allege Crackdown on Authentic Marketing Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-first-approach-timeline-for-end-to-end-encryption-in-fb-messenger/"><u>Privacy-First Approach: Timeline for End-to-End Encryption in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-friendship-to-the-next-level-fb-avatars-and-whatsapp-dialogue/"><u>Taking Friendship to the Next Level: FB Avatars & WhatsApp Dialogue</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-social-media-perspective-dissecting-igtv-versus-youtubes-features/"><u>A Social Media Perspective  Dissecting IGTV versus YouTube's Features</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-navigating-vocaroos-sound-recording-procedures-insights-and-options-for-2024/"><u>Updated Navigating Vocaroos Sound Recording Procedures Insights and Options for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-slow-it-down-on-iphone-filming-and-modifying-motion-content/"><u>[New] Slow It Down on iPhone  Filming & Modifying Motion Content</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-samsung-galaxy-s23-ultra-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Samsung Galaxy S23 Ultra</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-effortlessly-record-screens-on-your-hp-device/"><u>[New] How to Effortlessly Record Screens on Your HP Device</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-restore-windows-photo-viewer-in-windows-10-2-methods/"><u>How to Restore Windows Photo Viewer in Windows 10 (2 Methods)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-realme-c51-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Realme C51 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-compilation-of-samsungs-picture-editing-capabilities/"><u>The Ultimate Compilation of Samsung's Picture Editing Capabilities</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-6-social-sites-for-enterprise-communication/"><u>[New] Leading 6 Social Sites for Enterprise Communication</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-why-no-video-suggestions-pop-up-in-your-social-media-world-for-2024/"><u>[Updated] Why No Video Suggestions Pop Up in Your Social Media World for 2024</u></a></li>
+</ul></div>

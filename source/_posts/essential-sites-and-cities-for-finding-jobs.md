@@ -1,7 +1,7 @@
 ---
 title: Essential Sites and Cities for Finding Jobs
-date: 2024-06-21 13:51:17
-updated: 2024-06-23 10:49:17
+date: 2024-06-25T14:43:50.993Z
+updated: 2024-06-26T14:43:50.993Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5d
 
  Here is a selection of places that'll help you take the first steps on your journey to freelancing success, whether you're a writer, graphic designer, programmer, or something else.
 
-## 1. LinkedIn
-
-![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
+## 1. LinkedIn ![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
 
  As the go-to B2B social media network, you're probably not surprised to hear that LinkedIn is a great place to find freelance work.
 
@@ -35,11 +33,9 @@ thumbnail: https://thmb.techidaily.com/487b81e16ea9432c9b3bc7ae56246949ca490ff5d
 
  You can also use LinkedIn to find freelance work by using hashtags and keeping an eye out on your feed for people who may need your services.
 
-## 2\. Job Boards
+## 2\. Job Boards ![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
 
-![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
-
- A lot of new freelancers go straight to the likes of[Upwork](https://www.upwork.com/) ,[Freelancer.com](https://www.freelancer.com/) , and[Fiverr](https://www.fiverr.com/) . Those platforms are handy for building a portfolio, but you'll have to sift through many low-paying gigs to find the gems.
+ A lot of new freelancers go straight to the likes of [Upwork](https://www.upwork.com/) ,[Freelancer.com](https://www.freelancer.com/) , and [Fiverr](https://www.fiverr.com/) . Those platforms are handy for building a portfolio, but you'll have to sift through many low-paying gigs to find the gems.
 
  Plenty of other job boards exist for finding work. And often, they will compensate you much better. Again, though, there are some bad-paying clients—so you'll need to read descriptions carefully.
 
@@ -50,11 +46,9 @@ Job boards that you can find great gigs on include:
 * [FlexJobs](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU96315/https://www.flexjobs.com/)
 * [SolidGigs](https://solidgigs.com/)
 
- You can also use bigger job boards like[Indeed](https://www.indeed.com/) and[Neuvoo](https://neuvoo.com/) . Sign up for their newsletters to get the best roles delivered to your inbox.
+ You can also use bigger job boards like [Indeed](https://www.indeed.com/) and [Neuvoo](https://neuvoo.com/) . Sign up for their newsletters to get the best roles delivered to your inbox.
 
-## 3. Facebook Groups
-
-![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
+## 3. Facebook Groups ![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
 
  Facebook can help you find pretty much anything, whether you're looking to buy from a local seller or meet like-minded people. And Facebook Groups are also beneficial when you're a freelancer.
 
@@ -66,9 +60,7 @@ Job boards that you can find great gigs on include:
 * [Vue.js for Hire](https://www.facebook.com/groups/vuejsforhire)
 * [Remote Work & Jobs for Digital Nomads](https://www.facebook.com/groups/remotework.digitalnomads/)
 
-## 4. Twitter
-
-![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
+## 4. Twitter ![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
 
  Twitter is a popular platform for freelancers to connect with others on the same path as them. But beyond that, it's also a great place to find freelance work.
 
@@ -84,9 +76,7 @@ Job boards that you can find great gigs on include:
 
  Both of these tips work if you don't have a Twitter account; you can just use the search bar to look for hashtags and profiles. Of course, though, you won't be able to follow accounts.
 
-## 5\. Emails
-
-![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
+## 5\. Emails ![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
 
  When you think of email pitches, chances are you're thinking of annoying salespeople. And yes, email pitches are sometimes irritating to receive. But they're only annoying if you make them that way.
 
@@ -102,9 +92,7 @@ Job boards that you can find great gigs on include:
 
  In addition to the job-hunting methods that we outlined above, there are a few things you should keep in mind once you start getting serious about landing gigs.
 
-### Build Relationships
-
-![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
+### Build Relationships ![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
 
  The phrase "it's not what you know, but who you know" is especially important in the world of freelancing. Often, the best roles are hidden. And if you don't have a strong network, your risks of faltering are higher.
 
@@ -116,9 +104,7 @@ Job boards that you can find great gigs on include:
 
  You don't necessarily need an extensive network; just a group of people you know well enough to help you.
 
-### Don't Drop Off When Things Are Going Well
-
-![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
+### Don't Drop Off When Things Are Going Well ![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
 
  The worst time to let down your guard is when things are going well in your freelance career—that is precisely when you might find that the tank begins to dry up.
 
@@ -128,9 +114,7 @@ Job boards that you can find great gigs on include:
 
  When you've got a steady base, you might want to focus more on your marketing, too. That way, you can start attracting clients rather than having to go out and get the work.
 
-### Offer Free Value
-
-![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
+### Offer Free Value ![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
 
  For others to trust you enough to want to spend their money on you, you must provide free value first. But that doesn't mean you need to work for free for other clients (though in some cases, doing so can be worth it).
 
@@ -159,3 +143,24 @@ Job boards that you can find great gigs on include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-facebook-reels-habit/"><u>How to Avoid Facebook Reels Habit</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasked-truths-rethinking-the-significance-of-facebook-reports/"><u>Unmasked Truths: Rethinking the Significance of Facebook Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-separate-your-spotify-from-facebook-connection/"><u>How to Separate Your Spotify From Facebook Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-targeted-mobile-ads-insightful-or-accidental/"><u>The Mystery Behind Targeted Mobile Ads: Insightful or Accidental?</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-to-rejuvenate-non-loading-fb-news-feed-items/"><u>Tactics to Rejuvenate Non-Loading FB News Feed Items</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-tiktok-top-video-editing-tools-released/"><u>2024 Approved  Mastering TikTok  Top Video Editing Tools Released</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-make-movies-on-the-go-10-top-android-apps/"><u>New 2024 Approved Make Movies on the Go 10 Top Android Apps</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-increase-your-channels-reach-with-these-2-tricks/"><u>[Updated] Increase Your Channel's Reach with These 2 Tricks</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-dive-into-the-world-of-instagram-voice-personalization/"><u>[New] 2024 Approved  Dive Into the World of Instagram Voice Personalization</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-decoding-video-thread-embellishments/"><u>2024 Approved  Decoding Video Thread Embellishments</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-quick-fixes-eliminate-ssgnatures-in-a-blink/"><u>[New] Quick Fixes  Eliminate Ssgnatures in a Blink</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/the-ultimate-guide-to-eliminating-loud-offset-best-practices-for-both-digital-and-physical-realms-for-2024/"><u>The Ultimate Guide to Eliminating Loud Offset Best Practices For Both Digital and Physical Realms for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-best-8-online-mpeg-to-gif-converters/"><u>In 2024, Best 8 Online MPEG to GIF Converters</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-directory-for-podcast-hosting/"><u>In 2024, The Ultimate Directory for Podcast Hosting</u></a></li>
+</ul></div>

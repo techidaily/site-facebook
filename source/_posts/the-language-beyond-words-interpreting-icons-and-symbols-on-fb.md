@@ -1,7 +1,7 @@
 ---
 title: "The Language Beyond Words: Interpreting Icons and Symbols on FB"
-date: 2024-06-20 18:10:41
-updated: 2024-06-23 10:56:45
+date: 2024-06-25T14:49:01.724Z
+updated: 2024-06-26T14:49:01.724Z
 tags:
   - facebook
 categories:
@@ -19,73 +19,55 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
 
  We've researched the most common icons and symbols on Facebook Messenger to find out what purpose they serve. Here's everything you need to know.
 
-## 1\. Open Blue Circle
-
-![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
+## 1\. Open Blue Circle ![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
 
  The open blue circle Facebook Messenger icon means that your message is currently being sent.
 
  If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
 
-## 2\. Open Blue Circle + Checkmark
-
-![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
+## 2\. Open Blue Circle + Checkmark ![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
 
  The open blue circle with a checkmark means that your message has been delivered.
 
  At this point, the recipient will see your message as soon as they open the Messenger app. But if they're not online, they may not be able to see it yet.
 
-## 3\. Filled Blue Circle + Check
-
-![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
+## 3\. Filled Blue Circle + Check ![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
 
  A filled blue circle with a checkmark means that your message has been delivered.
 
  While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
 
-## 4\. Red Triangle + Exclamation
-
-![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
+## 4\. Red Triangle + Exclamation ![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
 
  A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
 
- A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
+ A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you [fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
 
-## 5\. Green Dot
-
-![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
+## 5\. Green Dot ![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
 
  A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
 
  If you send a message to someone with a green dot next to their display picture, they're more likely to receive, read, and reply to your chat.
 
- However, you can also[change which Facebook friends can see you online](https://www.makeuseof.com/tag/decide-which-facebook-friends-see-you-online-and-which-dont-the-easy-way/) , which hides the activity status green dot from certain users.
+ However, you can also [change which Facebook friends can see you online](https://www.makeuseof.com/tag/decide-which-facebook-friends-see-you-online-and-which-dont-the-easy-way/) , which hides the activity status green dot from certain users.
 
-## 6\. Blue Dot
-
-![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
+## 6\. Blue Dot ![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
 
  A blue dot to the right of a chat indicates an unread message. The sender won't get a message read confirmation until you click the chat.
 
  Opening a chat with a blue dot removes the dot and shows the sender that you've opened and read their message. This feature is also handy for quickly sorting and identifying messages you don't want to read.
 
-## 7\. A Gray Crossed-Out Bell
-
-![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
+## 7\. A Gray Crossed-Out Bell ![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
 
  The gray crossed bell to the right of a chat indicates that you've muted the chat. A muted person can send you messages,but you won't be notified that they've sent you a message.
 
  You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
 
-## 8\. The Lock Icon
+## 8\. The Lock Icon ![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
 
-![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
+ The lock icon next to a chat means the conversation is secret and [end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
 
- The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
-
-## How to Know if Someone Saw Your Facebook Message
-
-![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
+## How to Know if Someone Saw Your Facebook Message ![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
 
  If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
 
@@ -112,3 +94,26 @@ thumbnail: https://thmb.techidaily.com/c72cccdf9cacc0fda207b45b24ab86cf2fde475b8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-community-around-your-brand-increase-likesshares-on-fb/"><u>Building a Community Around Your Brand: Increase Likes/Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-exclusivity-recognize-illicit-facebook-access/"><u>Ensure Exclusivity – Recognize Illicit Facebook Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-you-turn-off-facebooks-in-app-browser-how-it-works/"><u>Can You Turn Off Facebook's In-App Browser? How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/2022s-worst-of-the-tech-world-exposed/"><u>2022'S Worst of the Tech World Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-productivity-with-platforms-like-linkedin-and-twitter/"><u>Boosting Productivity with Platforms Like LinkedIn and Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-apple-chooses-different-trajectory-than-facebooks-metaverse/"><u>Why Apple Chooses Different Trajectory Than Facebook's Metaverse</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-revolutionizing-real-estate-with-metaverse-ads/"><u>[New] Revolutionizing Real Estate with Metaverse Ads</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-realme-11-proplus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Realme 11 Pro+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-art-of-zoom-etiquette-secrets-to-polite-and-productive-online-chats/"><u>[New] 2024 Approved  The Art of Zoom Etiquette  Secrets to Polite and Productive Online Chats</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-elite-7-dslr-options-superior-for-professional-videography-for-2024/"><u>[New] Elite 7 DSLR Options Superior for Professional Videography for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-best-audio-editors-for-android/"><u>New In 2024, Best Audio Editors for Android</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-inside-the-core-of-vitas-video-editing-a-full-guide-and-critical-review-2024/"><u>[New] Inside the Core of Vita's Video Editing - A Full Guide & Critical Review, 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-design-your-own-face-online-best-free-tools-and-websites/"><u>Updated In 2024, Design Your Own Face Online Best Free Tools and Websites</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-how-to-slow-down-music-without-changing-pitch/"><u>In 2024, How to Slow Down Music without Changing Pitch?</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-note-30-vip-racing-edition-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-itel-a70-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Itel A70 Easily & Safely | Dr.fone</u></a></li>
+</ul></div>

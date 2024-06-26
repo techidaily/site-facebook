@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Purpose and Effect of FBCTA
-date: 2024-06-21 16:53:53
-updated: 2024-06-23 10:37:31
+date: 2024-06-25T14:18:01.737Z
+updated: 2024-06-26T14:18:01.737Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
- Or, as stated by lawmakers in the[proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
+ Or, as stated by lawmakers in the [proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
 
 > To require that internet platforms give users the option to engage with a platform without being manipulated by algorithms driven by userspecific data.
 
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
-## How the Filter Bubble Transparency Act Could Affect You
-
-![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+## How the Filter Bubble Transparency Act Could Affect You ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -76,3 +74,22 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-hide-likes-on-your-facebook-posts/"><u>How to Hide Likes on Your Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/power-play-enhance-page-oversight-by-appointing-an-admin/"><u>Power Play: Enhance Page Oversight by Appointing an Admin</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-important-tech-news-stories-you-might-have-missed/"><u>4 Important Tech News Stories You Might Have Missed</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-more-clicks-on-fb-with-these-5-free-timetable-strategies/"><u>Get More Clicks on FB with These 5 Free Timetable Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/propel-your-presence-profitably-top-5-monetization-tactics-on-fbig/"><u>Propel Your Presence Profitably: Top 5 Monetization Tactics on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-budget-friendly-steps-for-syncing-your-fb-content-schedule/"><u>5 Budget-Friendly Steps for Syncing Your FB Content Schedule</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/dive-into-digital-alteration-mastering-voice-change-apps-in-ios/"><u>Dive Into Digital Alteration Mastering Voice Change Apps in iOS</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-essential-video-capture-tools-for-windows-10-users/"><u>In 2024, Essential Video Capture Tools for Windows 10 Users</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-samsung-galaxy-a24-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Samsung Galaxy A24? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-navigating-the-tiktok-landscape-strategies-and-exemplary-ad-successes/"><u>[New] Navigating the TikTok Landscape  Strategies and Exemplary Ad Successes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-xs-to-other-iphone-14-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone XS to other iPhone 14 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-pro-tips-to-perfectly-capture-your-mac-with-ease-and-speed/"><u>2024 Approved  Pro Tips to Perfectly Capture Your Mac with Ease and Speed</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-create-a-digital-signature-and-certificate-for-excel-2007-files-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to create a digital signature and certificate for Excel 2007 files</u></a></li>
+</ul></div>

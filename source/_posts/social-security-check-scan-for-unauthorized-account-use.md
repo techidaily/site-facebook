@@ -1,7 +1,7 @@
 ---
 title: "Social Security Check: Scan for Unauthorized Account Use"
-date: 2024-06-20 11:52:12
-updated: 2024-06-23 11:46:27
+date: 2024-06-25T14:34:50.409Z
+updated: 2024-06-26T14:34:50.409Z
 tags:
   - facebook
 categories:
@@ -59,7 +59,7 @@ To revoke device access on your Facebook account:
 
  Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
 
- Of course, the first step is to[change your Facebook password](https://www.makeuseof.com/tag/change-facebook-password/) . You can do so by following the steps below.
+ Of course, the first step is to [change your Facebook password](https://www.makeuseof.com/tag/change-facebook-password/) . You can do so by following the steps below.
 
 1. On the**Password and security** page, click**Change password** .
 2. Choose the relevant account and fill in the form. You will need to enter your current password to complete the process.
@@ -110,7 +110,7 @@ Let's quickly summarize what we have learned:
 * You can check if someone else is accessing your Facebook account by going to your **profile icon > Settings & privacy > Settings > Password and security >** **Password and security >** **Where you're logged in** .
 * You should enable additional security measures by going to **Settings & Privacy > Settings > Password and security > Password and security** . Click the categories:**Change password** ,**Two-factor authentication** ,**Login alerts** ,**Where you're logged in** , and complete each process.
 
- If you have confirmed that your account was breached, there are[things to immediately do when your Facebook account has been hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) . There are also[ways to recover your Facebook account when you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) if the hacker has already changed your credentials.
+ If you have confirmed that your account was breached, there are [things to immediately do when your Facebook account has been hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) . There are also [ways to recover your Facebook account when you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) if the hacker has already changed your credentials.
 
  Unauthorized access to your account can also put your other social media profiles at risk, or allow the hacker to send malware to your friends. Make sure to resolve it as soon as possible.
 
@@ -135,3 +135,22 @@ Let's quickly summarize what we have learned:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/designating-which-friends-can-view-you-active/"><u>Designating Which Friends Can View You Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-social-network-snapshot-downloading-your-facebook-past/"><u>Complete Social Network Snapshot: Downloading Your Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-blueprint-for-an-exceptional-facebook-profile/"><u>The Ultimate Blueprint for an Exceptional Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-share-instagram-reels-to-facebook/"><u>How to Share Instagram Reels to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/upholdining-brand-integrity-unfollowing-non-aligned-accounts/"><u>Upholdining Brand Integrity: Unfollowing Non-Aligned Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/safety-vs-entertainment-balancing-risks-with-quizzes/"><u>Safety Vs. Entertainment: Balancing Risks with Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-personal-data-leakage-from-facebook-group-happened/"><u>Has Personal Data Leakage From Facebook Group Happened?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gross-income-strategies-for-podcasters/"><u>2024 Approved  Gross Income Strategies for Podcasters</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/seekingsuperiorcameraspost-mycam/"><u>SeekingSuperiorCamerasPost-MyCam</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-introducing-the-ultimate-intro-edits-app-of-2023/"><u>2024 Approved  Introducing the Ultimate Intro Edits App of 2023</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unlock-professional-video-quality-with-top-youtube-to-webm-tools/"><u>[Updated] Unlock Professional Video Quality with Top YouTube-to-WebM Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-itel-p55-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Itel P55 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/build-at-home-an-affordable-and-versatile-virtual-reality-headset/"><u>Build at Home an Affordable and Versatile Virtual Reality Headset</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-infinix-hot-30i-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Infinix Hot 30i</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-the-power-of-pro-how-final-cut-pro-surpasses-final-cut-express/"><u>In 2024, The Power of Pro How Final Cut Pro Surpasses Final Cut Express</u></a></li>
+</ul></div>

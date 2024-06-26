@@ -1,7 +1,7 @@
 ---
 title: Analyzing Social Media's Impact on Quest 2 Privacy
-date: 2024-06-20 20:45:12
-updated: 2024-06-23 10:37:28
+date: 2024-06-25T13:44:14.554Z
+updated: 2024-06-26T13:44:14.554Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766
 
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
 
- Seeing the problems above, including vocal pushback from users, Meta[stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
+ Seeing the problems above, including vocal pushback from users, Meta [stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
 
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
 
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766
 
 ### Meta Gets Your Info Either way
 
- There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
+ There are a lot of [reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
 
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766
 
  More than that,[Quest has its own browser.](https://www.makeuseof.com/how-to-get-started-with-quest-browser/) So, if you were worried about Facebook accessing your web activity, a Meta account is at least as bad. That’s to say nothing of the cameras and sensors that a VR headset needs to work properly, which can become a bottomless pit of suspicion for Meta critics.
 
- This argument is even more impactful if you choose to[link your Meta account to your Facebook account](https://www.oculus.com/blog/meta-accounts/) through Meta’s accounts center. You don’t have to do this but, if you do, you’re pretty much connecting the dots between these accounts for Meta.
+ This argument is even more impactful if you choose to [link your Meta account to your Facebook account](https://www.oculus.com/blog/meta-accounts/) through Meta’s accounts center. You don’t have to do this but, if you do, you’re pretty much connecting the dots between these accounts for Meta.
 
  It could be argued that these are moot points as far as the Meta account is concerned. After all, these things are required for a VR headset and ecosystem. So, they aren’t new concerns since Meta accounts appeared, as they’ve been true since Facebook bought Oculus. They’ve even been true since Meta replaced the Oculus login with a Facebook login.
 
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766
 
  So far, we’ve been weighing the cons of a Meta account against the cons of a Facebook account. However, since the Meta account option, you don’t need a Facebook account to use a Quest.
 
- If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
+ If you want to use a Quest but [deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
 ## Pick Your Poison
 
@@ -92,3 +92,22 @@ thumbnail: https://thmb.techidaily.com/7618ed5212ad2fa17c4d0cff006f1dcb4d7c52766
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-failure-of-fb-notifications-to-load/"><u>Fixing the Failure of FB Notifications to Load</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-and-the-immersive-delineating-metavirtualitys-six-aspects/"><u>The Virtual and the Immersive: Delineating Metavirtuality's Six Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-conclude-your-journey-with-online-communities-graciously/"><u>How to Conclude Your Journey with Online Communities Graciously</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-most-controversial-names-leading-tech-today/"><u>The Most Controversial Names Leading Tech Today</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-harvest-hangouts-the-most-friendly-farm-gaming-experiences/"><u>[Updated] In 2024, Harvest Hangouts  The Most Friendly Farm Gaming Experiences</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11-pro-5g-bootloader-easily-by-drfone-android/"><u>How to Unlock Oppo Reno 11 Pro 5G Bootloader Easily</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-easy-video-editing-how-to-reverse-clips-in-final-cut-pro-2023-tutorial/"><u>Updated In 2024, Easy Video Editing How to Reverse Clips in Final Cut Pro 2023 Tutorial</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-uncovering-illegal-gain-from-false-subscriber-sales/"><u>In 2024, Uncovering Illegal Gain From False Subscriber Sales</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-webcam-breakthroughs-ideas-to-try-now/"><u>[Updated] 2024 Approved  Webcam Breakthroughs  Ideas to Try Now</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-checklist-for-using-firefoxs-popup-window/"><u>The Ultimate Checklist for Using Firefox's Popup Window</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-how-to-animate-picture-online-without-learning-from-scratch/"><u>Updated How to Animate Picture Online Without Learning From Scratch</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-zte-nubia-flip-5g-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on ZTE Nubia Flip 5G</u></a></li>
+</ul></div>

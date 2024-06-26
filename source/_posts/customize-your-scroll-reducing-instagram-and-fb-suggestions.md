@@ -1,7 +1,7 @@
 ---
 title: "Customize Your Scroll: Reducing Instagram and FB Suggestions"
-date: 2024-06-20 18:32:30
-updated: 2024-06-23 10:43:21
+date: 2024-06-25T14:09:41.592Z
+updated: 2024-06-26T14:09:41.592Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/f99b0547d8a95f637159e251c131a6578ae71b255
 
  By showing you these posts, each social media platform tries to get you to stay on the platform for longer. The longer you stay on the platform, the more ads it can show you, and the more money it can make. That's a fairly straightforward business model.
 
- It's important to make the distinction that social media companies aren't strictly controlling what content you see. Each platform's algorithm was designed to show you relevant content and make the platform money. You can also[take advantage of the algorithm, such as on Instagram](http://www.makeuseof.com/instagram-algorithm-2021/) .
+ It's important to make the distinction that social media companies aren't strictly controlling what content you see. Each platform's algorithm was designed to show you relevant content and make the platform money. You can also [take advantage of the algorithm, such as on Instagram](http://www.makeuseof.com/instagram-algorithm-2021/) .
 
  The algorithm will evolve by itself, and choose what posts to show you without any human oversight—there's nobody at any social media company choosing who sees what. While the platform creates the algorithm and gives it a goal, it can't choose the content.
 
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/f99b0547d8a95f637159e251c131a6578ae71b255
 
  There are some good intentions behind these algorithmic timelines, besides good business for the social media platform. Algorithmic feeds try to show you more of what they predict you'll like, and often it does a fairly good job. You may discover new content you wouldn't have otherwise seen.
 
- Instagram estimates that users miss around 70 percent of their feed, which is especially painful for those trying to[maximize their Instagram exposure](http://www.makeuseof.com/maximize-your-instagram-exposure-2021/) . So, it makes sense to reorder the feed to put things you will like at the top.
+ Instagram estimates that users miss around 70 percent of their feed, which is especially painful for those trying to [maximize their Instagram exposure](http://www.makeuseof.com/maximize-your-instagram-exposure-2021/) . So, it makes sense to reorder the feed to put things you will like at the top.
 
  This can be especially useful to catch up on notable events or posts from your favorite accounts when you haven't logged in for a while.
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/f99b0547d8a95f637159e251c131a6578ae71b255
 
  You're also dependent on the algorithm's intelligence. While algorithms can often predict what posts you'll like pretty well, it doesn't get things right all the time.
 
- Also, you need to train the algorithm over time with your interactions on the app. If you've just signed up to a new social media platform, it won't know you very well. That's a good thing if you're trying to[reduce targeted ads on social media](http://www.makeuseof.com/reduce-targeted-ads-social-media/) , but not so good if you use algorithmic feeds.
+ Also, you need to train the algorithm over time with your interactions on the app. If you've just signed up to a new social media platform, it won't know you very well. That's a good thing if you're trying to [reduce targeted ads on social media](http://www.makeuseof.com/reduce-targeted-ads-social-media/) , but not so good if you use algorithmic feeds.
 
  A company having control over your timeline can be an issue. Facebook, for instance, already restricts how many times a brand's posts can appear in your News Feed. You might like the MakeUseOf Facebook page, but that doesn't mean you'll see all updates from it in your timeline.
 
@@ -99,7 +99,7 @@ Close
 
  Of course, you can still view any Instagram account's posts and Stories in the most recent order by visiting their page. You can also set up a notification for any account so that Instagram notifies you when they upload a new Post, Story, or Live Video.
 
- That can help you keep up with some favorites in a timely manner. Keeping up with only important notifications is a good way to[optimize your Instagram feed for better mental health](http://www.makeuseof.com/how-to-optimize-instagram-better-mental-health/) .
+ That can help you keep up with some favorites in a timely manner. Keeping up with only important notifications is a good way to [optimize your Instagram feed for better mental health](http://www.makeuseof.com/how-to-optimize-instagram-better-mental-health/) .
 
 ## How to Disable Facebook's Algorithmic Feed
 
@@ -121,9 +121,7 @@ Close
 2. Tap on the**Menu** hamburger button in the bottom-left corner.
 3. Scroll down until you reach**See more** , just above the**Help & Support** tab.
 4. Scroll down a little further until you find**Most recent** .
-5. Once you tap**Most recent** , Facebook will take you to a separate News Feed in chronological order
-
-![Facebook-Change-Feed-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-1.PNG)
+5. Once you tap**Most recent** , Facebook will take you to a separate News Feed in chronological order ![Facebook-Change-Feed-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-1.PNG)
 
 ![Facebook-Change-Feed-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-2.PNG)
 
@@ -154,3 +152,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-designing-an-engaging-social-media-profile-picture-using-your-avatar/"><u>Unleash Creativity: Designing an Engaging Social Media Profile Picture Using Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-email-and-phone-for-facebook-security/"><u>Updating Email & Phone for Facebook Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/flexible-fonts-for-friendly-forums-messenger-tips/"><u>Flexible Fonts for Friendly Forums: Messenger Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventive-practices-at-play-how-meta-halt-intimate-photo-sharing/"><u>Preventive Practices at Play: How Meta Halt Intimate Photo Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-your-inner-shutterbug-on-android/"><u>2024 Approved  Unleash Your Inner Shutterbug on Android</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-blue-band-promise-reimagined-breaking-the-streaks-barrier/"><u>[New] 2024 Approved  The Blue Band Promise Reimagined - Breaking the Streaks Barrier</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-making-funny-photos-no-fees-involved/"><u>[Updated] Making Funny Photos  No Fees Involved</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-guide-top-20-cost-free-video-editing-websites/"><u>[New] Ultimate Guide  Top 20 Cost-Free Video Editing Websites</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unraveling-the-secrets-to-soaring-podcast-rankings-with-seo/"><u>[New] Unraveling the Secrets to Soaring Podcast Rankings with SEO</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/micro-post-your-next-audio-adventure/"><u>Micro-Post Your Next Audio Adventure</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-upside-down-up-in-popularity-the-instagram-way/"><u>[New] In 2024, Upside Down, Up in Popularity  The Instagram Way</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-motorola-g54-5g-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Motorola G54 5G? Fixed | Dr.fone</u></a></li>
+</ul></div>

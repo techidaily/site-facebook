@@ -1,7 +1,7 @@
 ---
 title: "Personal Space Controls: Block Stranger Viewers on Facebook"
-date: 2024-06-22 18:46:59
-updated: 2024-06-23 11:51:47
+date: 2024-06-25T14:42:13.352Z
+updated: 2024-06-26T14:42:13.352Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,24 @@ thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/leaders-in-controversy-the-top-6-of-tech/"><u>Leaders in Controversy: The Top 6 of Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-hides-in-a-users-muted-profile/"><u>What Hides in a User's Muted Profile?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-this-person-is-unavailable-on-messenger-mean/"><u>What Does “This Person Is Unavailable on Messenger” Mean?</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-out-the-real-story-behind-user-figures-on-fb/"><u>Chill Out! The Real Story Behind User Figures on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-fb-profile-private-strangers-not/"><u>Keep Your FB Profile Private, Strangers' Not</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/frame-your-life-with-iphones-top-10-photo-rules/"><u>Frame Your Life with iPhone's Top 10 Photo Rules</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/covert-capture-techniques-reducing-identifiable-parts-in-recordings/"><u>Covert Capture Techniques  Reducing Identifiable Parts in Recordings</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-realme-narzo-60-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-apple-iphone-13-pro-max-could-not-be-activatedreached-issue-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 13 Pro Max Could Not Be Activated/Reached Issue</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/infinite-possibilities-on-a-track-top-5-racing-simulators-reviewed/"><u>Infinite Possibilities on a Track  Top 5 Racing Simulators Reviewed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/streaming-gopro-on-social-platforms-a-step-by-step-guide/"><u>Streaming GoPro on Social Platforms  A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-profound-analysis-of-morphvox-technology-and-its-role-in-audio-modification/"><u>[Updated] Profound Analysis of MorphVOX Technology and Its Role in Audio Modification</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-best-android-options-10-gb-emulation-tools/"><u>2024 Approved  Best Android Options  10 GB Emulation Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-can-life360-track-you-when-your-vivo-v29-pro-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Vivo V29 Pro is off? | Dr.fone</u></a></li>
+</ul></div>

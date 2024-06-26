@@ -1,7 +1,7 @@
 ---
 title: Tracking Down Earlier Friends Interactions on FB
-date: 2024-06-22 23:45:39
-updated: 2024-06-23 12:39:14
+date: 2024-06-25T13:45:54.361Z
+updated: 2024-06-26T13:45:54.361Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,26 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/disconnecting-for-enrichment-potential-outcomes/"><u>Disconnecting for Enrichment: Potential Outcomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-implements-e2e-encryption-postpone-details-behind-extension-to-23/"><u>Meta Implements E2E Encryption Postpone: Details Behind Extension to '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149444954-streamline-social-syncing-integrate-facebook-storage-with-top-services/"><u>Streamline Social Syncing: Integrate Facebook Storage with Top Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-world-of-non-facebook-direct-messaging/"><u>The World of Non-Facebook Direct Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ousting-dissolving-a-facebook-relationship/"><u>Online Ousting: Dissolving a Facebook Relationship</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-trailblazer-finding-friendly-face-on-fb/"><u>Digital Trailblazer: Finding Friendly Face on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-social-media-governance-facebooks-latest-policies-hub/"><u>Unveiling Social Media Governance: Facebook's Latest Policies Hub</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-androids-top-imovie-substitutes-a-comprehensive-list/"><u>2024 Approved Androids Top iMovie Substitutes A Comprehensive List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/novices-guide-to-vectors-insight-into-types-and-software-choices-for-2024/"><u>Novice's Guide to Vectors  Insight Into Types & Software Choices for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-elevating-visual-quality-incorporating-filters-in-videography/"><u>2024 Approved  Elevating Visual Quality  Incorporating Filters in Videography</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-apple-iphone-8-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On Apple iPhone 8</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-sony-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on Sony</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/how-to-change-font-in-premiere-pro/"><u>How To Change Font In Premiere Pro</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-key-points-to-consider-when-navigating-tiktok-web-on-macos/"><u>2024 Approved  Key Points to Consider When Navigating TikTok Web on macOS</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-dvd-magic-transforming-your-home-videos-into-cinematic-masterpieces/"><u>2024 Approved DVD Magic Transforming Your Home Videos Into Cinematic Masterpieces</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-on-your-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID On Your Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ace-trackers-our-top-five-games/"><u>[New] In 2024, Ace Trackers  Our Top Five Games</u></a></li>
+</ul></div>

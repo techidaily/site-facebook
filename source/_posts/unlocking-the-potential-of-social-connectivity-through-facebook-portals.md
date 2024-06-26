@@ -1,7 +1,7 @@
 ---
 title: Unlocking the Potential of Social Connectivity Through Facebook Portals
-date: 2024-06-22 17:34:58
-updated: 2024-06-23 10:12:51
+date: 2024-06-25T14:24:37.281Z
+updated: 2024-06-26T14:24:37.281Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
- The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
+ The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
 
@@ -55,9 +55,7 @@ thumbnail: https://thmb.techidaily.com/1d9a817ed59482a0eeff36b88b02b53bced3999d9
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV
-
-![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -87,9 +85,7 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi
-
-![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -108,9 +104,7 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know
-
-![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -141,3 +135,23 @@ Your Portal TV has two clips.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defiance-why-it-wont-go-dead/"><u>Facebook's Defiance: Why It Won't Go 'Dead'</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-extraction-of-complete-facebook-logs-and-traces/"><u>Seamless Extraction of Complete Facebook Logs and Traces</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-monitor-youth-activity-within-social-media-networks/"><u>Steps to Monitor Youth Activity Within Social Media Networks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-chat-commander-the-ultimate-guide-to-text-from-voice/"><u>[New] Chat Commander  The Ultimate Guide to Text From Voice</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/enhancing-video-quality-with-right-lighting/"><u>Enhancing Video Quality with Right Lighting</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-50-best-free-photography-tools-for-the-web/"><u>2024 Approved  50 Best Free Photography Tools for the Web</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-legal-fb-music-streaming-hub/"><u>[Updated] In 2024, Legal FB Music Streaming Hub</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-screencasting-guide-what-is-and-how-to/"><u>[New] In 2024, Screencasting Guide  What Is and How To</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/total-cost-breakdown-from-zero-to-full-broadcast/"><u>Total Cost Breakdown  From Zero to Full Broadcast</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-pathway-to-free-access-c-span-archives/"><u>The Pathway to Free Access  C-Span Archives</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-find-n3-flip-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Find N3 Flip? Fixed | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/shaking-it-off-analyzing-the-efficacy-of-photostability/"><u>Shaking It Off  Analyzing the Efficacy of PhotoStability</u></a></li>
+</ul></div>

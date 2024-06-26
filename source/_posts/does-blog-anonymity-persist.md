@@ -1,7 +1,7 @@
 ---
 title: Does Blog Anonymity Persist?
-date: 2024-06-20 14:54:30
-updated: 2024-06-23 12:24:17
+date: 2024-06-25T14:15:07.840Z
+updated: 2024-06-26T14:15:07.840Z
 tags:
   - facebook
 categories:
@@ -31,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  These realities highlight why people should never assume what they do online stays private. That’s true regardless of whether they decide to use social media.
 
-## Post Deletion Does Not Ensure Privacy
-
-![girl looking at phone with gray background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/girl-looking-at-phone.jpg)
+## Post Deletion Does Not Ensure Privacy ![girl looking at phone with gray background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/girl-looking-at-phone.jpg)
 
  People frequently have second thoughts soon after posting things on social media. Maybe they felt extremely upset about something at the time, publicized their outrage, and later realized they overreacted. However, deleting the post is not a guaranteed way to avoid complications.
 
@@ -43,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
 ## Providers Set Different Information Storage Rules
 
- People are increasingly concerned about how companies handle their data. When American President Biden[nominated Gary Gensler](https://www.olshanlaw.com/blogs-Securities-Law-Blog,leadership-change-at-the-sec-what-activists) to head the Securities and Exchange Commission, activists recognized opportunities to broaden their outreach efforts and include social and environmental causes as well as corporate governance.
+ People are increasingly concerned about how companies handle their data. When American President Biden [nominated Gary Gensler](https://www.olshanlaw.com/blogs-Securities-Law-Blog,leadership-change-at-the-sec-what-activists) to head the Securities and Exchange Commission, activists recognized opportunities to broaden their outreach efforts and include social and environmental causes as well as corporate governance.
 
  The public often wants to hold companies accountable for doing the right thing when protecting their data and otherwise. However, that’s not always so straightforward.
 
@@ -63,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  Related:[What Deactivating or Deleting Facebook Really Means for Privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/)
 
-## Disabling vs. Deleting an Account or User Information
-
-![Facebook FB messenger logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger-logo.jpg)
+## Disabling vs. Deleting an Account or User Information ![Facebook FB messenger logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger-logo.jpg)
 
  Some people may decide to disable their social media accounts instead of deleting them. That’s a common practice for individuals who want to take breaks but aren’t ready to commit to leaving certain sites behind.
 
@@ -73,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  Many state- or region-based privacy laws allow people to contact companies that hold data and request its deletion. However, the situation gets murky since some privacy policies require users to grant services access to their phone contacts.
 
- In[one case](https://www.welivesecurity.com/2020/10/09/so-you-thought-your-personal-data-was-deleted-not-so-fast/) , a person contacted representatives from the Houseparty social app and asked them to delete his data. He did not use the app, but a friend who had his contact information did. That meant Houseparty should have had the data, although from an indirect source.
+ In [one case](https://www.welivesecurity.com/2020/10/09/so-you-thought-your-personal-data-was-deleted-not-so-fast/) , a person contacted representatives from the Houseparty social app and asked them to delete his data. He did not use the app, but a friend who had his contact information did. That meant Houseparty should have had the data, although from an indirect source.
 
  They repeatedly denied that and told him the company’s servers do not store complete contact logs. However, they conversely said the app could read those contact logs once a Houseparty user grants such permission. That example shows how getting rid of stored information is not always a simple process, even with privacy laws in place.
 
@@ -83,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  However, that still doesn’t keep internet users as private as they might think. Data resides in more places than they probably realize.
 
- For example, the[operators of public records](https://www.makeuseof.com/tag/how-to-delete-personal-data-public-record-websites/) sites often get their details from open government databases, such as census records or land-use records. Those online destinations typically show viewers some details, then encourage them to pay fees to unlock more information.
+ For example, the [operators of public records](https://www.makeuseof.com/tag/how-to-delete-personal-data-public-record-websites/) sites often get their details from open government databases, such as census records or land-use records. Those online destinations typically show viewers some details, then encourage them to pay fees to unlock more information.
 
  The sites can help people reconnect with friends after losing touch. However, they could also give scammers data used to impersonate a victim.
 
@@ -93,15 +89,13 @@ thumbnail: https://thmb.techidaily.com/8eb0a52f331cadec1455be55279efe68c9588c114
 
  These show how social media is only one of the many ways people can gather data about someone. With that in mind, people should try to avoid feeling paranoid about what other parties know about them and take some proactive measures instead.
 
-## How to Protect Your Privacy Online
-
-![VPN protection on phone for privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/vpn-protected-privacy-phone.jpg)
+## How to Protect Your Privacy Online ![VPN protection on phone for privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/vpn-protected-privacy-phone.jpg)
 
 People can safeguard their privacy in various ways.
 
  A good starting point is to pause and reflect on the consequences of social media posts before publishing them. For example, our networks tend to have people with similar views. But could someone with a different opinion or background find the material offensive? If so, it’s best to reconsider posting it.
 
- It’s also wise to[read through privacy policies](https://www.makeuseof.com/how-to-check-a-sites-privacy-policy/) to determine a company’s server policies for storing data, how long they retain information, and how customers can request deletion according to applicable privacy laws. That takes time and effort. However, a tool called[Polisis](https://pribot.org/polisis) makes it easier by breaking down a privacy policy’s specifics and alerting people to red flags.
+ It’s also wise to [read through privacy policies](https://www.makeuseof.com/how-to-check-a-sites-privacy-policy/) to determine a company’s server policies for storing data, how long they retain information, and how customers can request deletion according to applicable privacy laws. That takes time and effort. However, a tool called [Polisis](https://pribot.org/polisis) makes it easier by breaking down a privacy policy’s specifics and alerting people to red flags.
 
  Another possibility is to use a search engine and web browser that makes privacy one of its central concerns. For example, DuckDuckGo does not gather or share users’ personal information.
 
@@ -126,3 +120,22 @@ People can safeguard their privacy in various ways.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-vs-removing-loved-ones-from-fb/"><u>Keeping Memories Alive Vs. Removing Loved Ones From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-facebook-expose-your-contact-info/"><u>Did Facebook Expose Your Contact Info?</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-biden-teams-up-facebook-twitter-and-snapchat-for-vaccinations/"><u>President Biden Teams Up: Facebook, Twitter & Snapchat for Vaccinations</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-conversations-through-visuals-in-whatsapp/"><u>Boosting Conversations Through Visuals in WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-giant-to-boost-rusts-coding-capabilities/"><u>Social Networking Giant to Boost Rust's Coding Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-new-layout-of-your-favorite-platform/"><u>Understanding the New Layout of Your Favorite Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-ethically-taking-control-of-online-interactions-using-facebooks-innovative-tools/"><u>Engage Ethically: Taking Control of Online Interactions Using Facebook’s Innovative Tools</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/election-enthusiasts-essentials-quintessential-voting-games/"><u>Election Enthusiasts' Essentials  Quintessential Voting Games</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-exploring-alternate-functions-with-webcams/"><u>In 2024, Exploring Alternate Functions with Webcams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-weekly-essentials-the-best-of-igtv/"><u>2024 Approved  Weekly Essentials  The Best of IGTV</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-explaining-instagrams-sudden-video-pivot/"><u>[Updated] Explaining Instagram's Sudden Video Pivot</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-by-accident-tiktok-rewind-restore-lost-content/"><u>[Updated] By Accident, TikTok Rewind  Restore Lost Content?</u></a></li>
+</ul></div>

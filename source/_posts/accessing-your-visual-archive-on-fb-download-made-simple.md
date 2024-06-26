@@ -1,7 +1,7 @@
 ---
 title: Accessing Your Visual Archive on Fb – Download Made Simple
-date: 2024-06-21 23:28:22
-updated: 2024-06-23 11:15:30
+date: 2024-06-25T14:45:29.236Z
+updated: 2024-06-26T14:45:29.236Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
 
  We'll show you the official methods as well as third-party photo downloader apps, allowing you to download your Facebook photos, your friends' photos, and videos.
 
-## How to Download Facebook Photos
-
-![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+## How to Download Facebook Photos ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -30,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/5a612b69f151ee0b6ea165a5e0a8368a6294f13ac
 
  You can use this method to download Facebook photos. It's as simple as that.
 
- However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+ However, to download your friends' Facebook photos, their [Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
 ## How to Download Facebook Albums
 
@@ -56,7 +54,7 @@ Follow these steps to download your Facebook album:
 
  Here's how to use the easy built-in Facebook photo downloader to download all your Facebook photos:
 
-1. Head to Facebook settings on your desktop browser or use the link[facebook.com/settings](https://www.facebook.com/settings) .
+1. Head to Facebook settings on your desktop browser or use the link [facebook.com/settings](https://www.facebook.com/settings) .
 2. Click**Your Facebook information** in the sidebar.
 3. Select**Download your information** .  
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
@@ -85,11 +83,9 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-## How to Save Facebook Videos to Your Computer or Phone
+## How to Save Facebook Videos to Your Computer or Phone ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
-![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
-
- Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
+ Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you [download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
 
@@ -102,7 +98,7 @@ Here's how to use it:
 
  FDown also has a handy extension for Google Chrome on desktop dubbed Video Downloader Plus. When you are playing a Facebook video, click the extension icon to download it to your computer.
 
-**Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
+**Download:** Video Downloader Plus for [Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
@@ -127,3 +123,23 @@ Here's how to use it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-guide-swiftly-clearing-facebook-data-trails/"><u>Expert Guide: Swiftly Clearing Facebook Data Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-moment-for-facebooks-user-base/"><u>Peaking Moment for Facebook's User Base</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-on-reinstating-wiped-facebook-content/"><u>Expert Advice on Reinstating Wiped Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-media-renewing-your-facebook-password/"><u>Secure Your Social Media - Renewing Your Facebook Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-community-maze-facebook-group-finds/"><u>Navigating the Digital Community Maze: Facebook Group Finds</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-stories-behind-4-major-declines-in-facebook-usage/"><u>The Hidden Stories Behind 4 Major Declines in Facebook Usage</u></a></li>
+<li><a href="https://video-capture.techidaily.com/accelerate-your-editing-process-with-these-5-tips-for-obs/"><u>Accelerate Your Editing Process with These 5 Tips for OBS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-equality-and-innovation-an-easeus-analysis/"><u>[Updated] In 2024, Equality and Innovation - An EaseUS Analysis</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-ignite-your-digital-engagement-top-strategies-for-more-fb-fans/"><u>[New] Ignite Your Digital Engagement  Top Strategies for More FB Fans</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-unveiling-the-enthralling-realm-of-animated-entertainment-on-tiktok-for-2024/"><u>[New] Unveiling the Enthralling Realm of Animated Entertainment on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-unveiling-hidden-gems-facebooks-video-treasures/"><u>In 2024, Unveiling Hidden Gems  Facebook's Video Treasures</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-expert-guide-to-optimal-tripod-setup-for-high-quality-vlogs/"><u>In 2024, Expert Guide to Optimal Tripod Setup for High-Quality Vlogs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-art-of-shots-essential-tips-for-capturing-great-iphone-images/"><u>The Art of Shots  Essential Tips for Capturing Great iPhone Images</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-enhancing-team-dynamics-through-effective-video-calls/"><u>[Updated] In 2024, Enhancing Team Dynamics Through Effective Video Calls</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Apple iPhone 13? | Dr.fone</u></a></li>
+</ul></div>

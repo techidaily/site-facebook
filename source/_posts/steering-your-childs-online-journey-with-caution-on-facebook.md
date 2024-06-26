@@ -1,7 +1,7 @@
 ---
 title: Steering Your Child's Online Journey with Caution on Facebook
-date: 2024-06-22 21:15:27
-updated: 2024-06-23 10:12:18
+date: 2024-06-25T14:48:01.206Z
+updated: 2024-06-26T14:48:01.206Z
 tags:
   - facebook
 categories:
@@ -23,25 +23,23 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
- Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
+ Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about [what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-## How to Do a Privacy Check of Your Teen's Facebook Account
-
-![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+## How to Do a Privacy Check of Your Teen's Facebook Account ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
 
- When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
+ When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to [ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 ## Privacy Setting Basics
 
- There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
+ There are some [privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many [Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
 
  When you click on your teen's**Privacy** , you'll be given some**Privacy Shortcuts** to look over. In this section, you'll be able to review important things such as: if your teen's birthday is correct.
 
@@ -65,9 +63,7 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-## Check Ad Settings
-
-![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+## Check Ad Settings ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -100,3 +96,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/uk-football-faction-steps-away-from-social-media-to-combat-hate-speech/"><u>UK Football Faction Steps Away From Social Media to Combat Hate Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-up-deleting-fb-watch-history-and-its-benefits/"><u>Clearing Up: Deleting FB Watch History & Its Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/triple-blackout-in-social-media-world/"><u>Triple Blackout in Social Media World</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-profits-with-top-4-business-metadata-strategies/"><u>Boosting Profits with Top 4 Business Metadata Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/developing-your-graphical-social-identity/"><u>Developing Your Graphical Social Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiency-and-wellness-mastering-facebook-breaks/"><u>Efficiency and Wellness: Mastering Facebook Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-into-digital-distaste-for-global-community-sites/"><u>Digging Into Digital Distaste for Global Community Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-job-announcements/"><u>Best Practices for FB Job Announcements</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cultivating-an-audience-naturally-youtubes-way-for-2024/"><u>Cultivating an Audience Naturally - YouTube's Way for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-enhancing-audio-clarity-in-diy-home-film-production/"><u>Updated Enhancing Audio Clarity in DIY Home Film Production</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-14-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 14?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-top-performers-secrets-to-fb-video-campaigning/"><u>[New] Top Performers' Secrets to FB Video Campaigning</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enchanting-edit-youtubes-ultimate-magic-tricks-for-2024/"><u>Enchanting Edit  YouTube's Ultimate Magic Tricks for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-xbox-fanatics-manual-perfect-your-screenshot-skills-for-2024/"><u>[Updated] Xbox Fanatics' Manual  Perfect Your Screenshot Skills for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/introduce-movement-variance-to-pixels-in-ps/"><u>Introduce Movement Variance to Pixels in PS</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-apple-iphone-13-pro-max-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with Apple iPhone 13 Pro Max Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-countdown-configuration-guide-for-obs-enthusiasts/"><u>[New] Countdown Configuration Guide for OBS Enthusiasts</u></a></li>
+</ul></div>

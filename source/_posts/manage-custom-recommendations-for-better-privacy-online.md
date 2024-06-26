@@ -1,7 +1,7 @@
 ---
 title: Manage Custom Recommendations for Better Privacy Online
-date: 2024-06-22 12:44:14
-updated: 2024-06-23 12:39:33
+date: 2024-06-25T14:10:56.238Z
+updated: 2024-06-26T14:10:56.238Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,7 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
-## How to Minimize Targeted Ads on Instagram
-
-![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
+## How to Minimize Targeted Ads on Instagram ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
 
@@ -85,11 +83,9 @@ Close
 
  To view the ads you have recently engaged with, tap **Ad activity** under**General info** .
 
- To learn how to block ads about specific brands or topics on Instagram, read our guide on[how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
+ To learn how to block ads about specific brands or topics on Instagram, read our guide on [how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
-## How to Minimize Targeted Ads on Twitter
-
-![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
+## How to Minimize Targeted Ads on Twitter ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
 
@@ -135,3 +131,24 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reinforcing-your-email-defenses-2fa-on-gmail-outlook-and-more-applications/"><u>Reinforcing Your Email Defenses: 2FA on Gmail, Outlook & More Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-duo-enhances-wnba-viewership/"><u>Social Network Duo Enhances WNBA Viewership</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-the-downside-of-online-communities/"><u>Mass Perception: The Downside of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-family-connections-with-facebook-portal-tv/"><u>Unlocking Family Connections with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-fb-news-feed-and-notifications-display/"><u>Fixing Erratic FB News Feed and Notifications Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/rank-the-networks-that-keep-us-connected/"><u>Rank the Networks That Keep Us Connected</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-announcing-new-privacy-policies-by-whatsapp/"><u>Delay in Announcing New Privacy Policies by WhatsApp</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-discover-the-hottest-tiktok-reading-trends/"><u>[Updated] Discover the Hottest TikTok Reading Trends</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-worlds-top-12-screensaver-apps-no-end-in-view-for-2024/"><u>[New] World's Top 12 Screensaver Apps (No End in View) for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/melodic-giveaways-experience-high-quality-sound-free/"><u>Melodic Giveaways Experience High-Quality Sound, FREE</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-optimal-obs-configurations-on-budget-computers/"><u>[Updated] In 2024, Optimal OBS Configurations on Budget Computers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-synchronized-success-audio-meets-visual-in-films/"><u>In 2024, Synchronized Success  Audio Meets Visual in Films</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-nubia-z50-ultra-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Nubia Z50 Ultra?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/harmonious-humans-cutting-out-clamor-from-your-compiled-charts-digitally-for-2024/"><u>Harmonious Humans Cutting Out Clamor From Your Compiled Charts Digitally for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-explore-the-possibilities-with-dual-screen-watching-on-netflix/"><u>In 2024, Explore the Possibilities with Dual-Screen Watching on Netflix</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-top-8-ai-video-denoise-software/"><u>2024 Approved Top 8 AI Video Denoise Software</u></a></li>
+</ul></div>

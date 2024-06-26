@@ -1,7 +1,7 @@
 ---
 title: Optimizing Your Social Life on FB without Constant Reel Views
-date: 2024-06-21 10:18:18
-updated: 2024-06-23 12:54:42
+date: 2024-06-25T13:52:57.087Z
+updated: 2024-06-26T13:52:57.087Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/290fdfbe7988bc73a9658535e5e89697be7bda898
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/meta-revises-privacy-terms-what-you-should-know/"><u>Meta Revises Privacy Terms: What You Should Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-veil-of-virtual-vaults-downloading-fb-hidden-videos/"><u>Unveiling the Veil of Virtual Vaults: Downloading FB Hidden Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-compelling-stories-for-smm-through-ripl/"><u>Crafting Compelling Stories for SMM Through Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusations-facebook-targets-honest-commerce-promotion/"><u>Accusations: Facebook Targets Honest Commerce Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day!</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-on-detaching-spotify-accounts-from-facebook-sites/"><u>Instructions on Detaching Spotify Accounts From Facebook Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-fight-free-speech-vs-tech-overreach/"><u>Donald Trump's Fight: Free Speech Vs. Tech Overreach</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maven-carolyn-leaves-facebook/"><u>Marketing Maven Carolyn Leaves Facebook</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-nubia-red-magic-8s-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-apple-iphone-7-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From Apple iPhone 7 If Youve Tried Everything</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-8-best-video-conferencing-software-for-small-business-safe-and-stable/"><u>[New] In 2024, 8 Best Video Conferencing Software for Small Business (Safe and Stable)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-kickstart-your-film-journey-essential-camera-shot-knowledge-for-2024/"><u>[New] Kickstart Your Film Journey  Essential Camera Shot Knowledge for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-find-x6-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo Find X6 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-expertly-selecting-the-best-tools-for-browser-content-capturing/"><u>[Updated] Expertly Selecting the Best Tools for Browser Content Capturing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/cover-video-essentials-for-facebook-professionals/"><u>Cover Video Essentials for Facebook Professionals</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-calendar-integration-for-efficient-google-meets/"><u>[Updated] Calendar Integration for Efficient Google Meets</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-top-6-facebook-lite-video-downloaders-for-2024/"><u>[Updated] Top 6 Facebook Lite Video Downloaders for 2024</u></a></li>
+</ul></div>

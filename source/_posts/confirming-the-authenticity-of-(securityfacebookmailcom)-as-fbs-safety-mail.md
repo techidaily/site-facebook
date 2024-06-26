@@ -1,7 +1,7 @@
 ---
 title: Confirming the Authenticity of @<security@facebookmail.com> as FB's Safety Mail
-date: 2024-06-22 10:39:40
-updated: 2024-06-23 11:42:54
+date: 2024-06-25T14:20:19.154Z
+updated: 2024-06-26T14:20:19.154Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
- When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
+ When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
@@ -77,17 +77,15 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 
 **Don't click on any link or button** embedded in the email account that claims to activate Facebook Protect or supposedly enables you to log in. Otherwise, you could end up getting your Facebook account hacked. And certainly**don't download or open any attachments** added in the email. Otherwise, your browser will be hijacked, or your device may become infected.
 
- In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
+ In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-## What to Do if You Fall for a Fake Facebook Protect Email Scam
+## What to Do if You Fall for a Fake Facebook Protect Email Scam ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
-
- If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
 
- Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple[things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple [things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
@@ -110,3 +108,26 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-simple-method-for-clearing-facebook-dings/"><u>A Simple Method for Clearing Facebook Dings</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-unraveled-how-to-know-its-online/"><u>FB Status Unraveled – How to Know It’s Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-preferences-in-online-news-distribution-by-fb/"><u>Exploring Preferences in Online News Distribution by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-engaging-translated-content-for-social-networking-sites/"><u>Creating Engaging Translated Content for Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-digital-footprint-deserves-a-break-the-case-for-quitting-facebook/"><u>Why Your Digital Footprint Deserves a Break: The Case for Quitting Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpening-speech-snippets-bold-and-italic-flair/"><u>Sharpening Speech Snippets: Bold & Italic Flair</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-conversations-excluding-politics/"><u>Streamlining Conversations, Excluding Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-ghosted-photo-posts-in-chats-and-messenger/"><u>Alert for Ghosted Photo Posts in Chats and Messenger</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-supreme-comedic-picture-maker/"><u>In 2024, Supreme Comedic Picture Maker</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/upside-down-up-in-popularity-the-instagram-way-for-2024/"><u>Upside Down, Up in Popularity  The Instagram Way for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/splitscreen-designer-for-2024/"><u>SplitScreen Designer for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-chromebook-video-editing-made-easy-top-online-tools/"><u>Updated 2024 Approved Chromebook Video Editing Made Easy Top Online Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-mobile-cinematography-gear-for-adventurers/"><u>[New] 2024 Approved  Mobile Cinematography Gear for Adventurers</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/pc-and-android-strategies-for-optimized-facebook-video-uploads/"><u>PC & Android Strategies for Optimized Facebook Video Uploads</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-beginners-path-vrecord-instalment-manual-for-2024/"><u>[Updated] Beginners' Path  VRecord Instalment Manual for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-create-engaging-videos-with-final-cut-pros-picture-in-picture-feature/"><u>Updated 2024 Approved Create Engaging Videos with Final Cut Pros Picture-in-Picture Feature</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-huawei-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Huawei to Protect Your Individual Information</u></a></li>
+</ul></div>

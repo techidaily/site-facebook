@@ -1,7 +1,7 @@
 ---
 title: Tailoring Facebook's Visibility Settings to Protect Privacy
-date: 2024-06-20 17:13:11
-updated: 2024-06-23 12:28:12
+date: 2024-06-25T14:44:18.712Z
+updated: 2024-06-26T14:44:18.712Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,11 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
 
 ## What Is a Restricted List on Facebook?
 
- The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any[Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
+ The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any [Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
 
  This allows you to stay friends with someone, so you can still see what they post, without them seeing yours. Give it a try for anyone who you can't bring yourself to unfriend yet.
 
- Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
+ Keep in mind that adding someone to your Restricted list is not the same as [blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 ## How to See Your Restricted List on Facebook
 
@@ -62,3 +62,24 @@ thumbnail: https://thmb.techidaily.com/8a64098fc8c00724b390ed4672a78681ea9b2ccc0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/snapchat-of-the-networld-facebooks-trajectory-to-meta/"><u>Snapchat of the Networld: Facebook's Trajectory to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-inquiry-the-role-of-facebook-in-shaping-it/"><u>Metaverse Inquiry: The Role of Facebook in Shaping It</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-age-of-romance-insights-from-facebooks-update/"><u>Navigating the Digital Age of Romance: Insights From Facebook’s Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-facebooks-business-model-change-with-giphy-exit/"><u>Could Facebook's Business Model Change with Giphy Exit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-facebooks-reels-in-the-social-media-race/"><u>Investigating Facebook’s Reels in the Social Media Race</u></a></li>
+<li><a href="https://facebook.techidaily.com/zucks-farming-ventures-crypto-inspired-goat-name-revealed/"><u>Zuck's Farming Ventures: Crypto-Inspired Goat Name Revealed.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-step-into-the-ar-realm-with-messenger/"><u>Facebook Chats Step Into the AR Realm with Messenger</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mac-audio-setup-101-using-audacity-for-sound-recording/"><u>Mac Audio Setup 101 - Using Audacity for Sound Recording</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-quick-tips-for-embedding-timestamps-into-youtube-videos/"><u>[Updated] Quick Tips for Embedding Timestamps Into YouTube Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-a-detailed-tutorial-on-how-to-use-green-screen-in-kinemaster/"><u>[Updated] A Detailed Tutorial On How To Use Green Screen In Kinemaster</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-ways-to-make-sure-your-recording-slideshow-in-powerpoint-is-not-wrong/"><u>New In 2024, Ways to Make Sure Your Recording Slideshow in Powerpoint Is Not Wrong</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/guide-on-how-to-change-your-apple-id-email-address-on-iphone-12-drfone-by-drfone-ios/"><u>Guide on How To Change Your Apple ID Email Address On iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/making-memorable-content-a-macos-approach-to-ootds/"><u>Making Memorable Content  A MacOS Approach to OOTDs</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cant-play-mp4-files-on-samsung-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-screen-recorder-no-time-limits/"><u>[Updated] In 2024, Screen Recorder No Time Limits</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Realme Narzo N55? | Dr.fone</u></a></li>
+</ul></div>

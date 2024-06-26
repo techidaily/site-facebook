@@ -1,7 +1,7 @@
 ---
 title: "Social Media Break: Next in Line? Youths' Choice to Unfollow Instagram"
-date: 2024-06-21 12:53:33
-updated: 2024-06-23 12:49:58
+date: 2024-06-25T13:43:57.262Z
+updated: 2024-06-26T13:43:57.262Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,24 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/leveraging-time-for-social-media-impact/"><u>Leveraging Time for Social Media Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-marketing-efforts-discover-8-crowdflower-features/"><u>Streamlining Marketing Efforts: Discover 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-access-to-whatsapp-users-reined-in-by-germany-legislation/"><u>Facebook's Access to WhatsApp Users Reined in by Germany Legislation</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-owns-facebook-now/"><u>Who Owns Facebook Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-challenge-before-tech-leaders-eliminate-the-scam-ad-epidemic/"><u>The Challenge Before Tech Leaders: Eliminate the Scam Ad Epidemic</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-potential-candidates-tips-on-posting-jobs-on-facebook/"><u>Engaging Potential Candidates: Tips on Posting Jobs on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/react-quickly-regain-authority-over-compromised-facebook-account/"><u>React Quickly: Regain Authority Over Compromised Facebook Account</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-the-value-error-in-excel-2003-by-stellar-guide/"><u>How to Fix the #Value! Error in Excel 2003?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-digital-diaries-top-picks-for-personal-recorders/"><u>[New] In 2024, Digital Diaries  Top Picks for Personal Recorders</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/premium-planet-friendly-recording-software-for-2024/"><u>Premium, Planet-Friendly Recording Software for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/a-step-by-step-approach-to-generating-income-with-trailers-for-2024/"><u>A Step-by-Step Approach to Generating Income with Trailers for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-platform-profitability-showdown-dailymovements-standards-vs-youtube/"><u>In 2024, Platform Profitability Showdown  DailyMovement's Standards Vs Youtube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-detailed-razer-kiyo-webcam-insights/"><u>[New] Detailed Razer Kiyo Webcam Insights</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-exclusive-mac-high-res-screen-and-audio-recorder/"><u>2024 Approved  Exclusive Mac High-Res Screen & Audio Recorder</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-powerful-insights-unlocking-full-potential-with-mobizen-screen-recording/"><u>2024 Approved  Powerful Insights  Unlocking Full Potential with Mobizen Screen Recording</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-thors-fury-legends-of-the-ragnarok/"><u>[New] In 2024, Thor's Fury  Legends of the Ragnarök</u></a></li>
+</ul></div>

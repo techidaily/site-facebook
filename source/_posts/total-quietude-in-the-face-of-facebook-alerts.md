@@ -1,7 +1,7 @@
 ---
 title: Total Quietude in the Face of Facebook Alerts
-date: 2024-06-21 14:41:45
-updated: 2024-06-23 10:21:45
+date: 2024-06-25T14:34:55.417Z
+updated: 2024-06-26T14:34:55.417Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/5a4d47d2bc28159ccd90a432752164871c06ebbca
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-networks-future-tracing-a-possible-rebrand/"><u>Social Network's Future: Tracing a Possible Rebrand</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-grids-reworked-for-facebooks-fabric/"><u>Social Grids Reworked for Facebook's Fabric</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-network-to-nexus-facebooks-metamate-evolution/"><u>From Network to Nexus: Facebook's 'Metamate' Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upsurge-of-crypto-in-online-advertising-spaces/"><u>The Upsurge of Crypto in Online Advertising Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-world-nft-trial-by-meta-drop-on-social-media/"><u>Unveiling a New World: NFT Trial by Meta Drop on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-photo-selection/"><u>The Ultimate Guide to FB Photo Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-updated-tags-and-their-implications/"><u>Deciphering Facebook's Updated Tags and Their Implications</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-next-chapter-fbs-move-into-physical-retail-expansion/"><u>Anticipating the Next Chapter: FB's Move Into Physical Retail Expansion</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-tackling-tech-challenges-flawless-discord-screen-broadcasts/"><u>[Updated] In 2024, Tackling Tech Challenges  Flawless Discord Screen Broadcasts</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-apple-iphone-14-pro-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From Apple iPhone 14 Pro? Heres the Best Fixes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-adapt-to-the-digital-age-mastering-computer-based-live-feeds-on-tiktok-for-2024/"><u>[Updated] Adapt to the Digital Age  Mastering Computer-Based Live Feeds on TikTok for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/maximizing-revenue-how-to-monetize-youtube-channel-on-mobile-for-2024/"><u>Maximizing Revenue  How to Monetize YouTube Channel on Mobile for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-navigate-the-world-of-online-file-management-the-five-leading-mp3-taggers-unveiled/"><u>Updated Navigate the World of Online File Management The Five Leading MP3 Taggers Unveiled</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-tecno-phantom-v-flip-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve  deleted photos on Tecno Phantom V Flip</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-and-where-to-find-a-shiny-stone-pokemon-for-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How and Where to Find a Shiny Stone Pokémon For Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-top-editors-perfect-entries-any-device/"><u>[New] Unveiling Top Editors  Perfect Entries, Any Device</u></a></li>
+</ul></div>

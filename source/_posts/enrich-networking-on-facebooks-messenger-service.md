@@ -1,7 +1,7 @@
 ---
 title: Enrich Networking on Facebook's Messenger Service
-date: 2024-06-22 14:17:52
-updated: 2024-06-23 11:50:55
+date: 2024-06-25T14:11:36.449Z
+updated: 2024-06-26T14:11:36.449Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,26 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/gain-more-influence-in-minutes-join-a-facebook-group/"><u>Gain More Influence in Minutes: Join a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelations-in-technology-youve-overlooked-top-4-must-have-knowledge/"><u>Revelations in Technology You've Overlooked - Top 4 Must-Have Knowledge!</u></a></li>
+<li><a href="https://facebook.techidaily.com/account-takeovers-regularity-and-trends/"><u>Account Takeovers: Regularity and Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/signals-of-struggle-what-awaits-on-facebook/"><u>Signals of Struggle: What Awaits on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-security-becoming-a-page-admin/"><u>Boosting Security: Becoming a Page Admin</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-lift-rebuilding-old-social-ties/"><u>Ban Lift: Rebuilding Old Social Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-wake-up-call-unauthorized-digital-access/"><u>Security Wake-Up Call: Unauthorized Digital Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-the-profile-picture-update-quagmire-on-facebook/"><u>Conquer the Profile Picture Update Quagmire on Facebook</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-stop-motion-software-in-the-cloud-features-pricing-and-alternatives/"><u>In 2024, Stop Motion Software in the Cloud Features, Pricing, and Alternatives</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-elevate-your-presentations-with-professional-screencasts/"><u>In 2024, Elevate Your Presentations with Professional Screencasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-video-to-audio-conversion-on-insta-for-2024/"><u>[New] Mastering the Art of Video-to-Audio Conversion on Insta for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixelperfect-tools-overview-series/"><u>[Updated] PixelPerfect Tools Overview Series</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/hd-mastery-in-action-top-5-screen-recorders-reviewed/"><u>HD Mastery in Action  Top 5 Screen Recorders Reviewed</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-unleash-creativity-10-best-free-public-domain-images-sites/"><u>New 2024 Approved Unleash Creativity 10 Best Free Public Domain Images Sites</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-y78-5g-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Y78 5G.</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-all-encompassing-iptv-access-strategies/"><u>[Updated] All-Encompassing IPTV Access Strategies</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-forgotten-tiktok-reload-a-quick-fix/"><u>2024 Approved  Forgotten TikTok Reload  A Quick Fix?</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-how-to-use-blender-green-screen/"><u>New 2024 Approved How to Use Blender Green Screen</u></a></li>
+</ul></div>

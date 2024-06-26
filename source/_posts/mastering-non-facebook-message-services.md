@@ -1,7 +1,7 @@
 ---
 title: Mastering Non-Facebook Message Services
-date: 2024-06-20 17:39:29
-updated: 2024-06-23 11:24:55
+date: 2024-06-25T14:03:43.298Z
+updated: 2024-06-26T14:03:43.298Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
  And as with WhatsApp, Messenger works across operating systems as it sends and receives messages via the internet. You can stay in touch with friends on Android, even if you use an iPhone.
 
- Your messages can be sent using end-to-end encryption too, although it's not by default, so[you need to know how to activate encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) . This means that whatever you send can't be intercepted by third parties as messages are rendered unreadable. No one can see what you send while it's in transit between devices. It's the bare minimum you should expect from an instant messaging service these days.
+ Your messages can be sent using end-to-end encryption too, although it's not by default, so [you need to know how to activate encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) . This means that whatever you send can't be intercepted by third parties as messages are rendered unreadable. No one can see what you send while it's in transit between devices. It's the bare minimum you should expect from an instant messaging service these days.
 
 ## Why Might You Avoid Using Facebook?
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
  Some refuse to use Facebook on principle, wary of any conglomerates. Others don't like social platform staples like political debates, pyramid schemes, and pointless status updates.
 
- Others remain troubled by the privacy and security scandals that plague Facebook. You need to keep an eye on your privacy controls if you use the service, or indeed any[messenger app that knows too much about you](https://www.makeuseof.com/what-do-messaging-apps-know/) .
+ Others remain troubled by the privacy and security scandals that plague Facebook. You need to keep an eye on your privacy controls if you use the service, or indeed any [messenger app that knows too much about you](https://www.makeuseof.com/what-do-messaging-apps-know/) .
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/05c8c6fd73c6fec22a2f538188954b893a706bcf3
 
  Essentially, the consequences are the same as they used to be, but you now have to jump through an extra hoop.
 
- First, you need to know how to install Messenger, which is simple. Just head to the[App Store](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://itunes.apple.com/app/messenger/id454638411) or[Google Play](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://play.google.com/store/apps/details?id=com.facebook.orca) , depending on your smartphone or tablet. Make sure it's the official app, made by Facebook Inc., or you risk installing malware by mistake.
+ First, you need to know how to install Messenger, which is simple. Just head to the [App Store](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://itunes.apple.com/app/messenger/id454638411) or [Google Play](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://play.google.com/store/apps/details?id=com.facebook.orca) , depending on your smartphone or tablet. Make sure it's the official app, made by Facebook Inc., or you risk installing malware by mistake.
 
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
@@ -59,7 +59,7 @@ Next, you need to know how to sign up for Messenger.
 
  When you open the app for the first time, it will encourage you to log into a Facebook account using either your email address or phone number. Instead, click on**Create New Account** . This will redirect you into creating a Facebook account.
 
- You need to put in your first name and surname: you could go under a pseudonym if you don't want Facebook to know your real name, but this is also the name you'll appear as in Messenger, so you'll have to tell your friends about your nom de plume. After that, tap**Next** . In the next screen, you need to add a password. Use something unique and difficult to guess; there are plenty of ways[you can create a memorable password](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) . Now, tap**Sign Up** . You'll need to verify your new account via email or SMS.
+ You need to put in your first name and surname: you could go under a pseudonym if you don't want Facebook to know your real name, but this is also the name you'll appear as in Messenger, so you'll have to tell your friends about your nom de plume. After that, tap**Next** . In the next screen, you need to add a password. Use something unique and difficult to guess; there are plenty of ways [you can create a memorable password](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) . Now, tap**Sign Up** . You'll need to verify your new account via email or SMS.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
@@ -83,7 +83,7 @@ Next, you need to know how to sign up for Messenger.
 
 ![how to delete or deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Deactivate-Facebook.jpg)
 
- Don't make this decision lightly. Before you begin the process, you need to know what it means when you[deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
+ Don't make this decision lightly. Before you begin the process, you need to know what it means when you [deactivate your Facebook account](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
  In a nutshell, deactivating Facebook still allows you time to think about whether you want to permanently delete your account (as your data is still stored, ready for reactivation). It also means Messenger will continue to work. When you deactivate Facebook, you should be asked if you want to continue using Messenger.
 
@@ -124,3 +124,22 @@ Next, you need to know how to sign up for Messenger.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/balancing-the-scales-unpacking-crypto-stability-coins/"><u>Balancing the Scales: Unpacking Crypto Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-hidden-why-facebook-and-instagram-monitor-us-for-app-access/"><u>What's Hidden: Why Facebook & Instagram Monitor Us for App Access?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-digital-gallery-diy-photo-collage-tips/"><u>Crafting Your Digital Gallery: DIY Photo Collage Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-method-to-update-fb-birth-details/"><u>Seamless Method to Update FB Birth Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-techniques-for-capturing-and-transferring-fb-media/"><u>Efficient Techniques for Capturing and Transferring FB Media</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-from-street-to-studio-tracing-the-history-and-development-of-rap-music/"><u>Updated 2024 Approved From Street to Studio Tracing the History and Development of Rap Music</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-easy-customization-free-youtube-visual-templates/"><u>In 2024, Easy Customization  Free YouTube Visual Templates</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-sony-vegas-vs-adobe-premiere-which-one-is-better-2023-comparison/"><u>New In 2024, Sony Vegas VS Adobe Premiere, Which One Is Better? 2023 Comparison</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/twitch-replay-tricks-20-ways-to-retrace-your-stream-trail/"><u>Twitch Replay Tricks  20 Ways to Retrace Your Stream Trail</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-zero-dollar-mac-capture-mastery/"><u>[New] 2024 Approved  Zero-Dollar Mac Capture Mastery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/online-oasis-video-vault/"><u>Online Oasis Video Vault</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unique-coverage-awaits-crafting-your-own-custom-youtube-shorts-images/"><u>Unique Coverage Awaits  Crafting Your Own Custom YouTube Shorts Images</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-merging-made-easy-the-top-5-free-online-video-combination-tools-for-2024/"><u>Updated Merging Made Easy The Top 5 Free Online Video Combination Tools for 2024</u></a></li>
+</ul></div>

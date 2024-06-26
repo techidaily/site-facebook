@@ -1,7 +1,7 @@
 ---
 title: "Online Ousting: Dissolving a Facebook Relationship"
-date: 2024-06-21 12:36:54
-updated: 2024-06-23 10:15:58
+date: 2024-06-25T14:46:02.018Z
+updated: 2024-06-26T14:46:02.018Z
 tags:
   - facebook
 categories:
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/ece2bc720a8bffcaadf07cecfb821d8b916ae290e
 * Facebook will not notify the individual you choose to take a break from.
 * There's no limit to how long you can take a break, so you'll have to remember to manually revert the changes if you change your mind in the future.
 
- By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or[blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
+ By using the "Take a Break" feature, you can maintain friendships on Facebook while giving yourself a breather from their constant presence in your feed. This can be a useful alternative to unfriending or [blocking someone on Facebook](http://www.makeuseof.com/how-to-block-facebook/) .
 
 ## How to Take a Break From Someone on Facebook
 
@@ -87,7 +87,7 @@ Here, you'll find three options.
 2. The second option is labeled**Edit individual posts** —this option helps you to individually edit posts you are tagged in.
 3. The third option is labeled**Edit all my posts and posts that I'm tagged in.** Use this option to untag yourself from every post you have in common with the friend you want to take a break from. To do this, simply tap on the option and then tap**Done** to save the changes.
 
- If you're using Facebook on the web, you can bypass navigating through menus by visiting the[Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on[how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ If you're using Facebook on the web, you can bypass navigating through menus by visiting the [Take a Break Facebook page](https://web.facebook.com/take%5Fa%5Fbreak) directly to access the feature promptly. If you'd love to take a more comprehensive approach to restricting interaction with friends, we've previously written a guide on [how to limit people from contacting you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
@@ -95,7 +95,7 @@ Here, you'll find three options.
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
 
-* Visit the[Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
+* Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
@@ -142,3 +142,24 @@ Here, you'll find three options.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facial-id-discarding-what-does-it-mean-for-facebook-users-protection/"><u>Facial ID Discarding: What Does It Mean for Facebook Users' Protection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-image-text-style-facebooks-revolutionary-ai-breakthrough/"><u>From Image, Text Style: Facebook's Revolutionary AI Breakthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/opt-out-of-whatsapps-updated-policy-no-limits-on-account/"><u>Opt-Out of WhatsApp's Updated Policy, No Limits on Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-most-controversial-names-leading-tech-today/"><u>The Most Controversial Names Leading Tech Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-policies-in-its-latest-hub-initiative/"><u>Exploring Facebook's Policies in Its Latest Hub Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-conversations-with-messengers-soundmojis/"><u>Enhancing Conversations with Messenger’s Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-honor-100-pro-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Honor 100 Pro Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-socialcapture-youtube-from-fb/"><u>[New] SocialCapture - YouTube From FB</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-navigating-the-future-of-fb-advertising-key-predictions/"><u>2024 Approved  Navigating the Future of FB Advertising – Key Predictions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-recover-corrupted-excel-file-2010-stellar-by-stellar-guide/"><u>How Can I Recover Corrupted Excel File 2010 | Stellar</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-sync-zoom-meetings-with-ios-and-android-calendars/"><u>2024 Approved  Sync Zoom Meetings with iOS and Android Calendars</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-xiaomi-redmi-note-12-proplus-5gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Xiaomi Redmi Note 12 Pro+ 5GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-quick-fixes-for-stuck-or-crashed-tiktok-on-androidiphone/"><u>[Updated] 2024 Approved  Quick Fixes for Stuck or Crashed TikTok on Android/iPhone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/full-spectrum-analysis-understanding-xmedia-suite-workshop-details-for-2024/"><u>Full Spectrum Analysis  Understanding XMedia Suite Workshop Details for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-unveiling-the-essentials-a-deep-dive-into-hip-hop-culture/"><u>In 2024, Unveiling the Essentials A Deep Dive Into Hip-Hop Culture</u></a></li>
+</ul></div>

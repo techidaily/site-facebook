@@ -1,7 +1,7 @@
 ---
 title: Scam or Savvy? The Double-Edged Sword of FB Cloning
-date: 2024-06-22 21:16:22
-updated: 2024-06-23 11:30:15
+date: 2024-06-25T14:21:48.315Z
+updated: 2024-06-26T14:21:48.315Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056
 
 ## What Is a Facebook Account Cloning Scam?
 
- This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
+ This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for [other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
 
  They replicate social media accounts by using all your public photos and information, making a copy of your existing account, and then adding your contacts. Scammers will pretend to be you and then start messaging your connections.
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
- Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
+ Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like [social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
 
 <ins class="adsbygoogle"
@@ -112,3 +112,27 @@ thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/curbing-content-consumption-for-focused-productivity/"><u>Curbing Content Consumption for Focused Productivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-discontentment-into-dollars-fb-refund-method/"><u>Transform Your Discontentment Into Dollars - FB Refund Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-protection-system-activation-process/"><u>Mastering Facebook's Protection System: Activation Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-amplify-attraction-through-a-profile-image/"><u>6 Ways to Amplify Attraction Through a Profile Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-of-facebooks-newsfeed/"><u>The Hidden Dynamics of Facebook's Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-back-to-when-i-embarked-on-social-medias-vast-sea-facebook/"><u>Charting Back to When I Embarked on Social Media's Vast Sea - Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/blurring-lines-will-facebook-steer-towards-physical-marketplaces/"><u>Blurring Lines: Will Facebook Steer Towards Physical Marketplaces?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/clear-the-clutter-filter-out-politics-boost-joy/"><u>Clear the Clutter: Filter Out Politics, Boost Joy</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-20-redux-a-strategic-makeover/"><u>Instagram 2.0 Redux: A Strategic Makeover?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/dive-into-group-chats-joining-zoom-meetings-on-phone/"><u>Dive Into Group Chats  Joining Zoom Meetings on Phone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-zippyzoom-echoframe-capture-for-2024/"><u>[Updated] ZippyZoom EchoFrame Capture for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-navigating-to-past-facebook-stories-a-step-by-step-mobile-and-laptop-guide/"><u>[New] 2024 Approved  Navigating to Past Facebook Stories  A Step-by-Step Mobile & Laptop Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-orchestrating-a-harmonious-tiktok-finale/"><u>[Updated] 2024 Approved  Orchestrating a Harmonious TikTok Finale</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/androids-creme-de-la-creme-for-fast-vid-fixing-for-2024/"><u>Android's Crème De La Crème for Fast Vid Fixing for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-itel-a05s-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Itel A05s Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-game-on-top-10-gaming-personalities-on-tiktok/"><u>[Updated] Game On  Top 10 Gaming Personalities on TikTok</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-cutting-edge-techniques-for-excellent-powerpoint-recordings/"><u>[New] In 2024, Cutting-Edge Techniques for Excellent PowerPoint Recordings</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-reel-in-the-action-top-strategies-for-recording-your-minecraft-sessions-on-a-mac/"><u>[New] 2024 Approved  Reel in the Action  Top Strategies for Recording Your Minecraft Sessions on a Mac</u></a></li>
+</ul></div>

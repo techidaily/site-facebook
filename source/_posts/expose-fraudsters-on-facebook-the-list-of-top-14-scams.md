@@ -1,7 +1,7 @@
 ---
 title: "Expose Fraudsters on Facebook: The List of Top 14 Scams"
-date: 2024-06-20 19:23:59
-updated: 2024-06-23 12:56:35
+date: 2024-06-25T14:07:15.667Z
+updated: 2024-06-26T14:07:15.667Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,17 @@ thumbnail: https://thmb.techidaily.com/e77b802386df347968174243d9eec6b1ff5aaa13a
 
  From scammers asking for all kinds of additional postage costs, to people pretending to be legitimate businesses, to people selling authentic "celebrity signed merchandise", there are definitely a lot of things to be aware of before performing any type of transaction.
 
- Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
+ Make sure you learn [how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
- These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+ These days there are a [few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 ## 5\. Facebook Job Advertisement Scams
 
- Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
+ Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are [red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/e77b802386df347968174243d9eec6b1ff5aaa13a
 
 ## 7\. Charity Scams
 
- This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+ This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check [Charity Navigator](https://www.charitynavigator.org/) or [CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
 
 ## 8\. Scams Posing As Official Pages
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/e77b802386df347968174243d9eec6b1ff5aaa13a
 
  Whatever it is, their purpose is to win your trust, and they may even do this by chatting to you for weeks or months. If you happen to fall for one of these scammers, at some point, they will ask you for money.
 
- They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
+ They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are [some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
 ## 12\. Loan Lending Scams
 
@@ -118,3 +118,24 @@ thumbnail: https://thmb.techidaily.com/e77b802386df347968174243d9eec6b1ff5aaa13a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-exit-from-facebook-groups-a-step-by-step-guide/"><u>Navigating Exit From Facebook Groups: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/mimicry-on-instagram-identity-theft-concerns/"><u>Mimicry on Instagram: Identity Theft Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today!</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-essential-tips-for-perfect-fb-timeline-covers/"><u>10 Essential Tips for Perfect Fb Timeline Covers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-iphone-se-2022-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>How to Unlock Apple iPhone SE (2022) When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/how-to-create-freeze-frame-clone-effect-for-2024/"><u>How to Create Freeze Frame Clone Effect for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-breaking-down-the-finest-liquid-simulation-games/"><u>[New] Breaking Down the Finest Liquid Simulation Games</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-cut-costs-not-quality-get-final-cut-pro-with-education-discounts/"><u>New In 2024, Cut Costs, Not Quality Get Final Cut Pro with Education Discounts</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-tight-knit-teams-top-chat-platforms-which-rules-the-game-slack-or-discord/"><u>[Updated] In 2024, Tight-Knit Teams, Top Chat Platforms  Which Rules the Game - Slack or Discord?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-three-methods-for-transforming-your-podcast-into-mp3-format/"><u>In 2024, Three Methods for Transforming Your Podcast Into MP3 Format</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-the-ultimate-search-discovering-the-best-flac-file-converter/"><u>In 2024, The Ultimate Search Discovering the Best FLAC File Converter</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-valhallas-vanguard-fiery-rebirth/"><u>2024 Approved  Valhalla's Vanguard  Fiery Rebirth</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comparing-the-gopro-max-360-and-hero-11-determining-the-superior-gopro-video-camera/"><u>Comparing the GoPro Max 360 and Hero 11  Determining the Superior GoPro Video Camera</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Speculations of Social Media's Ethical Standards Shift
-date: 2024-06-22 13:31:20
-updated: 2024-06-23 10:42:11
+date: 2024-06-25T14:02:07.200Z
+updated: 2024-06-26T14:02:07.200Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/41de1135ff58d32185caafd7a16e179b6c3f3f0f5
 
  "The ad would simply display some of the information collected about the viewer which the advertising platform uses," Signal says. "Facebook was not into that idea."
 
- In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
+ In a post on the [Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
 ## Facebook Responds to Signal's Move
 
@@ -72,3 +72,26 @@ Facebook responded with the following statement to the media:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/whistleblowers-allege-fb-reprimands-honesty-in-ads/"><u>Whistleblowers Allege FB Reprimands Honesty in Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalizing-on-our-daily-movements/"><u>Capitalizing on Our Daily Movements</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-unplugged-and-back-online/"><u>Instagram Unplugged and Back Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-claim-your-own-piece-from-facebooks-massive-settlement/"><u>How to Claim Your Own Piece From Facebook's Massive Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-silent-discussion-threads-within-fb-circles/"><u>Enabling Silent Discussion Threads Within FB Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-success-lessons-from-sheryl-sandbergs-facebook-experience/"><u>Crafting Success: Lessons From Sheryl Sandberg’s Facebook Experience</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-capturing-the-moment-leading-recorder-analysis-for-2024/"><u>[Updated] Capturing the Moment  Leading Recorder Analysis for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-top-10-budget-friendly-options-premium-free-podcast-players-for-modern-smartphones/"><u>In 2024, Top 10 Budget-Friendly Options Premium-Free Podcast Players for Modern Smartphones</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlock-your-motorola-moto-g04-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto G04 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions/"><u>Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-htc-u23-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-iphone-13-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile iPhone 13 Before the Plan Expires</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/troubleshooting-tips-for-win-11s-stubborn-photos-app/"><u>Troubleshooting Tips for Win 11'S Stubborn Photos App</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-newcomer-to-pro-a-step-by-step-creator-hub-guidebook-for-2024/"><u>[Updated] From Newcomer to Pro  A Step-by-Step Creator Hub Guidebook for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/best-10-websites-to-download-montage-music/"><u>Best 10 Websites to Download Montage Music</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>In 2024, Choosing the Best Camera for Filming  Mirrorless or DSLR</u></a></li>
+</ul></div>

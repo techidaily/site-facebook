@@ -1,7 +1,7 @@
 ---
 title: "Strategic Liking: A Guide for the Discreet User"
-date: 2024-06-20 11:38:19
-updated: 2024-06-23 12:48:35
+date: 2024-06-25T14:29:12.880Z
+updated: 2024-06-26T14:29:12.880Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/98776572354897cc2b9eb92b9469126b6b1576e9e
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-### Hiding the Facebook Reaction Count on Mobile
-
-![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+### Hiding the Facebook Reaction Count on Mobile ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
@@ -66,7 +64,7 @@ Your new settings are saved automatically.
 
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
- If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
+ If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 ## Depressurize Your Experience on Facebook
 
@@ -87,3 +85,24 @@ Your new settings are saved automatically.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-crashes-of-facebook-and-whatsapp/"><u>Decoding the Crashes of Facebook & WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-titles-vs-displayed-usernames-clarity-for-users/"><u>Profile Titles vs Displayed Usernames: Clarity for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-playful-teasing-on-social-media-wisely/"><u>Navigating Playful Teasing on Social Media Wisely</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-infinix-note-30-by-fonelab-android-recover-pictures/"><u>How To  Restore Missing Pictures Files from Infinix Note 30.</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/cutting-edge-tools-for-instagrams-most-trendy-reels/"><u>Cutting-Edge Tools for Instagram's Most Trendy Reels</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-convert-youtube-videos-seamlessly-into-avi/"><u>[Updated] 2024 Approved  How to Convert YouTube Videos Seamlessly Into AVI</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-the-actual-discussion-is-regarding-the-splitting-of-the-video-by-using-the-vsdc-also-recommendation-of-using-wondershare-filmora-as-the-better/"><u>2024 Approved The Actual Discussion Is Regarding the Splitting of the Video by Using the VSDC. Also, Recommendation of Using Wondershare Filmora as the Better Substitute in Place of VSDC</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-easy-way-to-spot-and-view-trending-youtube-feedback/"><u>[New] The Easy Way to Spot and View Trending YouTube Feedback</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/everything-you-need-to-know-about-stardew-valley-ginger-island-for-2024/"><u>Everything You Need to Know About Stardew Valley  Ginger Island for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-novice-to-professional-a-comprehensive-guide-to-mastering-final-cut-pro/"><u>From Novice to Professional  A Comprehensive Guide to Mastering Final Cut Pro</u></a></li>
+</ul></div>

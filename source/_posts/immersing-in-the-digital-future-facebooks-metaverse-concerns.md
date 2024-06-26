@@ -1,7 +1,7 @@
 ---
 title: "Immersing in the Digital Future: Facebook’s Metaverse Concerns"
-date: 2024-06-22 13:52:10
-updated: 2024-06-23 11:33:39
+date: 2024-06-25T14:10:52.176Z
+updated: 2024-06-26T14:10:52.176Z
 tags:
   - facebook
 categories:
@@ -29,19 +29,17 @@ thumbnail: https://thmb.techidaily.com/638a2f4fa92a4f27206abae8eaf7af1c219069283
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
- This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian[vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
+ This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian [vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
 
- Although the metaverse is still in its early days, it's important to highlight[the problems Big Tech poses](https://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) before it becomes irreversible.
+ Although the metaverse is still in its early days, it's important to highlight [the problems Big Tech poses](https://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) before it becomes irreversible.
 
- A key element of the metaverse is mixed reality (MR). MR is a blend of the digital and real worlds by using[virtual reality (VR) and augmented reality (AR) technologies](https://www.makeuseof.com/tag/augmented-vs-virtual-reality-whats-difference/) . Eventually, this blend may become so immersive and pervasive that people's virtual and real lives become tied together and indistinguishable.
+ A key element of the metaverse is mixed reality (MR). MR is a blend of the digital and real worlds by using [virtual reality (VR) and augmented reality (AR) technologies](https://www.makeuseof.com/tag/augmented-vs-virtual-reality-whats-difference/) . Eventually, this blend may become so immersive and pervasive that people's virtual and real lives become tied together and indistinguishable.
 
  If this happens, whoever controls the metaverse could control a significant portion of reality.
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
-## 1\. A Privacy Nightmare
-
-![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+## 1\. A Privacy Nightmare ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -49,39 +47,35 @@ thumbnail: https://thmb.techidaily.com/638a2f4fa92a4f27206abae8eaf7af1c219069283
 
  Although the metaverse is at a developing stage, Meta is already pouring billions of dollars into developing MR technologies—the backbone of the metaverse and some of the most intrusive and data-extractive tech gadgets you can find.
 
- Current MR devices are fitted with eye, face, hand, and body tracking tech. A pilot study in the[2021 International Symposium on Wearable Computers](https://dl.acm.org/doi/10.1145/3460421.3480420) even fitted an MR device with an electroencephalogram (EEG) system that can record your brain activity.
+ Current MR devices are fitted with eye, face, hand, and body tracking tech. A pilot study in the [2021 International Symposium on Wearable Computers](https://dl.acm.org/doi/10.1145/3460421.3480420) even fitted an MR device with an electroencephalogram (EEG) system that can record your brain activity.
 
  In addition to the data Meta already has on you, the company will get even more private information about you through MR devices. Meta might be able to estimate your physical characteristics, how you walk, talk, and think, and more intrusive details on your persona.
 
- Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
+ Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be [giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
-## 2\. Another Digital Addiction for Gen Z
-
-![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
+## 2\. Another Digital Addiction for Gen Z ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
- With its considerable user base, Meta is a major culprit in letting this happen. An investigative series in the[Wall Street Journal](https://www.wsj.com/articles/the-facebook-files-11631713039) shows that a huge percentage of young Facebook users are aware of their addiction to its products, but feel trapped and unable to reduce their usage.
+ With its considerable user base, Meta is a major culprit in letting this happen. An investigative series in the [Wall Street Journal](https://www.wsj.com/articles/the-facebook-files-11631713039) shows that a huge percentage of young Facebook users are aware of their addiction to its products, but feel trapped and unable to reduce their usage.
 
- As[another Wall Street Journal report](https://www.wsj.com/articles/facebook-knows-instagram-is-toxic-for-teen-girls-company-documents-show-11631620739) shows, Meta wants these young users to stay hooked to maintain its revenue. The company has proven time and again that as long as it makes money, anything goes—even if that means sacrificing the mental health of Gen Z.
+ As [another Wall Street Journal report](https://www.wsj.com/articles/facebook-knows-instagram-is-toxic-for-teen-girls-company-documents-show-11631620739) shows, Meta wants these young users to stay hooked to maintain its revenue. The company has proven time and again that as long as it makes money, anything goes—even if that means sacrificing the mental health of Gen Z.
 
  The metaverse is set to be a significantly more immersive and addictive iteration of the internet, and signs of this are already showing. Meta is targeting young social media users in its campaign to win people over on a Meta-led metaverse.
 
- According to a report by[Insider](https://www.insider.com/facebook-meta-rebrand-mark-zuckerberg-khaby-lame-tiktok-angryreactions-2021-11) , the company is enlisting influencers on TikTok, a platform with a huge Gen Z user base, to promote its dreams for the metaverse. Mark Zuckerberg has explicitly said the company's key objective is attracting young adults to its platform.
+ According to a report by [Insider](https://www.insider.com/facebook-meta-rebrand-mark-zuckerberg-khaby-lame-tiktok-angryreactions-2021-11) , the company is enlisting influencers on TikTok, a platform with a huge Gen Z user base, to promote its dreams for the metaverse. Mark Zuckerberg has explicitly said the company's key objective is attracting young adults to its platform.
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
-## 3\. A Dangerous Monopoly
+## 3\. A Dangerous Monopoly ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
-![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
-
- Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
+ Meta already enjoys a significant [monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
  The metaverse promises to be an all-encompassing next phase for the internet. A lot of what isn't really possible to do on the internet today—dancing, singing, working out—could make sense with the metaverse.
 
  While that is certainly exciting, a Meta-dominated metaverse would only put more of these new social life possibilities in the hands of a single corporation.
 
- A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
+ A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and [launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
@@ -108,3 +102,22 @@ thumbnail: https://thmb.techidaily.com/638a2f4fa92a4f27206abae8eaf7af1c219069283
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-info-on-metas-revised-privacy-regime/"><u>Essential Info on Meta's Revised Privacy Regime</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-yourself-from-facebook-shared-pics/"><u>Eliminate Yourself From Facebook Shared Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-could-be-opening-a-retail-store-near-you-soon/"><u>Why Facebook Could Be Opening a Retail Store Near You Soon</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-friend-activity-sharing/"><u>Navigating Facebook's Friend Activity Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-not-clicks-leave-facebook/"><u>Cultivate Connections, Not Clicks: Leave Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unfailing-focus-top-tripods-for-iphone-and-android-cameras/"><u>[Updated] Unfailing Focus  Top Tripods for iPhone & Android Cameras</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-do-you-remove-restricted-mode-on-iphone-11-drfone-by-drfone-ios/"><u>How Do You Remove Restricted Mode on iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-photos-to-feeds-selecting-the-best-9-gear-upgrades/"><u>[Updated] In 2024, From Photos to Feeds  Selecting the Best 9 Gear Upgrades</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-adding-borders-to-your-photos/"><u>[Updated] Mastering Instagram  Adding Borders to Your Photos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-the-secrets-behind-the-most-influential-tiktok-marketing-movements/"><u>[New] In 2024, The Secrets Behind the Most Influential TikTok Marketing Movements</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-m14-4g-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy M14 4G</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/skyrocketing-fb-engagement-masterful-seo-techniques-explored-for-2024/"><u>Skyrocketing FB Engagement  Masterful SEO Techniques Explored for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-bring-your-spotify-mixes-online-5-top-playlist-conversion-apps-for-youtube-for-2024/"><u>[New] Bring Your Spotify Mixes Online  5 Top Playlist Conversion Apps for YouTube for 2024</u></a></li>
+</ul></div>

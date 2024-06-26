@@ -1,7 +1,7 @@
 ---
 title: What Are the Significant Shifts in Meta's Privacy Rules?
-date: 2024-06-22 17:51:21
-updated: 2024-06-23 10:26:44
+date: 2024-06-25T13:49:31.206Z
+updated: 2024-06-26T13:49:31.206Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,11 @@ thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f
 
  Meta began rolling out notifications about their new privacy policy update in May 2022\. These notifications serve as a way to let Meta users educate themselves on the new update, but no action is required to continue using Meta platforms.
 
-## Three phone screens with facebook notifications about a privacy policy update
-
-![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
+## Three phone screens with facebook notifications about a privacy policy update ![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
 
  According to Meta, these changes have been "inspired by feedback from privacy experts, policymakers, and people who use \[Meta\] services".
 
- In the past Meta has received backlash for[the ways Facebook invades users' privacy](https://www.makeuseof.com/ways-facebook-invades-privacy-stop/) by sharing their information in ways they weren't aware of. With this update, Meta aims to ease the minds of worried users and give them more information on how data is shared.
+ In the past Meta has received backlash for [the ways Facebook invades users' privacy](https://www.makeuseof.com/ways-facebook-invades-privacy-stop/) by sharing their information in ways they weren't aware of. With this update, Meta aims to ease the minds of worried users and give them more information on how data is shared.
 
  Meta says this update will include clearer information on its data-sharing practices as well as information on the third parties Meta shares information with.
 
@@ -57,11 +55,11 @@ Close
 
 ## 2\. Meta Will Not Gain Any New Rights to Your Data
 
- This update does not give Meta any new rights to your data. The company is likely emphasizing this in the wake of the[controversy around the WhatsApp Privacy Policy update in 2021](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) .
+ This update does not give Meta any new rights to your data. The company is likely emphasizing this in the wake of the [controversy around the WhatsApp Privacy Policy update in 2021](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) .
 
 ## 3\. The Update Comes With New Tools to Protect Your Data
 
- This update gives clear instructions on[how to use the Facebook Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) that was first introduced in January 2022\. The Privacy Center is a hub of both privacy information and controls that help you understand and control your Meta experience.
+ This update gives clear instructions on [how to use the Facebook Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) that was first introduced in January 2022\. The Privacy Center is a hub of both privacy information and controls that help you understand and control your Meta experience.
 
  This update does a better job at guiding you through new and old privacy settings that you may not currently be aware of. You can even perform a privacy check-up, which will guide you through all available privacy settings.
 
@@ -100,3 +98,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-vigilance-identifying-and-correcting-breaches/"><u>Facebook Vigilance: Identifying & Correcting Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-metadata-the-top-4-tools-to-propel-your-business/"><u>Harness Metadata: The Top 4 Tools to Propel Your Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-price-tag-on-meta-verification/"><u>Understanding the Price Tag on Meta Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-interaction-for-effective-digital-advertising/"><u>Mindful Interaction for Effective Digital Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-authorities-step-up-to-protect-whatsapp-users-from-facebook-spying/"><u>German Authorities Step Up to Protect WhatsApp Users From Facebook Spying</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-strategies-for-high-roi-engagement-through-fb-animatons/"><u>[Updated] In 2024, Strategies for High-ROI Engagement Through FB Animatons</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-tech-choice-screen-recording-leaders-on-the-web-for-2024/"><u>Top Tech Choice  Screen Recording Leaders on the Web for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2022-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2022) to other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-make-a-masterpiece-top-online-photo-and-video-collage-generators-for-2024/"><u>New Make a Masterpiece Top Online Photo and Video Collage Generators for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/beginners-cheatsheet-for-fantastic-collage-making-for-2024/"><u>Beginner's Cheatsheet for Fantastic Collage Making for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ranking-androids-most-innovative-collage-apps/"><u>Ranking Android’s Most Innovative Collage Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-maximize-impact-instagrams-ideal-video-resolution/"><u>[Updated] In 2024, Maximize Impact  Instagram's Ideal Video Resolution</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-ultimate-guide-to-mobile-snapchat-recording/"><u>[Updated] In 2024, The Ultimate Guide to Mobile Snapchat Recording</u></a></li>
+</ul></div>

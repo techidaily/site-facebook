@@ -1,7 +1,7 @@
 ---
 title: "Likes and Dislikes: Analyzing the Negative Side Effects"
-date: 2024-06-22 17:26:53
-updated: 2024-06-23 10:11:17
+date: 2024-06-25T14:08:09.628Z
+updated: 2024-06-26T14:08:09.628Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
 ## How Social Media Is Bad for You
 
- You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While[social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly[positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
+ You might be surprised to learn that the negative effects of social media are both physical and mental. They can change your perception of the world and yourself. While [social media does have some positive effects](https://www.makeuseof.com/tag/positive-impact-social-networking-sites-society-opinion/) , and there are certainly [positive social media stories](https://www.makeuseof.com/positive-social-media-stories/) , it also has a lot in the drawback column.
 
  Don't believe this? Read on for a list of social media's negative effects. If you recognize any of them as issues in your own life, it may be time to reduce your usage or even stop using social media altogether.
 
@@ -33,21 +33,19 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  So how do you use social media without causing yourself psychological distress? If you turn to the same research (and common sense), the recommended amount of time you should spend on social networks is around half an hour per day. As with many other potential ills in life, it's all about moderation.
 
- If you[find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
+ If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-## 2\. Cyberbullying
-
-![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+## 2\. Cyberbullying ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
- Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
+ Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows [what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
 
  While social media makes it easier to meet new people and make friends, it also enables cruel people to tear into others with little effort. Perpetrators of bullying can use the anonymity that (some) social networks provide to gain people's trust and then terrorize them in front of their peers. For instance, they might create a fake profile and act friendly to a classmate, then later betray and embarrass them online.
 
  These online attacks often leave deep mental scars and even drive people to hurt themselves or take their own lives, in some cases. And as it turns out, cyberbullying doesn't just affect kids. Adults can become victims of online abuse, too. Since screens hide our faces, you can end up being a jerk on social media and other websites without even realizing it.
 
- Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
+ Learn [how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
 ## 3\. FOMO (Fear of Missing Out)
 
@@ -55,11 +53,9 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  FOMO is just what it sounds like: a form of anxiety that you get when you're scared of missing out on a positive experience that someone else is having. For example, you might constantly check your messages to see if anyone has invited you out, or focus on your Instagram feed all day to make sure that nobody is doing something cool without you. You may also see pictures of something fun that your friends were able to do, feeling left out that you couldn't go because you had another responsibility.
 
- This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
+ This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-## 4\. Unrealistic Expectations
-
-![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+## 4\. Unrealistic Expectations ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -69,7 +65,7 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  But in reality, you have no way of knowing whether this is all a farce. While it looks great on the surface, that person could be in massive debt, on bad terms with their significant other, or desperate for Instagram likes as a form of validation.
 
- One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and[YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
+ One simple way out of this mess is for everyone to quit lying on social media. But in the era of Instagram influencers and [YouTubers who earn millions](https://www.makeuseof.com/how-much-money-youtubers-make/) from being inauthentic, that isn't going to happen anytime soon.
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
@@ -95,17 +91,15 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-## 7\. General Addiction
-
-![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+## 7\. General Addiction ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
  If you're not sure whether you're addicted to social networks, try to remember the last time you went a full day without checking any social media accounts. Do you feel rejected if someone unfollows you? And if your favorite social networks completely disappeared tomorrow, would the absence make you feel empty and depressed?
 
- At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of[the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
+ At the end of the day, social media sites want to keep you scrolling for as long as possible so they can show you lots of ads and make more money. Because of [the attention economy](https://www.makeuseof.com/tag/what-is-attention-economy/) , these sites need your eyes on them for as long as possible. Apps like TikTok feed you a constant barrage of quick videos that destroy your attention span over time.
 
- Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
+ Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our [guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
 ## How to Handle the Negative Effects of Social Media
 
@@ -128,3 +122,24 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-melodies-the-promise-of-boomboxs-future/"><u>Harmonizing Social Media and Melodies: The Promise of Boombox's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mark-yourself-as-safe-on-facebook/"><u>How to Mark Yourself as Safe on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-a-double-edged-sword/"><u>Facebook's Impact: A Double-Edged Sword</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-brands-social-influence-more-likes-and-shares/"><u>Boosting Your Brand's Social Influence: More Likes and Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-layers-etiquette-and-norms-in-fb-connections/"><u>The Invisible Layers: Etiquette and Norms in FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-some-people-want-to-make-instagram-instagram-again/"><u>Why Some People Want to Make Instagram Instagram Again</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ultimate-showdown-top-10-royale-warriors-games/"><u>[Updated] In 2024, Ultimate Showdown  Top 10 Royale Warriors' Games</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-10-leading-real-time-voice-transformers-an-in-depth-evaluation-for-consumers/"><u>2024 Approved 10 Leading Real-Time Voice Transformers An In-Depth Evaluation for Consumers</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your Apple iPhone 8 Plus?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-updated-conversation-guide-for-podcast-enthusiasts/"><u>[Updated] Updated Conversation Guide for Podcast Enthusiasts</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-8-best-plugins-for-logic-pro-x-free-and-paid/"><u>In 2024, 8 Best Plugins for Logic Pro X (Free & Paid)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtube-video-builder-how-to-create-video-ads-for-free/"><u>2024 Approved  YouTube Video Builder  How to Create Video Ads for Free?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-affordable-high-res-camera-options/"><u>[New] Affordable High-Res Camera Options</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-top-10-anime-movies-of-all-time/"><u>In 2024, Top 10 Anime Movies of All Time</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-oppo-f23-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Oppo F23 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+</ul></div>

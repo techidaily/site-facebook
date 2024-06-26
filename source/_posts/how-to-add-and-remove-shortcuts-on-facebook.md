@@ -1,7 +1,7 @@
 ---
 title: How to Add and Remove Shortcuts on Facebook
-date: 2024-06-21 12:53:54
-updated: 2024-06-23 10:26:54
+date: 2024-06-25T14:40:16.873Z
+updated: 2024-06-26T14:40:16.873Z
 tags:
   - facebook
 categories:
@@ -27,23 +27,17 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  First, let's have a look at the Facebook shortcut options that you will find in the navigation bar.
 
-### Home
-
-![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
+### Home ![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
-### Friends
-
-![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
+### Friends ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
 
  The Friends shortcut is an icon with two people. This is where you can view all your Facebook friend requests and suggested friends to add. Facebook might also suggest importing your contacts. If you remove the tab, you'll get friend request notifications in the Notifications tab instead.
 
- There is a[difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
+ There is a [difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
-### Profile
-
-![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
+### Profile ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
@@ -51,17 +45,13 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-### Menu
-
-![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
+### Menu ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
-### Marketplace
+### Marketplace ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
-![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
-
- The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow[safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
+ The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
  The Marketplace section comes with its own list of settings where you can filter through specific items. Listings will be based on your location by default, but you can change it.
 
@@ -69,17 +59,13 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  Facebook Groups combines posts from all the groups you're part of into its own feed. Similar to suggestions that pop up on your regular feed, you'll see some suggested groups here tpp. It's a circular icon with three people and can be removed.
 
- You can easily[leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
+ You can easily [leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
-### Watch
-
-![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
+### Watch ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
-### Gaming
-
-![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
+### Gaming ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
@@ -173,3 +159,22 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-online-interactions-which-sites/"><u>Safe Online Interactions: Which Sites?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-a-deceased-family-members-facebook-account-memorialized-or-removed/"><u>How to Get a Deceased Family Member's Facebook Account Memorialized or Removed</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-techniques-for-identifying-new-group-trends/"><u>Top 4 Techniques for Identifying New Group Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-prepare-for-and-execute-an-effective-fb-account-shutdown/"><u>How to Prepare For and Execute an Effective FB Account Shutdown</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-iphone-14-pro-max-screen-lock-without-data-loss-by-drfone-ios-unlock-ios-unlock/"><u>How to unlock iPhone 14 Pro Max screen lock without data loss?</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-find-the-best-free-subtitle-maker-online-guide-on-how-to-use-subtitle-creator-online-for-creating-subtitles-easily/"><u>Updated 2024 Approved Find the Best Free Subtitle Maker Online. Guide on How to Use Subtitle Creator Online for Creating Subtitles Easily</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/unleash-the-power-of-transitions-in-final-cut-pro-3-expert-methods-for-2024/"><u>Unleash the Power of Transitions in Final Cut Pro 3 Expert Methods for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-ranking-top-6-apps-for-fb-lite-video-downloads/"><u>2023 Ranking  Top 6 Apps for FB Lite Video Downloads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/fixed-excel-2010-vba-runtime-error-9-subscript-out-of-range-by-stellar-guide/"><u>Fixed Excel 2010 VBA Runtime Error 9 Subscript Out of Range</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/standout-80s-visual-tricks-to-enhance-films/"><u>Standout 80S Visual Tricks to Enhance Films</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-in-2024-how-to-make-a-wonderful-video-slideshow-with-your-travel-photos/"><u>Updated In 2024, How to Make a Wonderful Video Slideshow with Your Travel Photos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/strategies-for-effective-screen-sharing-via-skype-at-home-for-2024/"><u>Strategies for Effective Screen Sharing via Skype at Home for 2024</u></a></li>
+</ul></div>

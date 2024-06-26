@@ -1,7 +1,7 @@
 ---
 title: "Masterclass: Transforming Your Social Media Moniker on FB"
-date: 2024-06-20 10:23:31
-updated: 2024-06-23 10:10:40
+date: 2024-06-25T13:44:44.503Z
+updated: 2024-06-26T13:44:44.503Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hidden-stories-that-could-change-your-perception-of-tech-today/"><u>Hidden Stories That Could Change Your Perception of Tech Today!</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-user-exodus-from-the-worlds-largest-network/"><u>Deciphering the User Exodus From the World’s Largest Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-do-and-dont-of-social-media-keeping-your-privacy-intact/"><u>The Do and Don't of Social Media: Keeping Your Privacy Intact</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-local-groups-and-usage-policies/"><u>Exploring Facebook's Local Groups & Usage Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-past-blog-posts-vanish-over-time/"><u>Can Past Blog Posts Vanish Over Time?</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-safe-user-facebooks-guide/"><u>Becoming a Safe User: Facebook's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-social-media-leadership-can-fbs-reels-outshine-tiktok/"><u>Reeling in Social Media Leadership: Can FB's Reels Outshine TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-safety-of-fb-messenger/"><u>Examining the Safety of FB Messenger</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-10-superior-online-tools-transforming-how-you-tag-your-digital-audio-files/"><u>Updated In 2024, 10 Superior Online Tools Transforming How You Tag Your Digital Audio Files</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-5-winter-frameworks-for-comfortable-cinematography/"><u>2024 Approved  Top 5 Winter Frameworks for Comfortable Cinematography</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-class-on-vsco-camera-and-lens-for-creative-use/"><u>[Updated] Master Class on VSCO Camera & Lens for Creative Use</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-amplify-impact-strategies-for-instagram-video-waves/"><u>In 2024, Amplify Impact  Strategies for Instagram Video Waves</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-vivo-x90s-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo X90S Fingerprint Lock</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-webcams-to-boost-your-zoom-experience/"><u>2024 Approved  Leading Webcams to Boost Your Zoom Experience</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-creme-de-la-creme-of-fps-games-7/"><u>In 2024, The Crème De La Créme of FPS Games (7)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-essential-manual-for-mastering-fb-video-ads/"><u>[Updated] 2024 Approved  The Essential Manual for Mastering FB Video Ads</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/best-screen-recording-software-top-10-list-for-2024/"><u>Best Screen Recording Software  Top 10 List for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-in-2024-explore-advanced-methods-to-clear-up-background-noise-in-digital-media/"><u>Updated In 2024, Explore Advanced Methods to Clear Up Background Noise in Digital Media</u></a></li>
+</ul></div>

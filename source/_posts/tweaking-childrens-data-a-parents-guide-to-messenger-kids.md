@@ -1,7 +1,7 @@
 ---
 title: "Tweaking Children's Data: A Parent's Guide to Messenger Kids"
-date: 2024-06-21 13:51:56
-updated: 2024-06-23 10:45:34
+date: 2024-06-25T13:56:59.433Z
+updated: 2024-06-26T13:56:59.433Z
 tags:
   - facebook
 categories:
@@ -37,11 +37,11 @@ Here's a look at the different fields you can add...
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
 
- Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the[safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
+ Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the [safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
 
 ### Edit Name
 
- When you[start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
+ When you [start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
 
 ## How to Add Your Child’s Information in Messenger Kids
 
@@ -71,13 +71,11 @@ Close
 4. Tap**Controls** from the top tabs. This will navigate you to the customizable settings.
 5. Select**Edit Info** . It will open your kid’s**Account Details** . Here, you can edit your child’s first name, surname, date of birth, and pronouns and add or remove the profile picture.
 
-**Download:** Facebook for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
+**Download:** Facebook for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
 
-**Download:** Messenger Kids for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
+**Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture
-
-![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -89,9 +87,7 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -103,9 +99,7 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -128,7 +122,7 @@ Follow these steps:
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
-5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
+5. Select**Controls** to access a menu with all the relevant features. Thanks to [updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
@@ -161,3 +155,26 @@ Follow these steps:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-social-platforms-a-safe-choice/"><u>Best Social Platforms: A Safe Choice?</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-innovation-facebook-and-its-stealthy-smartwatch/"><u>Whispers of Innovation: Facebook and Its Stealthy Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/posting-under-the-radar-in-social-hubs/"><u>Posting Under the Radar in Social Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-user-participation-in-stories-polls/"><u>Maximizing User Participation in Stories Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-conversation-security-with-end-to-end-encrypted-services-on-facebook/"><u>Enhance Your Conversation Security with End-to-End Encrypted Services on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/zipping-outcomes-turning-into-subrip-text-files/"><u>Zipping Outcomes  Turning Into SubRip Text Files</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-secrets-unveiled-amplifying-profile-visibility/"><u>2024 Approved  Secrets Unveiled  Amplifying Profile Visibility</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-apeaksofts-game-changing-recording-technology-review/"><u>[New] In 2024, Apeaksoft's Game-Changing Recording Technology Review</u></a></li>
+<li><a href="https://extra-support.techidaily.com/render-photos-add-inward-radiant-spread-in-photoshop-for-2024/"><u>Render Photos  Add Inward Radiant Spread in Photoshop for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/masterclass-in-logo-making-best-of-9-free-software-for-youtubers/"><u>Masterclass in Logo-Making  Best of 9 Free Software for YouTubers</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-samsung-galaxy-m14-5g-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Samsung Galaxy M14 5G Phone FRP Lock</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeos-video-mosaics-inserting-chapters-for-clarity-for-2024/"><u>[Updated] Vimeo's Video Mosaics  Inserting Chapters for Clarity for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-2023s-facebook-video-grabber-windowsmacosandroid/"><u>[Updated] In 2024, 2023'S Facebook Video Grabber  Windows/macOS/Android</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-probing-deep-into-inshots-editing-capabilities/"><u>In 2024, Probing Deep Into InShot's Editing Capabilities</u></a></li>
+</ul></div>

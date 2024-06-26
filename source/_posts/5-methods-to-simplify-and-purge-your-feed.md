@@ -1,7 +1,7 @@
 ---
 title: 5 Methods to Simplify and Purge Your Feed
-date: 2024-06-20 15:10:26
-updated: 2024-06-23 12:42:42
+date: 2024-06-25T14:14:56.755Z
+updated: 2024-06-26T14:14:56.755Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,13 @@ thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e
 
 ![Friend settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729376.jpg)
 
-**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can[spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
+**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can [spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
 
 ![Adding Facebook Friends to a Friends List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729286.jpg)
 
 ## 2\. Clean Up Your Facebook Photos
 
- It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
+ It's time to go into your photos and decide what you want to be on the internet for all to see. While you can [make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 ### Deleting Facebook Photo Albums
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e
 
 ### Deleting Photos of You on Facebook
 
- Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
+ Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
@@ -110,3 +110,22 @@ thumbnail: https://thmb.techidaily.com/fa0f0d9aa480a84d4958b92625d7efd743147dd9e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-user-experience-layouts/"><u>Facebook Unveils Enhanced User Experience Layouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcast-experience-what-to-listen-to/"><u>The Ultimate 2022 Podcast Experience - What to Listen To</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-growth-in-tech-spending-for-cybersecurity-on-facebook/"><u>Analyzing the Growth in Tech Spending for Cybersecurity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-meccas-for-embarking-on-freelancing-ventures/"><u>Top 5 Meccas for Embarking on Freelancing Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-shadows-in-social-media-space/"><u>Understanding the Shadows in Social Media Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-did-my-social-journey-begin-on-facebook/"><u>When Did My Social Journey Begin on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/withheld-implementation-date-for-whatsapps-new-privacy-agreement/"><u>Withheld Implementation Date for WhatsApp's New Privacy Agreement</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/gaming-through-time-with-top-5-pc-based-ps1-game-emulators/"><u>Gaming Through Time with Top 5 PC-Based PS1 Game Emulators</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-apple-iphone-6s-plus-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen Apple iPhone 6s Plus In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-the-secrets-of-slow-mo-mastery-for-tiktok-users-for-2024/"><u>Unlocking the Secrets of Slow Mo Mastery for TikTok Users for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-quickcapturewin-instant-screenshots-for-pcs-for-2024/"><u>[New] QuickCaptureWin  Instant Screenshots for PCs for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-maximizing-video-reach-sharing-youtube-content-via-facebook-network-for-2024/"><u>[New] Maximizing Video Reach  Sharing YouTube Content via Facebook Network for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-find-my-friends-work-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Itel P55T | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-tecno-spark-go-2024-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Tecno Spark Go (2024)?</u></a></li>
+</ul></div>

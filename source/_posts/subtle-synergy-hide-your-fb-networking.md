@@ -1,7 +1,7 @@
 ---
 title: "Subtle Synergy: Hide Your FB Networking"
-date: 2024-06-21 13:44:38
-updated: 2024-06-23 11:31:11
+date: 2024-06-25T14:47:04.578Z
+updated: 2024-06-26T14:47:04.578Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,7 @@ The steps are similar on Facebook's desktop website.
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
- On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
+ On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other [ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
 
@@ -100,3 +100,24 @@ The steps are similar on Facebook's desktop website.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
+<li><a href="https://facebook.techidaily.com/erasing-facial-recognition-data-a-security-risk-for-social-platform-users/"><u>Erasing Facial Recognition Data – A Security Risk for Social Platform Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-social-platforms-a-safe-choice/"><u>Best Social Platforms: A Safe Choice?</u></a></li>
+<li><a href="https://facebook.techidaily.com/upholdining-brand-integrity-unfollowing-non-aligned-accounts/"><u>Upholdining Brand Integrity: Unfollowing Non-Aligned Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-social-media-ads-a-plea-for-more-robust-anti-fraud-measures/"><u>Scrutinizing Social Media Ads: A Plea for More Robust Anti-Fraud Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-features-are-they-game-changers/"><u>Facebook’s Interactive Features: Are They Game Changers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-privacy-industry-overview/"><u>In Pursuit of Privacy: Industry Overview</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-capturing-and-crafting-your-essential-guide-to-gopro-4k-edits/"><u>[New] In 2024, Capturing and Crafting  Your Essential Guide to GoPro 4K Edits</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-content-with-properly-sized-videos-on-instagram-for-2024/"><u>Elevate Content with Properly Sized Videos on Instagram for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-tecno-spark-20-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Tecno Spark 20 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-chatcam-video-saver-app/"><u>[New] 2024 Approved  ChatCam Video Saver App</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-11x-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 11X 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-navigating-the-world-of-mac-screenshot-with-confidence/"><u>[Updated] 2024 Approved  Navigating the World of Mac Screenshot with Confidence</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-accessing-and-saving-tweets-visuals-in-your-android-device/"><u>[Updated] 2024 Approved  Accessing and Saving Tweets' Visuals in Your Android Device</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Tecno Spark 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-insiders-guide-to-efficient-phone-recording/"><u>In 2024, Insider's Guide to Efficient Phone Recording</u></a></li>
+</ul></div>

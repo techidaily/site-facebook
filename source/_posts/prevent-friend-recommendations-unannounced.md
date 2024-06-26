@@ -1,7 +1,7 @@
 ---
 title: Prevent Friend Recommendations Unannounced
-date: 2024-06-20 14:39:39
-updated: 2024-06-23 10:12:12
+date: 2024-06-25T14:05:40.567Z
+updated: 2024-06-26T14:05:40.567Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-data-eradication-clear-facebook-records/"><u>Mastering Data Eradication: Clear Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-misdirection-in-digital-consent/"><u>Understanding Misdirection in Digital Consent</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-social-media-experience-on-facebook/"><u>Optimizing Your Social Media Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-which-platform-delivers-the-deeper-digital-community/"><u>Discovering Which Platform Delivers the Deeper Digital Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/combat-the-quiescence-wake-up-your-facebook-account/"><u>Combat the Quiescence: Wake Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-ghoster-detector-lost-screen-captures-on-messenger/"><u>Chat Ghoster Detector: Lost Screen Captures on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-decision-from-social-media-regulators-on-trump-ban-case/"><u>Anticipated Decision From Social Media Regulators on Trump Ban Case</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-theft-head-on-immediate-steps-for-social-media-safety/"><u>Face Theft Head-On: Immediate Steps for Social Media Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-truth-in-hate-for-global-network-engagement-tools/"><u>Seeking Truth in Hate for Global Network Engagement Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-free-visual-storytelling-tools-intro-templates/"><u>[New] In 2024, Free Visual Storytelling Tools - Intro Templates</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-2023s-most-trusted-free-audio-collections-for-visual-storytelling/"><u>Updated 2024 Approved 2023S Most Trusted Free Audio Collections for Visual Storytelling</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/smoothing-video-borders-on-teamcollaboration-platforms/"><u>Smoothing Video Borders on TeamCollaboration Platforms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-illustrate-with-precision-prime-ipados-design-apps/"><u>[New] Illustrate with Precision  Prime iPadOS Design Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigating-kinemaster-wisely-skills-and-top-ranked-digital-counterparts/"><u>2024 Approved  Navigating KineMaster Wisely  Skills and Top-Ranked Digital Counterparts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-unlock-pro-quality-sound-top-10-audio-editing-software-tools/"><u>2024 Approved Unlock Pro-Quality Sound Top 10 Audio Editing Software Tools</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-navigating-the-best-options-for-mac-mp3-metadata-editors/"><u>Updated 2024 Approved Navigating the Best Options for Mac MP3 Metadata Editors</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-itel-p40plus-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Itel P40+ PC | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-your-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On your iPhone 15 Pro Max</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamless-transition-steps-to-obtain-windows-11-for-2024/"><u>Seamless Transition  Steps to Obtain Windows 11 for 2024</u></a></li>
+</ul></div>

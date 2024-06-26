@@ -1,7 +1,7 @@
 ---
 title: "Sanctioned Resistance: FB Groups Defy Immunization Bans"
-date: 2024-06-21 21:46:17
-updated: 2024-06-23 12:57:19
+date: 2024-06-25T14:09:19.319Z
+updated: 2024-06-26T14:09:19.319Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
 
  You can search for the word "immune" in the custom borders search bar and find several more frames that express the same opinions. Some example messages include "I trust my immune system, not a shot" and "F\*\*\* your COVID vaccine."
 
- When asked whether the use of emojis could enable a rule-violating frame to evade the platform's detection system, Facebook did not respond. It shouldn't, considering[Facebook has been training its AI to understand videos](https://www.makeuseof.com/facebook-ai-to-understand-videos/) . Photos should be easier to decode.
+ When asked whether the use of emojis could enable a rule-violating frame to evade the platform's detection system, Facebook did not respond. It shouldn't, considering [Facebook has been training its AI to understand videos](https://www.makeuseof.com/facebook-ai-to-understand-videos/) . Photos should be easier to decode.
 
 ![Facebook app in App Store on iPad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/facebook-on-ipad.png)
 
@@ -41,9 +41,9 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
 
  It's become pretty normal to see the words "Facebook" and "misinformation" in the same headline. Surely that's something that the team behind the platform wants to change, but their approach needs to either get smarter or get more aggressive for that to happen.
 
- Sure,[Facebook removed 1.3 billion fake accounts](https://www.makeuseof.com/facebook-removed-fake-accounts-for-misinformation/) in March, and later[donated $5 million to the WHO's COVID-19 fundraising campaign](https://www.makeuseof.com/facebook-donating-5-million-whos-covid-fundraising-campaign/) . But the fact remains that the platform is still peppered with fake news about the pandemic.
+ Sure,[Facebook removed 1.3 billion fake accounts](https://www.makeuseof.com/facebook-removed-fake-accounts-for-misinformation/) in March, and later [donated $5 million to the WHO's COVID-19 fundraising campaign](https://www.makeuseof.com/facebook-donating-5-million-whos-covid-fundraising-campaign/) . But the fact remains that the platform is still peppered with fake news about the pandemic.
 
- It wasn't too long ago that[Facebook released profile frames in support of getting vaccinated](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) . Perhaps the company should've checked for the anti-vax frames when adding those.
+ It wasn't too long ago that [Facebook released profile frames in support of getting vaccinated](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) . Perhaps the company should've checked for the anti-vax frames when adding those.
 
 
 <ins class="adsbygoogle"
@@ -60,3 +60,27 @@ thumbnail: https://thmb.techidaily.com/be26802ef5bb50783815300426404d3fea7e0b5a3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-fortified-facebooks-implementation-of-end-to-point-encryption-on-instagrammessenger/"><u>Digital Dialogues Fortified: Facebook's Implementation of End-To Point Encryption on Instagram/Messenger.</u></a></li>
+<li><a href="https://facebook.techidaily.com/wiping-your-digital-history-from-facebook-scope/"><u>Wiping Your Digital History From Facebook Scope</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-easy-sharing-ai-powered-imagery-tags/"><u>Unlocking Easy Sharing: AI-Powered Imagery Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-fb-more-smoothly-with-shortcut-management/"><u>Navigate FB More Smoothly With Shortcut Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-about-next-step-for-oculus-quest-series/"><u>Silent About Next Step for Oculus Quest Series</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-the-portal-go-making-the-portal-portable-for-the-first-time/"><u>Facebook Launches the Portal Go, Making the Portal Portable for the First Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-chat-when-will-end-to-end-encryption-hit-fb/"><u>Protecting Privacy in Chat: When Will End-to-End Encryption Hit FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hush-on-upcoming-oculus-quest-3/"><u>Facebook's Hush on Upcoming Oculus Quest 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-growth-strategy-risks-facebook-and-instagram-eu-markets/"><u>Meta's Growth Strategy Risks Facebook & Instagram EU Markets</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-zero-to-hero-solo-podcast-trendsetters-secrets/"><u>[New] From Zero to Hero  Solo Podcast Trendsetters' Secrets</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-update-hardware-drivers-in-windows-7-by-drivereasy-guide/"><u>Use Device Manager to update hardware drivers in Windows 7</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-special-features-virtual-location-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/mastering-titles-in-final-cut-pro-x-a-comprehensive-guide-for-2024/"><u>Mastering Titles in Final Cut Pro X A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-essential-tutorial-for-stunning-hdr-portraits/"><u>2024 Approved  The Essential Tutorial for Stunning HDR Portraits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-building-brands-and-bonds-on-instagram-steps-to-reach-a-thousand-followers/"><u>[Updated] 2024 Approved  Building Brands and Bonds on Instagram  Steps to Reach a Thousand Followers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-best-practices-snatching-supreme-photos-for-free/"><u>[New] In 2024, Best Practices  Snatching Supreme Photos for Free</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-exceptional-audioscape-for-cinematic-videos/"><u>[New] Exceptional Audioscape for Cinematic Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-accurate-3ds-reproduction-top-tier-emulators-for-home-computers-for-2024/"><u>[Updated] Accurate 3Ds Reproduction  Top-Tier Emulators for Home Computers for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Extracting Facebook Media: Pictures & Videos"
-date: 2024-06-21 23:42:11
-updated: 2024-06-23 10:19:54
+date: 2024-06-25T13:49:57.551Z
+updated: 2024-06-26T13:49:57.551Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  We'll show you the official methods as well as third-party photo downloader apps, allowing you to download your Facebook photos, your friends' photos, and videos.
 
-## How to Download Facebook Photos
-
-![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+## How to Download Facebook Photos ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -30,7 +28,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  You can use this method to download Facebook photos. It's as simple as that.
 
- However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
+ However, to download your friends' Facebook photos, their [Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
 ## How to Download Facebook Albums
 
@@ -56,7 +54,7 @@ Follow these steps to download your Facebook album:
 
  Here's how to use the easy built-in Facebook photo downloader to download all your Facebook photos:
 
-1. Head to Facebook settings on your desktop browser or use the link[facebook.com/settings](https://www.facebook.com/settings) .
+1. Head to Facebook settings on your desktop browser or use the link [facebook.com/settings](https://www.facebook.com/settings) .
 2. Click**Your Facebook information** in the sidebar.
 3. Select**Download your information** .  
 ![Your information page on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-your-information-page.jpg)
@@ -85,11 +83,9 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-## How to Save Facebook Videos to Your Computer or Phone
+## How to Save Facebook Videos to Your Computer or Phone ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
-![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
-
- Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you[download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
+ Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you [download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 
 Here's how to use it:
 
@@ -102,7 +98,7 @@ Here's how to use it:
 
  FDown also has a handy extension for Google Chrome on desktop dubbed Video Downloader Plus. When you are playing a Facebook video, click the extension icon to download it to your computer.
 
-**Download:** Video Downloader Plus for[Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
+**Download:** Video Downloader Plus for [Chrome](https://chrome.google.com/webstore/detail/video-downloader-plus/njgehaondchbmjmajphnhlojfnbfokng) (Free)
 
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
@@ -127,3 +123,24 @@ Here's how to use it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/effortless-tunes-access-spotify-through-facebooks-mini-panel/"><u>Effortless Tunes: Access Spotify Through Facebook's Mini-Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-mistakes-5-incidents-that-mark-facebooks-record/"><u>Dissecting the Mistakes: 5 Incidents That Mark Facebook’s Record</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-gaining-viral-recognition/"><u>Strategies for Gaining Viral Recognition</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-big-lie-uncovering-10-facebook-misconceptions/"><u>Breaking Down the Big Lie: Uncovering 10 Facebook Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-family-connections-with-facebook-portal-tv/"><u>Unlocking Family Connections with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-control-spotting-and-fixing-fb-hacks/"><u>Reclaiming Control: Spotting and Fixing FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-password-alteration-on-your-favorite-social-platform/"><u>Mastering Password Alteration on Your Favorite Social Platform</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-elite-web-based-recording-tools/"><u>[New] 2024 Approved  Elite Web-Based Recording Tools</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-best-4-elon-musk-voice-generators-to-make-you-sound-like-the-billionaire/"><u>Updated 2024 Approved Best 4 Elon Musk Voice Generators to Make You Sound Like the Billionaire</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-8-mistakes-people-should-avoid-as-a-new-youtuber/"><u>[New] 8 Mistakes People Should Avoid as a New YouTuber</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-mastering-disguise-on-skype-essential-voice-alteration-software-tools/"><u>Updated In 2024, Mastering Disguise on Skype Essential Voice Alteration Software Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/free-youtube-subtitled-content-download-without-paying-for-2024/"><u>Free YouTube Subtitled Content  Download Without Paying for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-v27e-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo V27e</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-elevate-your-audio-output-with-incremental-vocal-tweaks-on-audacity/"><u>Updated Elevate Your Audio Output with Incremental Vocal Tweaks on Audacity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fabricate-comical-artwork-adobe-style/"><u>2024 Approved  Fabricate Comical Artwork, Adobe Style</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-glacial-glory-pinnacle-sports-achievements/"><u>[New] Glacial Glory  Pinnacle Sports Achievements</u></a></li>
+</ul></div>

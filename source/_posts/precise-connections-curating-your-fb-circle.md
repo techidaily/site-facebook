@@ -1,7 +1,7 @@
 ---
 title: "Precise Connections: Curating Your FB Circle"
-date: 2024-06-20 18:39:41
-updated: 2024-06-23 11:39:50
+date: 2024-06-25T14:21:43.298Z
+updated: 2024-06-26T14:21:43.298Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/7e377b50c4e513bd18b3a4caf17d4fa401f54e28d
 
  Limiting people on Facebook is super easy. Here are some tips for prohibiting people from contacting you on Facebook.
 
-### 1\. Put Privacy on Your Posts
-
-![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
+### 1\. Put Privacy on Your Posts ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
 
@@ -39,13 +37,11 @@ Close
 
  To do that, choose the post you wish to change the settings of. Tap the privacy option and change settings from**Public** to**Friends** or**Custom** .
 
- The settings are applied until you change them again. When users upload media on Facebook, it also allows them to[change their privacy settings](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) . If you want to[make your posts shareable](https://www.makeuseof.com/how-to-make-facebook-post-shareable/) , keep them**Public** .
+ The settings are applied until you change them again. When users upload media on Facebook, it also allows them to [change their privacy settings](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) . If you want to [make your posts shareable](https://www.makeuseof.com/how-to-make-facebook-post-shareable/) , keep them**Public** .
 
- If you have a business and are trying to get customers through Facebook, we recommend[creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
+ If you have a business and are trying to get customers through Facebook, we recommend [creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
-### 2\. Limit People Who Can Search You
-
-![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
+### 2\. Limit People Who Can Search You ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
 
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
 
@@ -59,15 +55,15 @@ Close
 
  Limit them from searching your personal Facebook account by changing the settings. This feature is helpful for people who want to keep their professional and personal lives separate.
 
- If your[Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
+ If your [Instagram and Facebook accounts are linked together](https://www.makeuseof.com/link-unlink-instagram-to-facebook/) , your contacts are automatically synchronized. People who follow you on one app can also find you on the other. Users can keep their Instagram and Facebook separate to limit this contact.
 
 ### 3\. Change Your Messaging Privacy
 
- Facebook has made Messenger its main messaging app. It comes with[several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
+ Facebook has made Messenger its main messaging app. It comes with [several exciting features](https://www.makeuseof.com/tag/21-hidden-facebook-messenger-tricks-need-try-right-now/) and privacy settings that encourage users to maintain their desired privacy levels.
 
  Users can restrict a contact, adding that contact to the Message Requests section without blocking them. You can avoid unwanted contact by limiting as many people as desired. If that doesn't help, there is always an option to block a person on Messenger.
 
- Furthermore, deleting conversations and archiving contacts also play an integral role in maximizing your privacy. Like WhatsApp, Messenger also supports[end-to-end encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) , which means your chat is not accessible to anyone.
+ Furthermore, deleting conversations and archiving contacts also play an integral role in maximizing your privacy. Like WhatsApp, Messenger also supports [end-to-end encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) , which means your chat is not accessible to anyone.
 
  This feature updates your conversations whenever a contact changes their device, reinstalls Messenger, or resets their phone.
 
@@ -83,9 +79,7 @@ Close
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
-### 5\. Unfriend or Block a Facebook Account
-
-![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
+### 5\. Unfriend or Block a Facebook Account ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
@@ -103,7 +97,7 @@ Close
 
  A person with more than one account can look you up from the other account if that isn't blocked. The best practice after blocking is limiting your posts and changing their privacy from Public to Friends.
 
- You can also[report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
+ You can also [report a Facebook contact](https://www.makeuseof.com/report-content-spam-facebook/) depending on their activities on the app. Impersonation, abusive language, and explicit content are why people report and block a user on Facebook.
 
 ## Make Facebook a Safe Space for Yourself
 
@@ -128,3 +122,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/analyzing-why-a-user-may-disappear-from-chat-listings/"><u>Analyzing Why a User May Disappear From Chat Listings</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-legal-action-against-10k-facebook-groups-administration/"><u>Amazon's Legal Action Against 10K Facebook Groups Administration</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-secure-mail-validity-is-securityfb-legit/"><u>Facebook Secure Mail Validity: Is @Security@fb Legit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-appreciation-online-a-step-by-step-fb-method/"><u>Concealing Appreciation Online: A Step-by-Step FB Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-refreshing-info-on-your-little-ones-messengers/"><u>Steps for Refreshing Info on Your Little One’s Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-threat-landscape-of-online-identity-theft/"><u>Navigating the Threat Landscape of Online Identity Theft</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-best-5-non-youtube-editing-tools-for-vids/"><u>2024 Approved  Best 5 Non-YouTube Editing Tools for Vids</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-the-zen-of-soundscaping-advanced-strategies-for-removing-background-noise-in-virtual-realms-for-2024/"><u>Updated The Zen of Soundscaping Advanced Strategies for Removing Background Noise in Virtual Realms for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/key-tools-selecting-best-6-fb-lite-videos/"><u>Key Tools  Selecting Best 6 FB Lite Videos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-essential-video-editors-for-cutting-edge-webcams/"><u>[Updated] In 2024, Essential Video Editors for Cutting-Edge Webcams</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-3gp-video-format-what-is-3gp-format-and-how-to-open-it/"><u>New 2024 Approved 3GP Video Format What Is 3GP Format And How To Open It?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-truth-behind-your-instagram-selfie-for-2024/"><u>[Updated] The Truth Behind Your Instagram Selfie for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ackwards-viewing-a-new-lens-for-analyzing-youtube-content-for-2024/"><u>[New] Backwards Viewing  A New Lens for Analyzing YouTube Content for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-implementing-instagram-story-opinion-polls-effectively/"><u>[Updated] In 2024, Implementing Instagram Story Opinion Polls Effectively</u></a></li>
+</ul></div>

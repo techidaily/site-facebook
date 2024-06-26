@@ -1,7 +1,7 @@
 ---
 title: "Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted!"
-date: 2024-06-22 22:10:10
-updated: 2024-06-23 11:16:18
+date: 2024-06-25T14:23:54.949Z
+updated: 2024-06-26T14:23:54.949Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
 
 ## Facebook Is Betting Big on EU Tech Talent
 
- In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
+ In an October 17 post on the [Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
 
  According to the post, “This investment is a vote of confidence in the strength of the European tech industry and the potential of European tech talent.”
 
@@ -78,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/introducing-dynamic-fb-shortcut-management-techniques/"><u>Introducing Dynamic FB Shortcut Management Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-intrusions-social-media-statistics/"><u>Cyber Intrusions: Social Media Statistics</u></a></li>
+<li><a href="https://facebook.techidaily.com/latest-watches-on-facebook-unveiled/"><u>Latest Watches on Facebook Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/pocketing-profits-from-peoples-pages/"><u>Pocketing Profits From People's Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-gaming-the-true-scope-of-the-metaverse/"><u>Beyond Gaming: The True Scope of the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/changing-passwords-a-comprehensive-guide-to-facebook/"><u>Changing Passwords: A Comprehensive Guide to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-significant-shifts-in-metas-privacy-rules/"><u>What Are the Significant Shifts in Meta's Privacy Rules?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-tour-of-metas-digital-command-center/"><u>A Comprehensive Tour of Meta's Digital Command Center</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-13-without-losing-data-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Reset iPhone 13 without Losing Data? | Stellar</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-video-editing-apps-for-mac-for-2024/"><u>Top Video Editing Apps for Mac for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-top-virtualdub-alternatives-for-video-editing-a-detailed-comparison/"><u>New 2024 Approved Top Virtualdub Alternatives for Video Editing A Detailed Comparison</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-hour-high-viewers-the-best-of-youtube-now/"><u>[Updated] In 2024, Hour-High Viewers  The Best of YouTube Now</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/13-windows-movie-maker-alternatives-you-need-to-try/"><u>13 Windows Movie Maker Alternatives You Need to Try</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-the-no-fee-way-to-embed-music-into-your-photographs-on-pcmobile-platforms/"><u>Updated 2024 Approved The No-Fee Way to Embed Music Into Your Photographs on PC/Mobile Platforms</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smartest-3d-apps-available-on-android/"><u>2024 Approved  Smartest 3D Apps Available on Android</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/caption-crafting-select-writing-apps-for-your-photos-for-2024/"><u>Caption Crafting  Select Writing Apps for Your Photos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-premier-fb-video-mp4-downloader-no-ads-no-wait/"><u>[Updated] In 2024, Premier FB Video MP4 Downloader - No Ads, No Wait</u></a></li>
+</ul></div>

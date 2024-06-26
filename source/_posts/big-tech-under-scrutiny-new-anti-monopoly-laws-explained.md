@@ -1,7 +1,7 @@
 ---
 title: "Big Tech Under Scrutiny: New Anti-Monopoly Laws Explained"
-date: 2024-06-22 12:13:52
-updated: 2024-06-23 12:53:17
+date: 2024-06-25T14:14:58.781Z
+updated: 2024-06-26T14:14:58.781Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,22 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/alert-for-ghosted-photo-posts-in-chats-and-messenger/"><u>Alert for Ghosted Photo Posts in Chats and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-the-tiktok-threat-to-its-revenue-streams/"><u>Facebook Faces the TikTok Threat to Its Revenue Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-11-social-network-snags-and-how-to-tackle-them/"><u>Top 11 Social Network Snags and How to Tackle Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-optimizing-facebooks-memory-tool/"><u>Expert Tips for Optimizing Facebook's Memory Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/designating-which-friends-can-view-you-active/"><u>Designating Which Friends Can View You Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharing-instagram-reels-on-facebook-a-step-by-step-guide/"><u>Sharing Instagram Reels on Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-salesmen-in-your-pocket-a-truth-or-tale-of-coincidence/"><u>Silent Salesmen in Your Pocket: A Truth or Tale of Coincidence?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-this-article-we-are-going-to-take-you-through-some-of-the-best-time-lapse-video-editing-software-you-can-find-on-the-market-for-2024/"><u>Updated In This Article, We Are Going to Take You Through some of the Best Time-Lapse Video Editing Software, You Can Find on the Market for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/multi-app-video-dimensions-tutorial-for-2024/"><u>Multi-App Video Dimensions Tutorial for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unleash-your-creativity-10-top-rated-android-video-editors/"><u>Unleash Your Creativity 10 Top-Rated Android Video Editors</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-frame-to-firm-selecting-your-mcn-partner/"><u>[Updated] In 2024, From Frame to Firm  Selecting Your MCN Partner</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/2024-approved-the-ultimate-fcpx-freebie-list-10-plugins-you-cant-miss/"><u>2024 Approved The Ultimate FCPX Freebie List 10 Plugins You Cant Miss</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-unleash-your-creativity-innovative-online-crop-strategies/"><u>In 2024, Unleash Your Creativity - Innovative Online Crop Strategies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-20-ae-templates-for-aspiring-designers/"><u>Top 20 AE Templates for Aspiring Designers</u></a></li>
+</ul></div>

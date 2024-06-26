@@ -1,7 +1,7 @@
 ---
 title: Efficiently Managing FB Links with Shortcuts
-date: 2024-06-22 22:26:10
-updated: 2024-06-23 10:53:22
+date: 2024-06-25T14:19:32.386Z
+updated: 2024-06-26T14:19:32.386Z
 tags:
   - facebook
 categories:
@@ -27,23 +27,17 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
  First, let's have a look at the Facebook shortcut options that you will find in the navigation bar.
 
-### Home
-
-![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
+### Home ![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
-### Friends
-
-![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
+### Friends ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
 
  The Friends shortcut is an icon with two people. This is where you can view all your Facebook friend requests and suggested friends to add. Facebook might also suggest importing your contacts. If you remove the tab, you'll get friend request notifications in the Notifications tab instead.
 
- There is a[difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
+ There is a [difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
-### Profile
-
-![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
+### Profile ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
@@ -51,17 +45,13 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-### Menu
-
-![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
+### Menu ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
-### Marketplace
+### Marketplace ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
-![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
-
- The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow[safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
+ The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
  The Marketplace section comes with its own list of settings where you can filter through specific items. Listings will be based on your location by default, but you can change it.
 
@@ -69,17 +59,13 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
  Facebook Groups combines posts from all the groups you're part of into its own feed. Similar to suggestions that pop up on your regular feed, you'll see some suggested groups here tpp. It's a circular icon with three people and can be removed.
 
- You can easily[leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
+ You can easily [leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
-### Watch
-
-![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
+### Watch ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
-### Gaming
-
-![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
+### Gaming ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
@@ -173,3 +159,27 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/activate-shadow-like-interface-in-facebook-app/"><u>Activate Shadow-Like Interface in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-fb-backgrounds/"><u>Mastering The Art of Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-tunes-access-spotify-through-facebooks-mini-panel/"><u>Effortless Tunes: Access Spotify Through Facebook's Mini-Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-social-gatherings-with-facebook-portal-tv/"><u>Simplifying Social Gatherings with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/start-a-secure-digital-footprint-meta-usa/"><u>Start a Secure Digital Footprint – Meta USA</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-your-facebook-interactions-with-these-3-tag-tactics/"><u>Accelerate Your Facebook Interactions with These 3 Tag Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tactics-for-retrieving-a-hidden-facebook-account/"><u>Comprehensive Tactics for Retrieving a Hidden Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-revolutionary-ai-the-speedy-vanguard/"><u>Meta's Revolutionary AI: The Speedy Vanguard</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-event-experiences-a-facebook-creation-blueprint/"><u>Innovating Event Experiences: A Facebook Creation Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-giants-mastery-of-meta-account-control/"><u>Unlocking Social Giants: Mastery of Meta Account Control</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-swiftly-excise-your-youtube-comment-spam-for-2024/"><u>[New] How to Swiftly Excise Your Youtube Comment Spam for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-v30-lite-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo V30 Lite 5G</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-standout-5-dynamic-social-platform-logo-movements/"><u>[New] In 2024, Standout 5 Dynamic Social Platform Logo Movements</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-skys-playground-discovering-the-husqvarna-x4-fpv/"><u>The Sky's Playground  Discovering the Husqvarna X4 FPV</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-developing-intriguing-video-segments-for-channels/"><u>[New] Developing Intriguing Video Segments for Channels</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-poco-x5-pro-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Poco X5 Pro Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://techidaily.com/samsung-galaxy-m34-won-t-play-mkv-movies-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Samsung Galaxy M34 won’t play MKV movies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-unleash-your-stories-gratis-facebook-enhancers-online-and-on-the-go/"><u>[Updated] In 2024, Unleash Your Stories  Gratis, Facebook Enhancers Online & On-The-Go</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-transfer-music-from-apple-iphone-15-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Transfer Music from Apple iPhone 15 to Android | Dr.fone</u></a></li>
+</ul></div>

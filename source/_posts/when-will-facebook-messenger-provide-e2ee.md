@@ -1,7 +1,7 @@
 ---
 title: When Will Facebook Messenger Provide E2EE?
-date: 2024-06-20 17:45:24
-updated: 2024-06-23 10:45:10
+date: 2024-06-25T14:30:18.439Z
+updated: 2024-06-26T14:30:18.439Z
 tags:
   - facebook
 categories:
@@ -23,19 +23,17 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
 
  Facebook has announced plans to [bring default end-to-end encryption to Messenger](https://www.makeuseof.com/facebook-messenger-instagram-direct-chats-wont-encrypted-until-2022/) .
 
- This was outlined in an April 2021 post on the[Facebook Newsroom](https://about.fb.com/news/2021/04/messenger-policy-workshop-future-of-private-messaging/) by Messenger’s Policy Director, Gail Kent.
+ This was outlined in an April 2021 post on the [Facebook Newsroom](https://about.fb.com/news/2021/04/messenger-policy-workshop-future-of-private-messaging/) by Messenger’s Policy Director, Gail Kent.
 
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
-## Why Facebook Messenger Chats Are Yet to Be Encrypted
-
-![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+## Why Facebook Messenger Chats Are Yet to Be Encrypted ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 
  Related: [What Apps Use End-to-End Encryption to Improve Online Privacy?](https://www.makeuseof.com/apps-use-end-to-end-encryption/)
 
- Another perk of Messenger is how your chats are synced across every device you use. But this can’t be said of the[messaging platforms that offer default end-to-end encryption](https://www.makeuseof.com/how-the-top-instant-messaging-services-use-end-to-end-encryption/) .
+ Another perk of Messenger is how your chats are synced across every device you use. But this can’t be said of the [messaging platforms that offer default end-to-end encryption](https://www.makeuseof.com/how-the-top-instant-messaging-services-use-end-to-end-encryption/) .
 
  You can only access most of these from with one device at a time, and all old messages are lost when there’s a device switch, unless the chats were backed up. And in that case, they’re no longer end-to-end encrypted.
 
@@ -62,3 +60,27 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-career-advancement-top-6-facebook-strategies/"><u>Unlocking Career Advancement: Top 6 Facebook Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-avatars-amplifying-friendship-in-whatsapp-exchanges/"><u>Facebook Avatars: Amplifying Friendship in WhatsApp Exchanges</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-security-becoming-a-page-admin/"><u>Boosting Security: Becoming a Page Admin</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-spying-off-facebook-tool-usage-guide/"><u>Unravel Facebook's Spying - Off-Facebook Tool Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-vagueness-in-blogging-a-signal-seekers-guide/"><u>Exploring Vagueness in Blogging - A Signal Seeker's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recognize-and-stop-facebook-fraudsters/"><u>How to Recognize and Stop Facebook Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-meta-ai-a-step-forward-or-back-for-social-networks/"><u>Is Meta AI a Step Forward or Back for Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/flexible-fonts-for-friendly-forums-messenger-tips/"><u>Flexible Fonts for Friendly Forums: Messenger Tips</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sky-high-selfies-made-easy-dji-spark-reviewed/"><u>Sky High Selfies Made Easy  DJI Spark Reviewed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-motorola-moto-g23-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Motorola Moto G23 Phones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-audience-connection-through-instagram-stories-questions/"><u>In 2024, Audience Connection Through Instagram Stories Questions</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-determining-the-tactile-auditory-feedback-on-button-interaction/"><u>Updated Determining the Tactile-Auditory Feedback on Button Interaction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-enhancing-your-youtube-content-basic-premiere-pro-edits/"><u>In 2024, Enhancing Your YouTube Content  Basic Premiere Pro Edits</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-the-path-to-profitable-fb-animation-ad-success-stories/"><u>[Updated] In 2024, The Path to Profitable FB Animation Ad Success Stories</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unlocking-the-secrets-of-saving-hulu-episodes-on-various-devices-for-2024/"><u>Unlocking the Secrets of Saving Hulu Episodes on Various Devices for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-hdr-capturing-dynamic-range-in-your-images/"><u>2024 Approved  IPhone HDR  Capturing Dynamic Range in Your Images</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-amplify-your-influence-the-ultimate-list-of-instagram-apps/"><u>[Updated] In 2024, Amplify Your Influence  The Ultimate List of Instagram Apps</u></a></li>
+</ul></div>

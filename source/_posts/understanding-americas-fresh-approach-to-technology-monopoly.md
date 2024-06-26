@@ -1,7 +1,7 @@
 ---
 title: Understanding America's Fresh Approach to Technology Monopoly
-date: 2024-06-21 14:43:22
-updated: 2024-06-23 10:41:55
+date: 2024-06-25T13:49:27.241Z
+updated: 2024-06-26T13:49:27.241Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/fe3425cd8bd2ff0c1232de1bab83bce21e82181cb
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unmasking-sophisticated-cyber-charades/"><u>Unmasking Sophisticated Cyber Charades</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-rightly-suspended-trump-for-now/"><u>Social Media Sanctions: Rightly Suspended Trump for Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-facebooks-suggested-posts/"><u>The Science Behind Facebook's Suggested Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-future-of-chat-when-will-fb-introduce-e2ee/"><u>Securing the Future of Chat: When Will FB Introduce E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-survival-scenarios-post-fb-demise/"><u>Data Survival Scenarios Post-FB Demise</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-post-death-memories-and-termination/"><u>Navigating Facebook Post-Death: Memories and Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dark-side-social-networks-popularity-controversy/"><u>The Dark Side: Social Networks' Popularity Controversy</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-unlock-chromecast-play-any-video-format-with-ease-2023-update/"><u>Updated 2024 Approved Unlock Chromecast Play Any Video Format with Ease 2023 Update</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/mastering-live-participation-stepping-into-others-tiktok-sessions-for-2024/"><u>Mastering Live Participation  Stepping Into Others' TikTok Sessions for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-mastering-the-art-of-minecraft-gameplay-capture-for-2024/"><u>[Updated] Mastering the Art of Minecraft Gameplay Capture for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-analytics-audience-insight-crusade-for-2024/"><u>Mastering Instagram Analytics  Audience Insight Crusade for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-navigate-and-watch-harnessing-netflixs-picture-in-picture-functionality/"><u>In 2024, Navigate and Watch  Harnessing Netflix's Picture-in-Picture Functionality</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-teacher-friendly-video-capture-options-reviewed/"><u>[Updated] In 2024, Teacher-Friendly Video Capture Options Reviewed</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-realme-v30-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Realme V30 Face Lock?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock OnePlus Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-ranking-the-top-web-based-vertical-video-editors-for-2024/"><u>New Ranking the Top Web-Based Vertical Video Editors for 2024</u></a></li>
+</ul></div>

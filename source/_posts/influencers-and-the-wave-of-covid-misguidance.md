@@ -1,7 +1,7 @@
 ---
 title: Influencers and the Wave of Covid Misguidance
-date: 2024-06-20 21:43:19
-updated: 2024-06-23 12:41:49
+date: 2024-06-25T14:39:24.558Z
+updated: 2024-06-26T14:39:24.558Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,26 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-the-metaverse-discovering-facebooks-top-6-pioneering-features/"><u>Meet the Metaverse: Discovering Facebook’s Top 6 Pioneering Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-success-in-social-media-marketing-on-fb/"><u>Decoding #Success in Social Media Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-pathways-leaving-facebook-for-good/"><u>Unfollowing Pathways: Leaving Facebook for Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-front-door-securing-it-from-hackers/"><u>Your Digital Front Door: Securing It From Hackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-how-quizzes-can-jeopardize-cyber-safety/"><u>Exploring How Quizzes Can Jeopardize Cyber Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-pre-deletion-reflections-for-a-social-media-break/"><u>Essential Factors: Pre-Deletion Reflections for a Social Media Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-your-snapshots-from-public-eyes/"><u>Shielding Your Snapshots From Public Eyes</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-apple-iphone-se-2022-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled Apple iPhone SE (2022) Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unearthed-echo-collectors-best-unnoticed-android-and-ios-recorders-for-2024/"><u>[New] Unearthed Echo Collectors  Best Unnoticed Android & iOS Recorders for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-complete-story-on-dji-phantom-4s-performance/"><u>[Updated] The Complete Story on DJI Phantom 4'S Performance</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-audience-wow-factor-the-best-camera-lenses-for-youtube-stars/"><u>[New] In 2024, Audience Wow Factor  The Best Camera Lenses for YouTube Stars</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rising-stars-of-online-videos-top-subscription-hits-for-2024/"><u>Rising Stars of Online Videos  Top Subscription Hits for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/optimizing-youtube-banners-with-best-practices-in-mind-for-2024/"><u>Optimizing YouTube Banners with Best Practices in Mind for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-iphone-se-stuck-at-attempting-data-recovery-loop-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Fix iPhone SE Stuck at attempting data recovery Loop | Stellar</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-how-to-share-the-screen-with-zoom/"><u>[Updated] 2024 Approved  How to Share the Screen with Zoom</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-tier-tone-transmitter-for-voice-artists/"><u>In 2024, Top-Tier Tone Transmitter for Voice Artists</u></a></li>
+</ul></div>

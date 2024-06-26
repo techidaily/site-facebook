@@ -1,7 +1,7 @@
 ---
 title: "Social Media Sabbatical: What Teens Should Consider Before Continued Use of Instagram"
-date: 2024-06-22 23:33:14
-updated: 2024-06-23 10:43:12
+date: 2024-06-25T14:01:26.289Z
+updated: 2024-06-26T14:01:26.289Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,22 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/peek-into-facebook-bonds-history-of-connections/"><u>Peek Into Facebook Bonds: History of Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-ban-a-profile-from-your-facebook-page/"><u>How to Ban a Profile From Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattering-illusions-decoding-key-findings-from-fb-papers/"><u>Shattering Illusions: Decoding Key Findings From FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-sophisticated-social-media-scams-you-need-to-avoid/"><u>3 Sophisticated Social Media Scams You Need to Avoid</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-first-of-its-kind-portal-turned-mobility-friendly/"><u>The First of Its Kind: Portal Turned Mobility-Friendly</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-identity-codes-fb-pages-and-unames/"><u>Understanding Social Media Identity Codes: FB Pages & UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-personal-influence-story/"><u>Crafting Your Personal Influence Story</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-collaborative-screen-recording/"><u>[Updated] 2024 Approved  Collaborative Screen Recording</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-12-mini-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone 12 mini? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-infinix-note-30-5g-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Infinix Note 30 5G Black and White | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-minipic-snapshot-scrutiny-plus-diverse-apps-for-2024/"><u>[Updated] MiniPic Snapshot Scrutiny + Diverse Apps for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-honor-play-8t-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Honor Play 8T without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pixels-perfection-elevate-your-picture-crafting/"><u>2024 Approved  Pixels Perfection  Elevate Your Picture Crafting</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/photo-finesse-leading-edits-for-social-media-savvy/"><u>Photo Finesse  Leading Edits for Social Media Savvy</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-send-unforgettable-invites-best-video-apps-for-mobile-phones/"><u>2024 Approved Send Unforgettable Invites Best Video Apps for Mobile Phones</u></a></li>
+</ul></div>

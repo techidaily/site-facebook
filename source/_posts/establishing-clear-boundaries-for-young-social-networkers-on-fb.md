@@ -1,7 +1,7 @@
 ---
 title: Establishing Clear Boundaries for Young Social Networkers on FB
-date: 2024-06-21 12:12:24
-updated: 2024-06-23 10:35:39
+date: 2024-06-25T14:24:02.595Z
+updated: 2024-06-26T14:24:02.595Z
 tags:
   - facebook
 categories:
@@ -23,25 +23,23 @@ thumbnail: https://thmb.techidaily.com/984f643c4b4f7bae0c2654dd17f8e46d49464b1fb
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
- Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
+ Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about [what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-## How to Do a Privacy Check of Your Teen's Facebook Account
-
-![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+## How to Do a Privacy Check of Your Teen's Facebook Account ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
 
- When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
+ When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to [ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 ## Privacy Setting Basics
 
- There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
+ There are some [privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many [Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
 
  When you click on your teen's**Privacy** , you'll be given some**Privacy Shortcuts** to look over. In this section, you'll be able to review important things such as: if your teen's birthday is correct.
 
@@ -65,9 +63,7 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-## Check Ad Settings
-
-![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+## Check Ad Settings ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -100,3 +96,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-unseen-feed-hiding-pages-without-disclosure-on-fb/"><u>The Unseen Feed: Hiding Pages without Disclosure on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-strives-for-educated-user-engagement-with-new-prompt/"><u>Facebook Strives for Educated User Engagement with New Prompt</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-for-extracting-entire-facebook-records/"><u>Step-by-Step for Extracting Entire Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/prompt-your-way-to-enlightened-social-media-posts-at-facebook/"><u>Prompt Your Way to Enlightened Social Media Posts at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-group-what-it-does-and-how-it-works/"><u>FB Oversight Group: What It Does and How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-samsung-galaxy-s24-ultra-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Samsung Galaxy S24 Ultra Fingerprint Lock</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-echo-video-storyteller/"><u>[Updated] Echo Video Storyteller</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-reverse-engineering-how-to-reverse-video-clips-in-final-cut-pro/"><u>In 2024, Reverse Engineering How to Reverse Video Clips in Final Cut Pro</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-tiktok-sound-comprerancy-on-muted-video-segments/"><u>[Updated] In 2024, TikTok Sound  Comprerancy on Muted Video Segments</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/tunefab-revolutionizing-the-art-of-video-capture/"><u>Tunefab  Revolutionizing the Art of Video Capture</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-scaling-down-obs-video-quality-for-2024/"><u>[New] Scaling Down OBS Video Quality for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-free-and-paid-options-to-perfectly-document-every-google-meet/"><u>[New] In 2024, Free & Paid Options to Perfectly Document Every Google Meet</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia C02 | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Controversial Features in Today's Websites
-date: 2024-06-22 13:30:43
-updated: 2024-06-23 10:45:30
+date: 2024-06-25T14:46:33.654Z
+updated: 2024-06-26T14:46:33.654Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,13 @@ thumbnail: https://thmb.techidaily.com/5d3200ea7acc8a267e33f7e3f6be29344352dcba6
 
 ## Pros to the Dislike Button Hiding Its Numbers
 
- YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
+ YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the [number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
 
  Let's look at the benefits of not seeing the number of dislikes, starting with YouTube.
 
 ### Hate Campaigns Leave Less of an Impact
 
- A major reason YouTube shared for[hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
+ A major reason YouTube shared for [hiding the number of dislikes](https://www.makeuseof.com/youtube-hiding-dislikes-on-videos/) is hate campaigns.
 
  The company explained that hateful campaigns against creators and their content have always been a part of YouTube culture, and they wanted to do something about it.
 
@@ -37,9 +37,7 @@ thumbnail: https://thmb.techidaily.com/5d3200ea7acc8a267e33f7e3f6be29344352dcba6
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-### Less Stress When Posting
-
-![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+### Less Stress When Posting ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/5d3200ea7acc8a267e33f7e3f6be29344352dcba6
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
 
-### It Helps Your Mental Health
-
-![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
+### It Helps Your Mental Health ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
 
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
@@ -67,9 +63,7 @@ What's more, it goes beyond affecting only the poster.
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
-### You Can't Discern Helpfulness
-
-![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
+### You Can't Discern Helpfulness ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -79,9 +73,7 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-### You Can't Tell if It's Worth Seeing
-
-![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
+### You Can't Tell if It's Worth Seeing ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
 
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
@@ -97,7 +89,7 @@ What's more, it goes beyond affecting only the poster.
 
 ### Does It Make Sense for the Platform at All?
 
- Twitter is dipping its toes into the dislike pool by introducing a[downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
+ Twitter is dipping its toes into the dislike pool by introducing a [downvote system](https://www.makeuseof.com/twitters-experimental-downvoting-system/) .
 
  Since it came on the social media scene, Twitter has historically not had anything in the vein of a dislike button. However, it's potentially looking to change that.
 
@@ -111,7 +103,7 @@ What's more, it goes beyond affecting only the poster.
 
  How can you not have a dislike button if it's an integral part of the platform?
 
- Since its inception, Reddit has had both up and downvote buttons. People use the downvote to share that the post was bad, unoriginal, stolen, doesn't fit the topic, or for a myriad of other reasons. Reddit without downvotes wouldn't be Reddit at all, and[users love the platforms](https://www.makeuseof.com/reasons-reddit-best-social-media-platform/) as is.
+ Since its inception, Reddit has had both up and downvote buttons. People use the downvote to share that the post was bad, unoriginal, stolen, doesn't fit the topic, or for a myriad of other reasons. Reddit without downvotes wouldn't be Reddit at all, and [users love the platforms](https://www.makeuseof.com/reasons-reddit-best-social-media-platform/) as is.
 
  Going on Reddit today, you'll find that it has hidden the exact count of the downvote button, like YouTube. But, it has also hidden the count of the upvote one. You can still click whichever button you want to, but you won't see the exact separate count of the upvotes and downvotes. Instead, you get the sum total of both hovering in the middle.
 
@@ -140,3 +132,22 @@ What's more, it goes beyond affecting only the poster.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-sharing-experience-new-integration-of-fb-content-across-platforms/"><u>Elevate Sharing Experience: New Integration of FB Content Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-policies-in-its-latest-hub-initiative/"><u>Exploring Facebook's Policies in Its Latest Hub Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-great-disconnect-unpacking-platform-failures/"><u>The Great Disconnect: Unpacking Platform Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-transparency-of-fbcta/"><u>Unveiling the Transparency of FBCTA</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-interactive-feedback-via-page-polls/"><u>Facilitating Interactive Feedback via Page Polls</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-ultimate-snapshot-experience-mastering-snapchat-filters/"><u>In 2024, The Ultimate Snapshot Experience  Mastering Snapchat Filters</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-avoiding-instagrams-false-facade-for-a-solid-stature/"><u>2024 Approved  Avoiding Instagram's False Facade for a Solid Stature</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionary-metaverse-tech-highlights-of-top-8-helmets/"><u>Revolutionary Metaverse Tech  Highlights of Top 8 Helmets</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strengthen-your-footage-using-a-tripod-in-vlogging/"><u>In 2024, Strengthen Your Footage  Using a Tripod in Vlogging</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-realme-c33-2023-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Realme C33 2023</u></a></li>
+<li><a href="https://extra-information.techidaily.com/speedy-windows-file-checkout-tutorial/"><u>Speedy Windows File Checkout Tutorial</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-elevate-your-content-tiktoks-top-10-filter-winners/"><u>2024 Approved  Elevate Your Content  TikTok's Top 10 Filter Winners</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-ideas-for-making-eye-catching-facebook-video-ads-for-2024/"><u>[Updated] Ideas for Making Eye-Catching Facebook Video Ads for 2024</u></a></li>
+</ul></div>

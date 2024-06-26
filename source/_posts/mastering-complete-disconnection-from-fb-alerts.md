@@ -1,7 +1,7 @@
 ---
 title: Mastering Complete Disconnection From FB Alerts
-date: 2024-06-21 20:33:25
-updated: 2024-06-23 10:50:54
+date: 2024-06-25T14:19:46.422Z
+updated: 2024-06-26T14:19:46.422Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/techniques-for-resolving-stalled-fb-notifications/"><u>Techniques for Resolving Stalled FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/learn-lives-through-interactive-messenger-polls/"><u>Learn Lives Through Interactive Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-seal-of-approval-is-it-worth-it/"><u>Meta's Seal of Approval - Is It Worth It?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-deception-eyes-that-see-beyond-screen-saves/"><u>Detecting Deception: Eyes that See Beyond Screen Saves</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-it-covert-a-step-by-step-guide-to-private-content-retrieval/"><u>Keeping It Covert: A Step-by-Step Guide to Private Content Retrieval</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-audience-on-ig-livestream-with-less/"><u>Engage Audience On IG Livestream with Less</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-funny-faces-for-iphone-users/"><u>2024 Approved  Funny Faces for iPhone Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-jake-pauls-youtube-odyssey-a-tale-of-growth/"><u>2024 Approved  Jake Paul's YouTube Odyssey  A Tale of Growth</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-navigating-tiktok-media-on-chrome-devices-effortlessly/"><u>[Updated] 2024 Approved  Navigating TikTok Media on Chrome Devices Effortlessly</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mp4-files-on-samsung-galaxy-xcover-7-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung Galaxy XCover 7</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-samsung-galaxy-a15-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-charting-a-course-length-of-podcast-episodes/"><u>In 2024, Charting a Course  Length of Podcast Episodes</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ghost-3-clash-ghost-4-rising/"><u>In 2024, Ghost 3 Clash  Ghost 4 Rising</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-ultimate-unadorned-screen-recorder-2023-for-2024/"><u>[Updated] Ultimate Unadorned Screen Recorder 2023 for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-examining-instagrams-unusual-video-aspect-ratio-anomalies/"><u>[New] Examining Instagram's Unusual Video Aspect Ratio Anomalies</u></a></li>
+</ul></div>

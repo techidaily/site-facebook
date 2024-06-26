@@ -1,7 +1,7 @@
 ---
 title: Essential Tips for FB Privacy Settings
-date: 2024-06-20 17:34:21
-updated: 2024-06-23 10:58:42
+date: 2024-06-25T14:38:15.964Z
+updated: 2024-06-26T14:38:15.964Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
 ## Photo Privacy Is More Important Than You Think
 
- Keeping your photographs private—or at least[restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
+ Keeping your photographs private—or at least [restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
 
  So, what are some of the pitfalls of having your photographs publicly accessible?
 
@@ -36,9 +36,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
-### 1\. Inline Privacy Controls
-
-![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
+### 1\. Inline Privacy Controls ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -56,7 +54,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
-**Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
+**Individual Photos:** If you only want to modify the privacy setting of one photo, you need to [locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
 
@@ -72,9 +70,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
-### Pro Tip: Use the Activity Log
-
-![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
+### Pro Tip: Use the Activity Log ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
@@ -92,9 +88,7 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-### Tag Suggestions
-
-![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+### Tag Suggestions ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -119,3 +113,26 @@ thumbnail: https://thmb.techidaily.com/59ebf54bbd2728b1cee67f80e126289c9f6737977
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-to-play-spotify-without-leaving/"><u>Navigating Social Media to Play Spotify Without Leaving</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fbs-covert-tracking-use-off-fb-settings/"><u>Unmasking Fb's Covert Tracking, Use Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-privacy-on-facebook-with-a-new-security-key/"><u>Strengthen Privacy on Facebook with a New Security Key</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-hidden-messages-from-social-media-archives/"><u>Dissecting the Hidden Messages From Social Media Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/coding-excellence-boosted-by-facebook-rust-association/"><u>Coding Excellence Boosted by Facebook-Rust Association</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-maintains-full-usability-despite-non-acceptance-of-policies/"><u>WhatsApp Maintains Full Usability Despite Non-Acceptance of Policies</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-realme-11x-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-techniques-to-reformat-macscreenshot-extensions/"><u>[Updated] Techniques to Reformat MacScreenshot Extensions</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-inshots-ultimate-tune-up-import-music-essentials/"><u>2024 Approved  InShot's Ultimate Tune Up  Import Music Essentials</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-flash-dead-samsung-galaxy-a34-5g-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Samsung Galaxy A34 5G Safely | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-unlock-the-best-youtube-to-mp3-converters-top-picks-and-hacks/"><u>In 2024, Unlock the Best YouTube to MP3 Converters Top Picks and Hacks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quadcopter-showdown-dji-pro-and-hero-4-black-for-2024/"><u>Quadcopter Showdown  DJI Pro and Hero 4 Black for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-seamless-integration-of-obs-studio-with-android-tech/"><u>2024 Approved  Seamless Integration of OBS Studio with Android Tech</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-apples-role-in-simplifying-educational-audio-archives/"><u>[Updated] Apple's Role in Simplifying Educational Audio Archives</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-on-your-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID On Your iPhone 12 Pro Max</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-motorola-g24-power-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Motorola G24 Power Device</u></a></li>
+</ul></div>

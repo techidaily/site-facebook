@@ -1,7 +1,7 @@
 ---
 title: Navigating Safety in the Realm of Social Media Quizzes
-date: 2024-06-21 22:11:49
-updated: 2024-06-23 12:44:55
+date: 2024-06-25T14:07:29.300Z
+updated: 2024-06-26T14:07:29.300Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,7 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-## Cybersecurity Risks of Facebook Quizzes
-
-![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+## Cybersecurity Risks of Facebook Quizzes ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -35,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
- These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+ These quizzes are [a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -45,13 +43,11 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
  First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
 
- If the quiz was multiple-choice questions on another website, such as Buzzfeed, you are probably not in any danger. It is difficult to give away any personal information in a multiple-choice quiz since the answers are already written. There are also a few tools you can use to[check if the link was safe](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) or not.
+ If the quiz was multiple-choice questions on another website, such as Buzzfeed, you are probably not in any danger. It is difficult to give away any personal information in a multiple-choice quiz since the answers are already written. There are also a few tools you can use to [check if the link was safe](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) or not.
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-### Take Screenshots and Notes
-
-![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
+### Take Screenshots and Notes ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
 
 ### Report the Scam Quiz
 
- Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using[their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
+ Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using [their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
 
  Contact your bank and credit card companies. Explain the situation so they can stay alert for potential unauthorized attempts to access your account. They can also provide guidance on securing your financial accounts, so the information from the quiz is useless to hackers.
 
@@ -94,3 +90,24 @@ thumbnail: https://thmb.techidaily.com/0e72ae7670739d2aa724a5c1676e3ea5eb7af36bc
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-secret-data-the-new-headline-maker/"><u>Facebook's Secret Data: The New Headline-Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-first-of-its-kind-portal-turned-mobility-friendly/"><u>The First of Its Kind: Portal Turned Mobility-Friendly</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-tech-marvels-discover-the-leading-4-stories-you-missed/"><u>Unseen Tech Marvels: Discover the Leading 4 Stories You Missed</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-best-social-strategy-apps-for-post-synchronization/"><u>The 7 Best Social Strategy Apps for Post Synchronization</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-user-deceit-for-better-privacy-choices/"><u>Unraveling User Deceit for Better Privacy Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-shadows-in-social-media-space/"><u>Understanding the Shadows in Social Media Space</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-rotate-youtube-videos-by-any-angle-2023-guide-andeditors/"><u>In 2024, How to Rotate YouTube Videos by Any Angle [2023 Guide &Editors]</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-leveraging-teamsnap-for-dynamic-virtual-presentations/"><u>[New] 2024 Approved  Leveraging TeamSnap for Dynamic Virtual Presentations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-free-video-embedding-for-dynamic-online-articles/"><u>In 2024, Free Video Embedding for Dynamic Online Articles</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-how-to-trim-video-with-kapwing-editor-online-for-2024/"><u>Updated How to Trim Video with Kapwing Editor Online for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/beatmatching-your-vids-syncing-music-seamlessly-on-facebook/"><u>Beatmatching Your Vids  Syncing Music Seamlessly on Facebook</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-superior-screen-reporter-optimal-chromebook-choice/"><u>2024 Approved  Superior Screen Reporter  Optimal Chromebook Choice</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/advanced-techniques-to-silence-background-noise-in-media-for-2024/"><u>Advanced Techniques to Silence Background Noise in Media for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-this-article-discusses-what-is-hitfilm-express-how-to-download-install-and-use-it-and-its-key-features-it-further-discusses-its-alternative-for-edit/"><u>Updated This Article Discusses What Is Hitfilm Express, How to Download, Install and Use It, and Its Key Features. It Further Discusses Its Alternative for Editing Your Videos and More. Check Out Now</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/dialing-up-the-drama-captivating-tiktok-intros-via-mac-for-2024/"><u>Dialing Up the Drama  Captivating TikTok Intros via Mac for 2024</u></a></li>
+</ul></div>

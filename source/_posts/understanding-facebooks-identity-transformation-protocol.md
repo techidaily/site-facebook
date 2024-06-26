@@ -1,7 +1,7 @@
 ---
 title: Understanding Facebook's Identity Transformation Protocol
-date: 2024-06-22 12:45:33
-updated: 2024-06-23 12:28:37
+date: 2024-06-25T14:00:09.014Z
+updated: 2024-06-26T14:00:09.014Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-sharing-vacancies-via-facebook/"><u>Tips for Sharing Vacancies via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-easy-sharing-ai-powered-imagery-tags/"><u>Unlocking Easy Sharing: AI-Powered Imagery Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-no-cost-applications-for-social-media-supremacy/"><u>Top Ten No-Cost Applications for Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-ban-facebook-board-assessment-of-executive-decision/"><u>Curbing the Ban: Facebook Board Assessment of Executive Decision.</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-on-user-privacy-online/"><u>Assault on User Privacy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-locating-facebook-profile-and-group-connections/"><u>Mastering Social: Locating Facebook Profile & Group Connections</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-tales-of-trial-by-fire-vs-innovative-challenges/"><u>2024 Approved  Tales of Trial by Fire Vs. Innovative Challenges</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nubia-red-magic-8s-proplus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nubia Red Magic 8S Pro+ to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-ensuring-permanent-absence-from-tiktok-platform-for-2024/"><u>[New] Ensuring Permanent Absence From TikTok Platform for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-honor-play-40c-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Honor Play 40C – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-galaxy-z-flip-5-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Galaxy Z Flip 5 ?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/best-browser-capture-tools-top-5-screen-recorder-selections-for-2024/"><u>Best Browser Capture Tools  Top 5 Screen Recorder Selections for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revisiting-reruns-the-classic-goofy-movie/"><u>2024 Approved  Revisiting Reruns  The Classic 'Goofy Movie'</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-essential-6-apps-elevating-your-instagram-reels-for-2024/"><u>[New] Essential 6 Apps Elevating Your Instagram Reels for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-inspiring-interview-experiences/"><u>In 2024, Crafting Inspiring Interview Experiences</u></a></li>
+</ul></div>

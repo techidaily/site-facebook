@@ -1,7 +1,7 @@
 ---
 title: Big Tech's Responsibility in the Battle Against Online Fraudsters
-date: 2024-06-20 17:44:54
-updated: 2024-06-23 12:34:57
+date: 2024-06-25T14:13:10.751Z
+updated: 2024-06-26T14:13:10.751Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
- The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
+ The report by [Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
 
 Adam French, Consumer Rights Expert at Which?, said:
 
@@ -66,3 +66,22 @@ Facebook further stated:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogue-deciphered-a-guide-to-understanding-30-abbreviations/"><u>Digital Dialogue Deciphered: A Guide to Understanding 30 Abbreviations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shutdown-saga-how-meta-ended-facial-id-on-facebook/"><u>The Shutdown Saga: How Meta Ended Facial ID on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-security-profile/"><u>Enhancing Your Facebook Security Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-for-seeking-freelance-opportunities/"><u>Top 5 Hubs for Seeking Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/blurring-lines-will-facebook-steer-towards-physical-marketplaces/"><u>Blurring Lines: Will Facebook Steer Towards Physical Marketplaces?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-world-from-facebook-to-the-visionary-meta/"><u>Navigating the Digital World: From 'Facebook' To the Visionary Meta</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-oneplus-11-5g-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your OnePlus 11 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/5-quick-methods-to-bypass-tecno-camon-20-pro-5g-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Tecno Camon 20 Pro 5G FRP</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-slicephoto-inspection/"><u>2024 Approved  SlicePhoto Inspection</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets/"><u>[Updated] 2024 Approved  Cut to the Chase  Quick Background Blur Tricks for Everyday Meets</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-the-technology-behind-whatsapp-voice-calls/"><u>[Updated] 2024 Approved  Unveiling the Technology Behind WhatsApp Voice Calls</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-guide-to-affordable-and-effective-intros/"><u>2024 Approved  The Ultimate Guide to Affordable and Effective Intros</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-camera-roll-sharing-in-just-a-few-steps-for-2024/"><u>[New] Mastering Camera Roll Sharing in Just a Few Steps for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oppo-a1-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Oppo A1 5G Is Unlocked</u></a></li>
+</ul></div>

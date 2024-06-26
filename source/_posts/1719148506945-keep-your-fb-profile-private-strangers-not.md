@@ -1,7 +1,7 @@
 ---
 title: Keep Your FB Profile Private, Strangers' Not!
-date: 2024-06-21 12:30:53
-updated: 2024-06-23 11:41:11
+date: 2024-06-25T13:56:06.446Z
+updated: 2024-06-26T13:56:06.446Z
 tags:
   - facebook
 categories:
@@ -25,14 +25,14 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 
  You can change your privacy settings in Facebook's settings section:
 
-1. Log in to your[Facebook.com](https://www.facebook.com/) account.
+1. Log in to your [Facebook.com](https://www.facebook.com/) account.
 2. Click your**Profile icon** and choose**Settings and privacy > Settings > Privacy** .
 3. Select the**Check a few important settings** option and click the**Who can see what you share** tile.
 4. Click**Continue** and set your preferences in each section, choosing**Friends** or**Only me** for each option. Select**Next** until you get to the last window. Click the**X** in the top-right corner of the window to close it.
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
- You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
+ You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
 ## 2\. Lock Your Facebook Profile Down
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 
  Your profile will now only be open to your friends on the social media platform.
 
- Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main[tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
+ Facebook offers multiple privacy settings to keep your account private, but there are more ways to achieve that. One of the main [tips to protect your privacy on Facebook](https://www.makeuseof.com/tag/protect-privacy-facebook/) is keeping a tight handle on who you connect with. In other words, don't accept friend requests from strangers, and don't invite people you don't know personally. This will save you a lot of headaches and allow you to post comfortably on your profile.
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
@@ -75,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
 
- Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the[Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
+ Fortunately, you can manage who can see your Facebook posts. Facebook allows you to change your post settings for each post so that it reaches the right audience. This is one of the [Facebook privacy settings you should change now](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) to make your profile more private. Please note that this setting affects future posts; settings for posts you shared in the past will remain the same.
 
 1. Go to your**Profile** .
 2. Click**Settings and privacy** , select**Settings** , and choose**Privacy** .
@@ -105,3 +105,22 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-ends-tenure-at-facebook/"><u>Carolyn Everson Ends Tenure at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-the-future-of-chat-when-will-fb-introduce-e2ee/"><u>Securing the Future of Chat: When Will FB Introduce E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-mail-service-safety-with-two-factor-authentication-techniques/"><u>Transforming Mail Service Safety with Two-Factor Authentication Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-on-user-privacy-online/"><u>Assault on User Privacy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-buzz-over-users-is-not-always-justified-in-fb-world/"><u>Why Buzz Over Users Is Not Always Justified in FB World</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-uploading-to-twitter-a-complete-video-walkthrough/"><u>[Updated] 2024 Approved  Uploading to Twitter  A Complete Video Walkthrough</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-latest-free-game-video-editing-software-you-need-to-try/"><u>Updated In 2024, Latest Free Game Video Editing Software You Need to Try</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/techniques-for-modifying-photo-genders-on-major-social-platforms-for-2024/"><u>Techniques for Modifying Photo Genders on Major Social Platforms for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-tiktok-expression-top-7-emoji-guide/"><u>2024 Approved  Mastering the Art of TikTok Expression  Top 7 Emoji Guide</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-transform-your-footage-a-cinematic-color-grading-guide-for-fcpx/"><u>Updated 2024 Approved Transform Your Footage A Cinematic Color Grading Guide for FCPX</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-innovative-techniques-for-saving-snapchat-videos/"><u>[New] In 2024, Innovative Techniques for Saving Snapchat Videos</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-upload-your-music-to-youtube-for-2024/"><u>How to Upload Your Music to YouTube for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ultimate-audio-harvesters-in-learning-spaces/"><u>[New] Ultimate Audio Harvesters in Learning Spaces</u></a></li>
+</ul></div>

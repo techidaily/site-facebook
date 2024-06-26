@@ -1,7 +1,7 @@
 ---
 title: "When to Flip the Friend Switch on Facebook: Insights and Strategies"
-date: 2024-06-22 19:14:26
-updated: 2024-06-23 10:41:41
+date: 2024-06-25T13:56:04.417Z
+updated: 2024-06-26T13:56:04.417Z
 tags:
   - facebook
 categories:
@@ -28,7 +28,7 @@ Facebook's follow feature works in two ways:
 * You can see content from other users such as celebrities, sports stars, and local journalists.
 * You can share some of your thoughts with the wider public, even if most of your Facebook profile remains private.
 
- We've explained[the differences between Facebook friends and Facebook followers](https://www.makeuseof.com/facebook-friends-followers-differences/) in more detail elsewhere on the site if you would like to learn more.
+ We've explained [the differences between Facebook friends and Facebook followers](https://www.makeuseof.com/facebook-friends-followers-differences/) in more detail elsewhere on the site if you would like to learn more.
 
  Interested? Keep reading. We're going to take a closer look at the follow feature and how to make it work for you.
 
@@ -42,9 +42,7 @@ There are two reasons to use the follow feature.
 
  Secondly, it lets you interact with people you're not connected with. In many ways, it's Facebook's answer to Twitter.
 
-## How to Follow and Unfollow on Facebook
-
-![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
+## How to Follow and Unfollow on Facebook ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
@@ -52,7 +50,7 @@ There are two reasons to use the follow feature.
 
  If you find that one of your friends posts too frequently (or just bores you with their content), but you don't want to offend them by unfriending them, you can unfollow them instead. Unfollowing someone will prevent their posts from appearing in your news feed, but they will still see your posts in their news feed.
 
- (**NB:** If you get unfriended by someone else, don't stress. There are lots of[ways to deal with being unfollowed or unfriended](https://www.makeuseof.com/tag/unfriended-unfollowed-rejection-social-media/) .)
+ (**NB:** If you get unfriended by someone else, don't stress. There are lots of [ways to deal with being unfollowed or unfriended](https://www.makeuseof.com/tag/unfriended-unfollowed-rejection-social-media/) .)
 
  To unfollow a person, navigate to their profile page and locate the**Friends** button (again, below the bottom-right corner of the person's cover photo).
 
@@ -137,3 +135,27 @@ This same page contains three other settings you need to be aware of:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clear-spotifys-link-with-facebook/"><u>How To Clear Spotify's Link With Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-social-media-landscapes-boosting-biz-success/"><u>Leading Social Media Landscapes Boosting Biz Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/executing-the-perfect-pivot-tearing-down-facebook-business-pages/"><u>Executing the Perfect Pivot: Tearing Down Facebook Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-silence-no-more-comments-on-your-online-sharing/"><u>Master Silence: No More Comments on Your Online Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-reasons-why-facebook-is-starting-to-lose-users/"><u>4 Reasons Why Facebook Is Starting to Lose Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-functions-of-facebooks-helpers/"><u>Navigating Through the Functions of Facebook’s Helpers</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-landscapes-overhauited-discovering-4-major-online-shifts/"><u>Social Landscapes Overhauited: Discovering 4 Major Online Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-of-execution-on-trump-ban-in-progress/"><u>Stay of Execution on Trump Ban in Progress</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-news-feed-a-hub-for-targeted-business-promotions/"><u>Facebook's Upcoming News Feed: A Hub for Targeted Business Promotions</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-how-do-i-access-the-full-range-of-shared-media-on-messenger/"><u>2024 Approved  How Do I Access the Full Range of Shared Media on Messenger?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-seamless-integration-turning-audio-into-written-format-in-ms-word/"><u>[Updated] Seamless Integration  Turning Audio Into Written Format in MS Word</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-in-2024-discover-the-leading-free-audio-modification-software-of-the-year/"><u>New In 2024, Discover the Leading Free Audio Modification Software of the Year</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-instant-access-to-youtube-on-your-idevice-easy-video-uploads-unveiled/"><u>In 2024, Instant Access to YouTube on Your iDevice  Easy Video Uploads Unveiled</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-lava-blaze-2-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Lava Blaze 2 FRP</u></a></li>
+<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-12-mini-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off Apple iPhone 12 mini without Password</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/earn-big-fast-the-ultimate-guide-to-tiktoks-wealth-generation-8-strategies/"><u>Earn Big, Fast  The Ultimate Guide to TikTok's Wealth Generation (8 Strategies)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-champion-streaming-and-capture-tools/"><u>[New] Champion Streaming & Capture Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-creating-on-the-side-balancing-employment-with-youtube/"><u>[Updated] Creating on the Side  Balancing Employment with YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-superior-imaging-why-hdr-sets-the-standard-over-sdr/"><u>[Updated] Superior Imaging  Why HDR Sets the Standard Over SDR</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Unlock Happiness Without Facebook's Chains
-date: 2024-06-22 13:13:13
-updated: 2024-06-23 11:23:19
+date: 2024-06-25T13:47:39.157Z
+updated: 2024-06-26T13:47:39.157Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-## 1\. Facebook Tracks You Around the Web
+## 1\. Facebook Tracks You Around the Web ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
-![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
-
- Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
 
@@ -45,9 +43,7 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
 Bottom line: Facebook sees you as a lab rat.
 
-## 3\. Fake News
-
-![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+## 3\. Fake News ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -55,7 +51,7 @@ Bottom line: Facebook sees you as a lab rat.
 
  However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
 
- But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that [Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
@@ -63,17 +59,15 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
 
- Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+ Here's a Zuckerberg quote from [The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
 
 > "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
 
  Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
 
- Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+ Facebook wants you to overlook settings, so it can use your data. If you want [a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-## 5\. Facebook Has Forgotten Its Roots
-
-![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+## 5\. Facebook Has Forgotten Its Roots ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
@@ -114,3 +108,27 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-growth-plateau-analysis-needed/"><u>Facebook's Growth Plateau – Analysis Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151223653-raising-the-bar-for-online-privacy-facebook-adds-end-to-end-encryption-to-chat-services/"><u>Raising the Bar for Online Privacy: Facebook Adds End-to-End Encryption to Chat Services.</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-brands-social-influence-more-likes-and-shares/"><u>Boosting Your Brand's Social Influence: More Likes and Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweaking-childrens-data-a-parents-guide-to-messenger-kids/"><u>Tweaking Children's Data: A Parent's Guide to Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-authenticity-on-meta-platforms/"><u>Social Authenticity on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-spotify-account-from-your-facebook-space/"><u>Disconnecting Spotify Account From Your Facebook Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/debating-meta-ais-role-in-future-of-social-media-realms/"><u>Debating Meta AI’s Role in Future of Social Media Realms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-gaming-monitors-for-xbox-series-x-a-buyers-guide-for-2024/"><u>Top Gaming Monitors for Xbox Series X - A Buyer's Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-bringing-rhythm-to-instagrams-visual-narratives/"><u>2024 Approved  Bringing Rhythm to Instagram's Visual Narratives</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-new-essential-details-of-making-perfect-talking-face-for-2024/"><u>Updated New Essential Details of Making Perfect Talking Face for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-note-30-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Infinix Note 30 5G?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-cross-media-broadcasting-4-strategies-to-air-fb-livests-on-tv/"><u>[Updated] 2024 Approved  Cross-Media Broadcasting  4 Strategies to Air FB Livests on TV</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-mac-audio-enthusiasts-guide-to-selecting-the-optimal-mp3-trimmer-software/"><u>In 2024, Mac Audio Enthusiasts Guide to Selecting the Optimal Mp3 Trimmer Software</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-picture-perfect-viewing-the-best-8k-monitors-uncovered/"><u>[Updated] Picture Perfect Viewing  The Best 8K Monitors Uncovered</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-by-step-to-maximizing-adobe-storages-and-exploring-more/"><u>2024 Approved  Step-by-Step to Maximizing Adobe Storages and Exploring More</u></a></li>
+<li><a href="https://change-location.techidaily.com/honor-x7b-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X7b Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
+</ul></div>

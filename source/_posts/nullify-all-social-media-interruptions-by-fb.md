@@ -1,7 +1,7 @@
 ---
 title: Nullify All Social Media Interruptions by FB
-date: 2024-06-21 16:33:47
-updated: 2024-06-23 11:54:39
+date: 2024-06-25T14:37:34.737Z
+updated: 2024-06-26T14:37:34.737Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/a59cf765d06f5418cdef7d00a3b67e1ee91166975
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/a59cf765d06f5418cdef7d00a3b67e1ee91166975
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/integrating-social-media-into-work-culture-effectively/"><u>Integrating Social Media Into Work Culture Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-proximity-evaluating-online-platform-pitfalls/"><u>The Price of Proximity: Evaluating Online Platform Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-cloak-of-secrecy-for-your-photos/"><u>Crafting a Cloak of Secrecy for Your Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-surface-hidden-post-factors-on-fb/"><u>Beyond the Surface: Hidden Post Factors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-use-of-facebook-in-event-scheduling/"><u>Evaluating the Use of Facebook in Event Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-ultimate-tips-for-instagram-video-reverse-playback/"><u>[New] In 2024, Ultimate Tips for Instagram Video Reverse Playback</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-oppo-find-n3-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Oppo Find N3</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-prioritize-performance-our-picks-for-the-best-video-players/"><u>In 2024, Prioritize Performance  Our Picks for the Best Video Players</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hasty-steps-creating-picture-assemblies-on-mac/"><u>[Updated] Hasty Steps  Creating Picture Assemblies on Mac</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-ideal-methods-to-archive-playstation-4-gaming-sessions/"><u>[New] 2024 Approved  Ideal Methods to Archive PlayStation 4 Gaming Sessions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-essential-guide-to-tracking-down-your-youtube-voice/"><u>[Updated] The Essential Guide to Tracking Down Your YouTube Voice</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/mastering-emoji-artistry-best-on-discord-emoji-generators-for-2024/"><u>Mastering Emoji Artistry  Best On-Discord Emoji Generators for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-10-mouse-recorders-for-2024/"><u>[Updated] Top 10 Mouse Recorders for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-9-swift-solutions-for-boosting-your-tiktok-community/"><u>2024 Approved  9 Swift Solutions for Boosting Your TikTok Community</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Poco C65? | Dr.fone</u></a></li>
+</ul></div>

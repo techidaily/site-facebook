@@ -1,7 +1,7 @@
 ---
 title: Essential Protocol for Reactivating Deactivated FB ID
-date: 2024-06-21 14:42:25
-updated: 2024-06-23 11:24:42
+date: 2024-06-25T13:47:03.207Z
+updated: 2024-06-26T13:47:03.207Z
 tags:
   - facebook
 categories:
@@ -21,19 +21,15 @@ This makes you vulnerable to losing access to your account.
 
  Let us show you how you can secure your Facebook account right now while you can still log in. Should you forget your password, lose your phone, or get hacked, you'll have multiple ways to recover and secure your Facebook account.
 
-## 1\. Check Your Important Security Settings
-
-![Facebook Check Your Important Security Settings Guide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Check-Your-Important-Security-Settings-Guide.jpg)
+## 1\. Check Your Important Security Settings ![Facebook Check Your Important Security Settings Guide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Check-Your-Important-Security-Settings-Guide.jpg)
 
  Facebook has a neat little tool that lets you review your account's most important security settings.
 
- Open Facebook in your desktop browser, expand the**Account menu** in the top right, and head to**Settings & privacy > Settings** , then switch to the**Security and Login** screen, click the[Check Your Important Security Settings](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) link at the top, and follow the on-screen guide.
+ Open Facebook in your desktop browser, expand the**Account menu** in the top right, and head to**Settings & privacy > Settings** , then switch to the**Security and Login** screen, click the [Check Your Important Security Settings](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) link at the top, and follow the on-screen guide.
 
  Ideally, your password should be OK, two-factor authentication enabled, and login alerts turned on. The tool will help you close those three particular security gaps, but we'll also show you how to double-check everything manually too.
 
-## 2\. Update Your Contact Information
-
-![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
+## 2\. Update Your Contact Information ![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
 
  A fairly easy way to recover your Facebook password is through alternative contact information, such as email addresses and mobile phone numbers.
 
@@ -43,11 +39,9 @@ This makes you vulnerable to losing access to your account.
 
 Here are the contact details you can update and how to do so...
 
-### Email Address
+### Email Address ![Facebook Add Another Email Address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Add-Another-Email-Address.jpg)
 
-![Facebook Add Another Email Address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Add-Another-Email-Address.jpg)
-
- Head to**Account > Settings & privacy > Settings** , which should send you to the[**General** account settings](https://www.facebook.com/settings?tab=account) . Here, click**Edit** next to**Contact** to see all the email addresses added to your account.
+ Head to**Account > Settings & privacy > Settings** , which should send you to the [**General** account settings](https://www.facebook.com/settings?tab=account) . Here, click**Edit** next to**Contact** to see all the email addresses added to your account.
 
  Make sure you have access to all these accounts, remove outdated email addresses, and add additional ones as needed. We recommend that you have at least two email addresses associated with your Facebook account.
 
@@ -55,11 +49,9 @@ Here are the contact details you can update and how to do so...
 
  In other words, having a working email address on record is an extra layer of security, as you will be notified of changes and can prevent them, while at the same time being able to use that address to recover access to your account.
 
-### Mobile Phone Number
+### Mobile Phone Number ![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
 
-![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
-
- Now let's check the phone numbers attached to your Facebook account. Switch to the[**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
+ Now let's check the phone numbers attached to your Facebook account. Switch to the [**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
 
  As with the email addresses, we recommend that you have at least one backup, i.e. two mobile phone numbers added to your Facebook account.
 
@@ -69,23 +61,19 @@ Here are the contact details you can update and how to do so...
 
  Related:[How to Recover Your Facebook Account When You Can't Log In](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/)
 
-## 3\. Update Your Password
-
-![Facebook Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Change-Password.jpg)
+## 3\. Update Your Password ![Facebook Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Change-Password.jpg)
 
  A weak password is one of the most likely ways to get your account hacked. A strong password is just as bad if you're using it for more than one online account.
 
  Since passwords can leak, you should also update your password about once a year.
 
- Head to Facebook**Settings** and switch to the[**Security and Login** settings](https://www.facebook.com/settings?tab=security&section=browsing&view) screen. Under**Login** , click**Edit** next to the**Change password** field.
+ Head to Facebook**Settings** and switch to the [**Security and Login** settings](https://www.facebook.com/settings?tab=security&section=browsing&view) screen. Under**Login** , click**Edit** next to the**Change password** field.
 
- Enter your current password, followed by two copies of your new password. Click Save changes and don't forget to update your[password manager](https://www.makeuseof.com/tag/4-open-source-password-managers-passwords-safe/) or note down your password in a secure place, for example, a paper-based address book.
+ Enter your current password, followed by two copies of your new password. Click Save changes and don't forget to update your [password manager](https://www.makeuseof.com/tag/4-open-source-password-managers-passwords-safe/) or note down your password in a secure place, for example, a paper-based address book.
 
  Related:[How to Create a Strong Password You Won't Forget](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/)
 
-## 4\. Enable Login Notifications
-
-![Facebook Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Setting-Up-Extra-Security.jpg)
+## 4\. Enable Login Notifications ![Facebook Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Setting-Up-Extra-Security.jpg)
 
  To receive email or text message notifications when someone logs into your Facebook account from a new device or location, set up login alerts.
 
@@ -95,9 +83,7 @@ Here are the contact details you can update and how to do so...
 
  Be sure to click**Save changes** when you're done.
 
-## 5\. Enable Two-Factor Authentication
-
-![Facebook Two-Factor Authentication and Authorized Logins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Two-Factor-Authentication-and-Authorized-Logins.jpg)
+## 5\. Enable Two-Factor Authentication ![Facebook Two-Factor Authentication and Authorized Logins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Two-Factor-Authentication-and-Authorized-Logins.jpg)
 
  Two-factor authentication makes it more difficult for someone else to log into your Facebook account. Every time anyone (even you) wants to log into your Facebook account from an unauthorized device, they will need to provide a security code.
 
@@ -105,7 +91,7 @@ Here are the contact details you can update and how to do so...
 
  To enable Facebook's two-factor authentication, go to Facebook **Settings >[Security and Login](https://www.facebook.com/settings?tab=security)**  , scroll down to**Two-factor authentication** , and click**Edit** next to the**Use two-factor authentication** option.
 
- You'll have to enter your password before Facebook redirects you to its dedicated[Two-factor authentication page](https://www.facebook.com/security/2fac/settings) , where you can turn two-factor authentication on or off, manage your security methods, and add a backup method.
+ You'll have to enter your password before Facebook redirects you to its dedicated [Two-factor authentication page](https://www.facebook.com/security/2fac/settings) , where you can turn two-factor authentication on or off, manage your security methods, and add a backup method.
 
 We highly recommend that you set up the following security methods:
 
@@ -140,3 +126,24 @@ We highly recommend that you set up the following security methods:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/disconnect-to-reconnect-the-realities-of-abandoning-online-friends/"><u>Disconnect to Reconnect: The Realities of Abandoning Online Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-fb-and-twt-nbafocus/"><u>The Future Is Now: FB and Twt NBAFocus</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-out-how-old-my-virtual-persona-really-is/"><u>Finding Out: How Old My Virtual Persona Really Is</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-silence-an-effective-method-to-stop-comments-on-fb/"><u>Eternal Silence: An Effective Method to Stop Comments on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-data-collection-hurdles-with-ios-145/"><u>Facebook Faces Data Collection Hurdles with iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-opportunities-the-case-for-facebook/"><u>Maximizing Social Opportunities: The Case for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-teamwork-with-facebook-connectivity/"><u>Enhancing Teamwork with Facebook Connectivity</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unboxing-youtube-stars-todays-most-shared-tweet-stories/"><u>2024 Approved  Unboxing YouTube Stars  Today's Most Shared Tweet Stories</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-video-flexibility-unleashed-5-powerful-online-methods-to-edit-videos-on-vimeo-for-2024/"><u>[Updated] Video Flexibility Unleashed  5 Powerful Online Methods to Edit Videos on Vimeo for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-dfu-mode-on-apple-iphone-xr-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of DFU Mode on Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-expert-free-fb-image-creator-no-fee/"><u>[New] 2024 Approved  Expert Free FB Image Creator (No Fee)</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-12-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 12 to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-share-igtv-videos-to-facebook-3-ways/"><u>[Updated] How to Share IGTV Videos to Facebook [3 Ways]</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/your-portal-into-creation-easy-metaverse-personas/"><u>Your Portal Into Creation  Easy Metaverse Personas</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-embarking-on-a-virtual-odyssey-through-yt-stories/"><u>In 2024, Embarking on a Virtual Odyssey Through YT Stories</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-outsmart-youtube-sanctions/"><u>[New] How to Outsmart Youtube Sanctions</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: The Full Scope Guide to Digitally Preserving Friendships and Posts
-date: 2024-06-22 17:27:27
-updated: 2024-06-23 12:39:56
+date: 2024-06-25T13:43:11.825Z
+updated: 2024-06-26T13:43:11.825Z
 tags:
   - facebook
 categories:
@@ -27,14 +27,12 @@ thumbnail: https://thmb.techidaily.com/ec5c93589cbbf4437a85d01509aad074c0824b7a4
 
  Since the file you're downloading is quite large, we'll cover the method most users will opt for—sending the request via your desktop browser.
 
-## How to Request Your Data on the Facebook Website
-
-![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
+## How to Request Your Data on the Facebook Website ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
-1. Log in to[Facebook.com](http://www.facebook.com) .
-2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to[Facebook.com/settings](http://www.facebook.com/settings) .
+1. Log in to [Facebook.com](http://www.facebook.com) .
+2. Click on the downward arrow in the top-right corner and click**Settings & Privacy > Settings,** or head to [Facebook.com/settings](http://www.facebook.com/settings) .
 3. Click**Your Facebook Information** .
 4. Go to**Download Your Information** and click on**View** .
 5. Select what data points to include by checking the appropriate box under Deselect All, or maintain the default settings.
@@ -49,9 +47,7 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-## Customizing Your Facebook Data Download
-
-![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
+## Customizing Your Facebook Data Download ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 
@@ -89,7 +85,7 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
- Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
+ Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
 
@@ -103,7 +99,7 @@ Other downloadable datasets include:
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
 
- We've covered plenty of ways to[download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ We've covered plenty of ways to [download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
@@ -132,3 +128,24 @@ Other downloadable datasets include:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-essentials-in-metas-privacy-adjustments/"><u>Breaking Down the Essentials in Meta's Privacy Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-intruder-steps-for-detection-and-restoration/"><u>Facebook Intruder? Steps for Detection & Restoration</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-unfollow-and-follow-on-facebook-and-when-to-use-it/"><u>What Is Unfollow and Follow on Facebook? (And When to Use It)</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-liking-a-guide-for-the-discreet-user/"><u>Strategic Liking: A Guide for the Discreet User</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-platforms-adapt-to-sponsored-feature-trends/"><u>Social Networking Platforms Adapt to Sponsored Feature Trends</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/analyzing-the-goofy-journey-vhs-review-insights-for-2024/"><u>Analyzing 'The Goofy Journey'  VHS Review Insights for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-comprezyme-of-creativity-and-technique-dominating-instagram-interactions-for-2024/"><u>[New] A Comprezyme of Creativity and Technique  Dominating Instagram Interactions for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-great-screen-capture-debate-obs-studio-versus-fraps/"><u>The Great Screen Capture Debate  OBS Studio Versus Fraps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-expert-advice-capturing-and-storing-twitter-vids-on-phones/"><u>[New] 2024 Approved  Expert Advice  Capturing and Storing Twitter Vids on Phones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-nightlight-nuggets-essential-dos-and-donts-of-nocturnal-imaging-for-2024/"><u>[New] Nightlight Nuggets  Essential Do's & Don'ts of Nocturnal Imaging for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-thriving-on-instagram-strategies-for-powerful-video-marketing/"><u>[Updated] 2024 Approved  Thriving on Instagram  Strategies for Powerful Video Marketing</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-video-editors-for-windows-11/"><u>New Best Video Editors for Windows 11</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-transformative-techniques-to-enhance-your-powerpoint-recordings/"><u>[Updated] Transformative Techniques to Enhance Your PowerPoint Recordings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discover-the-art-of-youtube-playlist-shuffling/"><u>[New] 2024 Approved  Discover the Art of YouTube Playlist Shuffling</u></a></li>
+</ul></div>

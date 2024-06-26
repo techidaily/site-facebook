@@ -1,7 +1,7 @@
 ---
 title: Clearing the Clutter From Your Connection Space
-date: 2024-06-21 21:52:45
-updated: 2024-06-23 11:43:57
+date: 2024-06-25T14:00:17.142Z
+updated: 2024-06-26T14:00:17.142Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,13 @@ thumbnail: https://thmb.techidaily.com/57b8dccb20eee61b9862d74c48858978ad644b0b3
 
 ![Friend settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729376.jpg)
 
-**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can[spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
+**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can [spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
 
 ![Adding Facebook Friends to a Friends List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729286.jpg)
 
 ## 2\. Clean Up Your Facebook Photos
 
- It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
+ It's time to go into your photos and decide what you want to be on the internet for all to see. While you can [make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 ### Deleting Facebook Photo Albums
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/57b8dccb20eee61b9862d74c48858978ad644b0b3
 
 ### Deleting Photos of You on Facebook
 
- Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
+ Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
@@ -110,3 +110,22 @@ thumbnail: https://thmb.techidaily.com/57b8dccb20eee61b9862d74c48858978ad644b0b3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-non-facebook-message-services/"><u>Mastering Non-Facebook Message Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-and-why-telegram-benefited-when-facebook-went-offline-for-six-hours/"><u>How and Why Telegram Benefited When Facebook Went Offline for Six Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-fb-sightings-avoid-strangers-glimpses/"><u>Safeguarding FB Sightings: Avoid Stranger's Glimpses</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-of-the-charts-which-platform-do-you-love/"><u>Top of the Charts: Which Platform Do You Love?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-recently-watched-videos-on-facebook/"><u>How to Find Recently Watched Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-undetected-strategies-for-dodging-shadowbanned-content/"><u>The Undetected Strategies for Dodging Shadowbanned Content</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-itel-p55plus-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Itel P55+ Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/laugh-ledger-noteworthy-personalities-in-tiktok-for-2024/"><u>Laugh Ledger  Noteworthy Personalities in TikTok for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/social-media-savvy-ig-filter-hits-for-2024/"><u>Social Media Savvy  IG Filter Hits for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-best-game-viewer-innovations-revealed/"><u>In 2024, Best Game Viewer Innovations Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlisted-youtube-explained-beyond-the-main-channels/"><u>[New] Unlisted YouTube Explained  Beyond the Main Channels</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unlocking-the-potential-of-windows-10-for-aspiring-filmmakers/"><u>In 2024, Unlocking the Potential of Windows 10 for Aspiring Filmmakers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-combining-chords-and-clips-the-ultimate-fb-video-soundtrack/"><u>[Updated] In 2024, Combining Chords and Clips  The Ultimate FB Video Soundtrack</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-swiftly-producing-high-quality-thumbnails-for-valorant-screenshots/"><u>[New] 2024 Approved  Swiftly Producing High-Quality Thumbnails for Valorant Screenshots</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Decoding Facebook’s Updated Navigation and Tabs Concept
-date: 2024-06-20 20:36:30
-updated: 2024-06-23 11:43:19
+date: 2024-06-25T14:13:16.788Z
+updated: 2024-06-26T14:13:16.788Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/47a95c239b7223a89568bec86e25318318c6bf5e0
 
 ## Facebook Splits Feed Into Two Tabs
 
- In this[Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
+ In this [Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
 
 > One of the most requested features for Facebook is to make sure people don't miss friends' posts. So today we're launching a Feeds tab where you can see posts from your friends, groups, Pages and more separately in chronological order. The app will still open to a personalized feed on the Home tab, where our discovery engine will recommend the content we think you'll care most about. But the Feeds tab will give you a way to customize and control your experience further.
 
@@ -49,19 +49,17 @@ There are at least two major reasons why this has happened.
 
  The**Feeds** tab will do this by exclusively showing you content that you have subscribed to in chronological order. You can customize this content further by creating a favorites list.
 
- According to a[Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and[personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
+ According to a [Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and [personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
-### Fight Back Against TikTok
+### Fight Back Against TikTok ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
 
-![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
-
- According to[The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
+ According to [The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
 
  Meta is undoubtedly aware of TikTok's incredible growth. Since Meta cannot buy TikTok, it will do the next best thing: copy TikTok.
 
  Thus, the**Home** tab will push content to you from across Facebook based on what the algorithm thinks you are interested in, just like TikTok's**For You** page does.
 
- After[finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
+ After [finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
 
 ## Meta Will Continue to Innovate, With a Close Eye on TikTok
 
@@ -86,3 +84,22 @@ There are at least two major reasons why this has happened.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/halt-non-playing-vids-quick-fixes-for-facebook-issues/"><u>Halt Non-Playing Vids: Quick Fixes for Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripple-effects-how-stablecoins-revolutionize-crypto/"><u>Ripple Effects: How Stablecoins Revolutionize Crypto</u></a></li>
+<li><a href="https://facebook.techidaily.com/legal-battle-trump-vs-social-media-over-free-expression/"><u>Legal Battle: Trump Vs. Social Media Over Free Expression</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-most-noteworthy-tech-failures-in-recent-times/"><u>The 5 Most Noteworthy Tech Failures in Recent Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-social-media-links-reviving-logged-out-faces/"><u>Resetting Social Media Links: Reviving Logged-Out Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unplugging-insights-from-instagrams-social-hiatus-push/"><u>The Art of Unplugging: Insights From Instagram's Social Hiatus Push</u></a></li>
+<li><a href="https://facebook.techidaily.com/cloaked-companions-fb-friendlist-peculiarities/"><u>Cloaked Companions: FB Friendlist Peculiarities</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-locked-or-disabled-from-apple-iphone-14-plus-7-mehtods-you-cant-miss-by-drfone-ios/"><u>In 2024, Apple ID Locked or Disabled From Apple iPhone 14 Plus? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-view-gpx-files-online-and-offline-solutions-of-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to View GPX Files Online and Offline Solutions Of Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-xiaomi-redmi-note-12-pro-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Xiaomi Redmi Note 12 Pro 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-heart-of-filmora-10-engaging-editing-capabilities/"><u>In 2024, The Heart of Filmora  10 Engaging Editing Capabilities</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-a-full-exploration-of-speech-to-text-features-within-gdoc/"><u>2024 Approved  A Full Exploration of Speech-to-Text Features Within GDoc</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-tiktok-identity-ultimate-profile-transformation-guide/"><u>[Updated] Mastering TikTok Identity  Ultimate Profile Transformation Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-oppo-reno-8t-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-2024-approved-making-slow-motion-videos-in-final-cut-pro-the-best-methods/"><u>Updated 2024 Approved Making Slow Motion Videos in Final Cut Pro The Best Methods</u></a></li>
+</ul></div>

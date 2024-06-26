@@ -1,7 +1,7 @@
 ---
 title: "Facebook Faux Pas: Navigating Identity Fraud"
-date: 2024-06-22 21:41:43
-updated: 2024-06-23 11:32:45
+date: 2024-06-25T13:55:30.273Z
+updated: 2024-06-26T13:55:30.274Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
 
 ## What Is a Facebook Account Cloning Scam?
 
- This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
+ This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for [other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
 
  They replicate social media accounts by using all your public photos and information, making a copy of your existing account, and then adding your contacts. Scammers will pretend to be you and then start messaging your connections.
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
- Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
+ Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like [social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
 
 <ins class="adsbygoogle"
@@ -112,3 +112,26 @@ thumbnail: https://thmb.techidaily.com/405adc45ebf84824c8425ce7d2ecb9e77863385d3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bury-not-show-how-to-keep-fb-posts-from-others-eyes/"><u>Bury Not Show: How to Keep FB Posts From Others' Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/investing-in-your-segment-of-the-725-million-facebook-payout/"><u>Investing in Your Segment of the $725 Million Facebook Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-to-fortify-accounts-using-2fa-gmail-and-beyond/"><u>Essential Steps to Fortify Accounts Using 2FA: Gmail & Beyond</u></a></li>
+<li><a href="https://facebook.techidaily.com/solving-popular-facebook-problems-quick-fixes-for-11-errors/"><u>Solving Popular Facebook Problems: Quick Fixes for 11 Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/slash-the-impact-of-selective-advertising-on-web-platforms/"><u>Slash the Impact of Selective Advertising on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-one-platform-to-another-introducing-metas-digital-evolution/"><u>From One Platform to Another: Introducing Meta's Digital Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-purchasing-on-fb-unveiled-for-fridays/"><u>Live Purchasing on FB Unveiled for Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/skirting-sophisticated-social-swindles-with-ease/"><u>Skirting Sophisticated Social Swindles with Ease</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-chart-topping-video-milestones-hitting-100-million-views-in-24/"><u>2024 Approved  Chart-Topping Video Milestones Hitting 100 Million Views in '24</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo X Fold 2? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/critique-of-the-gopro-hero5-camera-sessions/"><u>Critique of the GoPro Hero5 Camera Sessions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-images-aesthetic-pc-backgrounds/"><u>2024 Approved  Innovative Images  Aesthetic PC Backgrounds</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabled-iphone-se-2020-how-to-unlock-a-disabled-iphone-se-2020-drfone-by-drfone-ios/"><u>Disabled iPhone SE (2020) How to Unlock a Disabled iPhone SE (2020)? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-ultimate-list-of-high-quality-instant-speech-transformers/"><u>Updated In 2024, The Ultimate List of High-Quality Instant Speech Transformers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-usb-c-vision-the-new-standard-in-monitors-hp-envy-27/"><u>[New] USB-C Vision  The New Standard in Monitors - HP Envy 27</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-do-you-have-a-sony-camera-and-want-to-try-different-luts-on-your-digital-content-youre-at-the-right-place-as-you-can-apply-sony-hlg-luts-to-your-med/"><u>Updated Do You Have a Sony Camera and Want to Try Different LUTs on Your Digital Content? Youre at the Right Place, as You Can Apply Sony HLG LUTs to Your Media</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-elevate-your-profile-revolutionary-biographical-ideas-for-tiktok-success-on-filmora/"><u>[Updated] Elevate Your Profile  Revolutionary Biographical Ideas for TikTok Success on Filmora</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-go-green-for-effective-ctas-via-subscription/"><u>[Updated] In 2024, Go Green for Effective CTAs via Subscription</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Privacy-First Approach: Timeline for End-to-End Encryption in FB Messenger"
-date: 2024-06-21 10:28:44
-updated: 2024-06-23 12:50:17
+date: 2024-06-25T14:20:48.941Z
+updated: 2024-06-26T14:20:48.941Z
 tags:
   - facebook
 categories:
@@ -23,19 +23,17 @@ thumbnail: https://thmb.techidaily.com/9827a92b9acfe7ff5ad59fca7934fb301cf15e62d
 
  Facebook has announced plans to [bring default end-to-end encryption to Messenger](https://www.makeuseof.com/facebook-messenger-instagram-direct-chats-wont-encrypted-until-2022/) .
 
- This was outlined in an April 2021 post on the[Facebook Newsroom](https://about.fb.com/news/2021/04/messenger-policy-workshop-future-of-private-messaging/) by Messenger’s Policy Director, Gail Kent.
+ This was outlined in an April 2021 post on the [Facebook Newsroom](https://about.fb.com/news/2021/04/messenger-policy-workshop-future-of-private-messaging/) by Messenger’s Policy Director, Gail Kent.
 
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
-## Why Facebook Messenger Chats Are Yet to Be Encrypted
-
-![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+## Why Facebook Messenger Chats Are Yet to Be Encrypted ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 
  Related: [What Apps Use End-to-End Encryption to Improve Online Privacy?](https://www.makeuseof.com/apps-use-end-to-end-encryption/)
 
- Another perk of Messenger is how your chats are synced across every device you use. But this can’t be said of the[messaging platforms that offer default end-to-end encryption](https://www.makeuseof.com/how-the-top-instant-messaging-services-use-end-to-end-encryption/) .
+ Another perk of Messenger is how your chats are synced across every device you use. But this can’t be said of the [messaging platforms that offer default end-to-end encryption](https://www.makeuseof.com/how-the-top-instant-messaging-services-use-end-to-end-encryption/) .
 
  You can only access most of these from with one device at a time, and all old messages are lost when there’s a device switch, unless the chats were backed up. And in that case, they’re no longer end-to-end encrypted.
 
@@ -62,3 +60,24 @@ thumbnail: https://thmb.techidaily.com/9827a92b9acfe7ff5ad59fca7934fb301cf15e62d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tackling-tech-titans-the-latest-us-antitrust-moves/"><u>Tackling Tech Titans: The Latest US Antitrust Moves</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-a-politics-free-facebook-experience/"><u>Embrace a Politics-Free Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-connections-top-5-business-centric-networks/"><u>Innovation in Connections: Top 5 Business-Centric Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-digital-gathering-detection/"><u>Mastering the Art of Digital Gathering Detection</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-a-low-profile-on-social-networks/"><u>Keeping a Low Profile on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-center-highlighting-facebooks-commitment-to-policy-clarity/"><u>New Center Highlighting Facebook's Commitment to Policy Clarity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-non-responsive-users-in-messaging/"><u>The Implications of Non-Responsive Users in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-profiles-and-ppages-why-brands-thrive-with-the-right-choice/"><u>Comparing Profiles & Ppages: Why Brands Thrive with the Right Choice</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reviving-retro-film-techniques-detailed-instructions-for-2024/"><u>Reviving Retro Film Techniques  Detailed Instructions for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-filmmakers-guide-to-distorting-space-and-time/"><u>The Filmmaker's Guide to Distorting Space & Time</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-ultimate-free-drawing-tools-top-mac-apps-listed/"><u>[New] Ultimate Free Drawing Tools  Top Mac Apps Listed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-a-connoisseurs-guide-to-the-very-best-10-vectors-pix/"><u>In 2024, A Connoisseur's Guide to the Very Best 10 Vectors Pix</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-best-app-to-remove-background-noise/"><u>Updated In 2024, The Best App to Remove Background Noise</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-from-zero-to-hero-top-gaming-intro-software-for-windows-and-mac-free-and-paid/"><u>New 2024 Approved From Zero to Hero Top Gaming Intro Software for Windows and Mac Free & Paid</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-next-gen-psvr-experience-essential-upcoming-games-to-watch/"><u>[New] Next Gen PSVR Experience  Essential Upcoming Games to Watch</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-visual-vanguard-the-top-videoviral-tweets/"><u>[Updated] Visual Vanguard  The Top #VideoViral Tweets</u></a></li>
+</ul></div>

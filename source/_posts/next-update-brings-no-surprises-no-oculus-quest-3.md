@@ -1,7 +1,7 @@
 ---
 title: Next Update Brings No Surprises, No Oculus Quest 3
-date: 2024-06-21 20:18:25
-updated: 2024-06-23 11:41:23
+date: 2024-06-25T14:46:54.511Z
+updated: 2024-06-26T14:46:54.511Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 
 ## There Won't Be an Oculus Pro in 2021
 
- In a recent Twitter Spaces Q&A (transcribed by[Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
+ In a recent Twitter Spaces Q&A (transcribed by [Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
 
 > People are also asking about the Quest 3, which doesn’t exist yet, and everyone who is listening to us who is a reporter there isn’t a Quest 3, there’s only a Quest 2...
 
- You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
+ You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that [Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 ## Will There Ever Be an Oculus Quest 3?
 
@@ -60,3 +60,22 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/when-is-facebook-messenger-going-to-offer-end-to-end-encryption/"><u>When Is Facebook Messenger Going to Offer End-to-End Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-comprehensive-guide-to-social-account-linking-for-xbox/"><u>Crafting a Comprehensive Guide to Social Account Linking for Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-list-before-unlinking-from-fb/"><u>The Essential List Before Unlinking From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-algos-at-work-a-guide-to-muting-suggested-posts/"><u>End Algos at Work: A Guide to Muting Suggested Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-anonymity-options-in-social-networks/"><u>Understanding Anonymity Options in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-banishing-past-searches-from-facebook/"><u>Clean Slate: Banishing Past Searches From Facebook</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-interpreting-the-lack-of-communication-a-block-indicator/"><u>[New] 2024 Approved  Interpreting the Lack of Communication  A Block Indicator</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Xiaomi Redmi K70 Pro | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-make-a-digital-signature-for-svd-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to make a digital signature for .svd file</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-tiktok-trendsetters-guide-to-video-virality/"><u>[Updated] 2024 Approved  TikTok Trendsetter's Guide to Video Virality</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Honor 70 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Infinix Zero 5G 2023 Turbo? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-trending-ig-filters-ranked/"><u>2024 Approved  Top Trending IG Filters Ranked</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-tailoring-youtube-experience-on-the-worlds-largest-social-network/"><u>[New] In 2024, Tailoring YouTube Experience on the World's Largest Social Network</u></a></li>
+</ul></div>

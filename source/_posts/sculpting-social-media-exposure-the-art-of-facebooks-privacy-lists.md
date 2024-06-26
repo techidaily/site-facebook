@@ -1,7 +1,7 @@
 ---
 title: "Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists"
-date: 2024-06-21 20:48:59
-updated: 2024-06-23 11:38:49
+date: 2024-06-25T13:56:43.501Z
+updated: 2024-06-26T13:56:43.501Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,11 @@ thumbnail: https://thmb.techidaily.com/34a94943f164b90199ce5a5021ae83a50e184cfb3
 
 ## What Is a Restricted List on Facebook?
 
- The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any[Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
+ The Restricted list is a place for you to add your Facebook friends that you don't want to share updates with. You'll still be friends with anyone you add to the list, but they won't see your status updates or any other content you mark as being for friends only. Only posts you set as**Public** , which non-friends can already see, are visible to those on this list. They'll also be able to see any [Facebook posts you tag](https://www.makeuseof.com/tag/3-important-ways-tag-someone-facebook/) them in.
 
  This allows you to stay friends with someone, so you can still see what they post, without them seeing yours. Give it a try for anyone who you can't bring yourself to unfriend yet.
 
- Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
+ Keep in mind that adding someone to your Restricted list is not the same as [blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 ## How to See Your Restricted List on Facebook
 
@@ -62,3 +62,27 @@ thumbnail: https://thmb.techidaily.com/34a94943f164b90199ce5a5021ae83a50e184cfb3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/overcoming-obstacles-in-receiving-facebook-login-verification/"><u>Overcoming Obstacles in Receiving Facebook Login Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-rekindle-on-fb-breaking-past-barriers/"><u>How to Rekindle on FB: Breaking Past Barriers</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-banishing-past-searches-from-facebook/"><u>Clean Slate: Banishing Past Searches From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-personalized-marketing-algorithms/"><u>Insight Into Personalized Marketing Algorithms</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-image-descriptions-for-fb-posts/"><u>Mastering Image Descriptions for FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-language-of-facebook-to-capture-attention/"><u>Mastering the Language of Facebook to Capture Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-new-era-of-user-privacy-at-meta/"><u>Unveiling the New Era of User Privacy at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/cyber-currents-videos-flow-on-twitter-wave-for-2024/"><u>Cyber Currents  Videos Flow on Twitter Wave for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-channel-cashflow-crusade-unleashing-earnings-with-youtube-studio/"><u>[New] Channel Cashflow Crusade  Unleashing Earnings with Youtube Studio</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-realme-gt-5-pro-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Realme GT 5 Pro PC | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-3-effective-methods-to-correct-color-distortion-in-videos-for-2024/"><u>New 3 Effective Methods to Correct Color Distortion in Videos for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-infinix-note-30i-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Infinix Note 30i to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-best-ways-to-document-smartphone-use/"><u>In 2024, Best Ways to Document Smartphone Use</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-honor-magic-v2-is-unlocked-by-drfone-android/"><u>How To Check if Your Honor Magic V2 Is Unlocked</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-fire-success-strategies-the-essential-list-of-20-video-tips/"><u>Rapid-Fire Success Strategies  The Essential List of 20 Video Tips</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 13 | Dr.fone</u></a></li>
+</ul></div>

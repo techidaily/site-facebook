@@ -1,7 +1,7 @@
 ---
 title: "Joining the Dots: Your Guide to Linking Accounts Across Platforms and Xbox"
-date: 2024-06-21 12:36:47
-updated: 2024-06-23 10:54:40
+date: 2024-06-25T14:24:17.661Z
+updated: 2024-06-26T14:24:17.661Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,9 @@ thumbnail: https://thmb.techidaily.com/c77188d301673882c7bd2416a75ef28040661515c
 
  To access certain features on Xbox, your console may ask you to link associated social accounts to the Microsoft account you use for Xbox. Any console feature that requires another platform will ask you to link the associated social account.
 
- If you want to use Xbox's Capture & Share features to[stream directly to Twitch from your Xbox](https://www.makeuseof.com/how-to-twitch-stream-directly-from-xbox/) , for instance, you will be asked to link your Twitch account to your console before being able to start a stream.
+ If you want to use Xbox's Capture & Share features to [stream directly to Twitch from your Xbox](https://www.makeuseof.com/how-to-twitch-stream-directly-from-xbox/) , for instance, you will be asked to link your Twitch account to your console before being able to start a stream.
 
- Similarly, if you want to[directly chat through Discord on your Xbox](https://www.makeuseof.com/how-to-directly-join-discord-voice-chat-from-xbox/) , you will have to link your Discord account to your Microsoft account. Other social platforms that you can link to your Microsoft account to unlock console features include:
+ Similarly, if you want to [directly chat through Discord on your Xbox](https://www.makeuseof.com/how-to-directly-join-discord-voice-chat-from-xbox/) , you will have to link your Discord account to your Microsoft account. Other social platforms that you can link to your Microsoft account to unlock console features include:
 
 * Facebook, to see Facebook friends who have an Xbox.
 * Reddit, to link your Reddit account and icon to your Xbox profile.
@@ -74,3 +74,27 @@ thumbnail: https://thmb.techidaily.com/c77188d301673882c7bd2416a75ef28040661515c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unplugging-personal-insights-from-deactivation/"><u>Unplugging: Personal Insights From Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/realigning-your-facebook-profile-with-current-preferences/"><u>Realigning Your Facebook Profile with Current Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-network-for-high-quality-work-clients/"><u>Leveraging Facebook's Network for High-Quality Work Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-effective-cost-saving-methods-for-fb-post-timing-optimization/"><u>5 Effective, Cost-Saving Methods for FB Post Timing Optimization</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-payment-plan-paves-way-for-artists-financial-freedom/"><u>Facebook’s Payment Plan Paves Way for Artists’ Financial Freedom</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sets-tough-limits-against-information-lies/"><u>Social Network Sets Tough Limits Against Information Lies</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-approval-process-whitelist-explained/"><u>Facebook's Approval Process: Whitelist Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-documented-life-a-comprehensive-record-of-all-fb-activities-you-participated-in/"><u>Digitally Documented Life: A Comprehensive Record of All Fb Activities You Participated In</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-crack-the-code-7-easy-ways-to-get-filmora-coupons-for-2024/"><u>Updated Crack the Code 7 Easy Ways to Get Filmora Coupons for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-vivo-v29-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Vivo V29 Phones</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-inside-top-15-discord-emotes-creator-spotlight/"><u>[New] 2024 Approved  Inside Top 15 Discord Emotes  Creator Spotlight</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-unlock-your-content-potential-with-youtubes-movie-maker/"><u>[New] In 2024, Unlock Your Content Potential with YouTube's Movie Maker</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-motorola-defy-2-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Motorola Defy 2 Without PUK Codes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-exploring-dynamic-range-in-photos-auto-hdr-and-smart-hdr-modules/"><u>[Updated] 2024 Approved  Exploring Dynamic Range in Photos  Auto HDR and Smart HDR Modules</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-leading-screenshot-and-record-tools-for-firefox/"><u>[New] 2024 Approved  Leading Screenshot & Record Tools for Firefox</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-mac-users-rejoice-top-alternatives-to-pinnacle-studio/"><u>In 2024, Mac Users, Rejoice! Top Alternatives to Pinnacle Studio</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/skys-the-limit-with-dji-spark-an-in-depth-miniature-drone-study/"><u>Sky's the Limit with DJI Spark  An In-Depth Miniature Drone Study</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-key-principles-to-uphold-youtube-civility/"><u>[New] Key Principles to Uphold YouTube Civility</u></a></li>
+</ul></div>

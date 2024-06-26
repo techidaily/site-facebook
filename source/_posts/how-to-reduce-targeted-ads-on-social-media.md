@@ -1,7 +1,7 @@
 ---
 title: How to Reduce Targeted Ads on Social Media
-date: 2024-06-22 16:50:51
-updated: 2024-06-23 12:23:50
+date: 2024-06-25T14:10:04.390Z
+updated: 2024-06-26T14:10:04.390Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,7 @@ Close
 6. Now scroll down and tap**Advertisers whose ads you've clicked** . Tap**Hide Ads** to the right of each brand you do not wish to see adverts from.
 7. You can also choose to see fewer ads from certain topics. Simply tap**Ad topics** , then tap**See Fewer** to the right of each topic you are not interested in.
 
-## How to Minimize Targeted Ads on Instagram
-
-![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
+## How to Minimize Targeted Ads on Instagram ![social media ads instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-01.png)
 
 ![instagram ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/social-media-ads-02.png)
 
@@ -85,11 +83,9 @@ Close
 
  To view the ads you have recently engaged with, tap **Ad activity** under**General info** .
 
- To learn how to block ads about specific brands or topics on Instagram, read our guide on[how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
+ To learn how to block ads about specific brands or topics on Instagram, read our guide on [how to get rid of annoying or repetitive adverts on Instagram](https://www.makeuseof.com/how-to-get-rid-of-instagram-ads/) .
 
-## How to Minimize Targeted Ads on Twitter
-
-![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
+## How to Minimize Targeted Ads on Twitter ![screenshot of twitter ads privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-1.png)
 
 ![screenshot of twitter ads personalization and data settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/twitter-ads-2.png)
 
@@ -135,3 +131,26 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-fb-password-with-minimal-hassle/"><u>Reclaim Your FB Password with Minimal Hassle</u></a></li>
+<li><a href="https://facebook.techidaily.com/likes-and-dislikes-analyzing-the-negative-side-effects/"><u>Likes and Dislikes: Analyzing the Negative Side Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-connecting-discovering-group-and-profile-links-on-fb/"><u>The Art of Connecting: Discovering Group & Profile Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-see-a-surge-in-crypto-commercials/"><u>Social Media to See a Surge in Crypto Commercials</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-could-facebooks-strategy-lead-to-selling-giphy/"><u>Rumors Swirl: Could Facebook's Strategy Lead to Selling Giphy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-sportsmen-leave-social-media-to-shun-online-harassment/"><u>Elite Sportsmen Leave Social Media to Shun Online Harassment</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-social-media-giants-wearable-device/"><u>Behind the Scenes: Social Media Giant's Wearable Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-financial-breakdown-of-youtube-shorts-royalties/"><u>[New] The Financial Breakdown of YouTube Shorts Royalties</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-astronomy-enthusiasts-top-website-picklist/"><u>[Updated] Astronomy Enthusiasts' Top Website Picklist</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-from-novice-to-experienced-6-strategies-for-quick-verification-on-instagram/"><u>2024 Approved  From Novice to Experienced  6 Strategies for Quick Verification on Instagram</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-find-n3-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone-for-2024/"><u>The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-action-sequence-alerts-mastering-4-techniques-on-the-xbox-one-for-2024/"><u>[Updated] Action Sequence Alerts  Mastering 4 Techniques on the Xbox One for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-surprise-uncovered-secrets-to-take-your-window-11-experience-up-a-notch/"><u>[New] Surprise! Uncovered Secrets to Take Your WINDOW 11 Experience Up a Notch</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-get-your-complete-guide-on-phone-aspect-ratio-vertically-and-understand-its-different-types-and-the-best-alternative-to-solve-the-issues.m/"><u>New 2024 Approved Get Your Complete Guide on Phone Aspect Ratio Vertically and Understand Its Different Types and the Best Alternative to Solve the Issues</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-professional-grade-glitch-video-editors-paid-and-free-solutions-compared/"><u>New In 2024, Professional-Grade Glitch Video Editors Paid and Free Solutions Compared</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-convert-for-free-from-twitter-videos-to-animated-gifs/"><u>[Updated] 2024 Approved  Convert for Free  From Twitter Videos to Animated Gifs</u></a></li>
+</ul></div>

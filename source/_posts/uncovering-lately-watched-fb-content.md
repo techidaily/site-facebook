@@ -1,7 +1,7 @@
 ---
 title: Uncovering Lately Watched FB Content
-date: 2024-06-22 10:44:20
-updated: 2024-06-23 12:50:33
+date: 2024-06-25T14:28:23.610Z
+updated: 2024-06-26T14:28:23.610Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/1ce0f809b5f53bee55ecc4e59e4fc7fd703e674d5
 
 ## How to View Recently Watched Facebook Videos on the Web
 
- Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
+ Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to [find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
 
  Here's how to access Facebook's Activity log section on the web and view your recently watched videos:
 
@@ -107,3 +107,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/examining-risks-3-worrying-factors-of-metaverse/"><u>Examining Risks: 3 Worrying Factors of Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-invisible-facebook-world/"><u>Navigating the Invisible Facebook World</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148506945-keep-your-fb-profile-private-strangers-not/"><u>Keep Your FB Profile Private, Strangers' Not!</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-monitors-your-uploaded-imagery/"><u>Who Monitors Your Uploaded Imagery?</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-making-profitable-facebook-reels/"><u>Simplifying the Process of Making Profitable Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifelog-legends-who-holds-the-crown-the-gilded-meta-or-silver-ticked-twitters/"><u>Lifelog Legends: Who Holds the Crown, The Gilded Meta or Silver-Ticked Twitters?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-dimension-of-connection-the-metaverse-explained/"><u>A New Dimension of Connection: The Metaverse Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetizing-mastery-top-5-strategies-for-igfb-success/"><u>Monetizing Mastery: Top 5 Strategies for IG/FB Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mobile-tools-optimize-and-enhance-audio-faster/"><u>Mobile Tools  Optimize and Enhance Audio Faster</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/premium-uav-selection-in-stock-for-2024/"><u>Premium UAV Selection in Stock for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/infinix-hot-30-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Infinix Hot 30 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-reverse-an-accidental-tiktok-reload-quick-guide-for-2024/"><u>[New] Reverse an Accidental TikTok Reload – Quick Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-sharing-twitter-videos-a-step-by-step-guide-for-whatsapp-users/"><u>[Updated] 2024 Approved  Sharing Twitter Videos  A Step-by-Step Guide for WhatsApp Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-art-of-captivating-viewers-instavideo-marketing-essentials/"><u>[Updated] 2024 Approved  The Art of Captivating Viewers  InstaVideo Marketing Essentials</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unleash-your-creativity-top-online-lyric-video-making-platforms/"><u>Unleash Your Creativity Top Online Lyric Video Making Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-beneath-the-surface-a-deep-dive-into-private-story-making/"><u>[Updated] Beneath the Surface  A Deep Dive Into Private Story Making</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-realme-gt-neo-5-se-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Realme GT Neo 5 SE to iPad | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some of the Best Pokemon Discord Servers to Join On Realme GT Neo 5 | Dr.fone</u></a></li>
+</ul></div>

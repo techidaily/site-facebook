@@ -1,7 +1,7 @@
 ---
 title: "Next Phase: Pushing Oculus Quest Launch to Later Date"
-date: 2024-06-22 14:11:47
-updated: 2024-06-23 12:44:21
+date: 2024-06-25T14:11:52.245Z
+updated: 2024-06-26T14:11:52.245Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/e8d04162a361e101c6d5fe7cceb85fa9aae79c5e5
 
 ## There Won't Be an Oculus Pro in 2021
 
- In a recent Twitter Spaces Q&A (transcribed by[Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
+ In a recent Twitter Spaces Q&A (transcribed by [Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
 
 > People are also asking about the Quest 3, which doesn’t exist yet, and everyone who is listening to us who is a reporter there isn’t a Quest 3, there’s only a Quest 2...
 
- You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
+ You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that [Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 ## Will There Ever Be an Oculus Quest 3?
 
@@ -60,3 +60,26 @@ thumbnail: https://thmb.techidaily.com/e8d04162a361e101c6d5fe7cceb85fa9aae79c5e5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/eternal-silence-an-effective-method-to-stop-comments-on-fb/"><u>Eternal Silence: An Effective Method to Stop Comments on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-revolutionizes-oversight-capabilities-for-communities/"><u>Facebook Revolutionizes Oversight Capabilities for Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/move-your-memories-fb-posts-and-notes-on-leading-websites-now-available/"><u>Move Your Memories: FB Posts & Notes on Leading Websites Now Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-facebook-footsteps-an-analytical-journey-through-social-engagement/"><u>Behind the Scenes of Your Facebook Footsteps: An Analytical Journey Through Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/learn-lives-through-interactive-messenger-polls/"><u>Learn Lives Through Interactive Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/incidence-rate-of-cyber-attacks-on-networks/"><u>Incidence Rate of Cyber Attacks on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-no-to-yes-reestablishing-fb-connections/"><u>From No to Yes: Reestablishing FB Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-leaving-no-footprint-on-facebook-is-smart/"><u>Why Leaving No Footprint on Facebook Is Smart</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-prime-8-instagram-managers-for-mobile-devices/"><u>In 2024, Prime 8 Instagram Managers for Mobile Devices</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-from-shopping-lists-to-viral-hauls-video-making-insights/"><u>[New] From Shopping Lists to Viral Hauls  Video Making Insights</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-humor-hierarchy-the-20-most-popular-memes/"><u>2024 Approved  Humor Hierarchy  The 20 Most Popular Memes</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-picture-in-picture-pro-optimizing-your-viewing-with-netflixs-floating-window-feature/"><u>2024 Approved  Picture-in-Picture Pro  Optimizing Your Viewing with Netflix's Floating Window Feature</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-debunking-the-myths-5-misconceptions-about-16x9-ratio-calculators-cleared-up-for-2024/"><u>Updated Debunking the Myths 5 Misconceptions About 16X9 Ratio Calculators Cleared Up for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-viewership-with-immersive-360-livestreams-on-youtube/"><u>[New] Transform Your Viewership with Immersive 360° Livestreams on YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-realme-c55-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Realme C55 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-tutorial-on-vlcs-automatic-screen-recorder/"><u>[Updated] Tutorial on VLC's Automatic Screen Recorder</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-navigating-the-hottest-templates-in-igs-vfx-community-for-2024/"><u>[Updated] Navigating the Hottest Templates in IG's VFX Community for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-top-30-nicknames-that-leave-a-lasting-impression/"><u>[New] 2024 Approved  Top 30 Nicknames That Leave a Lasting Impression</u></a></li>
+</ul></div>

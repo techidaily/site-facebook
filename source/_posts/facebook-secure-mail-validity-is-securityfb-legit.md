@@ -1,7 +1,7 @@
 ---
 title: "Facebook Secure Mail Validity: Is @Security@fb Legit?"
-date: 2024-06-20 13:37:52
-updated: 2024-06-23 12:46:16
+date: 2024-06-25T14:46:41.858Z
+updated: 2024-06-26T14:46:41.859Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/9f62d3731a8382b4f3dd399792beace27de12660d
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
- When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
+ When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
@@ -77,17 +77,15 @@ thumbnail: https://thmb.techidaily.com/9f62d3731a8382b4f3dd399792beace27de12660d
 
 **Don't click on any link or button** embedded in the email account that claims to activate Facebook Protect or supposedly enables you to log in. Otherwise, you could end up getting your Facebook account hacked. And certainly**don't download or open any attachments** added in the email. Otherwise, your browser will be hijacked, or your device may become infected.
 
- In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
+ In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-## What to Do if You Fall for a Fake Facebook Protect Email Scam
+## What to Do if You Fall for a Fake Facebook Protect Email Scam ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
-
- If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
 
- Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple[things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple [things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
@@ -110,3 +108,27 @@ thumbnail: https://thmb.techidaily.com/9f62d3731a8382b4f3dd399792beace27de12660d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-full-featured-spotify-use-in-facebook/"><u>Unlocking Full-Featured Spotify Use in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unseen-discussions-on-social-platforms/"><u>The Art of Unseen Discussions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-space-after-social-goodbyes/"><u>The Silent Space After Social Goodbyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/giphy-at-a-crossroads-as-fb-sell-scenario-emerges/"><u>Giphy at a Crossroads as FB Sell Scenario Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-lies-top-10-social-media-realities-of-facebook/"><u>Beyond the Lies: Top 10 Social Media Realities of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-friendships-removing-someone-from-your-feed/"><u>Exiting Friendships: Removing Someone From Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-a-marketers-guide-to-mindful-sharing/"><u>Digital Responsibility: A Marketer's Guide to Mindful Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-when-to-transform-your-social-media-icon/"><u>Deciding When to Transform Your Social Media Icon</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-assembling-visual-slices-photo-montage-techniques/"><u>[New] Assembling Visual Slices  Photo Montage Techniques</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-video-editing-magic-unlocking-the-secrets-of-stunning-visuals/"><u>Updated 2024 Approved Video Editing Magic Unlocking the Secrets of Stunning Visuals</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-the-art-of-digital-comedy-in-the-metaverse-for-2024/"><u>Mastering the Art of Digital Comedy in the Metaverse for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-remove-background-noise-top-free-online-photo-editing-tools-for-2024/"><u>Updated Remove Background Noise Top Free Online Photo Editing Tools for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-transform-your-mac-display-utilizing-picture-in-picture-multimedia-features/"><u>2024 Approved  Transform Your Mac Display  Utilizing Picture in Picture Multimedia Features</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On OnePlus Ace 3 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-secrets-to-flawless-ppt-video-transcriptions/"><u>[New] In 2024, Secrets to Flawless PPT Video Transcriptions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-monthly-revenue-streams-for-video-content-creators/"><u>[New] Monthly Revenue Streams for Video Content Creators</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sculpt-the-subject-mastering-the-art-of-background-takedown/"><u>[New] Sculpt the Subject  Mastering the Art of Background Takedown</u></a></li>
+</ul></div>

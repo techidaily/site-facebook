@@ -1,7 +1,7 @@
 ---
 title: Revisiting Ancient News Feed Content on FB
-date: 2024-06-20 23:45:39
-updated: 2024-06-23 12:58:14
+date: 2024-06-25T14:38:39.160Z
+updated: 2024-06-26T14:38:39.160Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/ff0e2bc796f68a77c989442115175dff38598efbd
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/ff0e2bc796f68a77c989442115175dff38598efbd
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/10-lite-android-apps-that-are-faster-than-the-full-versions/"><u>10 Lite Android Apps That Are Faster Than the Full Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-enterprise-friendly-social-networks-today/"><u>Top 5 Enterprise-Friendly Social Networks Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-method-for-fb-photo-and-video-downloads/"><u>The Ultimate Method for FB Photo and Video Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-lies-top-10-social-media-realities-of-facebook/"><u>Beyond the Lies: Top 10 Social Media Realities of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sayonara-facebook-8-critical-checks-for-a-smooth-unfollow/"><u>Sayonara, Facebook! 8 Critical Checks for a Smooth Unfollow</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-through-the-digital-landscape/"><u>Charting a Course Through the Digital Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-blueprint-for-incorporating-dynamic-narrations-in-media/"><u>2024 Approved  The Blueprint for Incorporating Dynamic Narrations in Media</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-samsung-device-by-drfone-android/"><u>The Ultimate Guide How to Bypass Swipe Screen to Unlock on Samsung Device</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-optimal-speech-devices-web-based-for-2024/"><u>[New] Optimal Speech Devices, Web-Based for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-handling-live-stream-halt-a-guide-for-fb-users-for-2024/"><u>[New] Handling Live Stream Halt  A Guide for FB Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-8-tips-on-how-to-vlog-confidently-like-popular-youtubers-for-2024/"><u>[New] 8 Tips on How to Vlog Confidently Like Popular YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/0-simple-strategies-for-establishing-successful-biz-youtubes/"><u>Top 10 Simple Strategies for Establishing Successful Biz YouTubes</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/the-crazy-crews-top-10-unique-tiktok-games/"><u>The Crazy Crew's Top 10 Unique TikTok Games</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-superior-mp4-channel-updater/"><u>[New] In 2024, Superior MP4 Channel Updater</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-choreography-of-chords-15-premier-musical-selections-for-a-multitude-of-video-types/"><u>2024 Approved Choreography of Chords 15 Premier Musical Selections for a Multitude of Video Types</u></a></li>
+</ul></div>

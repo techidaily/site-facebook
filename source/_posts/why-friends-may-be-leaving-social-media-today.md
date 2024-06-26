@@ -1,7 +1,7 @@
 ---
 title: Why Friends May Be Leaving Social Media Today
-date: 2024-06-20 15:22:20
-updated: 2024-06-23 10:45:10
+date: 2024-06-25T13:51:22.691Z
+updated: 2024-06-26T13:51:22.691Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
 
  Facebook is seen as a space for the older generation to catch up with family. For kids, they prefer the imaginative 3D worlds that video games afford, where they can chat with their friends and enjoy a fun, shared experience.
 
- This is recognized internally by Facebook. In a report from[The Verge](https://www.theverge.com/22743744/facebook-teen-usage-decline-frances-haugen-leaks) , researchers at Facebook believe that teenage Facebook users will drop 45% in 2022 compared to 2019.
+ This is recognized internally by Facebook. In a report from [The Verge](https://www.theverge.com/22743744/facebook-teen-usage-decline-frances-haugen-leaks) , researchers at Facebook believe that teenage Facebook users will drop 45% in 2022 compared to 2019.
 
  According to a company presentation, "young adults perceive \[Facebook\] content as boring, misleading, and negative" and "have a wide range of negative associations with Facebook including privacy concerns, impact to their wellbeing, along with low awareness of relevant services."
 
@@ -76,3 +76,24 @@ thumbnail: https://thmb.techidaily.com/db587631bccc11018e71b0f197be1378b7d1dbbec
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-continued-vitality-with-6-points/"><u>Understanding Facebook's Continued Vitality with 6 Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-newsfeed-now-more-user-centric-than-ever/"><u>FB Newsfeed Now More User-Centric than Ever</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-blacked-out-interface-for-facebook-use/"><u>Enabling Blacked-Out Interface for Facebook Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-logging-you-out-randomly-7-ways-to-fix-it/"><u>Facebook Logging You Out Randomly? 7 Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-privacy-and-fun-managing-teenage-fb-accounts/"><u>Balancing Privacy and Fun: Managing Teenage FB Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-how-facebook-profits-from-musicians-tunes/"><u>Discovering How Facebook Profits From Musicians’ Tunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivity-expansion-adding-new-contacts-to-fb-messenger/"><u>Social Connectivity Expansion: Adding New Contacts to FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-social-media-campaign-the-new-covid-19-frontier/"><u>Biden's Social Media Campaign: The New COVID-19 Frontier</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-top-microphones-for-idevices-and-their-benefits-explained/"><u>[New] In 2024, Top Microphones for iDevices & Their Benefits Explained</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-14-plus-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From iPhone 14 Plus</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-immediate-solutions-for-freezing-and-crashing-tiktok-iosandroid/"><u>[New] Immediate Solutions for Freezing and Crashing TikTok (iOS/Android)</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-quick-start-to-recording-iphone-memos/"><u>[Updated] In 2024, Quick Start to Recording iPhone Memos</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fiendish-freshman-filmmaker/"><u>2024 Approved  Fiendish Freshman Filmmaker</u></a></li>
+<li><a href="https://extra-information.techidaily.com/affordable-high-quality-asmr-recording-devices-revealed-for-2024/"><u>Affordable, High-Quality ASMR Recording Devices Revealed for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-ultimate-tutorial-simplifying-youtube-subscriptions/"><u>In 2024, Ultimate Tutorial  Simplifying YouTube Subscriptions</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-videos-from-realme-10t-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Videos from Realme 10T 5G to iPad | Dr.fone</u></a></li>
+</ul></div>

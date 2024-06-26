@@ -1,7 +1,7 @@
 ---
 title: Crafting Your Personal Influence Story
-date: 2024-06-20 22:34:46
-updated: 2024-06-23 12:15:21
+date: 2024-06-25T13:58:08.732Z
+updated: 2024-06-26T13:58:08.732Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
  If you're looking to become a social media influencer yourself, here are a few of the steps you should take.
 
-## 1\. Find Your Niche
-
-![man handpainting a bird](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/man-handpainting-a-bird.jpg)
+## 1\. Find Your Niche ![man handpainting a bird](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/man-handpainting-a-bird.jpg)
 
  Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/24903658488)
 
@@ -33,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
  If you still feel you can post knowledgeably about more than one niche, create entirely separate channels for the other niches. You can then add a link in your bio to your other channels so that interested users can follow the links and discover your other passions as well.
 
-## 2\. Focus on One or Two Forms of Media
-
-![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
+## 2\. Focus on One or Two Forms of Media ![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
 
  There are a host of social media platforms available to you. Different social media niches may not always perform the same on every platform.
 
@@ -51,11 +47,9 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
  Think about what posting schedule would work for you. If you can't post twice a week, that's perfectly fine! Post once a week, or even once every two weeks. Just make sure your content is helpful to your followers and let them know when they can expect new content regularly.
 
- Instagram users should check out the best[ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
+ Instagram users should check out the best [ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
 
-## 4\. Network With Other Influencers
-
-![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
+## 4\. Network With Other Influencers ![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
 
  Being an influencer is a social game, and you absolutely cannot win it alone. Don't think of social media as only a place for you to talk about your niche to your followers. Think of it also as a place where you learn more about your own subject of interest from other influencers.
 
@@ -71,11 +65,9 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
  Once advertisers start coming to you with offers, it is your responsibility to advertise products that are actually relevant to your channel and can be of use to your followers. Posting about every random product that is offered to you will quickly lead to accusations of "selling out" and you potentially losing followers.
 
- Treat your followers with respect, but be careful of crossing the threshold into developing[parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
+ Treat your followers with respect, but be careful of crossing the threshold into developing [parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
 
-## 6\. Advertise Your Channel
-
-![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
+## 6\. Advertise Your Channel ![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
 
  Even the best social media channels are in a constant battle to put their channel in front of prospective followers. Some of the simplest ways you can advertise your channel include:
 
@@ -84,9 +76,7 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 * Posting snippets from your main channel on other platforms and social media sites.
 * Adding hashtags to all your content for easy searchability.
 
-## 7\. Keep the Momentum Going With Fresh Ideas
-
-![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
+## 7\. Keep the Momentum Going With Fresh Ideas ![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
 
  Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/44222584482)
 
@@ -109,9 +99,7 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
 
  If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
 
-## 9\. Create Trackable Goals
-
-![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
+## 9\. Create Trackable Goals ![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
 
  As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
 
@@ -140,3 +128,27 @@ thumbnail: https://thmb.techidaily.com/2861a5dab13720b2493f18438249b45a68a3216a3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/decoding-the-evolving-meanings-of-facebooks-page-names/"><u>Decoding the Evolving Meanings of Facebook's Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-secure-your-facebook-account-for-recovery/"><u>5 Ways to Secure Your Facebook Account for Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-unstoppable-rise-over-forum-culture/"><u>Social Media's Unstoppable Rise Over Forum Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/syncing-tunes-to-earnings-facebooks-music-strategy/"><u>Syncing Tunes to Earnings: Facebook’s Music Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-rid-of-embarrassing-posts-from-social-media-the-8-best-online-tools/"><u>How to Get Rid of Embarrassing Posts From Social Media: The 8 Best Online Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsider-your-approach-to-facebooks-link-record/"><u>Reconsider Your Approach to Facebook's Link Record</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-an-enhanced-fb-imagery/"><u>Strategic Timing for an Enhanced Fb Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-users-authenticity-now-at-meta/"><u>US Users: Authenticity Now at Meta</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-essential-list-of-the-best-audio-capture-tools-for-songs/"><u>New Essential List of the Best Audio Capture Tools for Songs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-making-text-dance-2-creative-animation-strategies/"><u>2024 Approved  Making Text Dance  2 Creative Animation Strategies</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-achieve-unstoppable-viral-traction-with-these-fb-tricks-for-2024/"><u>[New] Achieve Unstoppable Viral Traction with These FB Tricks for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-tecno-camon-20-premier-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Tecno Camon 20 Premier 5G – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-strategic-play-tips-by-top-game-masters/"><u>2024 Approved  Strategic Play Tips by Top Game Masters</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-clarifying-gap-between-full-view-and-immersive-videos/"><u>[New] Clarifying Gap Between Full View & Immersive Videos</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-best-bokeh-effects-apps/"><u>2024 Approved Best Bokeh Effects Apps</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-best-of-the-best-ubuntus-top-free-video-editing-tools/"><u>New In 2024, Best of the Best Ubuntus Top Free Video Editing Tools</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/effortless-ways-to-view-free-official-federal-broadcasts-like-c-span/"><u>Effortless Ways to View Free, Official Federal Broadcasts Like C-Span</u></a></li>
+</ul></div>

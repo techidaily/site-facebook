@@ -1,7 +1,7 @@
 ---
 title: "Peek Into Facebook Bonds: History of Connections"
-date: 2024-06-21 23:52:10
-updated: 2024-06-23 11:34:33
+date: 2024-06-25T14:11:02.320Z
+updated: 2024-06-26T14:11:02.320Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/clean-slate-banishing-past-searches-from-facebook/"><u>Clean Slate: Banishing Past Searches From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-why-some-posts-vanish-from-fb-timelines/"><u>In-Depth: Why Some Posts Vanish From Fb Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-invisible-social-network-transparency-on-facebook/"><u>Understanding the Invisible: Social Network Transparency on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-real-life-experiences-matter-more-than-virtual-friends-on-facebook/"><u>Why Real-Life Experiences Matter More Than Virtual Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivity-expansion-adding-new-contacts-to-fb-messenger/"><u>Social Connectivity Expansion: Adding New Contacts to FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-step-into-stardom-building-starry-eyed-tiktok-dances-on-macos/"><u>[Updated] 2024 Approved  Step Into Stardom  Building Starry-Eyed TikTok Dances on MacOS</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premier-android-vocal-mixer-app/"><u>[Updated] Premier Android Vocal Mixer App</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-direct-video-tweeting-hacks-smartphones/"><u>[New] 2024 Approved  Direct Video Tweeting Hacks Smartphones</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-innovations-in-office-layout-for-enhanced-productivity/"><u>2024 Approved  Innovations in Office Layout for Enhanced Productivity</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-in-2024-streamlining-connections-spotify-meets-discord/"><u>[Updated] In 2024, Streamlining Connections  Spotify Meets Discord</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-premium-voice-recorder-tools-for-mac-discovering-the-five-top-apps/"><u>[Updated] In 2024, Premium Voice Recorder Tools for Mac  Discovering The Five Top Apps</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-bridging-gap-integrating-zoom-into-your-gmail-setup/"><u>In 2024, Bridging Gap  Integrating Zoom Into Your Gmail Setup</u></a></li>
+</ul></div>

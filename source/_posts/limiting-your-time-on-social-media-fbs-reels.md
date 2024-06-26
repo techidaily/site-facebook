@@ -1,7 +1,7 @@
 ---
 title: Limiting Your Time on Social Media - FB's Reels
-date: 2024-06-21 20:56:47
-updated: 2024-06-23 11:48:30
+date: 2024-06-25T14:34:35.936Z
+updated: 2024-06-26T14:34:35.936Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/5b8a360ae2beb8ae28dded746595b2ec0252b7304
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/online-authority-checks-right-to-suspend-trump-temporarily/"><u>Online Authority Checks: Right to Suspend Trump, Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-tactics-against-online-platforms-shadowbans/"><u>Evasion Tactics Against Online Platform's Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/wipe-your-facebook-traces-on-android-devices/"><u>Wipe Your Facebook Traces on Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-marketing-efforts-discover-8-crowdflower-features/"><u>Streamlining Marketing Efforts: Discover 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-growth-plateau-analysis-needed/"><u>Facebook's Growth Plateau – Analysis Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/saving-your-social-footprint-regaining-deleted-fb-stories/"><u>Saving Your Social Footprint: Regaining Deleted FB Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-alerts-youth-advised-to-limit-instagram/"><u>Digital Wellbeing Alerts: Youth Advised to Limit Instagram</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-fearful-video-blogs-overcoming-each-challenge/"><u>[Updated] Top 10 Fearful Video Blogs  Overcoming Each Challenge</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-hone-your-creativity-with-these-top-8-no-cost-audio-fx-archives-for-2024/"><u>New Hone Your Creativity with These Top 8 No-Cost Audio FX Archives for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-top-10-budget-friendly-cloud-service-providers/"><u>[New] Top 10 Budget-Friendly Cloud Service Providers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-sony-bdp-s6500-review/"><u>[New] Sony BDP-S6500 Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tips-and-tricks-to-tell-if-your-apple-iphone-6s-plus-is-unlocked-by-drfone-ios/"><u>Tips And Tricks To Tell if Your Apple iPhone 6s Plus Is Unlocked</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-realigning-sonic-clarity-comprehensive-strategies-for-eliminating-skewed-sound-patterns/"><u>In 2024, Realigning Sonic Clarity Comprehensive Strategies for Eliminating Skewed Sound Patterns</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-music-from-your-gionee-f3-pro-by-fonelab-android-recover-music/"><u>How to recover old music from your Gionee F3 Pro</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-adjusting-frame-rate-in-snapchat-videos-for-2024/"><u>[New] Adjusting Frame Rate in Snapchat Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-the-ultimate-guide-to-choosing-5-chrome-extensions-for-facebook-videos/"><u>[New] In 2024, The Ultimate Guide to Choosing 5 Chrome Extensions for Facebook Videos</u></a></li>
+</ul></div>

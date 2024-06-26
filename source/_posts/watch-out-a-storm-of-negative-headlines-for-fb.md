@@ -1,7 +1,7 @@
 ---
 title: Watch Out! A Storm of Negative Headlines for FB
-date: 2024-06-21 13:52:36
-updated: 2024-06-23 10:41:46
+date: 2024-06-25T14:31:19.823Z
+updated: 2024-06-26T14:31:19.823Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,23 @@ thumbnail: https://thmb.techidaily.com/c3a01c2ae3f81e16b541392d97981a23b54ae2c3a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-science-behind-catchy-posts-for-higher-fb-engagement/"><u>The Science Behind Catchy Posts for Higher FB Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-vk-russias-social-media-giant/"><u>A Peek Into VK: Russia's Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/erasing-facial-recognition-data-a-security-risk-for-social-platform-users/"><u>Erasing Facial Recognition Data – A Security Risk for Social Platform Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-network-to-honor-all-groupies/"><u>Leveraging Social Network to Honor All Groupies</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/sanctioned-resistance-fb-groups-defy-immunization-bans/"><u>Sanctioned Resistance: FB Groups Defy Immunization Bans</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-try-this-groundbreaking-free-valorant-audio-swap-tech/"><u>In 2024, Try This Groundbreaking, Free Valorant Audio Swap Tech</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-honor-x50i-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-protect-your-privacy-10-best-free-face-blurring-apps-for-images-and-clips-for-2024/"><u>Updated Protect Your Privacy 10 Best Free Face Blurring Apps for Images and Clips for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-samsung-galaxy-a14-4g-device-sim-by-drfone-android/"><u>Easily Unlock Your Samsung Galaxy A14 4G Device SIM</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-pixelpilot-review-the-years-leading-screen-capture-tech/"><u>[New] In 2024, PixelPilot Review  The Year's Leading Screen Capture Tech</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-best-10-tools-to-make-quiz-videos/"><u>New 2024 Approved Best 10 Tools To Make Quiz Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-troubleshooting-why-are-your-shorts-thumbnails-hiding/"><u>[Updated] Troubleshooting  Why Are Your Shorts' Thumbnails Hiding?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-quick-steps-to-document-your-youtube-creations/"><u>2024 Approved  Quick Steps to Document Your YouTube Creations</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-segmented-screen-success-is-splitcam-superior/"><u>[Updated] 2024 Approved  Segmented Screen Success  Is SplitCam Superior?</u></a></li>
+</ul></div>

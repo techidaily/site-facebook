@@ -1,7 +1,7 @@
 ---
 title: UK Sports Titans Forfeit Social Media Presence Amid Abuse Backlash
-date: 2024-06-20 17:37:44
-updated: 2024-06-23 10:39:26
+date: 2024-06-25T13:56:02.376Z
+updated: 2024-06-26T13:56:02.376Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/fe3425cd8bd2ff0c1232de1bab83bce21e82181cb
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,23 @@ thumbnail: https://thmb.techidaily.com/fe3425cd8bd2ff0c1232de1bab83bce21e82181cb
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/can-metaai-transform-the-chatbot-landscape-entirely/"><u>Can MetaAI Transform the Chatbot Landscape Entirely?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-for-facebook-employees-metamates/"><u>The New Era for Facebook Employees - Metamates</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
+<li><a href="https://facebook.techidaily.com/grasp-the-core-points-in-metas-revised-data-protection-plan/"><u>Grasp the Core Points in Meta's Revised Data Protection Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-is-now-discovering-live-online-retail-at-fb/"><u>Friday Is Now: Discovering Live Online Retail at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-photodna-image-matching-technique-explained/"><u>Decoding PhotoDNA: Image Matching Technique Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-humorous-interactions-on-facebook/"><u>Avoiding Pitfalls: Humorous Interactions on Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-orbital-design-kit/"><u>In 2024, Orbital Design Kit</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-essential-ios-ps2-games-emulators/"><u>2024 Approved  Essential iOS PS2 Games Emulators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expert-tips-download-youtube-playlists-in-minutes/"><u>[New] 2024 Approved  Expert Tips  Download YouTube Playlists in Minutes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-tricks-for-achieving-high-quality-slow-motion-videos-on-android/"><u>[New] Top Tricks for Achieving High-Quality Slow Motion Videos on Android</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-entry-level-mic-tips-for-youtube-voice-talents/"><u>[New] 2024 Approved  Entry-Level Mic Tips for YouTube Voice Talents</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/sound-enhancing-fb-video-posts-a-comprehensive-guide-for-2024/"><u>Sound-Enhancing FB Video Posts  A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-synthetic-adventures-starts-here-top-vr-tools-10/"><u>2024 Approved  Synthetic Adventures Starts Here  Top VR Tools (10)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-samsung-galaxy-a14-5g-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Samsung Galaxy A14 5G</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-top-rated-windows-movie-maker-replacements-for-mac-users/"><u>Updated Top-Rated Windows Movie Maker Replacements for Mac Users</u></a></li>
+</ul></div>

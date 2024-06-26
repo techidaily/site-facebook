@@ -1,7 +1,7 @@
 ---
 title: "Cease and Desist: Stop FB Notifications"
-date: 2024-06-20 15:40:10
-updated: 2024-06-23 11:55:52
+date: 2024-06-25T13:47:52.437Z
+updated: 2024-06-26T13:47:52.437Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
 
 ## Benefits of Turning Off Facebook Notifications
 
- Facebook is one of the[top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
+ Facebook is one of the [top social media apps](https://www.makeuseof.com/tag/top-social-media-apps-sites/) out there, but people often want to turn off their notifications. Some benefits of blocking all Facebook notifications are as follows...
 
 ### Less Stress
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/1fd97819f96aea4d97e8ac4ff57edab197b6c14d9
 
 ### More Confidence
 
- Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+ Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
 ## How to Block Facebook Notifications
 
@@ -91,13 +91,13 @@ Close
 
 ### Blocking Desktop Notifications From Facebook
 
- Whether you are using[Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
+ Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
 
 1. Log in to your Facebook account. You will be redirected to the**Home** page.
 2. Click the small icon with your profile picture in the top right corner of your screen to open a drop-down menu.
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
-4. From there, select**Settings** . It contains everything from[changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
@@ -133,3 +133,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/clearing-up-your-digital-footprint-deleting-fb-watch-records/"><u>Clearing Up Your Digital Footprint: Deleting FB Watch Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154626988-strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-stance-on-having-duplicate-user-identities-in-one-account/"><u>Understanding Facebook's Stance on Having Duplicate User Identities in One Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-unveiling-five-pivotal-user-disappointments-in-facebook/"><u>Behind the Screen: Unveiling Five Pivotal User Disappointments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-teardown-tactics-for-social-media-business-pages/"><u>Effective Teardown Tactics for Social Media Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-enterprise-excellence-select-5-powerful-platforms/"><u>Exploring Enterprise Excellence: Select 5 Powerful Platforms</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-y02t-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Y02T?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/trendsetting-sky-docks-for-android-users-for-2024/"><u>Trendsetting Sky Docks for Android Users for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-deciding-the-top-iphone-video-editor-cameo-or-filmorago/"><u>[New] 2024 Approved  Deciding the Top iPhone Video Editor  Cameo or FilmoraGo?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pioneers-shaping-the-future-of-vr-experiences/"><u>In 2024, Pioneers Shaping The Future Of VR Experiences</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-ignite-youtube-branding-get-free-design-samples/"><u>[New] Ignite YouTube Branding  Get FREE Design Samples</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-swiftly-switch-from-video-to-vivid-gifs-with-tiktok-tools/"><u>[Updated] 2024 Approved  Swiftly Switch From Video to Vivid GIFs with TikTok Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-harnessing-lut-power-for-free-high-quality-colorization/"><u>[New] Harnessing LUT Power for Free, High-Quality Colorization</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/unleashing-potential-making-a-mark-with-desktop-tiktoks/"><u>Unleashing Potential  Making a Mark with Desktop TikToks</u></a></li>
+</ul></div>

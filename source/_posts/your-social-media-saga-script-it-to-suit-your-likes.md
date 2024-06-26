@@ -1,7 +1,7 @@
 ---
 title: "Your Social Media Saga: Script It to Suit Your Likes"
-date: 2024-06-20 13:50:57
-updated: 2024-06-23 11:15:33
+date: 2024-06-25T14:27:37.723Z
+updated: 2024-06-26T14:27:37.723Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/7e377b50c4e513bd18b3a4caf17d4fa401f54e28d
 
  If you're tired of seeing the same old posts from the same people on your Facebook feed, it may be time to customize your preferences. Let's take a look at some ways in which you can make your Facebook feed more relevant to you.
 
-## 1\. React to Posts
-
-![Man showing a thumb up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-william-fortunato-6140706.jpg)
+## 1\. React to Posts ![Man showing a thumb up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-william-fortunato-6140706.jpg)
 
  You can easily manage what you see on Facebook by responding to posts using the three dots on the right-hand side of the post. A box will open which will allow you to choose between hiding, snoozing, or unfollowing the post.
 
@@ -41,9 +39,7 @@ Close
 
 ##
 
-## 3\. Add to Favorites
-
-![Facebook favorites settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316106726_397203995869253_3243729320105828174_n.png)
+## 3\. Add to Favorites ![Facebook favorites settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316106726_397203995869253_3243729320105828174_n.png)
 
 ![Facebook favorites settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316219933_812959599983902_5783370069454505323_n.png)
 
@@ -53,9 +49,7 @@ Close
 
  You can also easily**Add Friends** and**Pages** to favorites by clicking on the blue button opposite their name. You can add up to 30 friends and Pages and prioritize their posts. You can also filter your news feed to see your favorite posts first.
 
-## 4\. Choose Ad Preferences
-
-![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315966540_709127307399275_7803740968097717654_n.png)
+## 4\. Choose Ad Preferences ![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315966540_709127307399275_7803740968097717654_n.png)
 
 ![Facebook ad settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316016806_1110427606332962_1602856131441474800_n.png)
 
@@ -63,9 +57,9 @@ Close
 
 Close
 
- Facebook is known to show a lot of ads and many of those ads are interesting and relevant, whereas others are not. If you've ever wondered if[your phone is recording what you say and then showing you ads based on what it hears](https://www.makeuseof.com/tag/your-smartphone-listening-or-coincidence/) , there are those in favor of this theory and those who are against it.
+ Facebook is known to show a lot of ads and many of those ads are interesting and relevant, whereas others are not. If you've ever wondered if [your phone is recording what you say and then showing you ads based on what it hears](https://www.makeuseof.com/tag/your-smartphone-listening-or-coincidence/) , there are those in favor of this theory and those who are against it.
 
- Nevertheless, there is an algorithm that determines what you "might like" but that doesn't mean that it will get your preferences right every time. This is why you should know[how to stop seeing ads you hate on Facebook](https://www.makeuseof.com/stop-seeing-specific-ads-facebook/) .
+ Nevertheless, there is an algorithm that determines what you "might like" but that doesn't mean that it will get your preferences right every time. This is why you should know [how to stop seeing ads you hate on Facebook](https://www.makeuseof.com/stop-seeing-specific-ads-facebook/) .
 
  You can do this by clicking on the three dots on the right-hand side of the ad and choosing what you want to get rid of. You can**Hide** ,**Report** , and**Save** the ad too. If you want to**See more** or**See less** of the same type of ad, you can select one of the two options.
 
@@ -92,3 +86,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/online-outage-alert-all-big-social-apps-down/"><u>Online Outage Alert: All Big Social Apps Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-with-your-newsfeed-again-by-evading-unwanted-marketing/"><u>Making Friends with Your Newsfeed Again by Evading Unwanted Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-check-deletion-of-your-perennial-facebook-profile/"><u>Reality Check: Deletion of Your Perennial Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-integrates-on-instagramfacebook-with-new-initiative/"><u>Meta Drops Integrates on Instagram/Facebook with New Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-surface-hidden-post-factors-on-fb/"><u>Beyond the Surface: Hidden Post Factors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-meets-portability-with-facebooks-new-launch/"><u>Portal Meets Portability with Facebook’s New Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-steps-for-protecting-your-social-media-login/"><u>Critical Steps for Protecting Your Social Media Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-guide-to-creating-compelling-videos-on-facebook/"><u>The Beginner's Guide to Creating Compelling Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-28-best-video-to-gif-converter-recommend-for-2024/"><u>Updated 28 Best Video to Gif Converter Recommend for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-quick-tips-for-professional-adjustments-in-ps/"><u>[New] Quick Tips for Professional Adjustments in PS</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-capturing-online-clarity-a-zoomers-guide/"><u>[Updated] Capturing Online Clarity  A Zoomer's Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-easy-peasy-guide-to-crafting-and-tweaking-multiple-snaps-in-snapchat/"><u>[Updated] 2024 Approved  Easy-Peasy Guide to Crafting and Tweaking Multiple Snaps in Snapchat</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-hot-40-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Hot 40 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-mirthful-minutiae-handbook-compiling-genuine-guffaw-guideposts/"><u>New The Mirthful Minutiae Handbook Compiling Genuine Guffaw Guideposts</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/streamline-your-screenshots-using-ezvides-capabilities/"><u>Streamline Your Screenshots  Using EZvide's Capabilities</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unlimited-access-to-creative-mcb-resources/"><u>Unlimited Access to Creative MCB Resources</u></a></li>
+</ul></div>

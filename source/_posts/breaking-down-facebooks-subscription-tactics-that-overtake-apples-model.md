@@ -1,7 +1,7 @@
 ---
 title: Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model
-date: 2024-06-22 10:37:12
-updated: 2024-06-23 11:39:22
+date: 2024-06-25T14:37:06.932Z
+updated: 2024-06-26T14:37:06.933Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
 
- In a[Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of[Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
+ In a [Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of [Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
 
 > As we build for the metaverse, we're focused on unlocking opportunities for creators to make money from their work. The 30% fees that Apple takes on transactions make it harder to do that, so we're updating our Subscriptions product so now creators can earn more.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
 
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
-## How Facebook's Custom Payment Links Work
-
-![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+## How Facebook's Custom Payment Links Work ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -66,3 +64,23 @@ thumbnail: https://thmb.techidaily.com/292b65daa58a3cb7189f78d0565b817f09110724b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevate-growth-essential-meta-concepts-and-strategies/"><u>Elevate Growth: Essential Meta Concepts & Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disappearing-text-feature-in-fb-messenger/"><u>Decoding the Disappearing Text Feature in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-media-integration-a-step-by-step-guide/"><u>Streamlining Social Media Integration: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/customize-your-scroll-reducing-instagram-and-fb-suggestions/"><u>Customize Your Scroll: Reducing Instagram and FB Suggestions</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-total-spend-on-a-single-youtubers-ads/"><u>In 2024, Total Spend on a Single Youtuber's Ads</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-itel-s23plus-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Itel S23+</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-best-12-ai-video-generators-to-pick/"><u>2024 Approved Best 12 AI Video Generators to Pick</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elite-free-screen-partnership-adventures-for-2024/"><u>Elite Free Screen Partnership Adventures for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/exploring-the-best-15-alternatives-to-obs-for-video-recording-for-2024/"><u>Exploring the Best 15 Alternatives to OBS for Video Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-list-of-no-cost-sound-sites-for-filmmakers/"><u>[Updated] The Ultimate List of No-Cost Sound Sites for Filmmakers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-the-final-act-of-severing-tiktok-ties-temporarily/"><u>[New] In 2024, The Final Act of Severing TikTok Ties Temporarily</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-journey-through-chromatic-realms-editing-essentials-for-2024/"><u>A Journey Through Chromatic Realms  Editing Essentials for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exquisite-scenery-tips-for-live-shows/"><u>In 2024, Exquisite Scenery Tips for Live Shows</u></a></li>
+</ul></div>

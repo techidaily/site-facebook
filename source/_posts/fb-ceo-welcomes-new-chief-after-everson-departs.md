@@ -1,7 +1,7 @@
 ---
 title: FB CEO Welcomes New Chief After Everson Departs
-date: 2024-06-20 18:39:51
-updated: 2024-06-23 11:21:42
+date: 2024-06-25T13:54:34.206Z
+updated: 2024-06-26T13:54:34.206Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce525
 
 ## Facebook Loses Its Top Ad Executive
 
- Carolyn Everson, now former vice president of Facebook's Global Business Group, has[posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
+ Carolyn Everson, now former vice president of Facebook's Global Business Group, has [posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
 
  Everson worked at Facebook for more than ten years, and thus is no doubt largely responsible for turning it into the advertising giant it is today.
 
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce525
 
  Related: [How Social Networks Make Money](https://www.makeuseof.com/tag/how-do-social-networks-make-money-case-wondering/)
 
- There's also talk of Everson working at TikTok, but[ByteDance CFO Shouzi Chew was appointed the new CEO](https://www.makeuseof.com/tiktok-ceo-bytedance-cfo/) in early May, so that seems rather unlikely. Unless, of course, she settles for another position.
+ There's also talk of Everson working at TikTok, but [ByteDance CFO Shouzi Chew was appointed the new CEO](https://www.makeuseof.com/tiktok-ceo-bytedance-cfo/) in early May, so that seems rather unlikely. Unless, of course, she settles for another position.
 
  Everson's departure is the second recent change to Facebook's executive structure. In early June, Marne Levine was promoted to chief business officer (a role above Everson's former position) after David Fischer resigned.
 
@@ -68,3 +68,23 @@ thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce525
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cmo-resignation-new-chapter-ahead/"><u>Facebook CMO Resignation: New Chapter Ahead</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tactics-for-retrieving-a-hidden-facebook-account/"><u>Comprehensive Tactics for Retrieving a Hidden Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/detecting-a-facebook-intrusion-signs-and-remedies/"><u>Detecting a Facebook Intrusion: Signs and Remedies</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-top-non-discord-streaming-networks/"><u>[New] In 2024, Top Non-Discord Streaming Networks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-great-debate-should-you-go-for-obs-or-bandicam-in-2024/"><u>[Updated] The Great Debate  Should You Go for OBS or Bandicam, In 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-transform-blurry-photos-into-clarity-with-these-top-10-tools/"><u>[Updated] Transform Blurry Photos Into Clarity with These Top 10 Tools</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcpx-not-your-cup-of-tea-discover-these-10-alternatives-for-2024/"><u>FCPX Not Your Cup of Tea? Discover These 10 Alternatives for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-nokia-c02-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Nokia C02 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-free-and-fantastic-top-video-editing-apps-for-chromebook/"><u>Updated 2024 Approved Free and Fantastic Top Video Editing Apps for Chromebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-detailed-breakdown-chilled-delights-on-your-screen-for-2024/"><u>[Updated] Detailed Breakdown  Chilled Delights on Your Screen for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-step-by-step-tutorial-for-transforming-profile-photographs-on-social-networks/"><u>[New] In 2024, Step-by-Step Tutorial for Transforming Profile Photographs on Social Networks</u></a></li>
+</ul></div>

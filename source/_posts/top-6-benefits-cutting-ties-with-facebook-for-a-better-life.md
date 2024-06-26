@@ -1,7 +1,7 @@
 ---
 title: "Top 6 Benefits: Cutting Ties with Facebook for a Better Life"
-date: 2024-06-21 17:27:41
-updated: 2024-06-23 10:50:46
+date: 2024-06-25T14:33:04.347Z
+updated: 2024-06-26T14:33:04.347Z
 tags:
   - facebook
 categories:
@@ -21,11 +21,9 @@ thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
-## 1\. Facebook Tracks You Around the Web
+## 1\. Facebook Tracks You Around the Web ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
 
-![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
-
- Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
  Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
 
@@ -45,9 +43,7 @@ thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2
 
 Bottom line: Facebook sees you as a lab rat.
 
-## 3\. Fake News
-
-![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+## 3\. Fake News ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -55,7 +51,7 @@ Bottom line: Facebook sees you as a lab rat.
 
  However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
 
- But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that [Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
 
  If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
 
@@ -63,17 +59,15 @@ Bottom line: Facebook sees you as a lab rat.
 
  Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
 
- Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+ Here's a Zuckerberg quote from [The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
 
 > "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
 
  Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
 
- Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+ Facebook wants you to overlook settings, so it can use your data. If you want [a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
 
-## 5\. Facebook Has Forgotten Its Roots
-
-![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+## 5\. Facebook Has Forgotten Its Roots ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
@@ -114,3 +108,27 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-not-working-here-are-the-potential-ways-to-fix-it/"><u>Facebook Not Working? Here Are the Potential Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-and-its-position-in-the-emerging-metaverse-market/"><u>Second Life and Its Position in The Emerging Metaverse Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-on-social-networking-recognize-these-14-tricks-fast/"><u>Stay Safe on Social Networking: Recognize These 14 Tricks Fast</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-managing-fb-picture-sharing/"><u>Understanding & Managing Fb Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-manipulations-how-design-misguides-us/"><u>Masked Manipulations: How Design Misguides Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-my-online-life-suddenly-muted/"><u>Why Is My Online Life Suddenly Muted?</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-the-clutter-from-your-connection-space/"><u>Clearing the Clutter From Your Connection Space</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-comprehensive-blueprint-for-subtitle-distribution-on-tiktok-and-twitch/"><u>[Updated] Comprehensive Blueprint for Subtitle Distribution on TikTok and Twitch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-beginners-bonanza-affordable-profitable-channel-options/"><u>In 2024, Beginner's Bonanza  Affordable, Profitable Channel Options</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-chorus-chronicles-new-speaker-insights/"><u>[Updated] 2024 Approved  Chorus Chronicles  New Speaker Insights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-enhancing-video-quality-advanced-recording-techniques/"><u>[New] In 2024, Enhancing Video Quality  Advanced Recording Techniques</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/are-youtube-engagement-strategies-justifiable-for-2024/"><u>Are YouTube Engagement Strategies Justifiable for 2024</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-in-2024-mastering-lip-sync-explore-top-apps-for-dynamic-videos/"><u>New In 2024, Mastering Lip Sync Explore Top Apps for Dynamic Videos</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-6-plus-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock from Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-oppo-a2-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Oppo A2 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-vivo-y100a-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Vivo Y100A to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-dissecting-popular-discord-icons-creators/"><u>[New] In 2024, Dissecting Popular Discord Icons' Creators</u></a></li>
+</ul></div>

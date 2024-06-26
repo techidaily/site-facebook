@@ -1,7 +1,7 @@
 ---
 title: "Social Media Hacking: How Often?"
-date: 2024-06-21 21:26:42
-updated: 2024-06-23 11:56:51
+date: 2024-06-25T14:00:41.009Z
+updated: 2024-06-26T14:00:41.009Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7
 
 [Researchers at Google](https://security.googleblog.com/2017/11/new-research-understanding-root-cause.html) and the University of California at Berkeley studied account takeovers occurring from March 2016 to March 2017\. The data showed 15 percent of users experienced such issues with social media or other sites with logins.
 
- A 2021 report from[Norton](https://www.nortonlifelock.com/us/en/newsroom/press-kits/2021-norton-cyber-safety-insights-report/) showed that 14 percent of respondents dealt with unauthorized activity on their social media accounts during their lifetimes.
+ A 2021 report from [Norton](https://www.nortonlifelock.com/us/en/newsroom/press-kits/2021-norton-cyber-safety-insights-report/) showed that 14 percent of respondents dealt with unauthorized activity on their social media accounts during their lifetimes.
 
 [A December 2020 study](https://www.statista.com/statistics/1228062/opinion-online-security-worldwide/) also examined people’s concerns about suffering account hacks of any sort in 2021\. The worldwide breakdown showed that 34 percent considered it likely, while 45 percent deemed such events improbable.
 
@@ -59,15 +59,13 @@ thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7
 
  Alternatively, compromising the social media account of a public office candidate lets a hacker post controversial viewpoints or other damaging material that could give other political parties an advantage.
 
- Hackers could also play on people’s desire to help others. A cybercriminal might break into a social media account and use it to[distribute a convincing sob story](https://www.makeuseof.com/social-media-used-for-human-hacking/) that gets generous people to part with their funds.
+ Hackers could also play on people’s desire to help others. A cybercriminal might break into a social media account and use it to [distribute a convincing sob story](https://www.makeuseof.com/social-media-used-for-human-hacking/) that gets generous people to part with their funds.
 
  Consider if a grandmother, aunt, or uncle sees a social media message apparently originating from a relative’s account asking for money regarding a dire situation. Since they likely know that person in real life and care about them, they probably won’t question the demand.
 
- Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
+ Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by [setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-## How to Handle a Social Media Hack
-
-![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
+## How to Handle a Social Media Hack ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -75,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7
 
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
- And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
+ And review any options for [strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
 
 ## You Can Avoid a Social Media Hack
 
@@ -96,3 +94,22 @@ thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-pinpoint-friends-3-tagging-tactics-on-facebook/"><u>Efficiently Pinpoint Friends: 3 Tagging Tactics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorators-dream-designing-collage-content-on-social-platforms/"><u>Digital Decorators' Dream: Designing Collage Content on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-hush-zones-no-facebook-in-these-areas/"><u>Global Hush Zones: No Facebook in These Areas</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-transfer-facebook-posts-and-notes-to-three-popular-services/"><u>You Can Now Transfer Facebook Posts and Notes to Three Popular Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-social-hubs-dominating-the-commerce-arena/"><u>The Top 5 Social Hubs Dominating the Commerce Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-relationships-insightful-look-at-facebook-history/"><u>Revisiting Relationships: Insightful Look at Facebook History</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-exit-dfu-mode-on-iphone-13-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-android-collage-innovators-your-picks-for-artistry/"><u>[Updated] Android Collage Innovators – Your Picks for Artistry</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-edge-advanced-photo-editing-strategies-for-2024/"><u>[New] Instagram Edge  Advanced Photo Editing Strategies for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-t2x-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo T2x 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-from-beginner-to-pro-top-vlog-video-editing-software-for-every-level/"><u>Updated In 2024, From Beginner to Pro Top Vlog Video Editing Software for Every Level</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/cut-the-cord-free-tiktok-videos-here-for-2024/"><u>Cut the Cord - FREE TikTok Videos Here for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-oneplus-12r-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your OnePlus 12R | Dr.fone</u></a></li>
+</ul></div>

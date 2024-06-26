@@ -1,7 +1,7 @@
 ---
 title: Shooting Sports Societies Suspend Digital Outreach
-date: 2024-06-20 22:46:59
-updated: 2024-06-23 12:49:53
+date: 2024-06-25T13:53:00.123Z
+updated: 2024-06-26T13:53:00.123Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,9 @@ thumbnail: https://thmb.techidaily.com/f99b0547d8a95f637159e251c131a6578ae71b255
 
 ## England Sports' Social Media Blackout Has Begun
 
- We reported previously that[English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
+ We reported previously that [English soccer teams were planning a social media blackout](https://www.makeuseof.com/english-soccer-teams-are-boycotting-social-media-over-online-abuse/) in a stand against online racism. This is a message that teams and players collectively want to spread; that racism online, or anywhere else, is totally unacceptable.
 
- According to a[Premier League statement](https://www.premierleague.com/news/2122300) , the blackout is now underway and will continue across the entire weekend, including Monday's UK public holiday.
+ According to a [Premier League statement](https://www.premierleague.com/news/2122300) , the blackout is now underway and will continue across the entire weekend, including Monday's UK public holiday.
 
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
@@ -60,3 +60,24 @@ thumbnail: https://thmb.techidaily.com/f99b0547d8a95f637159e251c131a6578ae71b255
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/prevent-friend-recommendations-unannounced/"><u>Prevent Friend Recommendations Unannounced</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/enterprise-excellence-navigating-5-leading-social-sites/"><u>Enterprise Excellence: Navigating 5 Leading Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-page-blocking-unwanted-profiles/"><u>Mastering Facebook Page: Blocking Unwanted Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-space-after-social-goodbyes/"><u>The Silent Space After Social Goodbyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-whatsapp-announcement-by-zuckerberg-expected/"><u>Cross-Platform WhatsApp Announcement by Zuckerberg Expected</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-locate-people-youve-shut-out-of-your-fb-life/"><u>How To Locate People You’ve Shut Out of Your FB Life</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Samsung Galaxy A05? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-vivo-v27-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-mastering-windows-graphics-the-top-9-tools-for-capturing-animation-gifs/"><u>2024 Approved  Mastering Windows Graphics  The Top 9 Tools for Capturing Animation GIFs</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-quick-answer-what-is-a-gif-file-in-2024/"><u>Updated Quick Answer What Is a GIF File, In 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-from-beginner-to-pro-your-complete-guide-to-using-garagebands-recording-features-for-2024/"><u>Updated From Beginner to Pro Your Complete Guide to Using GarageBands Recording Features for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-harmonize-your-routine-with-these-top-20-youtube-songstars/"><u>2024 Approved  Harmonize Your Routine with These Top 20 YouTube Songstars</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-scope-on-splitcam-highest-quality-camera-for-2024/"><u>[New] The Scope on SplitCam  Highest Quality Camera for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-simple-techniques-for-effortless-undersea-vids/"><u>In 2024, Unveiling Simple Techniques for Effortless Undersea Vids</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-techniques-for-elevating-your-tiktok-unboxing-popularity/"><u>[New] Techniques for Elevating Your TikTok Unboxing Popularity</u></a></li>
+</ul></div>

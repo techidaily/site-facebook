@@ -1,7 +1,7 @@
 ---
 title: "The Ultimate Playlist Partnership: FB & SPOTIFY Project Boombox"
-date: 2024-06-21 14:11:10
-updated: 2024-06-23 10:55:33
+date: 2024-06-25T13:46:44.519Z
+updated: 2024-06-26T13:46:44.519Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
 
 ## Facebook and Spotify Team up on Project Boombox
 
-[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
+[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by [CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
 
  Zuckerberg told CNBC that Spotify and Facebook are working on something that's known internally as "Project Boombox." According to the report, the feature will let you share your favorite songs, albums, artists, and playlists from within Facebook. The shared audio will then appear inside a music player in users' News Feeds, which users can click on to play.
 
- In a statement to[TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
+ In a statement to [TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
 
 > Our ambition has always been to make Spotify ubiquitous across platforms and devices—bringing music and podcasts to more people—and our new integration with Facebook is another step in these efforts. We look forward to a continued partnership with Facebook, fueling audio discovery around the world.
 
@@ -54,3 +54,22 @@ thumbnail: https://thmb.techidaily.com/7699e975f70df77aaaff1f7ff850c80f5528a8664
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-instagrams-latest-revenue-options-for-content-makers/"><u>Unlocking Potential: Instagram's Latest Revenue Options for Content Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-missing-link-in-facebook-news-feeds/"><u>The Missing Link in Facebook News Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-evade-facebooks-watchful-eye/"><u>How to Evade Facebook's Watchful Eye</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-your-digital-footprint-full-facebook-activity-archives/"><u>Preserving Your Digital Footprint: Full Facebook Activity Archives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtubes-economic-model-month-to-month-income-for-2024/"><u>YouTube's Economic Model  Month-to-Month Income for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ring-induced-voice-memo-iphone-24/"><u>Ring-Induced Voice Memo - iPhone '24</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-edit-like-a-pro-without-spending-a-dime-top-10-free-open-source-video-editors/"><u>Updated 2024 Approved Edit Like a Pro Without Spending a Dime Top 10 Free Open-Source Video Editors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-an-engaging-review-vlog-for-everyday-items/"><u>Crafting an Engaging Review Vlog for Everyday Items</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtube-editing-essentials-the-ultimate-guide-post-upload-refinements/"><u>[Updated] YouTube Editing Essentials  The Ultimate Guide Post-Upload Refinements</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-dissecting-obs-technology-for-top-level-recording/"><u>In 2024, Dissecting OBS Technology for Top-Level Recording</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-ultimate-guideline-for-mobizen-screen-recorder/"><u>In 2024, Ultimate Guideline for Mobizen Screen Recorder</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-sony-xperia-5-v-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Sony Xperia 5 V</u></a></li>
+</ul></div>

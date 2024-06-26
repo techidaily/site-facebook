@@ -1,7 +1,7 @@
 ---
 title: Setting Privacy Preferences for On-the-Go Check-Ins
-date: 2024-06-21 11:21:30
-updated: 2024-06-23 12:14:18
+date: 2024-06-25T13:52:01.924Z
+updated: 2024-06-26T13:52:01.924Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,24 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-governments-target-mega-corporations-in-the-digital-age/"><u>Why Governments Target Mega-Corporations in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-enforcing-conduct-on-your-facebook-page/"><u>Strategies for Enforcing Conduct on Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-secure-mail-validity-is-securityfb-legit/"><u>Facebook Secure Mail Validity: Is @Security@fb Legit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-robust-client-base-using-social-medias-platform-fb/"><u>Building a Robust Client Base Using Social Media's Platform: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-back-breaking-ties-on-facebook/"><u>Stepping Back: Breaking Ties on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-decision-delay-in-default-end-to-end-encryption/"><u>Understanding Meta’s Decision: Delay in Default End-to-End Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-a-secure-social-media-network/"><u>Constructing a Secure Social Media Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-through-its-transparent-governance-space/"><u>Understanding Facebook Through Its Transparent Governance Space</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-swiftly-upgrade-your-videos-with-top-tips-for-adding-youtube-closed-captions/"><u>[Updated] Swiftly Upgrade Your Videos with Top Tips for Adding YouTube Closed Captions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-immerse-in-virtual-reality-top-10-youtube-videos/"><u>2024 Approved  Immerse in Virtual Reality  Top 10 YouTube Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-revolutionary-gaming-documentation-beyond-fbx-norms/"><u>[Updated] Revolutionary Gaming Documentation Beyond FBX Norms</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/beyond-the-screen-top-10-immersive-vr-gear-for-2024/"><u>Beyond The Screen  Top 10 Immersive VR Gear for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/essential-guide-the-top-10-inexpensive-youtube-channels-for-visual-creators/"><u>Essential Guide  The Top 10 Inexpensive YouTube Channels for Visual Creators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-list-free-online-meeting-software-roundup-for-2024/"><u>[New] The Ultimate List  Free Online Meeting Software Roundup for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-forge-your-path-with-music-top-6-budget-friendly-daw-tools-recommended-for-beginners-for-2024/"><u>New Forge Your Path with Music Top 6 Budget-Friendly DAW Tools Recommended for Beginners for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy S23+ | Dr.fone</u></a></li>
+</ul></div>

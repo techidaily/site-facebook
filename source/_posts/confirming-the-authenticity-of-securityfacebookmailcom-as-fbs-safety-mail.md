@@ -1,7 +1,7 @@
 ---
 title: Confirming the Authenticity of @security@facebookmail.com as FB's Safety Mail
-date: 2024-06-20 16:58:58
-updated: 2024-06-23 12:28:44
+date: 2024-06-25T13:46:56.318Z
+updated: 2024-06-26T13:46:56.318Z
 tags:
   - facebook
 categories:
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/843c206a00e28cb365bf9ba5dd05332331c8b283e
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
 
- When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point[to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
+ When companies like Meta send out a specific email to a large audience, scammers use it as a jumping-off point [to execute phishing attacks](https://www.makeuseof.com/types-of-phishing-attack/) . They make an email appear official and use the same context to trick users. That may also be the case with the Facebook Protect email you just received—though the chances are comparatively slim right now.
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
@@ -77,17 +77,15 @@ thumbnail: https://thmb.techidaily.com/843c206a00e28cb365bf9ba5dd05332331c8b283e
 
 **Don't click on any link or button** embedded in the email account that claims to activate Facebook Protect or supposedly enables you to log in. Otherwise, you could end up getting your Facebook account hacked. And certainly**don't download or open any attachments** added in the email. Otherwise, your browser will be hijacked, or your device may become infected.
 
- In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
+ In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to [attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-## What to Do if You Fall for a Fake Facebook Protect Email Scam
+## What to Do if You Fall for a Fake Facebook Protect Email Scam ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
-
- If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+ If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your [profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in [recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
 
- Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple[things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+ Message your friends to tell them what happened and warn them not to follow anything they received from your end during the time you didn't have access to your account. You should also unlink any apps or websites where your account was used to sign in. These are the simple [things you should do if your Facebook account gets hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
 
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
@@ -110,3 +108,23 @@ thumbnail: https://thmb.techidaily.com/843c206a00e28cb365bf9ba5dd05332331c8b283e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/steps-for-eradicating-fb-notification-alerts/"><u>Steps for Eradicating Fb Notification Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-facebooks-intrusive-history-feature/"><u>Steer Clear of Facebook's Intrusive History Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-serenity-by-shutting-down-fb-alerts/"><u>Achieve Serenity by Shutting Down FB Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-innovative-software-solutions-for-smarter-posting/"><u>9 Innovative Software Solutions for Smarter Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/disband-your-digital-haven-on-facebook-quickly/"><u>Disband Your Digital Haven on Facebook Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-account-snooping-on-the-worlds-biggest-social-network/"><u>Expose Account Snooping on the World's Biggest Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-breakthrough-revelations-extracted-from-social-media-docs/"><u>7 Breakthrough Revelations Extracted From Social Media Docs</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-motorola-edge-40-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Motorola Edge 40 ProMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/navigating-screen-capture-across-pcs-and-mobile-devices/"><u>Navigating Screen Capture Across PCs and Mobile Devices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-iphone-manual-for-capturing-and-adjusting-pace-in-motion/"><u>2024 Approved  The Ultimate iPhone Manual for Capturing and Adjusting Pace in Motion</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/unlock-youtube-video-prompts-with-gs-subscription-for-2024/"><u>Unlock YouTube Video Prompts with GS Subscription for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-art-and-science-of-periscope-streaming/"><u>In 2024, The Art and Science of Periscope Streaming</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-navigating-steam-with-your-switch-pro-controller/"><u>[New] 2024 Approved  Navigating Steam With Your Switch Pro Controller</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-s24plus-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy S24+ FRP Bypass</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-easily-animate-your-photos-the-9-best-online-tools/"><u>Updated In 2024, Easily Animate Your Photos The 9 Best Online Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-detectives-playbook-for-scouring-secret-youtube-content/"><u>In 2024, The Detective's Playbook for Scouring Secret YouTube Content</u></a></li>
+</ul></div>

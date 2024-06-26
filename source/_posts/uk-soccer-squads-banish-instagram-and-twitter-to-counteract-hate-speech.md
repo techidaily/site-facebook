@@ -1,7 +1,7 @@
 ---
 title: UK Soccer Squads Banish Instagram & Twitter to Counteract Hate Speech
-date: 2024-06-20 18:18:53
-updated: 2024-06-23 10:10:35
+date: 2024-06-25T14:39:47.173Z
+updated: 2024-06-26T14:39:47.173Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,24 @@ thumbnail: https://thmb.techidaily.com/6368130d53d4726baee2d761c0d301b46230227e2
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-news-in-the-time-of-coronavirus-crisis/"><u>Unmasking Fake News in the Time of Coronavirus Crisis</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-challenges-big-tech-on-free-speech-grounds/"><u>Trump Challenges Big Tech on Free Speech Grounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-to-share/"><u>Identifying Prime Moments to Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-releases-ray-bans-stories-insights-and-pricing-info/"><u>Facebook Releases Ray-Bans Stories: Insights & Pricing Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewable-rush-facebooks-full-transition-to-clean-energy/"><u>Renewable Rush: Facebook's Full Transition to Clean Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-fb-with-key-recovery-techniques/"><u>Safeguarding Your FB with Key Recovery Techniques</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y55s-5g-2023-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y55s 5G (2023) Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-mastering-nikon-footage-a-step-by-step-guide-to-video-editing-for-2024/"><u>New Mastering Nikon Footage A Step-by-Step Guide to Video Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-mastering-chroma-key-techniques-for-professional-videos/"><u>[New] Mastering Chroma Key Techniques for Professional Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-display-apple-iphone-14-pro-screen-on-pc-easily-drfone-by-drfone-ios/"><u>How to Display Apple iPhone 14 Pro Screen on PC Easily? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-nokia-c210-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Nokia C210 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-exclusive-look-at-top-10-gamers-on-tiktok/"><u>2024 Approved  Exclusive Look at Top 10 Gamers on TikTok</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/quick-tips-shifting-your-identity-status-on-discord/"><u>Quick Tips  Shifting Your Identity Status on Discord</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Meizu 21 Pro? | Dr.fone</u></a></li>
+</ul></div>

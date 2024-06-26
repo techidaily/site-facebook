@@ -1,7 +1,7 @@
 ---
 title: Sweep Away the Social Noise
-date: 2024-06-22 16:12:42
-updated: 2024-06-23 10:58:59
+date: 2024-06-25T14:00:44.049Z
+updated: 2024-06-26T14:00:44.049Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,13 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
 
 ![Friend settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729376.jpg)
 
-**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can[spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
+**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can [spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
 
 ![Adding Facebook Friends to a Friends List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729286.jpg)
 
 ## 2\. Clean Up Your Facebook Photos
 
- It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
+ It's time to go into your photos and decide what you want to be on the internet for all to see. While you can [make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 ### Deleting Facebook Photo Albums
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
 
 ### Deleting Photos of You on Facebook
 
- Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
+ Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/497e0cf4a494c643d111720df0c9d81e356ffb488
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/dodging-lost-phones-authentication-trap-on-facebook/"><u>Dodging Lost Phone's Authentication Trap on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-ghost-in-online-chatting/"><u>What Is a 'Ghost' In Online Chatting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-the-downside-of-online-communities/"><u>Mass Perception: The Downside of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinformers-among-top-social-media-influencers/"><u>Misinformers Among Top Social Media Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-implicit-communication-on-fbc-platform/"><u>Unraveling Implicit Communication on FBC Platform</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-dailymotion-vs-youtube-who-earns-more-from-video-content/"><u>In 2024, Dailymotion vs YouTube  Who Earns More From Video Content?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-huawei-nova-y71-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Huawei Nova Y71 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/giving-life-a-curtain-call-blackout-in-pro-for-2024/"><u>Giving Life a Curtain Call  Blackout in Pro for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/minitool-movie-maker-a-detailed-review-user-manual-and-alternative-solutions-for-2024/"><u>Minitool Movie Maker A Detailed Review, User Manual, and Alternative Solutions for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/building-your-first-channel-essential-video-gear-list/"><u>Building Your First Channel  Essential Video Gear List</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-13-pro-max-backup-password-never-set-but-still-asking-heres-the-fix-by-drfone-ios/"><u>iPhone 13 Pro Max Backup Password Never Set But Still Asking? Heres the Fix</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-harness-the-power-of-twitch-livestream-tips-and-tricks/"><u>In 2024, Harness the Power of Twitch  Livestream Tips & Tricks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-maximizing-team-productivity-with-snap-camera-integration/"><u>In 2024, Maximizing Team Productivity with Snap Camera Integration</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-7-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 7 Passcode Easily Video Inside</u></a></li>
+</ul></div>

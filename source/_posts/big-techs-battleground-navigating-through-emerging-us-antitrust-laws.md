@@ -1,7 +1,7 @@
 ---
 title: "Big Tech's Battleground: Navigating Through Emerging U.S. Antitrust Laws"
-date: 2024-06-20 15:16:19
-updated: 2024-06-23 12:29:57
+date: 2024-06-25T14:43:42.357Z
+updated: 2024-06-26T14:43:42.357Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/8ff604b1994b08eb94688e168989c0566c68ac557
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,27 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/demystifying-hashtag-science-maximizing-reach-and-interaction-on-facebook/"><u>Demystifying #Hashtag Science: Maximizing Reach and Interaction on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-say-facebook-clamps-honesty-in-ads/"><u>Whistle-Blowers Say Facebook Clamps Honesty in Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-screen-for-interactive-video-conferences/"><u>Optimizing Your Screen for Interactive Video Conferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-in-earnings-instagram-enhances-artist-profits/"><u>New Horizons in Earnings: Instagram Enhances Artist Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-wisdom-of-silence-deciphering-instagrams-plea-to-unplug/"><u>The Wisdom of Silence: Deciphering Instagram's Plea to Unplug</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-shift-in-tech-monopoly-controls/"><u>Analyzing the Shift in Tech Monopoly Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-swiftly-severing-online-group-ties-on-fb/"><u>Guide to Swiftly Severing Online Group Ties on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/intentionally-efficient-reducing-unwanted-social-networking/"><u>Intentionally Efficient: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-exposure-have-my-personal-and-phone-numbers-been-shared-on-facebook/"><u>Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/capture-times-essence-a-comprehensive-guide-to-making-slow-motion-video-from-still-images-online/"><u>Capture Time's Essence  A Comprehensive Guide to Making Slow-Motion Video From Still Images Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/easy-guide-speed-up-videos-like-a-pro-new-user-style/"><u>Easy Guide  Speed Up Videos Like a Pro, New User Style</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/exploring-how-tseries-harnesses-revenue-from-online-viewer-base-youtube-for-2024/"><u>Exploring How TSeries Harnesses Revenue From Online Viewer Base (YouTube) for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-nokia-c12-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Nokia C12 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-whats-the-take-home-from-each-youtube-sponsored-play/"><u>2024 Approved  What's the Take-Home From Each YouTube Sponsored Play?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-comparing-the-most-popular-linux-snapshots-tools/"><u>[New] In 2024, Comparing the Most Popular Linux Snapshots Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-samsung-galaxy-f15-5g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Samsung Galaxy F15 5G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-tracking-your-channels-ad-revenue-accrual/"><u>In 2024, Tracking Your Channel's Ad Revenue Accrual</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-sketched-snicker-fits-kapwing-meme-artisan/"><u>[New] In 2024, Sketched Snicker-Fits  Kapwing Meme Artisan</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/top-5-tiktok-gif-tools-mastering-video-to-gif-transformations-for-2024/"><u>Top 5 TikTok GIF Tools  Mastering Video-to-GIF Transformations for 2024</u></a></li>
+</ul></div>

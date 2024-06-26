@@ -1,7 +1,7 @@
 ---
 title: Guide for Restoring Access After FB Security Breach
-date: 2024-06-20 21:57:23
-updated: 2024-06-23 12:13:23
+date: 2024-06-25T14:38:25.026Z
+updated: 2024-06-26T14:38:25.026Z
 tags:
   - facebook
 categories:
@@ -27,12 +27,12 @@ thumbnail: https://thmb.techidaily.com/6e9394e67e16c95be7dda814b36b7c21bb54383a5
 
 To change your password:
 
-1. Open the[Accounts Center](https://accountscenter.facebook.com/?entry%5Fpoint=app%5Fsettings) .
+1. Open the [Accounts Center](https://accountscenter.facebook.com/?entry%5Fpoint=app%5Fsettings) .
 2. If you're using the Facebook website, click your **Facebook profile picture > Settings & privacy > Settings > See more in Accounts Center** . If you're on the mobile app, tap your **Facebook profile picture > Settings icon > See more in Accounts Center** .
 3. In the Accounts Center, click**Password and security > Change password** and select your Facebook account.
 4. You'll have to enter your current password, followed by your new password. Click the**Forgot your password?** option if that's the issue.
 
- This is also the safest and quickest method to[recover a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , as Facebook will let you log out of all other devices. Once you have reset your password, also consider[setting up two-factor authentication on Facebook](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) . If you can't log back into your account because Facebook retired its Code Generator, here's how you can now[get a login confirmation code for Facebook](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) .
+ This is also the safest and quickest method to [recover a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , as Facebook will let you log out of all other devices. Once you have reset your password, also consider [setting up two-factor authentication on Facebook](https://www.makeuseof.com/tag/use-2fa-facebook-without-phone-number/) . If you can't log back into your account because Facebook retired its Code Generator, here's how you can now [get a login confirmation code for Facebook](https://www.makeuseof.com/tag/log-facebook-lost-access-code-generator/) .
 
 ## 2\. Try the Default Facebook Account Recovery Options
 
@@ -58,7 +58,7 @@ To change your password:
 
 ### Option 2: Find and Recover Your Account With Contact Details
 
- If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the[Facebook recovery page](https://www.facebook.com/login/identify/) .
+ If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the [Facebook recovery page](https://www.facebook.com/login/identify/) .
 
  Enter an email address or mobile number you previously added to your Facebook account. When you search for a phone number, try it with or without your country code, e.g., 1, +1, or 001 for the US—all three versions should work. Even if it doesn't say so, you can also use your Facebook username.
 
@@ -82,17 +82,17 @@ To change your password:
 
 ### Log Back Into Your Facebook Account
 
- If you managed to regain access to your account, and if you suspect that[your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
+ If you managed to regain access to your account, and if you suspect that [your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
 
  These are key steps in securing your Facebook account. Be sure to remove any email addresses or phone numbers that are not your own or that you can no longer access.
 
- We strongly recommend that you[enable two-factor authentication on all of your social media accounts](https://www.makeuseof.com/tag/setup-two-factor-authentication-social-accounts/) , so that this won't happen again.
+ We strongly recommend that you [enable two-factor authentication on all of your social media accounts](https://www.makeuseof.com/tag/setup-two-factor-authentication-social-accounts/) , so that this won't happen again.
 
 ## 3\. Use a Device Facebook Will Recognize
 
  Often, it's not possible to recover a Facebook account using the options above. Maybe you lost access to the email address and phone number you once added to your profile. Or maybe a hacker changed this information. In that case, your only hope is to use a device Facebook will recognize.
 
- Use the internet connection and computer or phone from which you've frequently logged into your Facebook account to access the[Get back on Facebook](https://www.facebook.com/recover/account/) page.
+ Use the internet connection and computer or phone from which you've frequently logged into your Facebook account to access the [Get back on Facebook](https://www.facebook.com/recover/account/) page.
 
  If you see this image, you're out of luck. Facebook says it's not safe for them to give you another way to log in, and that they must stop anyone who doesn't own this account from getting into it. However, you're not out of options, yet.
 
@@ -116,7 +116,7 @@ To change your password:
 
 ## 4\. Report Your Hacked Facebook Account
 
- In the event that your account was hacked and is posting spam while you can no longer access it, you should report your Facebook account as compromised on[Facebook.com/hacked](http://www.facebook.com/hacked) .
+ In the event that your account was hacked and is posting spam while you can no longer access it, you should report your Facebook account as compromised on [Facebook.com/hacked](http://www.facebook.com/hacked) .
 
 ![Report a compromised Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Report-Compromised-Account.jpg)
 
@@ -124,11 +124,11 @@ To change your password:
 
 ![Log into your account with a current or old password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Login-With-Old-Password.jpg)
 
- This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
+ This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the [Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
 ## 5\. Confirm Your Identity With Facebook
 
- If all of Facebook's automated account recovery methods have failed, your last hope is Facebook support itself. Facebook has a[Help Center page](https://www.facebook.com/help/contact/183000765122339) that lets you confirm your identity.
+ If all of Facebook's automated account recovery methods have failed, your last hope is Facebook support itself. Facebook has a [Help Center page](https://www.facebook.com/help/contact/183000765122339) that lets you confirm your identity.
 
  Upload a JPEG (photo) of your ID, enter an email address or mobile phone number that is (or was) associated with the Facebook account you wish to recover, then click**Send** to submit the information.
 
@@ -161,3 +161,24 @@ To change your password:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-exchanges-a-comprehensive-guide-to-facebooks-latest-moderation-advancements/"><u>Elevating Exchanges: A Comprehensive Guide to Facebook's Latest Moderation Advancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-a-marketers-guide-to-mindful-sharing/"><u>Digital Responsibility: A Marketer's Guide to Mindful Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-charge-of-personal-safety-on-facebook/"><u>Taking Charge of Personal Safety on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-social-presence-identifying-breaches/"><u>Securing Your Social Presence: Identifying Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-moderation-panel-decisions/"><u>Dissecting Facebook’s Moderation Panel Decisions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-beyond-words-interpreting-icons-and-symbols-on-fb/"><u>The Language Beyond Words: Interpreting Icons and Symbols on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-strategies-outsmarting-high-tech-hustlers/"><u>Evasion Strategies: Outsmarting High-Tech Hustlers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/must-have-top-8-wallpapers-and-themes-for-mbp-users/"><u>Must-Have  Top 8 Wallpapers & Themes for MBP Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-essential-tools-for-perfect-linux-screenshots-for-2024/"><u>[New] Essential Tools for Perfect Linux Screenshots for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/examination-of-cambridge-sound-technologies-cxu-equipment-for-2024/"><u>Examination of Cambridge Sound Technologies CXU Equipment for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-sony-xperia-1-v-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-ultimate-guide-to-youtube-thumbnails-that-get-views/"><u>2024 Approved  The Ultimate Guide to YouTube Thumbnails that Get Views</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/first-rate-text-animation-setups-for-2024/"><u>First-Rate Text Animation Setups for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-stay-updated-the-latest-instagram-filter-updates/"><u>[New] In 2024, Stay Updated  The Latest Instagram Filter Updates</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-posting-videos-on-twitter-step-by-step-for-2024/"><u>[New] Posting Videos on Twitter Step-by-Step for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-v27-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo V27 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+</ul></div>

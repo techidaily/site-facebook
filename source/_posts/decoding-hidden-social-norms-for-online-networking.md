@@ -1,7 +1,7 @@
 ---
 title: Decoding Hidden Social Norms for Online Networking
-date: 2024-06-22 13:14:32
-updated: 2024-06-23 10:59:47
+date: 2024-06-25T14:38:09.308Z
+updated: 2024-06-26T14:38:09.308Z
 tags:
   - facebook
 categories:
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
-## How to Find Out Whether Someone Denied Your Facebook Friend Request
-
-![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
+## How to Find Out Whether Someone Denied Your Facebook Friend Request ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
@@ -55,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
 ## Unfollowing vs. Unfriending on Facebook
 
- Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on[following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
+ Rather than unfriending people who are flooding your News Feed with silly posts, try unfollowing them instead. That way, you can maintain your digital sanity, without risking the loss of a real-life friendship. For more information, read our primer on [following and unfollowing on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) .
 
  From your Feed (**Home**) find a post from your overactive friend, click the arrowhead in the top right to expand the post menu, and click**Unfollow** . If you think the activity is only temporary, you can also snooze their messages for 30 days.
 
@@ -71,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad
 
 ### 1\. Only Add People You Know
 
- Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its[Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
+ Facebook only wants you to add people you know in real life. If your friend requests frequently remain unanswered or even if just one person reports your friend request as unwanted, Facebook may conclude that you have sent friend requests that violate its [Community Standards](https://transparency.fb.com/en-gb/policies/community-standards/) .
 
  Consequently, Facebook might block you from sending friend requests for some time.
 
@@ -155,7 +153,7 @@ Keep in mind that if you do this, the person may be penalized.
 
 ### 2\. You Blocked the Other Person
 
- You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
+ You can't friend someone you've blocked. See if you can [unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
@@ -165,13 +163,13 @@ Keep in mind that if you do this, the person may be penalized.
 
  Neither you, nor your friend-to-be, can have more than 5,000 friends on Facebook. If one of you has crossed that limit, you can't send each other friend requests.
 
- If you have too many friends, consider[converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
+ If you have too many friends, consider [converting your account into a Facebook Page](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/) .
 
 ### 5\. Facebook Blocked You From Sending Friend Requests
 
  This can happen if you send too many friend requests at once, have many unanswered friend requests, or if several people marked your requests as spam.
 
- According to[the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
+ According to [the Facebook Help Center](https://www.facebook.com/help/320587401313728?helpref=faq%5Fcontent) , Facebook cannot lift a block early, but fortunately, it's only temporary and will expire within a few days.
 
 Follow our guidelines above to avoid this from happening again.
 
@@ -196,3 +194,26 @@ Follow our guidelines above to avoid this from happening again.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/examining-the-safety-of-fb-messenger/"><u>Examining the Safety of FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153399725-no-media-all-eyes-on-you-go-insta-live/"><u>No Media, All Eyes On You: Go Insta-Live!</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-resolve-static-fb-notification-status/"><u>Guidelines to Resolve Static FB Notification Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-metaai-poised-to-become-a-conversational-technology-leader/"><u>Is MetaAI Poised to Become a Conversational Technology Leader?</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-number-of-facebook-admirers/"><u>Examine the Number of Facebook Admirers</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-managing-linked-apps-and-sites-to-fb/"><u>Guidelines for Managing Linked Apps & Sites to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-facebooks-new-framework/"><u>Comedic Content: Facebook's New Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-discord-for-music-lovers-adding-spotify-support/"><u>[New] Discord for Music Lovers  Adding Spotify Support</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streamline-cinematography-processes-using-obss-versatile-lut-tools-and-downloads/"><u>[New] Streamline Cinematography Processes Using OBS's Versatile LUT Tools and Downloads</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-excel-2013-files-on-mac-complete-guide-stellar-by-stellar-guide/"><u>How to Recover Deleted Excel 2013 Files on Mac Complete Guide | Stellar</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-vivo-v27e-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Vivo V27e Devices</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-ultimate-resource-compendium-for-optimizing-on-screen-captioning/"><u>The Ultimate Resource Compendium for Optimizing On-Screen Captioning</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprehensive-list-top-18-cam-recorders-compiled/"><u>Comprehensive List  Top 18 Cam Recorders Compiled</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-the-ultimate-guide-to-comical-vocal-customization-for-enjoyable-calls/"><u>New In 2024, The Ultimate Guide to Comical Vocal Customization for Enjoyable Calls</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-best-5-ai-movie-script-generators/"><u>New In 2024, Best 5 AI Movie Script Generators</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On OnePlus 12R | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-pro-gopro-filming-and-live-sharing-best-practices-for-facebookperiscope/"><u>In 2024, Pro Gopro Filming and Live Sharing  Best Practices for Facebook/Periscope</u></a></li>
+</ul></div>

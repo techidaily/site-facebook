@@ -1,7 +1,7 @@
 ---
 title: Constructing a Secure Social Media Network
-date: 2024-06-22 23:22:27
-updated: 2024-06-23 10:23:30
+date: 2024-06-25T14:39:09.900Z
+updated: 2024-06-26T14:39:09.900Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,23 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reinstating-security-code-from-facebook-account/"><u>Reinstating Security Code From Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-archived-social-networks-on-fb/"><u>Accessing Archived Social Networks on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-payment-plan-paves-way-for-artists-financial-freedom/"><u>Facebook’s Payment Plan Paves Way for Artists’ Financial Freedom</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-dilemrancy-hacked-users-quest-headset-purchase-trend/"><u>The $300 Dilemrancy: Hacked Users' Quest Headset Purchase Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profile-becoming-a-safe-indicator-on-fb/"><u>Securing Profile: Becoming a Safe Indicator on FB</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-often-can-creators-expect-to-be-paid-by-youtube-in-2024/"><u>[Updated] How Often Can Creators Expect to Be Paid by YouTube, In 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-generating-auto-subscribe-hyperlinks-to-your-channels-yt-for-2024/"><u>[New] Generating Auto-Subscribe Hyperlinks to Your Channel's YT for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-fundamental-furnishings-in-mc-the-basics-of-homesteading/"><u>[Updated] Fundamental Furnishings in MC  The Basics of Homesteading</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-flawless-ppt-transitions-adding-voice-over-effectively/"><u>[New] Flawless PPT Transitions  Adding Voice Over Effectively</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unraveling-the-secrets-of-recording-hulu-across-computersmobile-for-2024/"><u>[Updated] Unraveling the Secrets of Recording Hulu Across Computers/Mobile for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-a-complete-guide-to-downloading-and-using-windows-movie-maker-for-free/"><u>Updated 2024 Approved A Complete Guide to Downloading and Using Windows Movie Maker for Free</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-mix-fold-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Mix Fold 3 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-podcast-writers-toolkit-essential-strategies-and-samples/"><u>In 2024, The Podcast Writer's Toolkit  Essential Strategies & Samples</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-xiaomi-redmi-note-12-pro-4g-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Xiaomi Redmi Note 12 Pro 4G Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+</ul></div>

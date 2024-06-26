@@ -1,7 +1,7 @@
 ---
 title: Humor in the Age of Fact vs Fiction
-date: 2024-06-20 17:57:14
-updated: 2024-06-23 10:55:46
+date: 2024-06-25T13:59:44.007Z
+updated: 2024-06-26T13:59:44.007Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
 
 ![off-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/09/off-facebook.jpg)
 
- This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
+ This update comes after the Oversight Board challenged Facebook's decision to remove a user comment that referred to the Turkish government with the ["Daily Struggle" meme](https://knowyourmeme.com/memes/daily-struggle) . Here is the board's description of the comment in question:
 
 > This meme featured the same split-screen cartoon from the original meme, but with the cartoon character’s face substituted for a Turkish flag. The cartoon character has their right hand on their head and appears to be sweating. Above the cartoon character, in the other half of the split-screen, there are two red buttons with corresponding labels, in English: “The Armenian Genocide is a lie” and “The Armenians were terrorists who deserved it.” The meme was preceded and followed by “thinking face” emoji.
 
@@ -62,3 +62,24 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-life-without-constant-connectivity/"><u>The Quiet Life Without Constant Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-power-play-in-your-fb-friends-list-management/"><u>Discover the Power Play in Your FB Friends List Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-online-groups-the-dichotomy-of-personal-and-professional/"><u>Exploring Online Groups: The Dichotomy of Personal and Professional</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-social-media-memorable-with-ripls-tips/"><u>Making Social Media Memorable with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-on-a-global-journey-the-ups-and-downs-of-fb-expat-circles/"><u>Embarking on a Global Journey: The Ups and Downs of FB Expat Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-exploring-russias-digital-gathering-place/"><u>Decoding VK: Exploring Russia's Digital Gathering Place</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-top-11-youtube-seo-techniques-for-video-enhancement/"><u>[New] Top 11 YouTube SEO Techniques for Video Enhancement</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-4k-video-editing-software/"><u>Updated Top 4K Video Editing Software</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-follow-the-hype-trail-with-these-hot-tiktok-deals-at-amazon/"><u>[Updated] 2024 Approved  Follow the Hype Trail with These Hot TikTok Deals at Amazon</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>How to share/fake gps on Uber for Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-motorola-g54-5g-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Motorola G54 5G PIN</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-from-novice-to-nifty-mastering-snapchats-digital-artistry/"><u>[New] In 2024, From Novice to Nifty  Mastering Snapchat’s Digital Artistry</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-the-roadmap-to-effective-tiktok-ads-techniques-and-case-studies-for-2024/"><u>[Updated] The Roadmap to Effective TikTok Ads  Techniques & Case Studies for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-ultimate-choice-final-cut-pro-or-lumafusion-for-your-video-needs/"><u>Updated The Ultimate Choice Final Cut Pro or LumaFusion for Your Video Needs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-frustrated-photographers-face-black-screen-woes/"><u>In 2024, Frustrated Photographers Face Black Screen Woes</u></a></li>
+</ul></div>

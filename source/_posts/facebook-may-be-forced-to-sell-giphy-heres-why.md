@@ -1,7 +1,7 @@
 ---
 title: "Facebook May Be Forced to Sell Giphy: Here's Why"
-date: 2024-06-21 11:49:32
-updated: 2024-06-23 10:23:36
+date: 2024-06-25T14:14:09.255Z
+updated: 2024-06-26T14:14:09.255Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
-## Meta's Appeal to Keep Giphy
-
-![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+## Meta's Appeal to Keep Giphy ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -47,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
  Meta claims that its powerful infrastructure, talent, and resources are crucial to Giphy's overall growth and capacity to improve its services. With its support, Meta grounds its appeal on its ability to serve everyone, including its competitors, by developing Giphy to its full potential.
 
- Unfortunately, the investigation has not been going smoothly for Meta. According to a[press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
+ Unfortunately, the investigation has not been going smoothly for Meta. According to a [press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
 
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
@@ -74,3 +72,27 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/cloaked-companions-fb-friendlist-peculiarities/"><u>Cloaked Companions: FB Friendlist Peculiarities</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-refreshing-your-facebook-visual-representation/"><u>Swiftly Refreshing Your Facebook Visual Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/sitting-pretty-facebooks-watchdog-holds-off-decision/"><u>Sitting Pretty: Facebook's Watchdog Holds Off Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-novel-network-nodes-a-guide-to-modern-fb-groups/"><u>Unveiling Novel Network Nodes: A Guide to Modern FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-future-tracing-a-possible-rebrand/"><u>Social Network's Future: Tracing a Possible Rebrand</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-continuity-delving-into-facebooks-stealthy-wrist-tech/"><u>Clandestine Continuity: Delving Into Facebook’s Stealthy Wrist Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaming-on-steam-how-data-monitoring-powers-the-platform/"><u>Gaming on Steam: How Data Monitoring Powers the Platform</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-android-photo-tech-tips-and-apps-guide-for-2024/"><u>Top Android Photo-Tech Tips & Apps Guide for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-top-10-waveform-generator-tools-to-boost-your-productivity/"><u>Updated In 2024, Top 10 Waveform Generator Tools to Boost Your Productivity</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-comprehensive-blueprint-for-vimeo-video-logging/"><u>In 2024, The Comprehensive Blueprint for Vimeo Video Logging</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-vivo-y100i-power-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Vivo Y100i Power 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/prime-binge-worthy-hits-highest-tweets-and-view-counts-for-2024/"><u>Prime Binge-Worthy Hits  Highest Tweets & View Counts for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-srt-to-sub-mastery-unveiling-3-key-strategies/"><u>2024 Approved  SRT-to-SUB Mastery  Unveiling 3 Key Strategies</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-nord-n30-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Nord N30 5G</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/can-advanced-audio-equalization-make-a-difference-in-sound-quality-in-2024/"><u>Can Advanced Audio Equalization Make a Difference in Sound Quality, In 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-creative-connections-animated-iconography/"><u>[New] Creative Connections  Animated Iconography</u></a></li>
+</ul></div>

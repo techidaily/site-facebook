@@ -1,7 +1,7 @@
 ---
 title: "Oculus Quest's Account Privacy: Meta or FB?"
-date: 2024-06-20 21:21:57
-updated: 2024-06-23 12:40:54
+date: 2024-06-25T14:25:14.970Z
+updated: 2024-06-26T14:25:14.970Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
 
  Oculus still exists as an entity and does Meta’s VR software development. When they were their own company, there was such a thing as an “Oculus account” required to sign into the headsets. Some kind of account is necessary to do things like buy and manage apps, after all. However, Meta retired the Oculus account in lieu of a Facebook login requirement.
 
- Seeing the problems above, including vocal pushback from users, Meta[stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
+ Seeing the problems above, including vocal pushback from users, Meta [stopped requiring a Facebook login](https://www.meta.com/help/accounts/?utm%5Fsource=www.bing.com&utm%5Fmedium=dollyredirect) in August 2022\. Instead, they need a “Meta account.” But, if Meta owns Facebook, isn’t having a Meta account at least as bad as having a Facebook account from a privacy perspective?
 
  Some argue that there’s no real difference between using a Meta account and using a Facebook account from a privacy perspective. Others believe that the Meta account requirement is better than a Facebook account requirement. Trying to decide who’s right is less rewarding than presenting both sides of the discussion.
 
@@ -37,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
 
 ### Meta Gets Your Info Either way
 
- There are a lot of[reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
+ There are a lot of [reasons to be concerned about Facebook](https://www.makeuseof.com/why-do-people-hate-facebook/) . It can be tempting to think that giving your data to anyone else is an improvement. But, Meta owns Facebook anyway. Let’s put it another way:
 
  Suppose that you know someone that you see at work as well as socially. There’s something you’re afraid to tell this person, so you tell them at work. This person might keep your secret around friends (or might not) but either way they still have the information. So, giving your information to Meta might just be giving your information to Facebook wearing a different hat.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
 
  More than that,[Quest has its own browser.](https://www.makeuseof.com/how-to-get-started-with-quest-browser/) So, if you were worried about Facebook accessing your web activity, a Meta account is at least as bad. That’s to say nothing of the cameras and sensors that a VR headset needs to work properly, which can become a bottomless pit of suspicion for Meta critics.
 
- This argument is even more impactful if you choose to[link your Meta account to your Facebook account](https://www.oculus.com/blog/meta-accounts/) through Meta’s accounts center. You don’t have to do this but, if you do, you’re pretty much connecting the dots between these accounts for Meta.
+ This argument is even more impactful if you choose to [link your Meta account to your Facebook account](https://www.oculus.com/blog/meta-accounts/) through Meta’s accounts center. You don’t have to do this but, if you do, you’re pretty much connecting the dots between these accounts for Meta.
 
  It could be argued that these are moot points as far as the Meta account is concerned. After all, these things are required for a VR headset and ecosystem. So, they aren’t new concerns since Meta accounts appeared, as they’ve been true since Facebook bought Oculus. They’ve even been true since Meta replaced the Oculus login with a Facebook login.
 
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
 
  So far, we’ve been weighing the cons of a Meta account against the cons of a Facebook account. However, since the Meta account option, you don’t need a Facebook account to use a Quest.
 
- If you want to use a Quest but[deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
+ If you want to use a Quest but [deleted your Facebook account](https://www.makeuseof.com/delete-facebook-on-android/) or never had one, you can do that now. Before, the only option was to create a Facebook account just to use your Quest.
 
 ## Pick Your Poison
 
@@ -92,3 +92,22 @@ thumbnail: https://thmb.techidaily.com/3269c858221e8ab75b91d65fc2cbdc3bf0d972fb5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/e2ee-for-fb-chatters-schedule-revealed-soon/"><u>E2EE for FB Chatters: Schedule Revealed Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-deleting-your-social-media-snoop-records/"><u>Guide to Deleting Your Social Media Snoop Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tempest-approaching-facebooks-troubling-forecast/"><u>The Tempest Approaching: Facebook's Troubling Forecast</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-innovative-software-solutions-for-smarter-posting/"><u>9 Innovative Software Solutions for Smarter Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fbs-best-practices-for-safety-and-confidentiality/"><u>Unlocking FB's Best Practices for Safety & Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-essential-points-in-facebook-papers/"><u>Breaking Down the Essential Points in Facebook Papers</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-beginner-friendly-choir-separation-technology-for-professional-use/"><u>Updated In 2024, Beginner-Friendly Choir Separation Technology for Professional Use</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-expert-tutorial-quick-hassle-free-ios-snapshots/"><u>[Updated] 2024 Approved  Expert Tutorial  Quick, Hassle-Free iOS Snapshots</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-increase-video-traffic-key-youtube-seo-strategies/"><u>[New] Increase Video Traffic  Key YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-sparkle-with-screenshots-vlogging-for-value-creation/"><u>[New] Sparkle with Screenshots  Vlogging for Value Creation</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/storing-session-videos-in-gh-for-2024/"><u>Storing Session Videos in GH for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/optimize-zoom-performance-top-three-tactical-approaches/"><u>Optimize Zoom Performance  Top Three Tactical Approaches</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevating-skills-a-comprehensive-guide-to-designer-advancement/"><u>Elevating Skills  A Comprehensive Guide to Designer Advancement</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/the-best-apps-for-recording-and-editing-reaction-videos-on-the-go-for-2024/"><u>The Best Apps for Recording and Editing Reaction Videos on the Go for 2024</u></a></li>
+</ul></div>

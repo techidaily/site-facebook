@@ -1,7 +1,7 @@
 ---
 title: Enabling Location Sharing with Facebook Peers
-date: 2024-06-21 20:47:54
-updated: 2024-06-23 10:44:15
+date: 2024-06-25T13:59:36.905Z
+updated: 2024-06-26T13:59:36.905Z
 tags:
   - facebook
 categories:
@@ -65,7 +65,7 @@ Follow these simple instructions to send a pinned location:
 
 Close
 
- This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
+ This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of [deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 ## Share Live Location or Pin It Through Facebook Messenger
 
@@ -88,3 +88,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/pioneering-a-new-dimension-understanding-the-metaverse/"><u>Pioneering a New Dimension: Understanding the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-center-highlighting-facebooks-commitment-to-policy-clarity/"><u>New Center Highlighting Facebook's Commitment to Policy Clarity</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-changing-in-the-landscape-of-us-antitrust/"><u>What's Changing in the Landscape of U.S. Antitrust</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-threads-is-shutting-down-in-december-heres-why/"><u>Instagram Threads Is Shutting Down in December: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-personal-presence-without-excessive-social-browsing/"><u>The Path to Personal Presence Without Excessive Social Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-complete-archive-of-your-facebook-journey/"><u>A Complete Archive of Your Facebook Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-describing-images-on-facebook/"><u>Guidelines for Describing Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-stuff-on-fb-creating-a-restricted-list/"><u>Control Who Sees Your Stuff on FB: Creating a Restricted List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-from-high-speed-to-leisurely-the-pathway-to-stellar-ig-reel-slow-motion/"><u>[New] From High-Speed to Leisurely  The Pathway to Stellar IG Reel Slow Motion</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-guide-to-longer-instagram-videos-for-2024/"><u>[New] The Ultimate Guide to Longer Instagram Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/video-revenue-generation-on-facebook-tactics-for-financial-growth-for-2024/"><u>Video Revenue Generation on Facebook  Tactics for Financial Growth for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/professional-filmmaking-essentials-ideal-lenses-to-consider/"><u>Professional Filmmaking Essentials  Ideal Lenses to Consider</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-6-plus-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 6 Plus when Phone is Broken?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-easy-to-use-video-platform-by-microsoft-for-2024/"><u>[Updated] Easy-to-Use Video Platform by Microsoft for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-instagram-increasingdecreasing-stories-frame-rate-for-2024/"><u>Mastering Instagram  Increasing/Decreasing Stories' Frame Rate for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-leveraging-hashtags-to-enhance-fb-user-engagement-for-2024/"><u>[Updated] Leveraging Hashtags to Enhance FB User Engagement for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-understanding-facebooks-real-time-content-restrictions/"><u>[New] 2024 Approved  Understanding Facebook's Real-Time Content Restrictions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-collection-celebrating-the-best-12-collages/"><u>The Ultimate Collection  Celebrating the Best 12 Collages</u></a></li>
+</ul></div>

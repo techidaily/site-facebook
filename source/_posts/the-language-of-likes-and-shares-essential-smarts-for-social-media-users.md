@@ -1,7 +1,7 @@
 ---
 title: "The Language of Likes and Shares: Essential SMARTs for Social Media Users"
-date: 2024-06-20 15:59:17
-updated: 2024-06-23 10:32:46
+date: 2024-06-25T13:55:57.334Z
+updated: 2024-06-26T13:55:57.334Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ## 5\. DM
 
- A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a[DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
+ A DM is a direct message sent on a social media app. It's where users can communicate privately instead of publicly, like in post comments. For example, you can send a [DM on social media](https://www.makeuseof.com/what-does-dm-mean/) when you want to share someone's post with a friend privately.
 
 ## 6\. #F4F
 
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ## 8\. RT
 
- On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can[turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
+ On X (formerly Twitter), RT stands for retweet, which means to repost a tweet. Retweets help posts get more visibility and engagement. If you see someone's retweets so often they start annoying you, you can [turn off their retweets without unfollowing them](https://www.makeuseof.com/tag/turn-off-retweets-twitter-without-unfollowing/) .
 
  While the terms "tweet" and "retweet" have technically been retired with X's rebranding in 2023, you'll still find people using the terms.
 
@@ -141,7 +141,7 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ## 30\. FOMO
 
- FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are[ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
+ FOMO means "fear of missing out". The acronym FOMO is used in two contexts: to express that you don't want to miss out on something, or that you're missing out on something at the time. The feeling is often triggered by what you see others talking about online. Fortunately, there are [ways to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) .
 
 ## Never Get Left Behind
 
@@ -162,3 +162,22 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unplugging-personal-insights-from-deactivation/"><u>Unplugging: Personal Insights From Deactivation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-wall-reasons-for-fb-disabling/"><u>The Invisible Wall: Reasons for FB Disabling</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144159770-oversight-body-poised-to-issue-ruling-against-trumps-fb-prohibition/"><u>Oversight Body Poised to Issue Ruling Against Trump's FB Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-transfer-facebook-posts-and-notes-to-three-popular-services/"><u>You Can Now Transfer Facebook Posts and Notes to Three Popular Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-pictures-worth-more-than-a-thousand-written-words-facebooks-ai/"><u>A Picture's Worth More Than a Thousand Written Words - Facebook's AI</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-newbie-vlogger-tips-simple-video-concepts/"><u>2024 Approved  Newbie Vlogger Tips  Simple Video Concepts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-the-essential-guide-to-facebooks-latest-features/"><u>2024 Approved  The Essential Guide to Facebook's Latest Features</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-voicing-efficiency-a-comprehensive-review-of-the-top-6-auto-transcribing-software-systems/"><u>New Voicing Efficiency A Comprehensive Review of the Top 6 Auto-Transcribing Software Systems</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-masterclass-in-3d-color-grading-with-custom-luts/"><u>2024 Approved  Masterclass in 3D Color Grading with Custom LUTs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-redmi-k70-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Redmi K70</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-online-image-cropper-and-resizer-one-stop-shop/"><u>Updated In 2024, Online Image Cropper and Resizer One-Stop Shop</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-vivo-x100-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Vivo X100 Pro and Browser | Dr.fone</u></a></li>
+</ul></div>

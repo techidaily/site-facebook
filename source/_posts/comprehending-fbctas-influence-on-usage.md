@@ -1,7 +1,7 @@
 ---
 title: Comprehending FBCTA's Influence on Usage
-date: 2024-06-21 17:40:26
-updated: 2024-06-23 12:14:49
+date: 2024-06-25T14:03:17.294Z
+updated: 2024-06-26T14:03:17.294Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
 
  US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
 
- Or, as stated by lawmakers in the[proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
+ Or, as stated by lawmakers in the [proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
 
 > To require that internet platforms give users the option to engage with a platform without being manipulated by algorithms driven by userspecific data.
 
@@ -45,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
 
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
-## How the Filter Bubble Transparency Act Could Affect You
-
-![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+## How the Filter Bubble Transparency Act Could Affect You ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
 
@@ -76,3 +74,27 @@ thumbnail: https://thmb.techidaily.com/981f5aab13809d22943cf0e3715f6a9d6dac906b3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/innovative-approach-to-networking-top-10-budget-friendly-apps/"><u>Innovative Approach to Networking: Top 10 Budget-Friendly Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-interactive-communities-with-facebooks-channels/"><u>Fostering Interactive Communities with Facebook's Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnings-mechanisms-on-social-grids/"><u>Earnings Mechanisms on Social Grids</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-likes-gaining-perspective-without-platforms/"><u>Life Beyond Likes: Gaining Perspective Without Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-world-of-3d-photo-sharing-on-facebook/"><u>Navigate the World of 3D Photo-Sharing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Motorola Moto G23 | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-ultimate-guide-to-choosing-the-best-highlight-reel-software-for-2024/"><u>Updated Ultimate Guide to Choosing the Best Highlight Reel Software for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-instant-file-accessibility-syncing-from-pc-to-iphone/"><u>[New] 2024 Approved  Instant File Accessibility  Syncing From PC to iPhone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-final-cut-pro-essentials-how-to-create-engaging-videos-with-the-ken-burns-effect/"><u>Updated Final Cut Pro Essentials How to Create Engaging Videos with the Ken Burns Effect</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-essential-skills-androids-screen-recording-functionality/"><u>[Updated] In 2024, Essential Skills  Android's Screen Recording Functionality</u></a></li>
+<li><a href="https://extra-information.techidaily.com/icy-illusions-reveling-at-beijings-olympic-event-2022/"><u>Icy Illusions  Reveling at Beijing's Olympic Event, 2022</u></a></li>
+<li><a href="https://techidaily.com/how-to-free-up-apple-iphone-12-pro-max-space-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Free Up Apple iPhone 12 Pro Max Space | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-realme-c55-by-drfone-android/"><u>In 2024, How to Bypass FRP from Realme C55?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-facebooks-most-engaging-vids/"><u>[New] The Ultimate Guide to Facebook’s Most Engaging Vids</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-capture-the-moment-with-these-cutting-edge-snapchat-filters/"><u>[Updated] Capture the Moment with These Cutting-Edge Snapchat Filters</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Facebook & Instagram: A New Era for Crypto Promos?"
-date: 2024-06-22 21:52:48
-updated: 2024-06-23 12:46:35
+date: 2024-06-25T14:32:41.192Z
+updated: 2024-06-26T14:32:41.192Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/8010c35385b1d4db309ae5aab39ce0f7ad55b6a28
 
  The major change is that Meta will now consider 27 different licenses, up from the previous three.
 
- "We're doing this because the cryptocurrency landscape has continued to mature and stabilize in recent years and has seen more government regulations that are setting clearer rules for their industry," Meta wrote in[a blog post](https://web.facebook.com/business/news/expanding-eligibility-to-run-ads-about-cryptocurrency?%5Frdc=1&%5Frdr) . Here's the[official list of all the licenses supported](https://web.facebook.com/policies/ads/restricted%5Fcontent/cryptocurrency%5Fproducts%5Fand%5Fservices) .
+ "We're doing this because the cryptocurrency landscape has continued to mature and stabilize in recent years and has seen more government regulations that are setting clearer rules for their industry," Meta wrote in [a blog post](https://web.facebook.com/business/news/expanding-eligibility-to-run-ads-about-cryptocurrency?%5Frdc=1&%5Frdr) . Here's the [official list of all the licenses supported](https://web.facebook.com/policies/ads/restricted%5Fcontent/cryptocurrency%5Fproducts%5Fand%5Fservices) .
 
  All a crypto company needs is one of the newly expanded regulatory licenses, and they'll be able to run their ads on both Facebook and Instagram. However, the policy change doesn't affect previously approved crypto companies.
 
@@ -39,9 +39,7 @@ thumbnail: https://thmb.techidaily.com/8010c35385b1d4db309ae5aab39ce0f7ad55b6a28
 
  Related:[The Best Software Crypto Wallets to Store Your Assets](https://www.makeuseof.com/best-software-crypto-wallets/)
 
-## Why Meta's Crypto Advertising Policy Change Is Welcome
-
-![person holding crypto coins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/person-holding-crypto.jpg)
+## Why Meta's Crypto Advertising Policy Change Is Welcome ![person holding crypto coins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/person-holding-crypto.jpg)
 
  Meta's policy change on crypto ads is welcome for two key reasons.
 
@@ -76,3 +74,24 @@ thumbnail: https://thmb.techidaily.com/8010c35385b1d4db309ae5aab39ce0f7ad55b6a28
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/efficient-techniques-for-capturing-and-transferring-fb-media/"><u>Efficient Techniques for Capturing and Transferring FB Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-multiple-group-platforms-for-increased-impact/"><u>Leveraging Multiple Group Platforms for Increased Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-of-opening-up-to-unknown-facebook-friends/"><u>The Hidden Dangers of Opening Up to Unknown Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-sending-your-security-code-how-to-fix-it/"><u>Facebook Not Sending Your Security Code? How to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/reels-vs-tiktok-can-facebook-strike-back/"><u>Reels vs TikTok: Can Facebook Strike Back?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-potential-for-llife-in-the-metaverse-future/"><u>The Resurgence Potential for LLife in The Metaverse Future</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-uniting-youtube-videos-a-comprehensive-approach/"><u>In 2024, Uniting YouTube Videos  A Comprehensive Approach</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cinematic-mastery-expert-tips-for-editing-in-final-cut-pro-x/"><u>Updated In 2024, Cinematic Mastery Expert Tips for Editing in Final Cut Pro X</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unleash-fcpxs-full-potential-tips-and-tricks-for-managing-your-macs-storage/"><u>New Unleash FCPXs Full Potential Tips and Tricks for Managing Your Macs Storage</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-terror-in-town-a-list-of-intense-zombie-games/"><u>[New] In 2024, Terror in Town  A List of Intense Zombie Games</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-leading-educational-websites-for-flexible-online-studies/"><u>[Updated] Leading Educational Websites for Flexible Online Studies</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-the-art-of-audio-branding-creating-iconic-podcast-cover-imagery/"><u>2024 Approved The Art of Audio Branding Creating Iconic Podcast Cover Imagery</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-plan-for-building-your-ideal-youtube-playlist-for-2024/"><u>The Ultimate Plan for Building Your Ideal YouTube Playlist for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-create-motion-effect-with-path-blur-in-photoshop/"><u>New 2024 Approved Create Motion Effect with Path Blur In Photoshop</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boost-views-with-your-own-youtube-thumbnail-design-for-2024/"><u>[New] Boost Views with Your Own YouTube Thumbnail Design for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Duplicitous DMs: Verify User Authenticity"
-date: 2024-06-22 17:49:58
-updated: 2024-06-23 11:31:59
+date: 2024-06-25T13:46:09.050Z
+updated: 2024-06-26T13:46:09.050Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/4615a0815eaaaa9b22c58e4b20231144a4af2f1f5
 
  Sometimes, people simply steal what they find or like. A lot of fake (or bot) accounts use celebrity shots or stock photos. But some users take a more personal route, finding it more advantageous to steal photos from the average Joe, making the impersonation less obvious.
 
- It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for[scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
+ It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for [scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
 
  There were cases where the impersonation victims knew their perpetrators. The offenders had a personal vendetta against the victim, so they made a fake account. These accounts are often more convincing as the impersonator may have access to sensitive information about family, friends, and demographics that make the profiles much more believable.
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/4615a0815eaaaa9b22c58e4b20231144a4af2f1f5
 
 ![instructions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instructions-1.png)
 
- Social media administrators rightly take this seriously. Even[Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
+ Social media administrators rightly take this seriously. Even [Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
 
  Fortunately, removing fake profiles can be a relatively simple process.
 
@@ -100,3 +100,24 @@ thumbnail: https://thmb.techidaily.com/4615a0815eaaaa9b22c58e4b20231144a4af2f1f5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/crafting-a-comprehensive-guide-to-social-account-linking-for-xbox/"><u>Crafting a Comprehensive Guide to Social Account Linking for Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-media-spotting-fb-hacks/"><u>Protecting Privacy on Social Media: Spotting FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/count-of-friends-liking-you-online/"><u>Count of Friends Liking You Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-likes-to-leadership-social-media-and-workplace-success/"><u>From Likes to Leadership: Social Media and Workplace Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-page-personalize-the-url-notify-friends/"><u>Revamp Your Page: Personalize the URL, Notify Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-evolving-meanings-of-facebooks-page-names/"><u>Decoding the Evolving Meanings of Facebook's Page Names</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-maximizing-visibility-with-instagrams-highlight-system-for-2024/"><u>[Updated] Maximizing Visibility with Instagram's Highlight System for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-ipad-video-editor-rankings-top-5-contenders/"><u>New In 2024, IPad Video Editor Rankings Top 5 Contenders</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-quick-solutions-for-the-crashy-windows-11-photos-app/"><u>[New] In 2024, Quick Solutions for the Crashy Windows 11 Photos App</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-figuring-out-proper-ways-to-play-a-video-in-slow-motion-on-iphone/"><u>Updated In 2024, Figuring Out Proper Ways to Play a Video in Slow Motion on iPhone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-vivocuts-new-capabilities/"><u>In 2024, A Comprehensive Guide to Mastering VivoCut's New Capabilities</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-vivo-v29e-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Vivo V29e Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-switching-up-your-iphones-call-sound-effectively/"><u>In 2024, Switching up Your iPhone's Call Sound Effectively</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-comprehensive-hulu-recording-guide-for-pcmacios-devices-for-2024/"><u>[Updated] Comprehensive Hulu Recording Guide for PC/Mac/iOS Devices for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harnessing-light-and-motion-for-gopro-time-lapse-magic/"><u>In 2024, Harnessing Light and Motion for GoPro Time-Lapse Magic</u></a></li>
+</ul></div>

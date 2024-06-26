@@ -1,7 +1,7 @@
 ---
 title: Who Spoke in Support During 60 Minutes Report?
-date: 2024-06-21 15:27:14
-updated: 2024-06-23 11:53:35
+date: 2024-06-25T13:46:52.385Z
+updated: 2024-06-26T13:46:52.385Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
 
 ## Who Spoke in Support During 60 Minutes Report?
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,23 @@ thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daa
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/oculus-quests-account-privacy-meta-or-fb/"><u>Oculus Quest's Account Privacy: Meta or FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-viewers-like-never-before-a-step-by-step-guide-to-creating-viral-facebook-reels/"><u>Engaging Viewers Like Never Before: A Step-by-Step Guide to Creating Viral Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-pondering-social-unsubscriptions/"><u>A Comprehensive Guide to Pondering Social Unsubscriptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-completely-removing-fb-alerts/"><u>Tips for Completely Removing Fb Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-channels-in-social-group-dynamics/"><u>The Role of Channels in Social Group Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-obstacles-in-receiving-facebook-login-verification/"><u>Overcoming Obstacles in Receiving Facebook Login Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-will-fb-proceed-with-giphy-disintegration/"><u>Reconsidering Ties: Will FB Proceed With Giphy Disintegration?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/revolutionizing-podcast-branding-with-ai-naming-generators-for-2024/"><u>Revolutionizing Podcast Branding with AI Naming Generators for 2024</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-tecno-spark-10-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Tecno Spark 10 5G Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/compendium-classification-of-camera-types-for-videos/"><u>Compendium  Classification of Camera Types for Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-guide-to-trending-hashtags-on-instagram/"><u>[New] In 2024, The Ultimate Guide to Trending Hashtags on Instagram</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-capture-and-save-windows-11-screens-effortlessly/"><u>[Updated] In 2024, Capture & Save Windows 11 Screens Effortlessly</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-professional-methods-for-excising-auditory-elements-from-mp4-formats/"><u>New Professional Methods for Excising Auditory Elements From MP4 Formats</u></a></li>
+<li><a href="https://change-location.techidaily.com/detailed-guide-of-ispoofer-for-pogo-installation-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>Detailed guide of ispoofer for pogo installation On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/no-payment-necessary-download-farewell-soundtracks/"><u>No Payment Necessary  Download Farewell Soundtracks</u></a></li>
+</ul></div>

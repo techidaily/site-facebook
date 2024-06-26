@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Postponements: What's Behind Oculus Quest III Delay?"
-date: 2024-06-21 19:16:52
-updated: 2024-06-23 11:20:21
+date: 2024-06-25T13:59:26.740Z
+updated: 2024-06-26T13:59:26.740Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/445acff3cb96c7fdb86bf94a45c03c504df7c348a
 
 ## There Won't Be an Oculus Pro in 2021
 
- In a recent Twitter Spaces Q&A (transcribed by[Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
+ In a recent Twitter Spaces Q&A (transcribed by [Upload VR](https://uploadvr.com/facebook-oculus-quest-pro/) ), Andrew Bosworth, Oculus Vice President, said:
 
 > People are also asking about the Quest 3, which doesn’t exist yet, and everyone who is listening to us who is a reporter there isn’t a Quest 3, there’s only a Quest 2...
 
- You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that[Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
+ You can't really get much clearer than that. For now, the focus is on the Oculus Quest 2 (and the Quest 1, to a degree). Given that [Facebook has only just revealed the Air Link connectivity for Quest 2](https://www.makeuseof.com/oculus-quest-2-wireless-air-link/) , it makes sense that the most recent iteration of the VR platform is Facebook's focus.
 
 ## Will There Ever Be an Oculus Quest 3?
 
@@ -60,3 +60,27 @@ thumbnail: https://thmb.techidaily.com/445acff3cb96c7fdb86bf94a45c03c504df7c348a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-vpns-revolutionized-online-security/"><u>How VPNs Revolutionized Online Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-lost-facebook-credentials-no-codes-needed/"><u>Resetting Lost Facebook Credentials, No Codes Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/safety-vs-entertainment-balancing-risks-with-quizzes/"><u>Safety Vs. Entertainment: Balancing Risks with Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upsurge-is-it-nearing-climb-out/"><u>Facebook's Upsurge: Is It Nearing Climb-Out?</u></a></li>
+<li><a href="https://facebook.techidaily.com/accrue-badges-by-purchasing-meta-verification/"><u>Accrue Badges by Purchasing Meta Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-consumers-with-companies-via-facebook-innovation/"><u>Connecting Consumers with Companies via Facebook Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-controls-facebook-currently/"><u>Who Controls Facebook Currently?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-platforms-share-instagram-reels-with-facebook-audience/"><u>Connecting Platforms: Share Instagram Reels with Facebook Audience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-building-an-online-empire-ramp-up-video-views/"><u>[Updated] Building an Online Empire  Ramp Up Video Views</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/melodious-background-elements-for-creatives-digital-broadcasts/"><u>Melodious Background Elements for Creatives Digital Broadcasts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-interactive-tips-youtube-to-facebook-shareability/"><u>[New] 2024 Approved  Interactive Tips  YouTube to Facebook Shareability</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-elevate-your-videos-how-to-apply-ken-burns-effect-in-final-cut-pro/"><u>2024 Approved Elevate Your Videos How to Apply Ken Burns Effect in Final Cut Pro</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-shake-it-off-how-to-stabilize-unsteady-video-in-after-effects/"><u>New 2024 Approved Shake It Off How to Stabilize Unsteady Video in After Effects</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-from-novice-to-star-the-5-best-lip-sync-apps-for-creating-engaging-videos/"><u>Updated In 2024, From Novice to Star The 5 Best Lip Sync Apps for Creating Engaging Videos</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/quick-and-easy-video-edits-a-gopro-quik-tutorial-for-macbook-users/"><u>Quick and Easy Video Edits A GoPro Quik Tutorial for MacBook Users</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-game-recorder-mastery-top-5-techniques-for-windows-11-for-2024/"><u>[New] Game Recorder Mastery  Top 5 Techniques for Windows 11 for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/this-article-can-help-you-know-how-to-crop-video-in-after-effects-and-on-the-alternative-by-using-wondershare-filmora-i-know-that-it-may-seem-confusing-to-c/"><u>This Article Can Help You Know How to Crop Video in After Effects and on the Alternative by Using Wondershare Filmora. I Know that It May Seem Confusing to Compare These Two at First. But, Ill Provide an Explanation to Get the Cropped Video that You Want</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-12-prominent-xiaomi-redmi-13c-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Xiaomi Redmi 13C Fingerprint Not Working Solutions</u></a></li>
+</ul></div>

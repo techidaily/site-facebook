@@ -1,7 +1,7 @@
 ---
 title: Did Facebook Expose Your Contact Info?
-date: 2024-06-22 15:48:56
-updated: 2024-06-23 12:53:31
+date: 2024-06-25T14:37:14.593Z
+updated: 2024-06-26T14:37:14.593Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,9 @@ thumbnail: https://thmb.techidaily.com/543a8e6d7f06f3d9129829edd8982dbf9c6a6048e
 
  According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
 
- Back in 2018, unknown entities[accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide[third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
 
- Alon Gal, the chief technology officer of the cybercrime intelligence firm[Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
 
 > "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
 
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/543a8e6d7f06f3d9129829edd8982dbf9c6a6048e
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected
-
-![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -77,13 +75,11 @@ thumbnail: https://thmb.techidaily.com/543a8e6d7f06f3d9129829edd8982dbf9c6a6048e
 
  If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
 
- Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is[to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts
-
-![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 
@@ -126,3 +122,26 @@ thumbnail: https://thmb.techidaily.com/543a8e6d7f06f3d9129829edd8982dbf9c6a6048e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bypassing-social-medias-hidden-punishments-shadowbans/"><u>Bypassing Social Media's Hidden Punishments (Shadowbans)</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-neighborhoods-and-who-can-use-it/"><u>What Is Facebook Neighborhoods and Who Can Use It?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-major-technological-gaffes-of-22/"><u>Unraveling the Major Technological Gaffes of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-the-metaverse-an-in-depth-analysis/"><u>Facebook & The Metaverse: An In-Depth Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-commercial-success-story-with-5-igfb-strategies/"><u>Crafting a Commercial Success Story with 5 IG/FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-world-of-ray-ban-stories-through-facebook/"><u>Discovering the World of Ray-Ban Stories Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-becoming-an-illustration-maestro-best-mac-free-tools/"><u>[Updated] Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-avoid-breaches-the-pre-upload-guide-to-copyright-on-tiktok/"><u>[New] Avoid Breaches  The Pre-Upload Guide to Copyright on TikTok</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-secure-every-moment-on-fb-with-these-video-downloader-tools/"><u>[New] In 2024, Secure Every Moment on FB with These Video Downloader Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-the-science-of-youtube-success-perfect-thumbnails/"><u>In 2024, The Science of YouTube Success  Perfect Thumbnails</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/elemental-concepts-in-kinetic-design-workflow/"><u>Elemental Concepts in Kinetic Design Workflow</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-first-foray-into-fashionable-mac-made-videos-for-youtube/"><u>[Updated] In 2024, First Foray Into Fashionable Mac-Made Videos for YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-a70-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Itel A70 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-making-magic-transforming-ordinary-posts-into-social-sensations-for-2024/"><u>[Updated] Making Magic  Transforming Ordinary Posts Into Social Sensations for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713963694537-new-if-you-want-to-keep-your-memories-in-form-of-video-or-slideshow-then-keynote-is-great-app-for-you-it-has-amazing-and-powerful-tools-which-give-your-slid/"><u>New If You Want to Keep Your Memories in Form of Video or Slideshow Then Keynote Is Great App for You. It Has Amazing and Powerful Tools Which Give Your Slideshow a Great and Beautiful Look for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-most-attractive-game-ready-gaming-equipment-for-under-100-for-2024/"><u>The Most Attractive Game-Ready Gaming Equipment for Under $100 for 2024</u></a></li>
+</ul></div>

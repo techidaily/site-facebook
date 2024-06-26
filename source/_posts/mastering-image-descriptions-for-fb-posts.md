@@ -1,7 +1,7 @@
 ---
 title: Mastering Image Descriptions for FB Posts
-date: 2024-06-20 13:56:10
-updated: 2024-06-23 11:50:57
+date: 2024-06-25T13:52:53.028Z
+updated: 2024-06-26T13:52:53.028Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/90ad0e184ba79f95e662dd6bac421c2714531f47a
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App
-
-![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -56,13 +54,11 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web
-
-![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
-1. Log in to[Facebook](https://www.facebook.com) on your browser.
+1. Log in to [Facebook](https://www.facebook.com) on your browser.
 2. Click on**Photo/Video** at the top of your Newsfeed or timeline.
 3. Select the desired photo.
 4. Hover over the photo and click**Edit** .
@@ -72,9 +68,7 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded
-
-![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -114,3 +108,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/overcoming-obstacles-in-receiving-facebook-login-verification/"><u>Overcoming Obstacles in Receiving Facebook Login Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfriendly-book-how-to-break-up-with-facebook-friends/"><u>The Unfriendly Book: How to Break Up with Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-social-sphere-oversight-with-facebooks-modern-moderators/"><u>Strategic Social Sphere Oversight with Facebook's Modern Moderators</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footsteps-lead-to-pages-groups-in-fb/"><u>Digital Footsteps Lead to Pages, Groups in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-emergence-as-a-formidable-competitor-to-facebook/"><u>TikTok's Emergence as a Formidable Competitor to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-strategies-and-successes-at-facebook/"><u>Sheryl’s Strategies and Successes at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/best-animation-tools-in-podcast-production-2023/"><u>Best Animation Tools in Podcast Production 2023</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-unhindered-movie-enjoyment-no-cost-video-player-pcmac/"><u>[New] In 2024, Unhindered Movie Enjoyment - No Cost VIDEO Player (PC/Mac)</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/zero-watermark-total-freedom-best-free-online-video-editors-for-2024/"><u>Zero Watermark, Total Freedom Best Free Online Video Editors for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-ultimate-guide-to-tiktok-income-predictors-for-2024/"><u>[Updated] The Ultimate Guide to TikTok Income Predictors for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-crafting-traditional-eastern-abodes-in-mc-world/"><u>[New] Crafting Traditional Eastern Abodes in MC World</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-honor-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Honor ?</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-tiktok-watermark-remover-reviews-find-the-best-one-for-you/"><u>Updated TikTok Watermark Remover Reviews Find the Best One for You</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/unplugged-joy-a-list-of-great-offline-ipad-games/"><u>Unplugged Joy  A List of Great Offline iPad Games</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-windows-1110-video-editors-alternatives-to-imovie-youll-love-for-2024/"><u>Updated Windows 11/10 Video Editors Alternatives to iMovie Youll Love for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-honor-x50-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Honor X50 Phone That Is Locked | Dr.fone</u></a></li>
+</ul></div>

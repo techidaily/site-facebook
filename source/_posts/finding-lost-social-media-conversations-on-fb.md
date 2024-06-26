@@ -1,7 +1,7 @@
 ---
 title: Finding Lost Social Media Conversations on FB
-date: 2024-06-20 15:56:20
-updated: 2024-06-23 12:51:58
+date: 2024-06-25T13:52:40.233Z
+updated: 2024-06-26T13:52:40.233Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/b4646e6c7dd57e63be8305e5fc613622e6d7e1913
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/founding-a-connected-group-in-the-facebook-realm/"><u>Founding a Connected Group in the Facebook Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-prudent-approach-to-user-removal-from-your-facebook-page/"><u>A Prudent Approach to User Removal From Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-digital-frontiers-with-meta-drops-trial-run/"><u>Exploring Digital Frontiers with Meta Drops Trial Run</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-of-storytelling-creating-compelling-reels-for-your-business-on-facebook/"><u>The Science of Storytelling: Creating Compelling Reels for Your Business on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oppo-a1-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Oppo A1 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-spin-the-wheel-of-viewers-how-to-stream-round-the-clock-videos-on-youtube/"><u>[Updated] Spin the Wheel of Viewers  How to Stream Round-the-Clock Videos on YouTube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-infinix-smart-8-hd-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Infinix Smart 8 HD Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-personalizing-communication-sounds-a-comprehensive-guide-for-whatsapp-ringtone-lovers/"><u>[Updated] Personalizing Communication Sounds  A Comprehensive Guide for WhatsApp Ringtone Lovers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-speedy-steps-to-save-slideshows/"><u>[New] 2024 Approved  Speedy Steps to Save Slideshows</u></a></li>
+<li><a href="https://techidaily.com/remove-the-lock-of-sony-xperia-1-v-by-drfone-android-unlock-android-unlock/"><u>Remove the lock of Sony Xperia 1 V</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-spotlight-websites-offering-youtube-branding-collaborations/"><u>[Updated] Spotlight  Websites Offering YouTube Branding Collaborations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-swift-sharing-twitter-to-whatsapp-videos/"><u>[Updated] In 2024, Swift Sharing  Twitter to WhatsApp Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oppo-a78-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Oppo A78 5G Lock Screen Clock in Seconds</u></a></li>
+</ul></div>

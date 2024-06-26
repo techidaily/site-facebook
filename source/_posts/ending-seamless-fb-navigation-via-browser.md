@@ -1,7 +1,7 @@
 ---
 title: Ending Seamless FB Navigation via Browser
-date: 2024-06-20 23:38:54
-updated: 2024-06-23 10:47:27
+date: 2024-06-25T14:07:08.736Z
+updated: 2024-06-26T14:07:08.736Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,9 @@ Close
 
 Close
 
- There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also[opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
+ There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also [opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
 
- You can also[use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
+ You can also [use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
@@ -82,3 +82,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discovering-potential-partners-in-a-click-facebooks-innovations-for-singles/"><u>Discovering Potential Partners in a Click: Facebook’s Innovations for Singles</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-taking-leisinasse-using-facebook-timer/"><u>Digital Harmony: Taking Leisinasse Using Facebook Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-navigation-of-facebooks-transparency-for-users/"><u>Step-by-Step Navigation of Facebook's Transparency for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/sleuthing-in-the-social-web-unveiling-phony-accounts/"><u>Sleuthing in the Social Web: Unveiling Phony Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-virtual-world-be-selective-dont-accept-everyone/"><u>Safeguarding Your Virtual World: Be Selective, Don't Accept Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-fabricated-the-metaverses-visionary-path/"><u>The Future Fabricated: The Metaverse's Visionary Path</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-privacy-centric-explore-instagram-stories-anon-on-your-devices/"><u>[Updated] Privacy-Centric  Explore Instagram Stories Anon on Your Devices</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-joyful-jams-the-funniest-musical-mashups/"><u>2024 Approved  Joyful Jams  The Funniest Musical Mashups</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-photo-masters-list-the-best-6-4k-dslr-cameras-today/"><u>2024 Approved  Photo Masters List  The Best 6 4K DSLR Cameras Today</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-vivo-s17-pro-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Vivo S17 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-xiaomi-redmi-note-12-4g-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Xiaomi Redmi Note 12 4G to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-oppo-reno-8t-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Oppo Reno 8T</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-5-effective-ways-of-resizing-your-igtv-videos-for-2024/"><u>[Updated] 5 Effective Ways of Resizing Your IGTV Videos for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-the-ultimate-guide-to-configuring-and-analyzing-facebooks-instream-ads/"><u>2024 Approved  The Ultimate Guide to Configuring & Analyzing Facebook's Instream Ads</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-secure-success-in-win11-meetings-with-advanced-zooming-techniques/"><u>[New] Secure Success in Win11 Meetings with Advanced Zooming Techniques</u></a></li>
+</ul></div>

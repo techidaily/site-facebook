@@ -1,7 +1,7 @@
 ---
 title: "A Plea to Facebook and Google: Strengthen Your Fight Against Fake Ads"
-date: 2024-06-22 12:14:23
-updated: 2024-06-23 12:30:30
+date: 2024-06-25T14:20:15.136Z
+updated: 2024-06-26T14:20:15.136Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/afa50b24e25ed08989c229ae73d3b233da6ab60b7
 
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
- The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
+ The report by [Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
 
 Adam French, Consumer Rights Expert at Which?, said:
 
@@ -66,3 +66,26 @@ Facebook further stated:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-on-social-networking-sites-fb/"><u>Ensuring Privacy on Social Networking Sites (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-catchy-posts-for-higher-fb-engagement/"><u>The Science Behind Catchy Posts for Higher FB Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-2004-present-adaptations-and-growth/"><u>Facebook's Journey: 2004-Present Adaptations and Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-location-visible-on-fb-chat/"><u>Making Your Location Visible on FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-connectivity-expansion-adding-new-contacts-to-fb-messenger/"><u>Social Connectivity Expansion: Adding New Contacts to FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-engaging-job-posts-on-facebook/"><u>Creating Engaging Job Posts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-use-of-facebook-in-event-scheduling/"><u>Evaluating the Use of Facebook in Event Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/proxy-pages-or-real-people-unmask-online-suspects/"><u>Proxy Pages or Real People? Unmask Online Suspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-red-flags-how-to-disable-pages-on-facebook/"><u>Eliminating Red Flags: How to Disable Pages on Facebook</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-what-to-look-for-in-audio-editor-for-mac/"><u>2024 Approved What to Look for in Audio Editor for Mac?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/template-tips-for-efficient-and-effective-youtube-intros-for-2024/"><u>Template Tips for Efficient and Effective YouTube Intros for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-best-screens-for-playstation-5-gamers-for-2024/"><u>TOP 5 Best Screens for PlayStation 5 Gamers for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-optimize-your-video-library-youtubes-to-dailymotion-directly/"><u>[New] Optimize Your Video Library  YouTubes to Dailymotion Directly</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-top-10-engaging-mobile-idle-puzzles/"><u>[Updated] In 2024, Top 10 Engaging Mobile Idle Puzzles</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-here-you-will-learn-how-to-add-a-realistic-fire-effect-using-wondershare-filmora-that-will-help-to-boost-your-channel-and-decorate-your-youtube-chan/"><u>Updated Here, You Will Learn How to Add a Realistic Fire Effect Using Wondershare Filmora. That Will Help to Boost Your Channel and Decorate Your YouTube Channel with Creative and Unique Effects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-realme-v30t-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Realme V30T Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/surfers-choice-ultimate-cam-tech-review-2023-for-2024/"><u>Surfer’s Choice  Ultimate Cam Tech Review 2023 for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-selection-budget-friendly-4k-cameras-(1k/"><u>[New] Ultimate Selection  Budget-Friendly 4K Cameras <$1K</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-tasty-trail-10-viral-eats-on-social-media/"><u>[Updated] 2024 Approved  The Tasty Trail  10 Viral Eats on Social Media</u></a></li>
+</ul></div>

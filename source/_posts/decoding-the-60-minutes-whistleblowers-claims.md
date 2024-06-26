@@ -1,7 +1,7 @@
 ---
 title: Decoding the 60 Minutes Whistleblower's Claims
-date: 2024-06-20 23:26:47
-updated: 2024-06-23 12:17:38
+date: 2024-06-25T14:41:49.178Z
+updated: 2024-06-26T14:41:49.178Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
 
 ## Decoding the 60 Minutes Whistleblower's Claims
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,27 @@ thumbnail: https://thmb.techidaily.com/d386a416e48c7407fcb7aac43bcc48ab905a8aa1d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/dive-into-the-world-of-virtual-shopping-on-fb-fridays/"><u>Dive Into the World of Virtual Shopping on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaverse-and-virtual-reality-highlighting-6-pivotal-contrasts/"><u>Decoding Metaverse and Virtual Reality: Highlighting 6 Pivotal Contrasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-why-some-posts-vanish-from-fb-timelines/"><u>In-Depth: Why Some Posts Vanish From Fb Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-messenger-encrypted-or-not/"><u>FB Messenger: Encrypted or Not?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-transform-your-online-nickname-on-facebook-effectively/"><u>How to Transform Your Online Nickname on Facebook Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-your-online-admiring-circle/"><u>Exploring Your Online Admiring Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148962192-which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate!</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messenger-a-fortress-of-privacy/"><u>Is FB Messenger a Fortress of Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-llife-reemerge-and-thrive-amidst-the-new-age-of-metaversal-exploration/"><u>Can LLife Reemerge and Thrive Amidst The New Age of Metaversal Exploration?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-5-most-recommended-video-platforms-beyond-youtube/"><u>The 5 Most Recommended Video Platforms Beyond YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/1715758899630-how-to-capture-your-nintendo-switch-game-video-for-2024/"><u>How to Capture Your Nintendo Switch Game Video for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-importance-of-sound-tracks-infused-with-mystery-in-creating-award-winning-film-compositions-for-2024/"><u>The Importance of Sound Tracks Infused with Mystery in Creating Award-Winning Film Compositions for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-years-must-see-makeup-vloggers-on-the-web/"><u>[Updated] Year's Must-See Makeup Vloggers on the Web</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-innovative-communication-how-to-preserve-your-discussions-using-google-voice/"><u>2024 Approved Innovative Communication How to Preserve Your Discussions Using Google Voice</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-essential-guide-to-top-hexacopter-models/"><u>[New] 2024 Approved  Essential Guide to Top Hexacopter Models</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-oppo-a38-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Oppo A38 Black and White | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-sony-xperia-1-v-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Sony Xperia 1 V Phone Hassle-Free</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock From iPhone 13 mini?</u></a></li>
+</ul></div>

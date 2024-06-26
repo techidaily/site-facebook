@@ -1,7 +1,7 @@
 ---
 title: "Unraveling: The Genesis Day on Facebook for Myself"
-date: 2024-06-21 13:35:56
-updated: 2024-06-23 11:37:25
+date: 2024-06-25T14:04:04.086Z
+updated: 2024-06-26T14:04:04.086Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/inhibit-people-you-may-know-alerts-on-social-network/"><u>Inhibit 'People You May Know' Alerts on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-deletion-on-facebook/"><u>Mastering Group Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-facebooks-defense-the-activation-journey/"><u>Embracing Facebook's Defense: The Activation Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-growth-on-social-networking-sites-a-guide/"><u>Professional Growth on Social Networking Sites: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-departure-roadmap-top-priorities-before-deleting-fb/"><u>The Social Media Departure Roadmap: Top Priorities Before Deleting FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-webs-benefits-the-top-7-societal-upsurges/"><u>Social Web’s Benefits: The Top 7 Societal Upsurges</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-launch-your-youtube-presence-step-by-step-guide/"><u>2024 Approved  Launch Your YouTube Presence  Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-elevate-your-social-media-impact-secrets-unveiled-in-the-best-facebook-bios/"><u>In 2024, Elevate Your Social Media Impact  Secrets Unveiled in the Best Facebook Bios</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-adding-value-to-visuals-implementing-watermarks-in-instagram/"><u>[New] 2024 Approved  Adding Value to Visuals  Implementing Watermarks in Instagram</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/whats-the-best-10-photo-animator-templates-that-bring-your-images-to-life/"><u>Whats the Best 10 Photo Animator Templates That Bring Your Images to Life?</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-ultimate-os-x-mavericks-video-editors-handbook/"><u>Updated In 2024, The Ultimate OS X Mavericks Video Editors Handbook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-rapid-srt-to-txt-transformation-techniques/"><u>In 2024, Mastering Rapid SRT to TXT Transformation Techniques</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/jump-cut-like-a-pro-expert-techniques-for-final-cut-pro-x-editors/"><u>Jump Cut Like a Pro Expert Techniques for Final Cut Pro X Editors</u></a></li>
+</ul></div>

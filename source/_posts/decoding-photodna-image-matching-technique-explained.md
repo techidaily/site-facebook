@@ -1,7 +1,7 @@
 ---
 title: "Decoding PhotoDNA: Image Matching Technique Explained"
-date: 2024-06-22 23:15:33
-updated: 2024-06-23 11:48:19
+date: 2024-06-25T14:26:46.212Z
+updated: 2024-06-26T14:26:46.212Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,24 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/concealed-contacts-on-facebook-platform/"><u>Concealed Contacts on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-erase-replies-on-social-media-feeds/"><u>Steps to Erase Replies on Social Media Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-landscapes-reimagined-by-facebook/"><u>Networking Landscapes Reimagined by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-visionary-leadership-in-the-tech-sphere/"><u>Sheryl's Visionary Leadership in the Tech Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-memorable-with-fb-images-on-whatsapp/"><u>Making Friends Memorable with FB Images on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/checklist-for-identifying-fb-enthusiasts/"><u>Checklist for Identifying FB Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-on-confirming-facebooks-online-presence/"><u>Quick Tips on Confirming Facebook’s Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-pithy-posting-a-list-of-30-key-smarts-for-online-success/"><u>The Power of Pithy Posting: A List of 30 Key SMARTs for Online Success</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-sensation-skills-making-a-buzz-on-your-profiles-wall/"><u>[Updated] In 2024, Social Sensation Skills  Making a Buzz on Your Profile's Wall</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-discover-9-affordable-online-editors-for-youtube/"><u>[Updated] 2024 Approved  Discover 9 Affordable Online Editors for YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-proficiently-follow-facebook-live-updates-for-2024/"><u>How to Proficiently Follow Facebook Live Updates for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/2024-approved-downloadinstallregisteruninstall-wondershare-virbo/"><u>2024 Approved Download/Install/Register/Uninstall | Wondershare Virbo</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inside-out-with-t5-ultimate-sport-and-action-recorder/"><u>Inside Out with T5 - Ultimate Sport and Action Recorder</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-youtube-live-selling-boost-your-sales-with-these-tips/"><u>New 2024 Approved YouTube Live Selling Boost Your Sales With These Tips</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-reposting-photosvideos-a-users-manual/"><u>[New] Reposting Photos/Videos  A User's Manual</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/enhancing-iphone-image-clarity-and-focus/"><u>Enhancing iPhone Image Clarity and Focus</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/right-beginnings-on-youtube-launching-and-revenue-strategies-for-2024/"><u>[New] Bright Beginnings on YouTube  Launching and Revenue Strategies for 2024</u></a></li>
+</ul></div>

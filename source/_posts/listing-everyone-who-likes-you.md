@@ -1,7 +1,7 @@
 ---
 title: Listing Everyone Who Likes You
-date: 2024-06-20 14:44:15
-updated: 2024-06-23 12:41:34
+date: 2024-06-25T13:59:06.982Z
+updated: 2024-06-26T13:59:06.982Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/b41dfc1747c954c2591d35270b4a20079e5707f86
 
 ## How to See Who Follows You on Facebook on Mobile
 
- The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
+ The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have [followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
@@ -56,7 +56,7 @@ Close
 
  Moreover, you won't get the option to check your Facebook followers if you don't have any. Consequently, you won't see your followers even if you've followed the above steps, as there are none to see.
 
- You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to[switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
+ You may also not get this option if your Facebook account is new, as you likely don't have any followers yet. Or you might need to [switch to a different Facebook account](https://www.makeuseof.com/tag/quickly-switch-facebook-profiles/) .
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
@@ -116,3 +116,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-impact-of-renaming-the-social-media-news-feed-as-just-feed/"><u>The Impact of Renaming the Social Media News Feed as Just 'Feed'</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-your-facebook-account-when-you-cant-log-in/"><u>How to Recover Your Facebook Account When You Can't Log In</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-fb-pursuit-through-off-facebook-settings/"><u>Defeating FB Pursuit Through Off-Facebook Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-to-rhetoric-ai-transforms-words-in-pictures/"><u>Reality to Rhetoric: AI Transforms Words in Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-the-clutter-from-your-connection-space/"><u>Clearing the Clutter From Your Connection Space</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevate-your-youtube-content-with-7-premium-free-audio-sounds-for-2024/"><u>Elevate Your YouTube Content With 7 Premium, Free Audio Sounds for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-becoming-a-master-at-creating-flattering-discord-pfps/"><u>[Updated] 2024 Approved  Becoming a Master at Creating Flattering Discord PFPs</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-echo-video-storyteller/"><u>2024 Approved  Echo Video Storyteller</u></a></li>
+<li><a href="https://article-helps.techidaily.com/explore-creativity-the-top-8-iphone-drawing-apps-uncovered-for-2024/"><u>Explore Creativity  The Top 8 iPhone Drawing Apps Uncovered for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unveiling-secrets-how-to-save-your-google-conversations-for-2024/"><u>[New] Unveiling Secrets  How to Save Your GooGle Conversations for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-favorite-list-ideal-mac-devices-for-video-grabbing/"><u>[New] Favorite List  Ideal Mac Devices for Video Grabbing</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unlock-final-cut-pros-full-potential-90-day-free-trial-for-2024/"><u>Updated Unlock Final Cut Pros Full Potential 90-Day Free Trial for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-dual-watch-dynamics-navigating-youtube-in-parallel/"><u>[New] Dual-Watch Dynamics  Navigating YouTube in Parallel</u></a></li>
+</ul></div>

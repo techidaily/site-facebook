@@ -1,7 +1,7 @@
 ---
 title: "US Regulatory Shift: A New Era for Big Tech Companies"
-date: 2024-06-20 20:44:42
-updated: 2024-06-23 10:58:52
+date: 2024-06-25T14:09:32.486Z
+updated: 2024-06-26T14:09:32.486Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/f0b667ebcfe4598116d4b6654429dec8091fa0451
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-local-groups-and-usage-policies/"><u>Exploring Facebook's Local Groups & Usage Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-your-privacy-intact-on-facebook-albums/"><u>How to Keep Your Privacy Intact on Facebook Albums</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-imposes-fines-on-spreading-falsehoods/"><u>Facebook Imposes Fines on Spreading Falsehoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-facebook-today-memories/"><u>Harnessing the Power of Facebook Today Memories</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-strategies-for-memorable-youtube-closings/"><u>[Updated] In 2024, Essential Strategies for Memorable YouTube Closings</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-playscreen-media-app-review/"><u>2024 Approved  PlayScreen Media App Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-social-media-savant-writes-on-mastering-brand-promotion-for-2024/"><u>[Updated] The Social Media Savant' Writes on Mastering Brand Promotion for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-playbook-skyrocket-your-youtube-shorts-traffic-and-engagement-for-2024/"><u>The Ultimate Playbook  Skyrocket Your YouTube Shorts Traffic and Engagement for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-prime-chart-to-screen-recorder/"><u>[New] Prime Chart to Screen Recorder</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-honor-magic-v2-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Honor Magic V2 Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-se-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone SE Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-free-filmora-13-download-video-editing-software/"><u>New 2024 Approved Free Filmora 13 Download Video Editing Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-ultimate-tactics-to-record-lol-clashes-for-2024/"><u>[Updated] Ultimate Tactics to Record LOL Clashes for 2024</u></a></li>
+</ul></div>

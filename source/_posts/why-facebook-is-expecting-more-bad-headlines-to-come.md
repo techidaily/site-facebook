@@ -1,7 +1,7 @@
 ---
 title: Why Facebook Is Expecting More Bad Headlines to Come
-date: 2024-06-20 15:19:17
-updated: 2024-06-23 11:10:41
+date: 2024-06-25T14:15:48.553Z
+updated: 2024-06-26T14:15:48.553Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/d765545ba359efe066eea79e8d50579ac2c2c25cd
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,24 @@ thumbnail: https://thmb.techidaily.com/d765545ba359efe066eea79e8d50579ac2c2c25cd
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impending-shake-up-meta-vs-european-social-media-giants/"><u>The Impending Shake-Up: Meta Vs. European Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-like-or-not-to-like/"><u>Social Media: To Like or Not to Like?</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-expands-to-sound-based-social-interaction/"><u>Facebook Expands to Sound-Based Social Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-the-significant-date-of-my-digital-enlightenment-facebook/"><u>Seeking the Significant Date of My Digital Enlightenment: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-facebooks-missing-verification-code-solution/"><u>Troubleshooting: Facebook's Missing Verification Code Solution</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713951558239-time-lapse-videos-play-an-important-part-in-videography-if-you-want-to-start-video-shooting-then-you-shouldnt-miss-time-lapse-video-this-article-will-show-y/"><u>Time Lapse Videos Play an Important Part in Videography. If You Want to Start Video Shooting, Then You Shouldnt Miss Time Lapse Video. This Article Will Show You some Ideas over This for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-mastering-instagrams-puzzle-posts-for-maximum-engagement-for-2024/"><u>[New] Mastering Instagram's Puzzle Posts for Maximum Engagement for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unlocking-live-streams-rokus-path-to-fb-live/"><u>In 2024, Unlocking Live Streams  Roku's Path to FB LIVE</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-finest-5-android-image-boosters/"><u>2024 Approved  The Finest 5 Android Image Boosters</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-open-source-options-is-vlc-bound-to-beat-mpc/"><u>[New] Exploring Open-Source Options  Is VLC Bound to Beat MPC?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-infinix-hot-40-lock-screen-password-by-drfone-android/"><u>How to Reset your Infinix Hot 40 Lock Screen Password</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-note-30-vip-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Note 30 VIP to New Android? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-how-to-manage-microphone-background-noises-guide-to-reducing-noises/"><u>In 2024, How To Manage Microphone Background Noises? Guide To Reducing Noises</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-refine-and-revamp-your-videos-using-youtube-studio-tools/"><u>2024 Approved  Refine and Revamp Your Videos Using YouTube Studio Tools</u></a></li>
+</ul></div>

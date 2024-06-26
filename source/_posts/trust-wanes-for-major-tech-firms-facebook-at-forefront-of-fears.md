@@ -1,7 +1,7 @@
 ---
 title: Trust Wanes for Major Tech Firms; Facebook at Forefront of Fears
-date: 2024-06-22 11:17:44
-updated: 2024-06-23 11:18:29
+date: 2024-06-25T14:29:21.959Z
+updated: 2024-06-26T14:29:21.959Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
 
 ![person pointing on paper with charts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/survey.jpg)
 
- The[Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
+ The [Washington Post](https://context-cdn.washingtonpost.com/notes/prod/default/documents/bad5bba7-476c-4c62-af50-89b25ee900db/note/806258bc-ed60-4ef6-a706-b8291639b0a3.#page=1) conducted the poll in November 2021 across a random national sample of 1,122 adult Americans. 92% of the individuals surveyed say they use the internet almost constantly, several times a day or at least once daily.
 
  79% of users say tech companies do not provide enough control over how their services track and use information. 64% favor greater government regulation over how internet companies handle privacy issues.
 
@@ -84,3 +84,26 @@ thumbnail: https://thmb.techidaily.com/1d9ebf5bb7f01c1686988d2dbf12477c216dfe196
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/network-nuggets-unveiling-this-years-prime-social-media-gems/"><u>Network Nuggets: Unveiling This Year's Prime Social Media Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-your-chances-with-effective-job-listings-online/"><u>Maximizing Your Chances with Effective Job Listings Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-passage-navigating-loved-ones-facebook-after-death-process/"><u>Safe Passage: Navigating Loved Ones' Facebook After Death Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-webs-benefits-the-top-7-societal-upsurges/"><u>Social Web’s Benefits: The Top 7 Societal Upsurges</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-strategies-for-elevating-your-email-security-via-2fa/"><u>Advanced Strategies for Elevating Your Email Security via 2FA</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-struggle-fb-access-denied/"><u>The Silent Struggle: FB Access Denied</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-society-one-like-at-a-time/"><u>Strengthening Society One Like at a Time</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-the-ultimate-valheim-planting-manual/"><u>[Updated] In 2024, The Ultimate Valheim Planting Manual</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/your-guide-to-android-2023s-best-vr-and-360-content-watching-for-2024/"><u>Your Guide to Android  2023'S Best VR & 360 Content Watching for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-sdk-upgrade-alert-enhancing-facebook-video-downloader-apps-for-android/"><u>In 2024, SDK Upgrade Alert  Enhancing Facebook Video Downloader Apps for Android</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-itel-p55t-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/storytelling-on-screen-crafting-compelling-narratives-for-instareels/"><u>Storytelling on Screen  Crafting Compelling Narratives for InstaReels</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-best-free-apple-iphone-14-imei-checker-by-drfone-ios/"><u>In 2024, Best Free Apple iPhone 14 IMEI Checker</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-compelling-spotify-campaigns-a-practical-guide/"><u>Crafting Compelling Spotify Campaigns  A Practical Guide</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-your-ultimate-strategy-for-engaging-streams-on-discord-for-2024/"><u>[Updated] Your Ultimate Strategy for Engaging Streams on Discord for 2024</u></a></li>
+</ul></div>

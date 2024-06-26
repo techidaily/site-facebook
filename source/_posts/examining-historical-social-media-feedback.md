@@ -1,7 +1,7 @@
 ---
 title: Examining Historical Social Media Feedback
-date: 2024-06-21 17:34:38
-updated: 2024-06-23 12:35:45
+date: 2024-06-25T13:47:04.194Z
+updated: 2024-06-26T13:47:04.194Z
 tags:
   - facebook
 categories:
@@ -45,13 +45,13 @@ thumbnail: https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
- If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out[how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
+ If you want to find a photo or a video on your timeline, you'll find those options under**Filters** as well. Searching for photos and videos is similar to the process mentioned above. However, these two options have fewer filters than**Posts** , modified according to the content type requirements. Here, you might also want to check out [how to download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
- While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
+ While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can [stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/8467c9e20d909c3a99e5604c440b3f79e42d4e9a9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-fb-privacy-settings/"><u>Essential Tips for FB Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-secret-to-offering-users-a-no-cost-experience/"><u>TikTok's Secret to Offering Users a No-Cost Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-curbing-covid-19-unverified-claims/"><u>Digital Responsibility: Curbing COVID-19 Unverified Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/detection-of-fading-chat-evidence-on-messenger/"><u>Detection of Fading Chat Evidence on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtualitys-next-step-defining-the-metaverse/"><u>Virtuality's Next Step: Defining the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-images-on-social-media-hub/"><u>Protecting Your Images on Social Media Hub</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-magic-6-lite-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor Magic 6 Lite Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-the-world-of-youtube-building-strong-partner-relationships/"><u>In 2024, Navigating the World of YouTube  Building Strong Partner Relationships</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-mastering-video-retention-ios-and-android-solutions/"><u>[Updated] In 2024, Mastering Video Retention  IOS and Android Solutions</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-top-15-groundbreaking-rock-tracks-unveiled/"><u>New 2024 Approved Top 15 Groundbreaking Rock Tracks Unveiled</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-innovation-hub-for-youtube-gurus/"><u>[New] Innovation Hub for YouTube Gurus</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-10-best-free-ai-script-generators-movie-script-generators/"><u>New 2024 Approved 10 Best Free AI Script Generators | Movie Script Generators</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-networking-on-linkedin/"><u>[New] Navigating Networking on LinkedIn</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-lava-yuva-2-pro-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Yuva 2 Pro Device</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-the-ultimate-guide-to-viral-tastes-the-15-most-in-demand-food-tiktok-challenges/"><u>[Updated] 2024 Approved  The Ultimate Guide to Viral Tastes  The 15 Most In-Demand Food TikTok Challenges</u></a></li>
+</ul></div>

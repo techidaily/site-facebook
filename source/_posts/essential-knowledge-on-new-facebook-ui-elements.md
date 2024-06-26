@@ -1,7 +1,7 @@
 ---
 title: Essential Knowledge on New Facebook UI Elements
-date: 2024-06-20 23:18:41
-updated: 2024-06-23 12:27:11
+date: 2024-06-25T14:25:55.826Z
+updated: 2024-06-26T14:25:55.826Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/102ab1b6aae4e1817df5a3836c10cfedb2eea5b3c
 
 ## Facebook Splits Feed Into Two Tabs
 
- In this[Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
+ In this [Facebook post by Mark Zuckerberg](https://www.facebook.com/zuck/videos/1714157738934549/) , he said:
 
 > One of the most requested features for Facebook is to make sure people don't miss friends' posts. So today we're launching a Feeds tab where you can see posts from your friends, groups, Pages and more separately in chronological order. The app will still open to a personalized feed on the Home tab, where our discovery engine will recommend the content we think you'll care most about. But the Feeds tab will give you a way to customize and control your experience further.
 
@@ -49,19 +49,17 @@ There are at least two major reasons why this has happened.
 
  The**Feeds** tab will do this by exclusively showing you content that you have subscribed to in chronological order. You can customize this content further by creating a favorites list.
 
- According to a[Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and[personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
+ According to a [Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and [personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
-### Fight Back Against TikTok
+### Fight Back Against TikTok ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
 
-![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
-
- According to[The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
+ According to [The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
 
  Meta is undoubtedly aware of TikTok's incredible growth. Since Meta cannot buy TikTok, it will do the next best thing: copy TikTok.
 
  Thus, the**Home** tab will push content to you from across Facebook based on what the algorithm thinks you are interested in, just like TikTok's**For You** page does.
 
- After[finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
+ After [finding new ways to help its creators make more money](https://www.makeuseof.com/facebook-instagram-new-ways-to-make-money/) , Meta wants to ensure you watch them.
 
 ## Meta Will Continue to Innovate, With a Close Eye on TikTok
 
@@ -86,3 +84,24 @@ There are at least two major reasons why this has happened.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-yourself-safe-while-exploring-fb-marketplace-deals/"><u>Keep Yourself Safe While Exploring FB Marketplace Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-content-allowed-on-facebook/"><u>Deciphering Content Allowed on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-offers-a-digital-bitcoin-goat-parody/"><u>Zuckerberg Offers: A Digital Bitcoin-Goat Parody?</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-your-most-loved-digital-network/"><u>Discover Your Most Loved Digital Network</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oppo-find-n3-flip-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Oppo Find N3 Flip Quickly | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-15-plus-drfone-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/online-signatures-for-word-2007-by-ldigisigner-sign-a-word-sign-a-word/"><u>Online signatures for Word 2007</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-into-the-fray-with-polaroid-cubeplus-action-recorder/"><u>[New] Into the Fray with Polaroid Cube+ Action Recorder</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-xcover-7-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy XCover 7 Phone without PIN</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/get-ahead-with-these-best-7-android-browsers-without-ads-for-2024/"><u>Get Ahead with These Best 7 Android Browsers Without Ads for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-top-whatsapp-status-creator-tools/"><u>Updated In 2024, Top WhatsApp Status Creator Tools</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Realme 11 Pro? | Dr.fone</u></a></li>
+</ul></div>

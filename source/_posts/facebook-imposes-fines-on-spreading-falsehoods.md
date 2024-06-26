@@ -1,7 +1,7 @@
 ---
 title: Facebook Imposes Fines on Spreading Falsehoods
-date: 2024-06-20 16:51:23
-updated: 2024-06-23 10:44:54
+date: 2024-06-25T13:47:07.132Z
+updated: 2024-06-26T13:47:07.133Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
 
 ## Facebook Makes Misinformation Less Attractive
 
- Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
+ Facebook is making it even harder to encounter and share misinformation on the platform. In a post on [the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
 
  Facebook already lessens a post's reach if it contains misinformation, but the platform wants to take this a step further. If a user has shared misinformation several times in the past, Facebook plans to "reduce the distribution of all posts in News Feed from an individual's Facebook account."
 
@@ -66,3 +66,23 @@ thumbnail: https://thmb.techidaily.com/a3a2d9a996d9eb1a5a7f44f59aadc7d2130837ea4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/1719151235755-your-daily-soundtrack-via-spotifys-mini-player-facebook-style/"><u>Your Daily Soundtrack via Spotify's Mini Player, Facebook Style!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-online-image-on-facebook/"><u>Transform Your Online Image on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-identity/"><u>Tailoring Your Social Media Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-offline-world-reimagined-after-social-media-departure/"><u>The Offline World Reimagined After Social Media Departure</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-13-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-a-list-singers-pitch-control-techniques-comprehensive-tools-and-workarounds-edition/"><u>Updated A-List Singers Pitch Control Techniques Comprehensive Tools and Workarounds Edition</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-oppo-k11x-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-oppo-reno-11-pro-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Oppo Reno 11 Pro 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-superior-5-social-sites-redefining-connectivity/"><u>[New] In 2024, Superior 5 Social Sites, Redefining Connectivity</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-iphone-8-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with iPhone 8 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-decades-most-ingenious-frames-and-organizers-24/"><u>[New] The Decade's Most Ingenious Frames & Organizers '24</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-tecno-spark-10-5g-by-fonelab-android-recover-photos/"><u>How To  Restore Missing Photos Files from Tecno Spark 10 5G.</u></a></li>
+</ul></div>

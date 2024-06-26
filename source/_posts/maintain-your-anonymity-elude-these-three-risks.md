@@ -1,7 +1,7 @@
 ---
 title: "Maintain Your Anonymity: Elude These Three Risks"
-date: 2024-06-21 12:27:28
-updated: 2024-06-23 12:36:10
+date: 2024-06-25T14:46:51.491Z
+updated: 2024-06-26T14:46:51.491Z
 tags:
   - facebook
 categories:
@@ -27,35 +27,31 @@ thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc2188864
 
  That Facebook is incredibly invasive and tracks users in more ways than one would imagine is no secret at this point, but other apps under the Meta umbrella are no better.
 
- Messenger, Instagram, and Marketplace are all equally invasive. Though carefully-worded, Facebook's official[privacy policy](https://www.facebook.com/privacy/policy) reveals that the company tracks, among other things, users' contacts, calls and text messages, camera, microphone, internal storage, location, metadata, browser and device information, and even mouse movement.
+ Messenger, Instagram, and Marketplace are all equally invasive. Though carefully-worded, Facebook's official [privacy policy](https://www.facebook.com/privacy/policy) reveals that the company tracks, among other things, users' contacts, calls and text messages, camera, microphone, internal storage, location, metadata, browser and device information, and even mouse movement.
 
- Rumors that Facebook actually "spies" on people and[listens to their conversations](https://www.makeuseof.com/tag/your-smartphone-listening-or-coincidence/) without consent have been floating around for ages—you've probably casually mentioned an item or a product to a friend, only to see it advertised on Facebook moments later.
+ Rumors that Facebook actually "spies" on people and [listens to their conversations](https://www.makeuseof.com/tag/your-smartphone-listening-or-coincidence/) without consent have been floating around for ages—you've probably casually mentioned an item or a product to a friend, only to see it advertised on Facebook moments later.
 
  In reality, Facebook doesn't even need to actually spy on you. The company collects so much relevant data that it can predict, with decent accuracy, your next purchase and your future online behavior in general.
 
  To put it simply, if you care about privacy in any capacity, you should not be using Facebook and associated apps.
 
-## 2\. Weather Apps
-
-![A graphic of a smartphone showing the weather is seen among clouds](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/weather-apps-privacy.jpg)
+## 2\. Weather Apps ![A graphic of a smartphone showing the weather is seen among clouds](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/weather-apps-privacy.jpg)
 
  There's an app for everything nowadays, but few have proven as useful and reliable as weather apps. It's cloudy outside and you're wondering whether to bring an umbrella with you? Just check your weather app and you'll know what to do. Seems simple and straightforward enough.
 
  But going back to the user being the product, weather apps are actually notorious for their data collection practices. For instance,[The New York Times](https://www.nytimes.com/wirecutter/blog/how-iphone-apps-track-you/) analyzed 20 popular weather apps to see how much user data they collect, and how.
 
- Of the 20 apps the researchers looked at, 17 indicated in their privacy policies that they collect[user data for the purposes of advertising](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . Additionally, it turned out that 14 of them use location information to track devices—and location information is incredibly valuable to advertisers.
+ Of the 20 apps the researchers looked at, 17 indicated in their privacy policies that they collect [user data for the purposes of advertising](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . Additionally, it turned out that 14 of them use location information to track devices—and location information is incredibly valuable to advertisers.
 
- AccuWeather, one of the most popular apps of this kind, was caught in 2017 sending users' location data without permission. In fact, as[Zdnet](https://www.zdnet.com/article/accuweather-caught-sending-geo-location-data-even-when-denied-access/) reported at the time, it turned out that AccuWeather was sending location data to a third-party even with location sharing switched off.
+ AccuWeather, one of the most popular apps of this kind, was caught in 2017 sending users' location data without permission. In fact, as [Zdnet](https://www.zdnet.com/article/accuweather-caught-sending-geo-location-data-even-when-denied-access/) reported at the time, it turned out that AccuWeather was sending location data to a third-party even with location sharing switched off.
 
  AccuWeather also collects information from sensors on your device, which includes "gyroscopes, accelerometers, and altimeters that measure things like rotation, speed direction, and altitude."
 
- So, what else does AccuWeather know about you? According to its[privacy statement](https://www.accuweather.com/en/privacy#:~:text=ACCUWEATHER%20SITES%2C%20AND%20THE%20PRODUCTS,under%2018%20years%20of%20age.) , as long as your location services are on, the app knows your exact GPS coordinates. However, the statement notes that even if you turn off location services, your phone "may automatically send or receive this other information as long as you have these other communications types enabled."
+ So, what else does AccuWeather know about you? According to its [privacy statement](https://www.accuweather.com/en/privacy#:~:text=ACCUWEATHER%20SITES%2C%20AND%20THE%20PRODUCTS,under%2018%20years%20of%20age.) , as long as your location services are on, the app knows your exact GPS coordinates. However, the statement notes that even if you turn off location services, your phone "may automatically send or receive this other information as long as you have these other communications types enabled."
 
-## 3\. Dating Apps
+## 3\. Dating Apps ![Tinder logo is seen on a green background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/dating-apps-privacy.jpg)
 
-![Tinder logo is seen on a green background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/dating-apps-privacy.jpg)
-
- One[Stanford](https://web.stanford.edu/~mrosenfe/Rosenfeld%5Fet%5Fal%5FDisintermediating%5FFriends.pdf) study found that 39 percent of couples that got together in the United States in 2017 met online. It's safe to assume that number has only gone up since then, with[dating apps](https://www.makeuseof.com/tag/tired-of-tinder-seven-free-alternative-dating-apps/) such as Tinder, Hinge, eHarmony, and Bumble becoming more popular than ever.
+ One [Stanford](https://web.stanford.edu/~mrosenfe/Rosenfeld%5Fet%5Fal%5FDisintermediating%5FFriends.pdf) study found that 39 percent of couples that got together in the United States in 2017 met online. It's safe to assume that number has only gone up since then, with [dating apps](https://www.makeuseof.com/tag/tired-of-tinder-seven-free-alternative-dating-apps/) such as Tinder, Hinge, eHarmony, and Bumble becoming more popular than ever.
 
  If you're single and looking to meet someone, then dating apps are a great option, if not a necessity in this age of digitalization and pandemics. But are they a good idea if you care about protecting your privacy? In short, no.
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc2188864
 
  And if you want to find someone with similar interests, you'll probably connect your Spotify, Instagram, and Facebook accounts, write a personalized bio, maybe even reveal where you went to school or talk about your career. And naturally, you can't use a dating app without disclosing your location. What would be the point?
 
- But this is just the tip of the iceberg when it comes to dating apps. According to the[Mozilla Foundation](https://foundation.mozilla.org/en/privacynotincluded/tinder/) , not only does Tinder collect personal user data, it also has a pretty terrible track record when it comes to protecting you from cybercriminals. For example, some 70,000 photos were scraped from the app in 2020 and ended up on a cybercrime forum.
+ But this is just the tip of the iceberg when it comes to dating apps. According to the [Mozilla Foundation](https://foundation.mozilla.org/en/privacynotincluded/tinder/) , not only does Tinder collect personal user data, it also has a pretty terrible track record when it comes to protecting you from cybercriminals. For example, some 70,000 photos were scraped from the app in 2020 and ended up on a cybercrime forum.
 
  Match Group, which owns Tinder and a number of similar popular dating apps, is pretty upfront in its privacy policy, which states that your personal information is shared between these apps. In other words, even if you've only signed up to Tinder, then Hinge, Match, and OKCupid also have your data.
 
@@ -92,3 +88,27 @@ thumbnail: https://thmb.techidaily.com/e4dab8212b61415ab670db2724890039dc2188864
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unleashing-individuality-on-facebook-through-feed-curation/"><u>Unleashing Individuality on Facebook Through Feed Curation</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-sites-catering-to-seniors-social-life/"><u>Top 5 Sites Catering to Seniors' Social Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-myths-of-social-media-impersonation/"><u>Unraveling the Myths of Social Media Impersonation</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-phase-pushing-oculus-quest-launch-to-later-date/"><u>Next Phase: Pushing Oculus Quest Launch to Later Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-earning-how-instagram-is-boosting-creator-incomes/"><u>New Age of Earning: How Instagram Is Boosting Creator Incomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/combat-the-quiescence-wake-up-your-facebook-account/"><u>Combat the Quiescence: Wake Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unleashes-pioneering-ai-powerhouse-worldwide/"><u>Meta Unleashes Pioneering AI Powerhouse Worldwide</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-panic-fb-whatsapp-instagram-offline-today/"><u>Platform Panic: FB, WhatsApp, Instagram Offline Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/quick-guide-capturing-moments-with-snap-in-real-time-conferencing/"><u>Quick Guide  Capturing Moments with Snap in Real-Time Conferencing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-game-on-a-comprehensive-guide-to-xbox-one-captures/"><u>2024 Approved  Game On  A Comprehensive Guide to Xbox One Captures</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-infinix-note-30-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Infinix Note 30 Pro to New Phone | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-your-guide-to-affordable-comedy-audio-tracks-5-sites-every-content-maker-should-know/"><u>New 2024 Approved Your Guide to Affordable Comedy Audio Tracks 5 Sites Every Content Maker Should Know</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-puzzling-out-what-pfp-signifies-on-tiktok-for-2024/"><u>[Updated] Puzzling Out What PFP Signifies on TikTok for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-ultimate-mc-village-dwellings-guide/"><u>[New] 2024 Approved  Ultimate MC Village Dwellings Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-videography-tools-for-ios-devices-for-2024/"><u>Best Videography Tools for iOS Devices for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-v27-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo V27</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-optimal-logitech-webcam-settings-for-professional-video-outputs-for-2024/"><u>[New] Optimal Logitech Webcam Settings for Professional Video Outputs for 2024</u></a></li>
+</ul></div>

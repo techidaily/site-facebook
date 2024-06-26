@@ -1,7 +1,7 @@
 ---
 title: "Guard Against Facebook Gimmicks: List of 14 Typical Swindles"
-date: 2024-06-22 15:29:53
-updated: 2024-06-23 11:42:49
+date: 2024-06-25T13:55:32.303Z
+updated: 2024-06-26T13:55:32.303Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,17 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 
  From scammers asking for all kinds of additional postage costs, to people pretending to be legitimate businesses, to people selling authentic "celebrity signed merchandise", there are definitely a lot of things to be aware of before performing any type of transaction.
 
- Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
+ Make sure you learn [how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
- These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+ These days there are a [few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 ## 5\. Facebook Job Advertisement Scams
 
- Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
+ Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are [red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 
 ## 7\. Charity Scams
 
- This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+ This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check [Charity Navigator](https://www.charitynavigator.org/) or [CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
 
 ## 8\. Scams Posing As Official Pages
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
 
  Whatever it is, their purpose is to win your trust, and they may even do this by chatting to you for weeks or months. If you happen to fall for one of these scammers, at some point, they will ask you for money.
 
- They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
+ They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are [some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
 ## 12\. Loan Lending Scams
 
@@ -118,3 +118,23 @@ thumbnail: https://thmb.techidaily.com/802eeff691c55a6d5d09cbae446dc45a39ed24ae9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/methods-for-finding-lost-facebook-tweets/"><u>Methods for Finding Lost Facebook Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-who-sees-your-stuff-on-fb-creating-a-restricted-list/"><u>Control Who Sees Your Stuff on FB: Creating a Restricted List</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-virtual-mirror-to-profile-spotlight-crafting-the-perfect-fb-cover-photo-with-you/"><u>From Virtual Mirror to Profile Spotlight: Crafting the Perfect FB Cover Photo with You</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-facebook-notification-stores/"><u>Clearing Facebook Notification Stores</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-discussions-with-facebooks-innovative-group-moderation-features/"><u>Guiding Discussions with Facebook's Innovative Group Moderation Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegram-notifies-tracking-upholds-user-friendly-features/"><u>Telegram Notifies: Tracking Upholds User-Friendly Features</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-the-premier-chromecast-mics-reviewed-ranking-the-best-s-market/"><u>Updated 2024 Approved The Premier Chromecast Mics Reviewed Ranking the Best S Market</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-amazon-prime-and-twitter-most-shared-and-liked-shows-23/"><u>[New] Amazon Prime and Twitter  Most Shared & Liked Shows, '23</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-full-assessment-of-slomo-application-trends/"><u>[New] Full Assessment of SloMo Application - Trends</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-detect-clapping-impact-soundscape-for-2024/"><u>Updated Detect Clapping Impact Soundscape for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-filmmaking-on-a-shoestring-9-best-budget-friendly-software-options/"><u>Updated In 2024, Filmmaking on a Shoestring 9 Best Budget-Friendly Software Options</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ling-typefaces-the-essence-of-bouncy-text-for-2024/"><u>Twinkling Typefaces  The Essence of Bouncy Text for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/from-scraps-to-stunning-a-photomontage-journey/"><u>From Scraps to Stunning  A Photomontage Journey</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-xiaomi-redmi-note-12r-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Xiaomi Redmi Note 12R Phones with Screen Locked and Not | Dr.fone</u></a></li>
+</ul></div>

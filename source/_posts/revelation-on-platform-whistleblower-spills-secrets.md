@@ -1,7 +1,7 @@
 ---
 title: "Revelation on Platform: Whistleblower Spills Secrets"
-date: 2024-06-20 17:23:43
-updated: 2024-06-23 11:32:27
+date: 2024-06-25T14:00:38.984Z
+updated: 2024-06-26T14:00:38.984Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf
 
 ## Revelation on Platform: Whistleblower Spills Secrets
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,27 @@ thumbnail: https://thmb.techidaily.com/bab37a5357094e09dd42f37d3cc78e25fe907bbcf
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-strategic-move-to-just-feed/"><u>Unveiling Facebook’s Strategic Move to Just Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-making-profitable-facebook-reels/"><u>Simplifying the Process of Making Profitable Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-part-of-the-future-facebooks-10000-metaverse-builders-wanted/"><u>Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted!</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-gathering-made-easy-using-your-facebook-portal-tv/"><u>Virtual Gathering Made Easy: Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-the-powerful-outcomes-of-social-disconnection/"><u>Digital Detox: The Powerful Outcomes of Social Disconnection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-tools-and-strategies-for-capturing-streaming-audio-webwide/"><u>Top Tools & Strategies for Capturing Streaming Audio Webwide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-picks-backgrounds-elevating-video-streaming/"><u>Top Picks  Backgrounds Elevating Video Streaming</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-secret-vlc-tactics-for-optimal-viewing-experience/"><u>In 2024, Secret VLC Tactics for Optimal Viewing Experience</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-approach-to-3d-text-in-photoediting-for-2024/"><u>Innovative Approach to 3D Text in PhotoEditing for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-mac-audio-enthusiasts-guide-to-selecting-the-optimal-mp3-trimmer-software/"><u>Updated In 2024, Mac Audio Enthusiasts Guide to Selecting the Optimal Mp3 Trimmer Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-crafting-compelling-narratives-in-instagram-ads-top-10-tips-for-success/"><u>[Updated] In 2024, Crafting Compelling Narratives in Instagram Ads  Top 10 Tips for Success</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-capturing-trust-the-significance-of-client-reviews/"><u>2024 Approved  Capturing Trust  The Significance of Client Reviews</u></a></li>
+<li><a href="https://extra-information.techidaily.com/tender-tracks-ideal-music-to-accompany-a-lifelayer-change/"><u>Tender Tracks  Ideal Music to Accompany a Lifelayer Change</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-mastering-the-art-of-photographic-audio-fusion-visual-and-auditory-synthesis/"><u>New 2024 Approved Mastering the Art of Photographic Audio Fusion Visual & Auditory Synthesis</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-polishing-your-presentations-expert-video-editing-for-instagram/"><u>[Updated] 2024 Approved  Polishing Your Presentations  Expert Video Editing for Instagram</u></a></li>
+</ul></div>

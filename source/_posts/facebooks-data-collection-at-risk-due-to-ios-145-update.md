@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Collection at Risk Due to iOS 14.5 Update
-date: 2024-06-20 22:39:15
-updated: 2024-06-23 11:36:28
+date: 2024-06-25T14:01:11.028Z
+updated: 2024-06-26T14:01:11.028Z
 tags:
   - facebook
 categories:
@@ -59,9 +59,9 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
- Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
+ Before ATT was implemented, a survey from the [Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
- It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
+ It now appears that this number was highly optimistic as [data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
 ## What Does This All Mean for Facebook?
 
@@ -102,3 +102,22 @@ thumbnail: https://thmb.techidaily.com/f051850e231be7d8e7141a137d6f961668fd16987
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/modifying-facebook-group-regulations-efficiently/"><u>Modifying Facebook Group Regulations Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-slip-ups-facebooks-user-tally/"><u>The Subtle Slip-Ups: Facebook's User Tally</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-shadowban-and-how-to-circumvent-it/"><u>The Enigma of Shadowban and How to Circumvent It</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-leave-a-facebook-group/"><u>How to Leave a Facebook Group</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-vivo-y200e-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/no-cost-top-quality-premiere-pro-designs-for-2024/"><u>No-Cost, Top-Quality Premiere Pro Designs for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-how-to-vlog-a-ultimate-guide-for-beginners/"><u>New In 2024, How to Vlog? A Ultimate Guide for Beginners</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-high-definition-recorders-revealed-5-devices-to-watch/"><u>[Updated] High-Definition Recorders Revealed  5 Devices to Watch</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-how-to-earn-facebooks-trusted-prestigious-symbol/"><u>[New] In 2024, How to Earn Facebook's Trusted, Prestigious Symbol</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-obs-vs-twitch-live-best-platform-debate/"><u>[Updated] 2024 Approved  OBS vs Twitch Live  Best Platform Debate</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-tips-elevating-your-projects-with-movie-maker-in-win11/"><u>In 2024, Expert Tips  Elevating Your Projects with Movie Maker in Win11</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-2024-approved-audiophiles-guide-evaluating-superior-mp3-karaoke-conversion-platforms-both-online-and-offline/"><u>New 2024 Approved Audiophiles Guide Evaluating Superior MP3 Karaoke Conversion Platforms, Both Online & Offline</u></a></li>
+</ul></div>

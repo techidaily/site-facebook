@@ -1,7 +1,7 @@
 ---
 title: Parental Guide to Updating Kid's Information in Messengers
-date: 2024-06-21 10:45:35
-updated: 2024-06-23 12:23:38
+date: 2024-06-25T14:14:33.001Z
+updated: 2024-06-26T14:14:33.001Z
 tags:
   - facebook
 categories:
@@ -37,11 +37,11 @@ Here's a look at the different fields you can add...
 
  Like most adults, kids also love to share their pictures on social media. Although Messenger Kids does not have a story feature like the standard version, there is an option to change the profile picture.
 
- Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the[safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
+ Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the [safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
 
 ### Edit Name
 
- When you[start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
+ When you [start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
 
 ## How to Add Your Child’s Information in Messenger Kids
 
@@ -71,13 +71,11 @@ Close
 4. Tap**Controls** from the top tabs. This will navigate you to the customizable settings.
 5. Select**Edit Info** . It will open your kid’s**Account Details** . Here, you can edit your child’s first name, surname, date of birth, and pronouns and add or remove the profile picture.
 
-**Download:** Facebook for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
+**Download:** Facebook for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/facebook/id284882215)
 
-**Download:** Messenger Kids for[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
+**Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture
-
-![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -89,9 +87,7 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -103,9 +99,7 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns
-
-![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -128,7 +122,7 @@ Follow these steps:
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
-5. Select**Controls** to access a menu with all the relevant features. Thanks to[updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
+5. Select**Controls** to access a menu with all the relevant features. Thanks to [updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
@@ -161,3 +155,26 @@ Follow these steps:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fb-and-gifpedia-face-possible-disentanglement-why-now/"><u>FB and Gifpedia Face Possible Disentanglement; Why Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-approach-to-resurrecting-lost-facebook-pins/"><u>Step-by-Step Approach to Resurrecting Lost Facebook Pins</u></a></li>
+<li><a href="https://facebook.techidaily.com/examine-the-number-of-facebook-admirers/"><u>Examine the Number of Facebook Admirers</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-farewell-to-fb-on-android/"><u>Final Farewell to FB on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-media-spotting-fb-hacks/"><u>Protecting Privacy on Social Media: Spotting FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-twitter-and-snapchat-are-part-of-president-bidens-vaccination-campaign/"><u>Report: Facebook, Twitter, and Snapchat Are Part of President Biden's Vaccination Campaign</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-data-analysis-with-8-crowdflower-features/"><u>Master the Art of Data Analysis with 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-comprehensive-guide-to-integrating-skype-with-obs/"><u>In 2024, Comprehensive Guide to Integrating Skype with OBS</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-14-pro-max-passcode-without-a-computer-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 14 Pro Max Passcode without a Computer</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfected-podcasts-iphones-seamless-audio-download-routines/"><u>[New] Perfected Podcasts  IPhone's Seamless Audio Download Routines</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-enhancing-mobile-audio-clarity-ranking-the-best-apps-to-improve-iphone-and-android-sound-for-2024/"><u>Updated Enhancing Mobile Audio Clarity Ranking the Best Apps to Improve iPhone & Android Sound for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-essential-list-of-zoom-voice-modification-apps-for-adding-personality-and-humor-to-your-conversations/"><u>Updated In 2024, The Essential List of Zoom Voice Modification Apps for Adding Personality and Humor to Your Conversations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-navigating-skype-screen-sharing-during-home-office-workflows-for-2024/"><u>[Updated] Navigating Skype Screen Sharing During Home Office Workflows for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-how-to-create-messenger-rooms/"><u>[New] 2024 Approved  How to Create Messenger Rooms?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastering-screen-capture-on-macbook-webcam/"><u>[New] 2024 Approved  Mastering Screen Capture on MacBook Webcam</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/your-pathway-to-a-clutter-free-device-with-video-deletion-tips/"><u>Your Pathway to a Clutter-Free Device with Video Deletion Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-simplified-guide-enhancing-skype-experience-via-zoom/"><u>[New] 2024 Approved  Simplified Guide  Enhancing Skype Experience via Zoom</u></a></li>
+</ul></div>

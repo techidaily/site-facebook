@@ -1,7 +1,7 @@
 ---
 title: The Wave of Negativity Set to Hit Facebook
-date: 2024-06-20 17:36:16
-updated: 2024-06-23 11:45:10
+date: 2024-06-25T14:07:46.257Z
+updated: 2024-06-26T14:07:46.257Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/300b8b150f8464b487683b06984fcbd6662b4fb11
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/an-insiders-guide-to-decoding-fb-symbol-meanings/"><u>An Insider's Guide to Decoding FB Symbol Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-deeper-real-numbers-of-facebook-leavers/"><u>Delving Deeper: Real Numbers of Facebook Leavers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-standard-bot-to-metaai/"><u>The Evolution: From Standard Bot to MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/intertwining-dimensions-what-is-the-metaverse/"><u>Intertwining Dimensions: What Is the Metaverse?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-renamed-itself-to-simplicity/"><u>How Facebook Renamed Itself to Simplicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-to-reconnect-the-realities-of-abandoning-online-friends/"><u>Disconnect to Reconnect: The Realities of Abandoning Online Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-engagement-in-social-networking-with-ripl/"><u>Enhancing Engagement in Social Networking With Ripl</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-rewind-and-play-the-quintet-of-best-opposite-direction-melodies/"><u>2024 Approved Rewind and Play The Quintet of Best Opposite-Direction Melodies</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-the-ultimate-guide-fbx-free-gametime-tracking/"><u>[New] 2024 Approved  The Ultimate Guide  FBX-Free Gametime Tracking</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/tecno-spark-10c-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Tecno Spark 10C ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-unlocking-iphone-ipad-and-mac-settings-mastering-siris-vocal-identity/"><u>Updated Unlocking iPhone, iPad, and Mac Settings Mastering Siris Vocal Identity</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-honor-magic-5-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Honor Magic 5 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-the-future-awaits-elevate-your-fb-chronicles-for-free-for-2024/"><u>[Updated] The Future Awaits  Elevate Your FB Chronicles for FREE for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-potential-with-samsungs-latest-photo-editor/"><u>2024 Approved  Unlocking the Potential with Samsung's Latest Photo Editor</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-top-video-resume-creators-get-started-with-free-templates-for-2024/"><u>New Top Video Resume Creators Get Started with Free Templates for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-oppo-a1-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Oppo A1 5G</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-10-advanced-techniques-to-master-with-canva-designer/"><u>In 2024, 10 Advanced Techniques to Master with Canva Designer</u></a></li>
+</ul></div>

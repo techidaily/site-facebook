@@ -1,7 +1,7 @@
 ---
 title: "Take Control: Prevent Facebook’s Oversee Usage"
-date: 2024-06-20 13:49:43
-updated: 2024-06-23 10:35:59
+date: 2024-06-25T14:28:16.571Z
+updated: 2024-06-26T14:28:16.571Z
 tags:
   - facebook
 categories:
@@ -51,7 +51,7 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  WhatsApp, however, is a little different. WhatsApp is an encrypted messaging service. Therefore, Facebook cannot access the content of your messages and mine this data for advertising purposes. Still, Facebook can link your Facebook profile and WhatsApp accounts together to learn more about the friends you chat with.
 
- Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are[four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
+ Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are [four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
 
 ## What Does Facebook Know About You?
 
@@ -63,13 +63,13 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
- The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated[Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
+ The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated [Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
- If you want to stop being stalked by ads online, consider using the[Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can[share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
+ If you want to stop being stalked by ads online, consider using the [Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can [share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
 
 ### Facebook Tracks Users, Even Without an Account
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  Also, your data, regardless of user status, helps to increase the volume of advertising target data. It is a win-win for Facebook. Concise data that their business account holders can make better use of.
 
- Facebook's record on tracking and privacy is dire. In 2018, there was[the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) . In 2019, the FTC fined Facebook $5 billion for failing to protect data from third parties.
+ Facebook's record on tracking and privacy is dire. In 2018, there was [the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) . In 2019, the FTC fined Facebook $5 billion for failing to protect data from third parties.
 
  The EU fined Facebook $122 million for submitting misleading information about its WhatsApp takeover (they said they weren't going to link data, then did exactly that) and in 2021, WhatsApp was fined $225 million for further privacy breaches. The UK's Information Commissioner's Office fined Facebook the utterly laughable amount of £500,000 for breaching data privacy rules.
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
 ### Change Facebook Ad Preferences
 
- One of the first things you can do is change your[Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
+ One of the first things you can do is change your [Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
 
  Open the Ad Preferences page and change any settings to**Not Allowed,** also turning off any options to use your profile information for advertising purposes.
 
@@ -109,21 +109,19 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-### uBlock Origin
-
-![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
+### uBlock Origin ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
- I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has[blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
+ I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
-**Download:** uBlock Origin for[Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
+**Download:** uBlock Origin for [Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
 
-**Download** : NoScript for[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
+**Download** : NoScript for [Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
 
 ### Privacy Badger
 
@@ -131,17 +129,17 @@ thumbnail: https://thmb.techidaily.com/e92d1325fd1f2f901796fdd1123502e68b5122756
 
  PrivacyBadger uses an easy-to-manage system of colored sliders.**Green** means okay,**Yellow** means third-party tracking but necessary for a functioning web,**Red** means content and scripts have been disabled.
 
-**Download:** Privacy Badger for[Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
+**Download:** Privacy Badger for [Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
 ### Use a Privacy-Focused Alternative Browser
 
- If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are[several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
+ If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are [several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
 
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
 
-**Download:** Epic Privacy Browser for[Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
+**Download:** Epic Privacy Browser for [Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
 
 ### Tor Browser
 
@@ -173,7 +171,7 @@ Users can opt out of behavioral advertising using a regional tool.
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
-**Download:** Cookie AutoDelete for[Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
+**Download:** Cookie AutoDelete for [Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
 
 ## Should You Block Facebook Tracking?
 
@@ -204,3 +202,24 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-effectively-use-sleep-mode-for-an-optimal-messenger-kids-experience/"><u>How to Effectively Use Sleep Mode for an Optimal Messenger Kids Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-to-clear-your-facebook-chronicle/"><u>The Ultimate Strategy to Clear Your Facebook Chronicle</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-misinformation-how-social-networks-are-evolving/"><u>Tackling Misinformation: How Social Networks Are Evolving</u></a></li>
+<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-taking-leisinasse-using-facebook-timer/"><u>Digital Harmony: Taking Leisinasse Using Facebook Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-social-presence-with-striking-covers/"><u>Elevating Your Social Presence with Striking Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-the-elite-us-members-gain-metas-seal-of-approval/"><u>Join the Elite: U.S. Members Gain Meta's Seal of Approval</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-optimal-tools-macs-best-video-grabber-software-guide/"><u>[Updated] In 2024, Optimal Tools  Mac's Best Video Grabber Software Guide</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-interesting-fundamentals-and-ultimate-guide-to-animated-characters-drawings-for-2024/"><u>New Interesting Fundamentals and Ultimate Guide to Animated Characters Drawings for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-master-the-craft-streamlining-your-online-television-recordings/"><u>In 2024, Master the Craft  Streamlining Your Online Television Recordings</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-become-a-sound-design-wizard-easy-steps-for-tiktok-vocal-alteration/"><u>[Updated] Become a Sound Design Wizard  Easy Steps for TikTok Vocal Alteration</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-5-ios-backdrop-swappers-x87-edition/"><u>Best 5 iOS Backdrop Swappers  X/8/7 Edition</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why does the pokemon go battle league not available On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-smart-social-media-strategies-from-youtube-to-facebook/"><u>2024 Approved  Smart Social Media Strategies  From YouTube To Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-exclusive-list-of-best-video-chat-apps-for-iphone-and-android/"><u>[New] 2024 Approved  Exclusive List of Best Video Chat Apps for iPhone and Android</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-final-cut-pro-hacks-create-a-vintage-vhs-look-for-2024/"><u>New Final Cut Pro Hacks Create a Vintage VHS Look for 2024</u></a></li>
+</ul></div>

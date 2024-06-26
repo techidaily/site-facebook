@@ -1,7 +1,7 @@
 ---
 title: Exploring Phony Facebook Account Creation Schemes
-date: 2024-06-21 16:18:33
-updated: 2024-06-23 11:34:11
+date: 2024-06-25T14:18:50.247Z
+updated: 2024-06-26T14:18:50.247Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/ab712e6369c11731fb797565c1d31f34a50ed98f4
 
 ## What Is a Facebook Account Cloning Scam?
 
- This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for[other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
+ This type of scam involves using a cloned account to send phishing links, or trick your friends into giving information, or, worse, sending money. They may also use this cloned account for [other scams on the social network](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) by exploiting your identity and your contacts.
 
  They replicate social media accounts by using all your public photos and information, making a copy of your existing account, and then adding your contacts. Scammers will pretend to be you and then start messaging your connections.
 
@@ -95,7 +95,7 @@ thumbnail: https://thmb.techidaily.com/ab712e6369c11731fb797565c1d31f34a50ed98f4
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
- Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like[social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
+ Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like [social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
 
 <ins class="adsbygoogle"
@@ -112,3 +112,26 @@ thumbnail: https://thmb.techidaily.com/ab712e6369c11731fb797565c1d31f34a50ed98f4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-suspension-from-facebook-tested-in-jan/"><u>Trump's Suspension From Facebook Tested in Jan</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-updated-navigation-of-facebook/"><u>Discovering the Updated Navigation of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-biden-uses-social-media-to-speed-up-vax-distribution/"><u>Joe Biden Uses Social Media to Speed Up Vax Distribution</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-account-on-facebook-via-two-factor-codes/"><u>Protecting Your Account on Facebook via Two-Factor Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/businesses-ready-for-a-social-revolution-facebooks-newsfeed-evolution/"><u>Businesses Ready for a Social Revolution: Facebook's Newsfeed Evolution</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-top-30-unique-pfps-for-a-stellar-tiktok-presence/"><u>[Updated] Top 30 Unique PFPs for a Stellar TikTok Presence</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-list-8-ranked-android-video-tile-maker-options-freepaid/"><u>[New] The Ultimate List  #8 Ranked Android Video Tile Maker Options (Free/Paid)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-strategies-to-enhance-stability-of-win-11s-photo-viewer/"><u>[New] Strategies to Enhance Stability of Win 11'S Photo Viewer</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-copy-contacts-from-apple-iphone-12-pro-max-to-sim-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Copy Contacts from Apple iPhone 12 Pro Max to SIM? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/deconstructing-user-sentiments-for-vllo/"><u>Deconstructing User Sentiments for VLLO</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-leading-the-charge-top-10-gaming-bloggers-on-tiktok/"><u>2024 Approved  Leading The Charge  Top 10 Gaming Bloggers on TikTok</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-create-memorable-videos-with-the-right-thumbnail-font/"><u>In 2024, Create Memorable Videos with the Right Thumbnail Font</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chiefs-best-sky-vault-for-firms/"><u>Chiefs’ Best Sky Vault for Firms</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-total-sphere-camera-systems/"><u>[Updated] Total Sphere Camera Systems</u></a></li>
+</ul></div>

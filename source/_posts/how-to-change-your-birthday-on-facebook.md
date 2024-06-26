@@ -1,7 +1,7 @@
 ---
 title: How to Change Your Birthday on Facebook
-date: 2024-06-22 20:37:19
-updated: 2024-06-23 12:21:24
+date: 2024-06-25T14:35:41.840Z
+updated: 2024-06-26T14:35:41.840Z
 tags:
   - facebook
 categories:
@@ -56,7 +56,7 @@ Close
 
 Here's how:
 
-* Log on to[Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
+* Log on to [Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
@@ -112,3 +112,24 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-beckons-as-meta-drops-tests-on-popular-platforms/"><u>The Future Beckons as Meta Drops Tests on Popular Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/enriched-by-online-interaction-top-7-social-gains-for-society/"><u>Enriched By Online Interaction: Top 7 Social Gains for Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-erase-and-reset-your-facebook-narrative/"><u>Easy Steps: Erase and Reset Your Facebook Narrative</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-captureelite-series-best-windowsmac-imaging-apps/"><u>[Updated] CaptureElite Series  Best Windows/Mac Imaging Apps</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-elite-guide-to-gopro-side-by-side-shopping/"><u>[New] The Elite Guide to GoPro Side-By-Side Shopping</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-finding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>In 2024, Finding the Perfect Pair  Matching Mics with Every Type of YouTuber's Style</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-transform-your-workspace-with-these-8-dynamic-backdrops/"><u>[New] 2024 Approved  Transform Your Workspace with These 8 Dynamic Backdrops</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-the-blueprint-for-crafting-an-individual-tiktok-marker/"><u>[New] The Blueprint for Crafting an Individual TikTok Marker</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/an-exclusive-guide-to-deck-to-deck-technology-durecorder/"><u>An Exclusive Guide to Deck-to-Deck Technology  DuRecorder</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-updated-list-top-frame-addition-services-for-images/"><u>In 2024, Updated List  Top Frame Addition Services for Images</u></a></li>
+</ul></div>

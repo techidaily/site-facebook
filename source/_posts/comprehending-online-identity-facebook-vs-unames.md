@@ -1,7 +1,7 @@
 ---
 title: "Comprehending Online Identity: FaceBook vs UNAMES"
-date: 2024-06-22 20:57:56
-updated: 2024-06-23 10:42:19
+date: 2024-06-25T14:31:25.894Z
+updated: 2024-06-26T14:31:25.894Z
 tags:
   - facebook
 categories:
@@ -35,13 +35,13 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
  Facebook doesn’t auto-assign cool usernames like "Zuck" to users. Mark Zuckerberg’s username would look something like "mark.zuckerberg", if it were to have been auto-assigned. However, Facebook does allow you to change your username.
 
- You can edit your username to remove the numbers and periods in it or even update it to another one entirely, provided it hasn't been taken already. And, you don’t even need to[change your profile name](https://www.makeuseof.com/tag/change-facebook-name/) to change it.
+ You can edit your username to remove the numbers and periods in it or even update it to another one entirely, provided it hasn't been taken already. And, you don’t even need to [change your profile name](https://www.makeuseof.com/tag/change-facebook-name/) to change it.
 
 ## How to Change Your Facebook Profile Username or URL
 
 If you’d like to customize your username, here’s how:
 
-1. Go to[Facebook.com](https://www.facebook.com/) on your browser and sign in.
+1. Go to [Facebook.com](https://www.facebook.com/) on your browser and sign in.
 2. Click on**the drop-down icon** at the top of the page.
 3. Click on**Settings & Privacy** .  
 ![screenshot of facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/screenshot-of-facebook-profile.JPG)
@@ -71,3 +71,24 @@ Their only similarity is that they can both be changed.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/connect-more-with-a-click-adding-contacts-in-fb-messenger/"><u>Connect More with a Click: Adding Contacts in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tag-someone-on-facebook-3-different-ways/"><u>How to Tag Someone on Facebook: 3 Different Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-language-of-facebook-chat-emojis-and-glyphs/"><u>The Secret Language of Facebook Chat Emojis & Glyphs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151874818-communication-breakdown-here-are-your-first-timer-room-tips/"><u>Communication Breakdown? Here Are Your First-Timer Room Tips!</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-your-online-persona-ever-change/"><u>Does Your Online Persona Ever Change?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-countdown-for-metas-default-e2e-encryption-adoption-by-2023/"><u>The Countdown for Meta's Default E2E Encryption Adoption by 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-guide-to-creating-compelling-videos-on-facebook/"><u>The Beginner's Guide to Creating Compelling Videos on Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-narzo-60-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme Narzo 60 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/economical-video-editing-solutions-for-beginners-and-pros/"><u>Economical Video Editing Solutions for Beginners and Pros</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-frequency-logging-microphone-sounds-and-dialogue/"><u>[New] In 2024, Frequency Logging  Microphone Sounds & Dialogue</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-picks-10-intro-maker-sites-with-free-and-paid-features-for-2024/"><u>Updated Top Picks 10 Intro Maker Sites with Free and Paid Features for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/the-ultimate-guide-to-sony-vegas-alternatives-for-windows-for-2024/"><u>The Ultimate Guide to Sony Vegas Alternatives for Windows for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-unblocking-omegle-a-step-by-step-plan-for-the-banned-user-for-2024/"><u>New Unblocking Omegle A Step-by-Step Plan for the Banned User for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-10-best-cartoon-video-makers-online-and-desktop-solution/"><u>New In 2024, 10 Best Cartoon Video Makers (Online and Desktop Solution)</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-chuckle-cluster-a-curated-collection-of-funny-tiktok-jokes-and-riddles/"><u>[New] Chuckle Cluster  A Curated Collection of Funny TikTok Jokes and Riddles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photoshops-quick-path-to-stunning-colors/"><u>In 2024, Photoshop's Quick Path to Stunning Colors</u></a></li>
+</ul></div>

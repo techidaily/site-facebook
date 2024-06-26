@@ -1,7 +1,7 @@
 ---
 title: 7 Key Revelations From The Facebook Papers
-date: 2024-06-22 20:57:13
-updated: 2024-06-23 11:26:21
+date: 2024-06-25T13:57:04.508Z
+updated: 2024-06-26T13:57:04.508Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
 
 ## What Are the Facebook Papers?
 
- We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
+ We've already covered [what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
 
@@ -58,3 +58,26 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revolutionary-duo-facebook-meets-spotify-for-project-boombox/"><u>The Revolutionary Duo: Facebook Meets Spotify for Project Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-steps-for-sharing-spot-with-fb-chat/"><u>The Essential Steps for Sharing Spot with FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-working-here-are-the-potential-ways-to-fix-it/"><u>Facebook Not Working? Here Are the Potential Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-upgrade-enhanced-messenger-instagram-communication-awaits/"><u>Facebook's Chat Upgrade: Enhanced Messenger, Instagram Communication Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-leaders-playbook-cultivating-a-thriving-fb-cohort/"><u>The Social Leader's Playbook: Cultivating a Thriving Fb Cohort</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-decision-to-reactivate-trumps-accounts/"><u>Meta's Decision to Reactivate Trump's Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-lies-top-10-social-media-realities-of-facebook/"><u>Beyond the Lies: Top 10 Social Media Realities of Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-innovating-for-impact-your-profile-video-guide/"><u>[New] In 2024, Innovating for Impact  Your Profile Video Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-do-i-sim-unlock-my-apple-iphone-6s-plus-by-drfone-ios/"><u>How Do I SIM Unlock My Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-rekindling-the-classics-top-80s-video-effects-for-cutting-edge-films/"><u>[New] Rekindling the Classics  Top 80S Video Effects for Cutting-Edge Films</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-finest-open-world-games-to-engage-with/"><u>[New] 2024 Approved  The Finest Open World Games to Engage With</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-ringtones-from-youtube-a-compilation-of-optimal-download-hubs/"><u>In 2024, Ringtones From YouTube  A Compilation of Optimal Download Hubs</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-enhancing-detail-in-scenes-using-kinemaster-zoom-features/"><u>[New] In 2024, Enhancing Detail in Scenes Using Kinemaster Zoom Features</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-a-comprehensive-look-at-lighting-your-youtube-videos-right/"><u>[Updated] In 2024, A Comprehensive Look at Lighting Your YouTube Videos Right</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-banish-spotifys-recommended-podcasts/"><u>2024 Approved  How to Banish Spotify's Recommended Podcasts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-high-speed-replicas-best-racing-games-for-2024/"><u>[New] High-Speed Replicas  Best Racing Games for 2024</u></a></li>
+</ul></div>

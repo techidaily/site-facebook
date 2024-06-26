@@ -1,7 +1,7 @@
 ---
 title: FB Oversight to Unveil Ruling on Prohibition Against Trump.
-date: 2024-06-20 13:21:15
-updated: 2024-06-23 10:23:14
+date: 2024-06-25T14:16:10.137Z
+updated: 2024-06-26T14:16:10.137Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
 
 ## The Oversight Board Rules on Trump's Accounts
 
- Facebook's Oversight Board sent out a Tweet stating that it will officially announce its decision on Trump's ban on May 5 at 9am EST. Upon release, the ruling will be viewable from[the Oversight Board's website](https://www.oversightboard.com/news/) .
+ Facebook's Oversight Board sent out a Tweet stating that it will officially announce its decision on Trump's ban on May 5 at 9am EST. Upon release, the ruling will be viewable from [the Oversight Board's website](https://www.oversightboard.com/news/) .
 
 [Facebook and Instagram initially suspended Trump's account](https://www.makeuseof.com/facebook-instagram-indefinitely-ban-trumps-account/) in January 2021, alleging that Trump incited violence amidst the Capitol protests.[Facebook has since referred the case to its Oversight Board](https://www.makeuseof.com/facebooks-oversight-board-determine-fate-trumps-account/) , a diverse team of experts who will objectively decide whether Trump should be permanently removed.
 
@@ -44,3 +44,24 @@ thumbnail: https://thmb.techidaily.com/98bd5c521103adb9f2f398b8ea114e1ff33040cec
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/step-by-step-embedding-image-descriptors-in-fb-photos/"><u>Step-by-Step: Embedding Image Descriptors in Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-virtual-world-why-it-calls-for-attention/"><u>The Facebook Virtual World - Why It Calls for Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-the-fb-messenger-boundary/"><u>Breaking Free From the FB Messenger Boundary</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-facebooks-annual-reflection-tool/"><u>Unlocking the Power of Facebook’s Annual Reflection Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-event-creation-on-facebook-with-ease/"><u>Navigating Event Creation on Facebook with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-creativity-top-10-insider-canva-tricks/"><u>[Updated] Unlocking Creativity  Top 10 Insider Canva Tricks</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-elevate-your-photo-game-essential-filters-for-stunning-snaps-for-2024/"><u>[New] Elevate Your Photo Game  Essential Filters for Stunning Snaps for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-disappearing-display-on-sony-a6400/"><u>In 2024, The Disappearing Display on Sony A6400</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-hues-a-collection-of-the-best-11-video-tutorials/"><u>[New] Mastering Hues  A Collection of the Best 11 Video Tutorials</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-insight-using-live-photos-effectively/"><u>[New] Expert Insight  Using Live Photos Effectively</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-online-compilation-of-copyright-free-charts-for-2024/"><u>Free Online Compilation of Copyright-Free Charts for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/12-top-stop-motion-studios-worth-recommending/"><u>12 Top Stop Motion Studios Worth Recommending</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-galaxy-a34-5g-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Galaxy A34 5G Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-top-7-stardew-valley-improvement-packs/"><u>[New] In 2024, The Top 7 Stardew Valley Improvement Packs</u></a></li>
+</ul></div>

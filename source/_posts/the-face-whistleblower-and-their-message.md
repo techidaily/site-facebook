@@ -1,7 +1,7 @@
 ---
 title: The Face Whistleblower and Their Message
-date: 2024-06-21 22:37:16
-updated: 2024-06-23 10:36:49
+date: 2024-06-25T14:44:19.719Z
+updated: 2024-06-26T14:44:19.719Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/6404644d3e1ec95170f598da6ea66bbff597c34cc
 
 ## The Face Whistleblower and Their Message
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,23 @@ thumbnail: https://thmb.techidaily.com/6404644d3e1ec95170f598da6ea66bbff597c34cc
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unmasking-common-marketsploits-on-facebook-preventative-measures/"><u>Unmasking Common Marketsploits on Facebook: Preventative Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-and-vr-explained-discerning-6-fundamental-differences/"><u>Metaverse & VR Explained: Discerning 6 Fundamental Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-subtle-shifts-leading-to-user-decline-on-fb/"><u>Exploring the Subtle Shifts Leading to User Decline on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unearth-facebook-accounts-youve-locked-out/"><u>How to Unearth Facebook Accounts You've Locked Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-a-new-frontier-the-potential-of-facebooks-metaverse/"><u>Exploring a New Frontier: The Potential of Facebook’s Metaverse</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/master-the-meme-making-process-top-6-techniques-that-define-creativity-in-gifs-for-2024/"><u>Master the Meme-Making Process  Top 6 Techniques That Define Creativity in GIFs for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-tecno-spark-10-4g-by-drfone-android/"><u>Full Guide to Unlock Your Tecno Spark 10 4G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/honor-90-gt-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Honor 90 GT Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-font-power-boosters-secrets-to-stellar-video-thumbnails/"><u>2024 Approved  Font Power Boosters  Secrets to Stellar Video Thumbnails</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-excellent-record-maker-chromebook-edition-for-2024/"><u>[New] Excellent Record Maker  Chromebook Edition for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-the-ultimate-checklist-for-achieving-high-quality-vocal-recordings/"><u>[Updated] In 2024, The Ultimate Checklist for Achieving High-Quality Vocal Recordings</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Vivo Y78t? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-selecting-the-best-mac-sniping-solutions/"><u>2024 Approved  Selecting the Best Mac Sniping Solutions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/iconic-building-blueprints-for-mc-players/"><u>Iconic Building Blueprints for MC Players</u></a></li>
+</ul></div>

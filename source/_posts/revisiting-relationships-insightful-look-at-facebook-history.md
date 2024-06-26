@@ -1,7 +1,7 @@
 ---
 title: "Revisiting Relationships: Insightful Look at Facebook History"
-date: 2024-06-22 20:53:46
-updated: 2024-06-23 10:24:58
+date: 2024-06-25T14:42:19.006Z
+updated: 2024-06-26T14:42:19.006Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/new-era-of-online-identity-free-from-politicalreligious-bias/"><u>New Era of Online Identity: Free From Political/Religious Bias</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-manipulations-how-design-misguides-us/"><u>Masked Manipulations: How Design Misguides Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-check-scan-for-unauthorized-account-use/"><u>Social Security Check: Scan for Unauthorized Account Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-new-facebook-structure-revelations/"><u>Understanding New Facebook Structure Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-update-procedures-for-your-childs-messengers/"><u>Profile Update Procedures for Your Child’s Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-community-engagement-fb-vs-linkedin-platforms/"><u>Understanding Community Engagement: FB Vs. LinkedIn Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-finest-unveiling-the-best-reaction-tricks/"><u>In 2024, YouTube's Finest  Unveiling the Best Reaction Tricks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-realme-10t-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Realme 10T 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harnessing-youtubes-power-for-personal-image-amplification/"><u>[New] In 2024, Harnessing YouTube's Power for Personal Image Amplification</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-instagram-posting-incorporating-twitter-video-content/"><u>[Updated] Instagram Posting  Incorporating Twitter Video Content</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-photo-and-video-display-apps-for-iphone-series-78/"><u>[Updated] Best Photo & Video Display Apps for iPhone Series 7/8</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-how-to-stream-on-twitch-the-ultimate-guide/"><u>New How to Stream on Twitch The Ultimate Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-beat-blast-updated-technology/"><u>[Updated] Beat Blast  Updated Technology</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/6-best-explainer-video-software-you-should-try/"><u>6 Best Explainer Video Software You Should Try</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/motion-tracking-for-text-the-top-software-choices-for-2024/"><u>Motion Tracking for Text The Top Software Choices for 2024</u></a></li>
+</ul></div>

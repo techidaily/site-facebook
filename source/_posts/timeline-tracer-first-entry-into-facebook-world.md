@@ -1,7 +1,7 @@
 ---
 title: "Timeline Tracer: First Entry Into Facebook World"
-date: 2024-06-22 20:52:48
-updated: 2024-06-23 12:14:39
+date: 2024-06-25T14:47:14.666Z
+updated: 2024-06-26T14:47:14.666Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/d308f7cbef44fc72492251644b94fc820af341541
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/when-to-flip-the-friend-switch-on-facebook-insights-and-strategies/"><u>When to Flip the Friend Switch on Facebook: Insights and Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-updated-navigation-of-facebook/"><u>Discovering the Updated Navigation of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-magic-creating-and-sharing-3d-pictures-on-fb/"><u>Unveiling the Magic: Creating and Sharing 3D Pictures on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-meta-unveiling-the-social-media-giants-future-vision/"><u>From 'Facebook' To Meta: Unveiling the Social Media Giant's Future Vision</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-and-resolving-common-facebook-confusions/"><u>Unraveling & Resolving Common FaceBook Confusions</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-your-allotment-from-the-725-million-facebook-award/"><u>How to Access Your Allotment From the $725 Million Facebook Award</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Realme V30T | Dr.fone</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-ultimate-list-peak-audio-experience-in-discord-with-expert-bot-aids/"><u>2024 Approved  Ultimate List  Peak Audio Experience in Discord with Expert Bot Aids</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-video-boost-the-essential-handbook-for-vce-22/"><u>[Updated] Mastering Video Boost  The Essential Handbook for VCE 2.2</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-step-by-step-guide-to-preserve-snapchat-videos-on-phone-for-2024/"><u>[New] Step-by-Step Guide to Preserve Snapchat Videos on Phone for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sound-surprises-androidioss-disruptive-selection/"><u>[Updated] Sound Surprises  Android/iOS's Disruptive Selection</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-the-best-of-the-best-top-12-audio-converters-for-any-format/"><u>Updated 2024 Approved The Best of the Best Top 12 Audio Converters for Any Format</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-top-tips-for-creating-engaging-and-memorable-instagram-reels/"><u>[Updated] 2024 Approved  Top Tips for Creating Engaging and Memorable Instagram Reels</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-iphone-14-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or iPhone 14 without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-unlocking-potential-secrets-to-successful-fb-video-ads/"><u>In 2024, Unlocking Potential  Secrets to Successful FB Video Ads</u></a></li>
+</ul></div>

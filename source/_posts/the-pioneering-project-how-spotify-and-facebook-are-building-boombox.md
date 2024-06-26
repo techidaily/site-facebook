@@ -1,7 +1,7 @@
 ---
 title: "The Pioneering Project: How Spotify and Facebook Are Building Boombox"
-date: 2024-06-20 11:50:47
-updated: 2024-06-23 10:33:20
+date: 2024-06-25T14:05:53.152Z
+updated: 2024-06-26T14:05:53.152Z
 tags:
   - facebook
 categories:
@@ -19,11 +19,11 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
 
 ## Facebook and Spotify Team up on Project Boombox
 
-[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
+[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by [CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
 
  Zuckerberg told CNBC that Spotify and Facebook are working on something that's known internally as "Project Boombox." According to the report, the feature will let you share your favorite songs, albums, artists, and playlists from within Facebook. The shared audio will then appear inside a music player in users' News Feeds, which users can click on to play.
 
- In a statement to[TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
+ In a statement to [TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
 
 > Our ambition has always been to make Spotify ubiquitous across platforms and devices—bringing music and podcasts to more people—and our new integration with Facebook is another step in these efforts. We look forward to a continued partnership with Facebook, fueling audio discovery around the world.
 
@@ -54,3 +54,24 @@ thumbnail: https://thmb.techidaily.com/31170fc82b47adef76e35b1dbe5e6312865cece8c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/meticulous-breakdown-of-metas-updated-privacy-statutes/"><u>Meticulous Breakdown of Meta's Updated Privacy Statutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-the-metaverse-understanding-6-significant-facebook-changes/"><u>Into the Metaverse: Understanding 6 Significant Facebook Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-shadowban-and-how-to-circumvent-it/"><u>The Enigma of Shadowban and How to Circumvent It</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-success-understanding-facebooks-music-revenue-model/"><u>Tune Into Success: Understanding Facebook's Music Revenue Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-control-spotting-and-fixing-fb-hacks/"><u>Reclaiming Control: Spotting and Fixing FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-alert-discovering-9-social-indicators-of-a-break-in/"><u>Cybersecurity Alert! Discovering 9 Social Indicators of a Break-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistic-assets-transforming-video-content-into-money-through-metric-mastery/"><u>Artistic Assets: Transforming Video Content Into Money Through Metric Mastery</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-screensnapper-showdown/"><u>[New] ScreenSnapper Showdown</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-creating-a-clickable-thumbnail-enhancing-video-visibility-without-costs/"><u>In 2024, Creating a Clickable Thumbnail  Enhancing Video Visibility without Costs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-days-to-launch-podcasts/"><u>Navigating Days to Launch Podcasts</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-determining-the-tactile-auditory-feedback-on-button-interaction/"><u>Updated In 2024, Determining the Tactile-Auditory Feedback on Button Interaction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Itel S23+? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-rapid-response-guide-to-smooth-video-audio-incorporation-with-premiere-pro/"><u>Updated 2024 Approved Rapid-Response Guide to Smooth Video Audio Incorporation with Premiere Pro</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/refining-zoom-visuals-proactive-measures/"><u>Refining Zoom Visuals  Proactive Measures</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-gps-location-on-xiaomi-civi-3-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Xiaomi Civi 3 Easily & Safely | Dr.fone</u></a></li>
+</ul></div>

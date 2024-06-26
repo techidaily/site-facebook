@@ -1,7 +1,7 @@
 ---
 title: "Digital Identity Theft: A Statistical View"
-date: 2024-06-22 18:48:31
-updated: 2024-06-23 12:18:53
+date: 2024-06-25T13:55:21.122Z
+updated: 2024-06-26T13:55:21.122Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
 [Researchers at Google](https://security.googleblog.com/2017/11/new-research-understanding-root-cause.html) and the University of California at Berkeley studied account takeovers occurring from March 2016 to March 2017\. The data showed 15 percent of users experienced such issues with social media or other sites with logins.
 
- A 2021 report from[Norton](https://www.nortonlifelock.com/us/en/newsroom/press-kits/2021-norton-cyber-safety-insights-report/) showed that 14 percent of respondents dealt with unauthorized activity on their social media accounts during their lifetimes.
+ A 2021 report from [Norton](https://www.nortonlifelock.com/us/en/newsroom/press-kits/2021-norton-cyber-safety-insights-report/) showed that 14 percent of respondents dealt with unauthorized activity on their social media accounts during their lifetimes.
 
 [A December 2020 study](https://www.statista.com/statistics/1228062/opinion-online-security-worldwide/) also examined people’s concerns about suffering account hacks of any sort in 2021\. The worldwide breakdown showed that 34 percent considered it likely, while 45 percent deemed such events improbable.
 
@@ -59,15 +59,13 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
  Alternatively, compromising the social media account of a public office candidate lets a hacker post controversial viewpoints or other damaging material that could give other political parties an advantage.
 
- Hackers could also play on people’s desire to help others. A cybercriminal might break into a social media account and use it to[distribute a convincing sob story](https://www.makeuseof.com/social-media-used-for-human-hacking/) that gets generous people to part with their funds.
+ Hackers could also play on people’s desire to help others. A cybercriminal might break into a social media account and use it to [distribute a convincing sob story](https://www.makeuseof.com/social-media-used-for-human-hacking/) that gets generous people to part with their funds.
 
  Consider if a grandmother, aunt, or uncle sees a social media message apparently originating from a relative’s account asking for money regarding a dire situation. Since they likely know that person in real life and care about them, they probably won’t question the demand.
 
- Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by[setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
+ Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by [setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-## How to Handle a Social Media Hack
-
-![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
+## How to Handle a Social Media Hack ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 
@@ -75,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
  Next, go through any necessary account recovery steps set by the social media site. For example, Twitter’s help documentation for such situations recommends requesting a password reset as your first strategy. Getting additional help requires submitting a support ticket containing your username and the date you last had access.
 
- And review any options for[strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
+ And review any options for [strengthening your social media security](https://www.makeuseof.com/how-to-hack-facebook/) . Facebook’s Security Checkup walks you through suggested improvements to make. It’s a good starting point if you use that site.
 
 ## You Can Avoid a Social Media Hack
 
@@ -96,3 +94,22 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/analyzing-the-motive-behind-facebooks-just-feed-change/"><u>Analyzing the Motive Behind Facebook's 'Just Feed' Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-how-quizzes-can-jeopardize-cyber-safety/"><u>Exploring How Quizzes Can Jeopardize Cyber Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-moment-to-update-your-fb-avatar/"><u>Best Moment to Update Your FB Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-political-interruptions-on-facebook/"><u>Freedom From Political Interruptions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-gesture-communication-benefits/"><u>Deciphering Facebook’s Gesture Communication Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-more-than-headlines-dissecting-fb-dossiers-objectively/"><u>Understanding More than Headlines: Dissecting FB Dossiers Objectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maestro-departs-carolyn-eversons-next-move/"><u>Marketing Maestro Departs: Carolyn Everson's Next Move</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/17-best-lights-and-lighting-equipment-for-youtube-for-2024/"><u>17 Best Lights and Lighting Equipment for YouTube for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-runners-digital-dream-top-virtual-reality-walkers/"><u>[New] The Runner's Digital Dream  Top Virtual Reality Walkers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/streamline-accessibility-a-compreenas-top-free-tts-apps-list-for-mac-users/"><u>Streamline Accessibility  A Compreenas Top Free TTS Apps List for Mac Users</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-curate-your-learning-best-15-science-yt-experts/"><u>2024 Approved  Curate Your Learning  Best 15 Science YT Experts</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-xiaomi-redmi-k70e-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Xiaomi Redmi K70E PC | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-motorola-edge-40-pro-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Motorola Edge 40 Pro FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-stepwise-integration-technique-for-youtube-playlists-on-web/"><u>[Updated] Stepwise Integration Technique for YouTube Playlists on Web</u></a></li>
+</ul></div>

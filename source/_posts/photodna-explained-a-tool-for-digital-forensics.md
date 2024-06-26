@@ -1,7 +1,7 @@
 ---
 title: "PhotoDNA Explained: A Tool for Digital Forensics"
-date: 2024-06-21 11:19:15
-updated: 2024-06-23 11:59:51
+date: 2024-06-25T14:34:43.447Z
+updated: 2024-06-26T14:34:43.447Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,24 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/us-users-authenticity-now-at-meta/"><u>US Users: Authenticity Now at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-social-giant-reaching-its-limits/"><u>Is the Social Giant Reaching Its Limits?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quintessential-qanda-5-superior-biz-social-tools/"><u>The Quintessential Q&A: 5 Superior Biz Social Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-mirage-of-masks-on-modern-networks/"><u>Avoiding the Mirage of Masks on Modern Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-guide-to-updating-kids-information-in-messengers/"><u>Parental Guide to Updating Kid's Information in Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-reasons-you-should-take-a-break-from-social-media/"><u>7 Reasons You Should Take a Break From Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-undertones-in-your-facebook-like-expressions/"><u>Tactical Undertones in Your Facebook Like Expressions</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-budget-friendly-steps-for-syncing-your-fb-content-schedule/"><u>5 Budget-Friendly Steps for Syncing Your FB Content Schedule</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/essential-tips-for-locating-youtubes-content-creation-hub/"><u>Essential Tips for Locating YouTube's Content Creation Hub</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-list-28-top-rated-video-to-gif-converters/"><u>The Ultimate List 28 Top-Rated Video to GIF Converters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-digital-imagery-with-musical-twist-for-2024/"><u>[Updated] Digital Imagery with Musical Twist for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-edit-videos-for-free-on-your-chromebook-top-software/"><u>Updated 2024 Approved Edit Videos for Free on Your Chromebook Top Software</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-transform-your-videos-how-to-add-slow-motion-effects-on-kapwing-for-2024/"><u>Updated Transform Your Videos How to Add Slow Motion Effects on Kapwing for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-uncovering-natural-beast-cries-aural-library/"><u>New Uncovering Natural Beast Cries Aural Library</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-ultimate-sound-editing-solutions-for-online-bloggers/"><u>In 2024, Ultimate Sound Editing Solutions for Online Bloggers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/maximizing-aerial-excellence-with-optimal-motor-selections/"><u>Maximizing Aerial Excellence with Optimal Motor Selections</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-mastering-ps3-gaming-capture-step-by-step-guide/"><u>2024 Approved  Mastering PS3 Gaming Capture  Step-by-Step Guide</u></a></li>
+</ul></div>

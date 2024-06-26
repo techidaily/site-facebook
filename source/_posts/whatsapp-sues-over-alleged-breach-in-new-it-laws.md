@@ -1,7 +1,7 @@
 ---
 title: WhatsApp Sues Over Alleged Breach in New IT Laws
-date: 2024-06-20 19:44:14
-updated: 2024-06-23 11:41:24
+date: 2024-06-25T13:50:25.890Z
+updated: 2024-06-26T13:50:25.890Z
 tags:
   - facebook
 categories:
@@ -27,13 +27,13 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 
 ## Indian Government Wants to Regulate Social Media Content
 
- The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was[first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
+ The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was [first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
 
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
- A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
+ A WhatsApp spokesperson issued the following statement to [The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
 > Civil society and technical experts around the world have consistently argued that a requirement to ‘trace’ private messages would break end-to-end encryption and lead to real abuse. WhatsApp is committed to protecting the privacy of people’s personal messages and we will continue to do all we can within the laws of India to do so.
 
@@ -49,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
- WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
+ WhatsApp's move against the Indian government comes at a time when it has itself been [subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned [WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
@@ -74,3 +74,24 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/8-features-of-workplace-from-facebook-for-collaborative-project-management/"><u>8 Features of Workplace From Facebook for Collaborative Project Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-second-life-a-potential-metaverse-role/"><u>The Future of Second Life: A Potential Metaverse Role?</u></a></li>
+<li><a href="https://facebook.techidaily.com/into-the-metaverse-understanding-6-significant-facebook-changes/"><u>Into the Metaverse: Understanding 6 Significant Facebook Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-invisible-lines-in-online-social-networks/"><u>Interpreting the Invisible Lines in Online Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/combating-coronavirus-myths-on-online-communities/"><u>Combating Coronavirus Myths on Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-id-discarding-what-does-it-mean-for-facebook-users-protection/"><u>Facial ID Discarding: What Does It Mean for Facebook Users' Protection?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/recycle-and-relish-continuous-playback-of-youtube-on-tv-for-2024/"><u>Recycle and Relish  Continuous Playback of YouTube on TV for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-masterclass-conquering-one-device-livestream-challenges/"><u>[Updated] In 2024, Masterclass  Conquering One-Device Livestream Challenges</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-samsung-galaxy-a24-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>In 2024, Unlock Samsung Galaxy A24 Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-exploring-income-derived-from-each-watch-on-video-platforms-for-2024/"><u>[Updated] Exploring Income Derived From Each Watch on Video Platforms for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-slow-it-down-a-comprehen/"><u>[New] Slow It Down  A Comprehen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-how-have-game-recording-software-improved-their-stature-in-the-market-an-overview/"><u>Updated In 2024, How Have Game Recording Software Improved Their Stature in the Market? An Overview</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-funimate-pro-apk-a-complete-guide-for-2024/"><u>[New] Funimate Pro APK  A Complete Guide for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Simple Steps for Adding Contacts in FB Messaging
-date: 2024-06-22 12:41:18
-updated: 2024-06-23 10:44:49
+date: 2024-06-25T14:25:26.032Z
+updated: 2024-06-26T14:25:26.032Z
 tags:
   - facebook
 categories:
@@ -67,7 +67,7 @@ Close
 
 ## Why Can’t I Add Someone on Messenger?
 
-![Facebook app in mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-app-in-mobile.jpg)
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -75,7 +75,7 @@ Close
 
  This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
 
- The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation [when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
@@ -108,3 +108,24 @@ So how can you delete old messages on Messenger?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/virtual-reality-on-facebook-3-red-flags-to-note/"><u>Virtual Reality on Facebook – 3 Red Flags to Note</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-beyond-boundaries-uncovering-six-key-metaverse-aspects-in-fb/"><u>Connecting Beyond Boundaries: Uncovering Six Key Metaverse Aspects in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/dial-down-mobile-browsing-capabilities-fb/"><u>Dial Down Mobile Browsing Capabilities: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-timeline-enhance-your-online-social-experience/"><u>Tailoring the Timeline: Enhance Your Online Social Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-part-ways-on-biometrics-the-why-behind-the-shift/"><u>Meta and FB Part Ways on Biometrics: The Why Behind the Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-this-years-most-noteworthy-tech-mistakes/"><u>Unearthing This Year's Most Noteworthy Tech Mistakes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-vivo-v30-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Vivo V30 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlock-your-drive-with-top-tiktokers/"><u>[New] Unlock Your Drive with Top TikTokers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-eliminate-your-streaming-darkness-on-youtube/"><u>[Updated] 2024 Approved  Eliminate Your Streaming Darkness on YouTube</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-automated-methods-for-adding-photo-dates/"><u>2024 Approved  Automated Methods for Adding Photo Dates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/principles-of-crafting-alluring-vlog-storylines-for-2024/"><u>Principles of Crafting Alluring Vlog Storylines for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mp3-downloader-for-facebook-feeds/"><u>2024 Approved  MP3 Downloader for Facebook Feeds</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-steps-for-capturing-hd-content-on-fb/"><u>In 2024, Steps for Capturing HD Content on FB</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-4-ways-for-apple-iphone-13-pro-max-to-mac-mirroring-drfone-by-drfone-ios/"><u>Top 4 Ways for Apple iPhone 13 Pro Max to Mac Mirroring | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastery-of-youtube-policy-for-successful-channels-for-2024/"><u>Mastery of YouTube Policy for Successful Channels for 2024</u></a></li>
+</ul></div>

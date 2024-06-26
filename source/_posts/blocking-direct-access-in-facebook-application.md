@@ -1,7 +1,7 @@
 ---
 title: Blocking Direct Access in Facebook Application
-date: 2024-06-21 16:28:41
-updated: 2024-06-23 12:30:36
+date: 2024-06-25T14:28:36.172Z
+updated: 2024-06-26T14:28:36.172Z
 tags:
   - facebook
 categories:
@@ -61,9 +61,9 @@ Close
 
 Close
 
- There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also[opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
+ There is some convenience to using Facebook's in-app browser, but privacy-oriented users may want to use an external browser instead. For added privacy, you should also [opt out of Facebook's link history feature](https://www.makeuseof.com/facebook-link-history-feature-opt-in/) .
 
- You can also[use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
+ You can also [use the off-Facebook activity tool](https://www.makeuseof.com/tag/off-facebook-activity-tool/) to reduce the amount of data Facebook collects about you when you're not using the app.
 
  Unfortunately, the ability to completely disable Facebook's in-app browser is no longer included in the app. But you can use your privacy settings to disable the built-in browser for message links.
 
@@ -82,3 +82,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-permanently-deleting-fb-account-android/"><u>Mastering the Art of Permanently Deleting FB Account (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-secure-your-facebook-account-for-recovery/"><u>5 Ways to Secure Your Facebook Account for Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-engaging-posts-with-ripl/"><u>The Ultimate Guide to Engaging Posts with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-unseen-discussions-on-social-platforms/"><u>The Art of Unseen Discussions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/stake-in-the-game-understanding-crypto-stablecoins/"><u>Stake in the Game: Understanding Crypto Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-pioneer-trumps-online-revival/"><u>The Digital Pioneer: Trumps Online Revival</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-premiere-pro-essentials-how-to-stabilize-and-smooth-out-your-footage/"><u>2024 Approved Premiere Pro Essentials How to Stabilize and Smooth Out Your Footage</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-oppo-a79-5g-frp-bypass-by-drfone-android/"><u>About Oppo A79 5G FRP Bypass</u></a></li>
+<li><a href="https://extra-information.techidaily.com/whispering-winds-down-best-voices-for-sleep/"><u>Whispering Winds Down  Best Voices for Sleep</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-xr-drfone-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone XR | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/beyond-the-surface-what-you-dont-know-about-stories-for-2024/"><u>Beyond the Surface  What You Don't Know About Stories for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-high-quality-screen-recording-with-tunefab/"><u>[Updated] In 2024, High-Quality Screen Recording with Tunefab</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-composers-craft-crossfade-in-logic-pro-x/"><u>[Updated] The Composer's Craft - Crossfade in Logic Pro X</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-media-mosaic-maker/"><u>In 2024, Media Mosaic Maker</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Poco M6 5G | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?"
-date: 2024-06-22 21:43:32
-updated: 2024-06-23 11:47:56
+date: 2024-06-25T14:31:12.779Z
+updated: 2024-06-26T14:31:12.779Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,9 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 
  According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
 
- Back in 2018, unknown entities[accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide[third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
 
- Alon Gal, the chief technology officer of the cybercrime intelligence firm[Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
 
 > "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
 
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected
-
-![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -77,13 +75,11 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 
  If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
 
- Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is[to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts
-
-![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 
@@ -126,3 +122,24 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tackling-misinformation-how-social-networks-are-evolving/"><u>Tackling Misinformation: How Social Networks Are Evolving</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-excessive-ad-content-tailoring-on-social-networks/"><u>Cut Excessive Ad Content Tailoring on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/shift-gears-modify-facebook-url-for-professionalism/"><u>Shift Gears: Modify Facebook URL for Professionalism</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-alerts-youth-advised-to-limit-instagram/"><u>Digital Wellbeing Alerts: Youth Advised to Limit Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-rekindle-on-fb-breaking-past-barriers/"><u>How to Rekindle on FB: Breaking Past Barriers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-2004-present-adaptations-and-growth/"><u>Facebook's Journey: 2004-Present Adaptations and Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-dissolving-instagram-facebook-association/"><u>A Guide to Dissolving Instagram-Facebook Association</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-fb-surveillance-using-the-off-fb-toolset/"><u>Conquer FB Surveillance Using the Off-FB Toolset</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-jump-into-sub4sub-guide-awaits-to-ensure-success/"><u>2024 Approved  Jump Into Sub4sub - Guide Awaits to Ensure Success</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-comic-corner-tickling-fun-with-the-top-tiktok-jokes-and-pranks/"><u>[New] Comic Corner  Tickling Fun with the Top TikTok Jokes and Pranks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-forging-strong-connections-building-youtube-backlinks-right/"><u>In 2024, Forging Strong Connections  Building YouTube Backlinks Right</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-charting-new-territories-innovations-in-office-spaces-for-enhanced-output/"><u>In 2024, Charting New Territories  Innovations in Office Spaces for Enhanced Output</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-account-management-unfollow-steps/"><u>Mastering Account Management  Unfollow Steps</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713964300117-new-looking-for-a-video-editor-where-you-can-edit-your-tutorial-and-training-videos-camtasia-is-a-great-choice-but-is-it-the-best-video-editor-available-fin/"><u>New Looking for a Video Editor Where You Can Edit Your Tutorial and Training Videos? Camtasia Is a Great Choice. But Is It the Best Video Editor Available? Find Out From Our Camtasia Review for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-basics-for-transforming-full-size-photos-into-efficient-thumbnails/"><u>The Basics for Transforming Full-Size Photos Into Efficient Thumbnails</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Xiaomi 14? | Dr.fone</u></a></li>
+</ul></div>

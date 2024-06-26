@@ -1,7 +1,7 @@
 ---
 title: Guiding Users on Friend Activity Sharing Controls
-date: 2024-06-21 23:34:30
-updated: 2024-06-23 10:50:44
+date: 2024-06-25T14:10:50.141Z
+updated: 2024-06-26T14:10:50.141Z
 tags:
   - facebook
 categories:
@@ -29,11 +29,11 @@ thumbnail: https://thmb.techidaily.com/e6453a312e7541048e8ab83b723e3434e4f0870a3
 
  Active Status appears as a green dot next to your profile picture on Facebook and Messenger when you're online or have been recently active. The information Meta gives on Active Status is a bit unclear, differing according to the device you use Facebook on.
 
- In its[help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
+ In its [help article](https://www.facebook.com/help/215888465102253?cms%5Fplatform=www&helpref=platform%5Fswitcher) for Active Status on computer, the company notes:
 
 > The settings you choose will be updated everywhere you use Meta products, including where you haven't yet changed your Active Status.
 
- But for the same help article, switched to the[Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
+ But for the same help article, switched to the [Android app help](https://www.facebook.com/help/215888465102253/?cms%5Fplatform=android-app&helpref=platform%5Fswitcher) , the company notes:
 
 > When you turn Active Status off, you'll still appear active or recently active from any other places where you're using Facebook or Messenger, unless you turn off Active Status in those places, too.
 
@@ -84,7 +84,7 @@ Close
 
  Switching off your Active Status also prevents you from seeing when other people are online. In our test, switching off Active Status on the mobile app did not carry over to the desktop browser version of Facebook.
 
- You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
+ You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
@@ -92,7 +92,7 @@ Close
 
 This is different from a full Facebook block.
 
- As[Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
+ As [Facebook notes](https://www.facebook.com/help/1682395428676916?helpref=faq%5Fcontent) :
 
 > Blocking messages from someone is different from blocking them on Facebook. If you block messages from someone, but you don't block them on Facebook, you'll still be able to see their Facebook profile.
 
@@ -109,7 +109,7 @@ This is different from a full Facebook block.
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
- Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+ Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
 ## Control Who Sees You Online on Facebook
 
@@ -132,3 +132,24 @@ This is different from a full Facebook block.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/january-review-the-status-of-trumps-page/"><u>January Review: The Status of Trump's Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-tactics-against-online-platforms-shadowbans/"><u>Evasion Tactics Against Online Platform's Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-business-page-discontinuation-on-facebook/"><u>Navigating Through Business Page Discontinuation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-gracefully-stepping-out-facebook-groups-exit/"><u>The Art of Gracefully Stepping Out: Facebook Groups Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-controls-facebook-currently/"><u>Who Controls Facebook Currently?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-hidden-insta-story-accessibility-step-by-step-for-tech-savvy/"><u>[Updated] 2024 Approved  Hidden Insta Story Accessibility - Step-by-Step for Tech Savvy</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-yosemite-video-editing-101-a-beginners-tutorial-for-mac-os-x-for-2024/"><u>Updated Yosemite Video Editing 101 A Beginners Tutorial for Mac OS X for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-create-unforgettable-videos-top-5-photo-slideshow-makers-revealed/"><u>2024 Approved Create Unforgettable Videos Top 5 Photo Slideshow Makers Revealed</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-full-guide-erase-tiktok-footprints-forevermore/"><u>[New] In 2024, Full Guide  Erase TikTok Footprints Forevermore</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-rally-your-crowd-engaging-audiences-on-telegram/"><u>2024 Approved  Rally Your Crowd  Engaging Audiences on Telegram</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-ultimate-cartoony-transformation-tools-for-pcs-and-macs/"><u>2024 Approved  Ultimate Cartoony Transformation Tools for PCs & Macs</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-crop-resize-and-refine-mastering-video-editing-with-avidemux/"><u>New In 2024, Crop, Resize, and Refine Mastering Video Editing with Avidemux</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-dive-into-the-world-of-cartoon-pop-culture-with-snapchat/"><u>[Updated] In 2024, Dive Into the World of Cartoon Pop Culture with Snapchat</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-raw-to-refined-tailoring-youtube-videos-with-premiere-pro/"><u>[New] In 2024, From Raw to Refined  Tailoring YouTube Videos with Premiere Pro</u></a></li>
+</ul></div>

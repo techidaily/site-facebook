@@ -1,7 +1,7 @@
 ---
 title: Block Unsolicited General Member Postings
-date: 2024-06-20 11:38:15
-updated: 2024-06-23 12:11:51
+date: 2024-06-25T14:00:58.837Z
+updated: 2024-06-26T14:00:58.837Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
 ## How to Turn Off the @everyone Tag on Facebook
 
- Here's how to turn off the pesky notifications without[leaving a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) :
+ Here's how to turn off the pesky notifications without [leaving a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) :
 
 ![screenshot showing facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/screenshot-showing-facebook-settings-menu.jpg)
 
@@ -40,7 +40,7 @@ Close
 
 ## Why You Should Turn Off @everyone Tags on Facebook
 
- The @everyone feature is popular with Facebook groups because it allows admins to alert members of important news or events. It's also helpful when admins want to[start a discussion with everyone in a Facebook group](https://www.makeuseof.com/how-to-mention-all-members-facebook-group/) .
+ The @everyone feature is popular with Facebook groups because it allows admins to alert members of important news or events. It's also helpful when admins want to [start a discussion with everyone in a Facebook group](https://www.makeuseof.com/how-to-mention-all-members-facebook-group/) .
 
  However, this feature can be abused by some admins. It can be used to send out unsolicited notifications, which can be disruptive and even spammy if done too often.
 
@@ -67,3 +67,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/what-are-the-significant-shifts-in-metas-privacy-rules/"><u>What Are the Significant Shifts in Meta's Privacy Rules?</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-users-at-risk-the-effect-of-deleting-facial-recognition-data-on-safety/"><u>Facebook Users at Risk? The Effect of Deleting Facial Recognition Data on Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/sick-of-politics-3-powerful-ways-to-clean-up-facebook/"><u>Sick of Politics? 3 Powerful Ways to Clean Up Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-pivotal-news-moments-in-google/"><u>Unveiling the Pivotal News Moments in Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-bonds-not-bruises-fb-banter-basics/"><u>Building Bonds, Not Bruises: FB Banter Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-ties-7-innovative-ways-online-to-converge/"><u>Social Ties: 7 Innovative Ways Online to Converge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-free-end-credits-excellence-top-6-tutorials/"><u>[New] 2024 Approved  Free End Credits Excellence  Top 6 Tutorials</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/uilding-an-online-empire-ramp-up-video-views/"><u>[New] Building an Online Empire  Ramp Up Video Views</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-apple-iphone-15-pro-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from Apple iPhone 15 Pro Safe and Legal</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-online-mp3-cutter-and-joiner/"><u>Updated In 2024, ONLINE MP3 CUTTER AND JOINER</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-iphoneplusandroid-discover-the-top-10-video-making-picks/"><u>[Updated] IPhone+Android  Discover the Top 10 Video-Making Picks</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-in-2024-best-12-evil-cartoon-characters-of-all-time/"><u>New In 2024, Best 12 Evil Cartoon Characters of All Time</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfect-your-pixels-select-best-10-online-enhancement-apps/"><u>[Updated] Perfect Your Pixels  Select Best 10 Online Enhancement Apps</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pro-editors-manual-tackling-gopro-distortion/"><u>2024 Approved  Pro Editor's Manual  Tackling GoPro Distortion</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ustream-evaluation-find-alternates/"><u>[New] Ustream Evaluation, Find Alternates</u></a></li>
+<li><a href="https://extra-information.techidaily.com/yuneecs-breeze-a-quest-for-perfect-vision/"><u>Yuneec's Breeze - A Quest for Perfect Vision</u></a></li>
+</ul></div>

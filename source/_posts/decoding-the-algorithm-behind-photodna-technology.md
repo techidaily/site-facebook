@@ -1,7 +1,7 @@
 ---
 title: Decoding the Algorithm Behind PhotoDNA Technology
-date: 2024-06-20 23:34:22
-updated: 2024-06-23 11:31:31
+date: 2024-06-25T14:32:29.612Z
+updated: 2024-06-26T14:32:29.612Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,26 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/what-is-shadowbanning-and-how-to-avoid-it/"><u>What Is Shadowbanning? And How to Avoid It</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-approach-to-delete-digital-dialogue-on-fb/"><u>Simplified Approach to Delete Digital Dialogue on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-the-fb-messenger-boundary/"><u>Breaking Free From the FB Messenger Boundary</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-surging-no-to-apples-tracking-practices/"><u>A Surging No to Apple's Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-curve-top-or-trough/"><u>Facebook's Engagement Curve: Top or Trough?</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-unlock-your-creative-potential-how-to-make-stunning-home-dvds-with-ease/"><u>2024 Approved Unlock Your Creative Potential How to Make Stunning Home DVDs with Ease</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>[New] Mastering Streams  Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-no-copyright-worries-10-top-public-domain-image-sites/"><u>Updated No Copyright Worries 10 Top Public Domain Image Sites</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-boost-visibility-and-engagement-with-smart-social-media-videos/"><u>[Updated] In 2024, Boost Visibility and Engagement with Smart Social Media Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-say-goodbye-to-shaky-footage-top-video-stabilizers/"><u>In 2024, Say Goodbye to Shaky Footage Top Video Stabilizers</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-hdvision-webcam-editing-masterclass/"><u>[New] HDVision Webcam Editing Masterclass</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/1714896035988-how-to-improve-sound-quality-on-a-home-recorded-video/"><u>How to Improve Sound Quality on a Home Recorded Video</u></a></li>
+<li><a href="https://review-topics.techidaily.com/open-and-repair-doesnt-work-in-ms-excel-by-stellar-guide/"><u>Open and Repair Doesnt Work in MS Excel</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/step-by-step-creating-fade-inout-sequences-for-dynamic-audio-for-2024/"><u>Step-by-Step Creating Fade In/Out Sequences for Dynamic Audio for 2024</u></a></li>
+</ul></div>

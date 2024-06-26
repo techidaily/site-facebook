@@ -1,7 +1,7 @@
 ---
 title: "Invisible Aggressors: Dark Patterns and Data Breaches"
-date: 2024-06-22 16:27:20
-updated: 2024-06-23 11:39:44
+date: 2024-06-25T14:19:42.421Z
+updated: 2024-06-26T14:19:42.421Z
 tags:
   - facebook
 categories:
@@ -48,17 +48,15 @@ The site lists 12 types of dark patterns to watch out for:
 
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
 
- You can read more about these tactics on the Dark Patterns website, as well as our[list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
+ You can read more about these tactics on the Dark Patterns website, as well as our [list of common dark pattern examples](https://www.makeuseof.com/tag/what-are-dark-patterns/) that aren't necessarily related to privacy. You'll likely recognize quite a few of them, and you might not have realized how widespread they are.
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy
-
-![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
- Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
+ Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled [Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
 ### 1\. Default Settings
 
@@ -132,7 +130,7 @@ The site lists 12 types of dark patterns to watch out for:
 
  Google's privacy dashboard is flashy and friendly. But it's not actually designed to help you manage your privacy.
 
- You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
+ You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called [Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
 ## Dark Patterns Are Rough for Privacy
 
@@ -155,3 +153,23 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-imposes-fines-on-spreading-falsehoods/"><u>Facebook Imposes Fines on Spreading Falsehoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet!</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/complementing-text-with-visuals-whatsapp-and-facebook-images/"><u>Complementing Text with Visuals: WhatsApp & Facebook Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-ai-can-copy-text-style-from-a-picture-of-a-single-word/"><u>Facebook's New AI Can Copy Text Style From a Picture of a Single Word</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-generating-a-youtube-auto-subscribe-direct-link/"><u>[New] Generating a YouTube Auto Subscribe Direct Link</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-instructions-for-using-telegram-online-professionally-for-2024/"><u>Step-By-Step Instructions For Using Telegram Online Professionally for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-erase-distractions-top-video-blur-apps-for-face-and-background/"><u>Updated Erase Distractions Top Video Blur Apps for Face and Background</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-oppo-find-x7-ultra-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Oppo Find X7 Ultra Phone? Unlock It Now</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-streaming-showdown-obs-or-twitch-studio/"><u>2024 Approved  Streaming Showdown  OBS or Twitch Studio</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-step-by-step-tutorial-for-capturing-calls-using-google-voice/"><u>New 2024 Approved Step-by-Step Tutorial for Capturing Calls Using Google Voice</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-maximize-your-reach-ideal-video-dimensions-for-instagram-feed-and-stories/"><u>New Maximize Your Reach Ideal Video Dimensions for Instagram Feed and Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-experience-the-joy-sorrow-merge-with-these-ten-meme-ig-accounts/"><u>[New] In 2024, Experience the Joy-Sorrow Merge with These Ten Meme IG Accounts</u></a></li>
+</ul></div>

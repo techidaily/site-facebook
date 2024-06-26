@@ -1,7 +1,7 @@
 ---
 title: Posting Under the Radar in Social Hubs
-date: 2024-06-21 20:27:56
-updated: 2024-06-23 12:26:38
+date: 2024-06-25T13:53:54.040Z
+updated: 2024-06-26T13:53:54.040Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,7 @@ thumbnail: https://thmb.techidaily.com/51c7e118bec96598bc9d2d2c18cf903e1dca3cd52
 
  Though originally meant for parenting groups, other groups where people share sensitive information have also found this feature to be useful and thus have activated it on their group.
 
-## How to Post Anonymously in a Facebook Group
-
-![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
+## How to Post Anonymously in a Facebook Group ![facebook anonymous group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post-homepage.jpg)
 
 ![facebook anonymous post page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-anonymous-post.jpg)
 
@@ -43,7 +41,7 @@ Close
 4. A prompt explaining how anonymous posts work will pop up. Tap**Create Anonymous Post** .
 5. Create your post and tap**Submit** .
 
- And there you have it. Now you no longer have to[leave a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) because you feel uncomfortable sharing your experience.
+ And there you have it. Now you no longer have to [leave a Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) because you feel uncomfortable sharing your experience.
 
 **Note:** This feature is only available in groups set as parenting groups.
 
@@ -80,3 +78,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/methodical-ways-to-delete-your-facebook-alerts/"><u>Methodical Ways to Delete Your Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-realities-seeing-the-whole-picture-in-fb-data-exposes/"><u>Unveiling Realities: Seeing the Whole Picture in FB Data Exposés</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-hush-zones-no-facebook-in-these-areas/"><u>Global Hush Zones: No Facebook in These Areas</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-lies-top-10-social-media-realities-of-facebook/"><u>Beyond the Lies: Top 10 Social Media Realities of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-dwindling-threads-by-year-end-decision/"><u>Instagram's Dwindling Threads by Year-End Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-navigation-of-facebooks-transparency-for-users/"><u>Step-by-Step Navigation of Facebook's Transparency for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-itel-p55t-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Itel P55T FRP Bypass Instantly</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-nokia-g42-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-most-reliable-mp3-converters-for-mac-users/"><u>Updated In 2024, The Most Reliable MP3 Converters for Mac Users</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-vivo-t2-5g-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Vivo T2 5G Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/do-you-want-to-slow-down-your-tiktok-video-and-zoom-on-a-specific-part-this-is-no-longer-a-difficult-task-as-this-video-comes-up-with-the-right-set-of-metho/"><u>Do You Want to Slow Down Your TikTok Video and Zoom on a Specific Part? This Is No Longer a Difficult Task as This Video Comes up with the Right Set of Methods that Can Be Used to Implement the Slow Zoom Effect TikTok</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-infinix-note-30-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Infinix Note 30 5G</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>What Pokémon Evolve with A Dawn Stone For Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-samsung-galaxy-s23-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Samsung Galaxy S23 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-first-step-into-furnishings-simplest-mc-houses-unveiled/"><u>[New] In 2024, First Step Into Furnishings  Simplest MC Houses Unveiled</u></a></li>
+</ul></div>

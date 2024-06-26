@@ -1,7 +1,7 @@
 ---
 title: Charting a Course to Private Pics on Facebook
-date: 2024-06-22 22:14:10
-updated: 2024-06-23 12:51:14
+date: 2024-06-25T13:52:29.041Z
+updated: 2024-06-26T13:52:29.041Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/fe961e2cb838e9277b3f939887a16421625618620
 
  You can change the privacy of an entire album on Facebook to save time, rather than needing to make photos private one by one.
 
- However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can[untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
+ However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can [untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
 
  To make a photo album private on Facebook's Android or iOS app, follow these steps:
 
@@ -119,7 +119,7 @@ Close
 
 * Select**Only me** and click**Done** to save your changes.
 
- You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
+ You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid [the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
 
 ## Who Can See My Photos on Facebook? How to Check
 
@@ -131,7 +131,7 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
- This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
+ This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
@@ -155,7 +155,7 @@ Close
 
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
- Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
+ Having a [Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can [make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -178,3 +178,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/revolutionizing-community-oversight-facebooks-latest-update/"><u>Revolutionizing Community Oversight: Facebook's Latest Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-runs-todays-facebook/"><u>Who Runs Today's Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-gathering-made-easy-using-your-facebook-portal-tv/"><u>Virtual Gathering Made Easy: Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-season-for-altering-fb-identity-snapshot/"><u>Ideal Season for Altering FB Identity Snapshot</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-these-five-economical-ways-to-time-your-fb-updates/"><u>Unlock These Five Economical Ways to Time Your FB Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dealing-with-non-delivery-of-two-factor-authentication-code-on-fb/"><u>Dealing with Non-Delivery of Two-Factor Authentication Code on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-say-facebook-clamps-honesty-in-ads/"><u>Whistle-Blowers Say Facebook Clamps Honesty in Ads</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-igtvs-top-picks-for-next-weeks-feed/"><u>In 2024, IGTV's Top Picks for Next Week's Feed</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-10-best-free-apps-for-blurring-faces-in-photos-and-videos-how-to-blur-faces-in-video-beginners-guide-for-2024/"><u>New 10 Best Free Apps for Blurring Faces in Photos and Videos How to Blur Faces in Video (Beginners Guide) for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-top-10-unforgettable-igtv-video-strategies-for-brand-success/"><u>[New] 2024 Approved  Top 10 Unforgettable IGTV Video Strategies for Brand Success</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/do-paid-followers-impact-channel-popularity-for-2024/"><u>Do Paid Followers Impact Channel Popularity for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/reaching-new-crowds-simultaneous-youtube-and-twitch-coverage/"><u>Reaching New Crowds  Simultaneous Youtube & Twitch Coverage</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-crafting-quality-sound-utilizing-audacity-for-professional-podcasting/"><u>2024 Approved Crafting Quality Sound Utilizing Audacity for Professional Podcasting</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-evolution-of-video-sharing-tiktok-vs-snap-for-2024/"><u>[New] The Evolution of Video Sharing  TikTok vs Snap for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-2024-gaming-earnings-on-youtube/"><u>[New] 2024 Gaming Earnings on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-momentum-at-rest-best-idle-pc-games-for-2024/"><u>[Updated] Momentum at Rest  Best Idle PC Games for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "More Than Scandal: A Balanced View on The Social Media Investigation"
-date: 2024-06-21 19:59:20
-updated: 2024-06-23 12:57:18
+date: 2024-06-25T13:53:45.295Z
+updated: 2024-06-26T13:53:45.295Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/e5896cf8bd138a267d00eafc99f462dd02faf3099
 
  Here, we'll take a look at some reasons The Facebook Papers aren't as damning as they may first seem.
 
-**Note:** The Facebook Papers were released before[Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
+**Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
@@ -43,13 +43,13 @@ thumbnail: https://thmb.techidaily.com/e5896cf8bd138a267d00eafc99f462dd02faf3099
 
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
- When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
+ When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
 
  Now, you can see why the reports are all photo-based, it's much easier to take a sneaky photo with your phone than it is to suspiciously copy files to a thumb drive.
 
  But, this fact means we have to give Facebook some benefit of the doubt. As you'll have no doubt seen, one of Facebook's reasons for denying the reports is that they mischaracterize the company by not providing the full context.
 
-> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by[Mark Zuckerberg](https://www.facebook.com/zuck) on[Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
+> There's a lot going on right now, and I just discussed it in our earnings call. I also talked about some of the new...Posted by [Mark Zuckerberg](https://www.facebook.com/zuck) on [Monday, 25 October 2021](https://www.facebook.com/zuck/posts/10114017541176911)
 
  While at first that may just sound like an excuse, Facebook is actually right. With just photos of select parts of documents, nobody (outside of Facebook) has read the documents in full.
 
@@ -102,3 +102,27 @@ thumbnail: https://thmb.techidaily.com/e5896cf8bd138a267d00eafc99f462dd02faf3099
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/stopping-fb-reel-views-a-step-by-step-guide/"><u>Stopping FB Reel Views: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-keeping-fb-images-confidential/"><u>Protecting Privacy: Keeping FB Images Confidential</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-mourning-disconnecting-your-fb-commerce-profile/"><u>Mastery of Mourning: Disconnecting Your FB Commerce Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-safe-is-my-phone-info-from-social-media-leaks/"><u>How Safe Is My Phone Info From Social Media Leaks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-facebook-portals-video-chat-setup/"><u>Step-by-Step Guide: Facebook Portals' Video Chat Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/legacy-management-keeping-or-clearing-a-deceaseds-facebook/"><u>Legacy Management: Keeping or Clearing a Deceased's Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-like-to-like-follow-tiktok-outshines-facebook/"><u>From Like to Like-Follow: TikTok Outshines Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-did-sheryl-sandberg-influence-facebook/"><u>How Did Sheryl Sandberg Influence Facebook?</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-essential-apps-to-extract-and-save-your-vimeo-videos/"><u>[New] In 2024, Essential Apps to Extract and Save Your Vimeo Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-ultimate-guide-to-audacitys-free-audio-post-production-capabilities-including-automated-tuning/"><u>New The Ultimate Guide to Audacitys Free Audio Post-Production Capabilities, Including Automated Tuning</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-cloud-price-wars-best-value-allocation/"><u>In 2024, Cloud Price Wars  Best Value Allocation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-power-play-the-ultimate-guide-to-selecting-lipos-for-uavs/"><u>In 2024, Power Play  The Ultimate Guide to Selecting LiPos for UAVS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/live-broadcast-precision-introducing-an-effective-timer/"><u>Live Broadcast Precision  Introducing an Effective Timer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-comprehensive-guide-to-creating-viral-youtube-shorts-videos/"><u>[New] 2024 Approved  A Comprehensive Guide to Creating Viral YouTube Shorts Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-yt-loop-technique-for-the-digital-content-wanderer/"><u>In 2024, YT Loop Technique for the Digital Content Wanderer</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-effortless-4k-video-conversion-top-free-and-paid-options/"><u>Updated Effortless 4K Video Conversion Top Free and Paid Options</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exclusive-ringtone-deals-from-gots-best-online-sources/"><u>In 2024, Exclusive Ringtone Deals From GoT's Best Online Sources</u></a></li>
+</ul></div>

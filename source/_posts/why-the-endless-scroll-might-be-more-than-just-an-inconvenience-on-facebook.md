@@ -1,7 +1,7 @@
 ---
 title: Why the 'Endless Scroll' Might Be More Than Just an Inconvenience on Facebook
-date: 2024-06-20 13:54:51
-updated: 2024-06-23 12:51:42
+date: 2024-06-25T14:48:15.241Z
+updated: 2024-06-26T14:48:15.241Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
 
  Since its early days, Facebook's privacy policy has somehow managed to secure a place in controversies. That's because Meta, the company that owns and runs Facebook, uses you and your data as its primary product.
 
- In early 2018, the company hit the headlines for its involvement in[the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-privacy-scandal-good/) . Mark Zuckerberg came under fire for letting the data analysis firm receive and retain the information of a large number of its users.
+ In early 2018, the company hit the headlines for its involvement in [the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-privacy-scandal-good/) . Mark Zuckerberg came under fire for letting the data analysis firm receive and retain the information of a large number of its users.
 
  In other words, like many other online entities, Facebook uses your information to gain profits, which is a pretty questionable business model.
 
@@ -37,21 +37,21 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
 
  The social media giant goes to great lengths to track your online activities. It does so to display the relevant ads from its advertising partners.
 
- This report by[BBC News](https://www.bbc.com/news/technology-46618582) in 2018 shows how Facebook allegedly shared your data with other tech companies. In short, the social network cares more about the business and advertisers than its users.
+ This report by [BBC News](https://www.bbc.com/news/technology-46618582) in 2018 shows how Facebook allegedly shared your data with other tech companies. In short, the social network cares more about the business and advertisers than its users.
 
 ## 3\. Facebook Has Misrepresented Its Data in the Past
 
- A lot happened in 2018 that you might have missed. According to[CNBC](http://www.cnbc.com/2021/02/18/facebook-knew-ad-metrics-were-inflated-but-ignored-the-problem-lawsuit-claims.html) , a lawsuit against Facebook alleged that the company misquoted the numbers advertisers could reach through its ads program in order to make more money,
+ A lot happened in 2018 that you might have missed. According to [CNBC](http://www.cnbc.com/2021/02/18/facebook-knew-ad-metrics-were-inflated-but-ignored-the-problem-lawsuit-claims.html) , a lawsuit against Facebook alleged that the company misquoted the numbers advertisers could reach through its ads program in order to make more money,
 
  Facebook was fully aware of the number of people that it could reach. However, it chose to say nothing and kept making profits quietly.
 
- Before that, back in 2016, Facebook admitted to overstating its video statistics for numerous years by not discounting three-second views from its figures, as reported by[The Drum](https://www.thedrum.com/news/2016/09/23/facebook-admits-it-overstated-average-video-view-times-between-60-80-two-years) . Naturally, the stakeholders involved were pretty unhappy about it.
+ Before that, back in 2016, Facebook admitted to overstating its video statistics for numerous years by not discounting three-second views from its figures, as reported by [The Drum](https://www.thedrum.com/news/2016/09/23/facebook-admits-it-overstated-average-video-view-times-between-60-80-two-years) . Naturally, the stakeholders involved were pretty unhappy about it.
 
  The point is if Facebook is not focused on you and has a history of breaking the trust of its business partners, should you be trusting it?
 
 ## 4\. Facebook Tracks Other App and Website Usage
 
- Facebook's data tracking isn't just limited to WhatsApp, Instagram, and Facebook. It also tracks you as you use other apps and websites. This is evident because, as stated by[Inc.](http://www.inc.com/jason-aten/apples-ios-152-is-a-major-privacy-update-that-lets-you-see-how-apps-are-tracking-you-its-very-bad-news-for-facebook.html) , Apple's latest OS update could block this data tracking on its devices.
+ Facebook's data tracking isn't just limited to WhatsApp, Instagram, and Facebook. It also tracks you as you use other apps and websites. This is evident because, as stated by [Inc.](http://www.inc.com/jason-aten/apples-ios-152-is-a-major-privacy-update-that-lets-you-see-how-apps-are-tracking-you-its-very-bad-news-for-facebook.html) , Apple's latest OS update could block this data tracking on its devices.
 
  You must have experienced seeing ads for things you might have searched for in other apps on your phone. It is pretty common. There are ways to stop Facebook from doing so. However, do you really feel safe with someone spying on your every tap and click?
 
@@ -67,15 +67,15 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
 
  Unlike the algorithms of other popular apps like TikTok, the suggestions you see for the content on Facebook are not always relevant to your activity. The company tampers with the recommendations by promoting posts that provoke reactions, regardless of whether the post is accurate.
 
- If you're unaware of Facebook's algorithm, you will be shocked to learn some of the real-life consequences it has caused. According to[The Guardian](https://www.theguardian.com/technology/2021/oct/07/facebooks-role-in-myanmar-and-ethiopia-under-new-scrutiny) , the company was allegedly involved in worsening the conditions in Myanmar and Ethiopia.
+ If you're unaware of Facebook's algorithm, you will be shocked to learn some of the real-life consequences it has caused. According to [The Guardian](https://www.theguardian.com/technology/2021/oct/07/facebooks-role-in-myanmar-and-ethiopia-under-new-scrutiny) , the company was allegedly involved in worsening the conditions in Myanmar and Ethiopia.
 
- Recently, a study revealed that posts with significant[political misinformation during the 2020 US Presidential election](http://www.makeuseof.com/study-facebook-election-misinformation/) performed the best on Facebook. Both of these examples show how Facebook's algorithm works to promote viral stuff rather than factual and moral content.
+ Recently, a study revealed that posts with significant [political misinformation during the 2020 US Presidential election](http://www.makeuseof.com/study-facebook-election-misinformation/) performed the best on Facebook. Both of these examples show how Facebook's algorithm works to promote viral stuff rather than factual and moral content.
 
 ## 7\. Its User Interface and Timeline Have Flaws
 
  Facebook keeps on updating its timeline and UI for the web and its app. However, it still carries a lot of glitches and flaws, like something as simple as not being able to switch to a chronological feed.
 
- The new web interface is under a great deal of scrutiny. Facebook has made it look like a bigger version of its smartphone UI. Here is a detailed article by[Search Engine Journal](http://www.searchenginejournal.com/facebook-design-hated/378881/#close) on how the company has screwed up the timeline and UI.
+ The new web interface is under a great deal of scrutiny. Facebook has made it look like a bigger version of its smartphone UI. Here is a detailed article by [Search Engine Journal](http://www.searchenginejournal.com/facebook-design-hated/378881/#close) on how the company has screwed up the timeline and UI.
 
  However, you cannot do much about it as it forces its design on you. In contrast, you can customize your timeline on other social networks to better suit your requirements. This lack of freedom is pretty debilitating.
 
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
 
  At this point, you might have made up your mind about quitting Facebook. But wait, are you worried that you will miss out on all the social trends and news and be unable to stay in touch with your actual friends?
 
- You no longer need to worry about that as we have found some great social networks for you that are[secure and more private alternatives to Facebook](https://www.makeuseof.com/tag/facebook-alternatives/) . Check and test a couple of these platforms out. It might feel odd in the beginning, but give it time.
+ You no longer need to worry about that as we have found some great social networks for you that are [secure and more private alternatives to Facebook](https://www.makeuseof.com/tag/facebook-alternatives/) . Check and test a couple of these platforms out. It might feel odd in the beginning, but give it time.
 
 ## Take the Plunge and See How It Affects Your Life
 
@@ -124,3 +124,26 @@ thumbnail: https://thmb.techidaily.com/cb833d2c06ebc2c32cdbed9ef9e234accd8f52067
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/altering-fb-contact-details-steps-included/"><u>Altering FB Contact Details: Steps Included</u></a></li>
+<li><a href="https://facebook.techidaily.com/speculations-of-social-medias-ethical-standards-shift/"><u>Speculations of Social Media's Ethical Standards Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-protection-system-activation-process/"><u>Mastering Facebook's Protection System: Activation Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/chronicle-of-connections-digging-into-facebook-past/"><u>Chronicle of Connections: Digging Into Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-unlink-your-fb-and-spotify-connections-step-by-step/"><u>Securely Unlink Your FB and Spotify Connections Step-by-Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-dossiers-of-facebook-disclosures/"><u>Navigating Through the Dossiers of Facebook Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judgment-properly-ban-trump-with-time-restriction/"><u>Facebook's Judgment: Properly Ban Trump, With Time Restriction</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-engagement-building-lasting-digital-connections/"><u>The Art of Engagement: Building Lasting Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-chat-app-usage-without-a-facebook-account/"><u>Secrets of Chat App Usage without a Facebook Account</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-se-2020-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account From iPhone SE (2020)?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-epic-imagery-crafting-inspiring-instagram-posts-top20/"><u>[Updated] Epic Imagery  Crafting Inspiring Instagram Posts #Top20</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-perfecting-audio-the-best-cam-mics/"><u>[Updated] Perfecting Audio  The Best Cam Mics</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oneplus-nord-ce-3-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your OnePlus Nord CE 3 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-your-complete-analysis-of-tiktoks-pfp-code/"><u>[Updated] 2024 Approved  Your Complete Analysis of TikTok’s PFP Code</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-innovative-storytelling-constructing-audio-waves-visualization-and-imbuing-videos-with-kinetic-animations-through-premiere-pro-for-2024/"><u>New Innovative Storytelling Constructing Audio Waves Visualization and Imbuing Videos with Kinetic Animations Through Premiere Pro for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-your-go-to-guide-for-the-finest-10-picture-databases/"><u>[New] 2024 Approved  Your Go-To Guide for the Finest 10 Picture Databases</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-srt-explained-essential-aspects-and-more/"><u>In 2024, SRT Explained  Essential Aspects and More</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveil-images-clearly-10-online-editors-guide/"><u>In 2024, Unveil Images Clearly  10 Online Editors' Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-photos-on-reno-10-pro-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to Retrieve deleted photos on Reno 10 Pro 5G</u></a></li>
+</ul></div>

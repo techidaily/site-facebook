@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Vision for Virtual Reality: The Call for 10K Developers."
-date: 2024-06-21 11:43:39
-updated: 2024-06-23 12:10:50
+date: 2024-06-25T14:47:21.327Z
+updated: 2024-06-26T14:47:21.327Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b677
 
 ## Facebook Is Betting Big on EU Tech Talent
 
- In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
+ In an October 17 post on the [Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
 
  According to the post, “This investment is a vote of confidence in the strength of the European tech industry and the potential of European tech talent.”
 
@@ -78,3 +78,27 @@ thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b677
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/enable-the-muted-color-palette-in-facebook/"><u>Enable the Muted Color Palette in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-hidden-facebook-accounts/"><u>Tactical Approaches to Hidden Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-uploads-digital-ownership-questions/"><u>Photo Uploads: Digital Ownership Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-demystified-utilizing-facebooks-transparency-hub-features/"><u>Social Media Demystified: Utilizing Facebook's Transparency Hub Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-giants-mastery-of-meta-account-control/"><u>Unlocking Social Giants: Mastery of Meta Account Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-flip-the-friend-switch-on-facebook-insights-and-strategies/"><u>When to Flip the Friend Switch on Facebook: Insights and Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tutorial-assembling-groups-on-facebook-platforms/"><u>Comprehensive Tutorial: Assembling Groups on Facebook Platforms</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-se-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone SE</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-maximize-engagement-discover-the-8-best-timers-for-android-and-iphone-for-2024/"><u>[New] Maximize Engagement  Discover the 8 Best Timers for Android & iPhone for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-explore-greatest-vr-handhelds-listed/"><u>2024 Approved  Explore Greatest VR Handhelds Listed</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/vimeo-content-specifications-aspect-ratios-disclosed/"><u>Vimeo Content Specifications Aspect Ratios Disclosed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-expertly-curated-list-of-10-best-windows-cameras/"><u>[New] Expertly Curated List of 10 Best Windows Cameras</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-top-5-photo-movie-maker-to-create-impressive-slideshow-videos/"><u>New In 2024, Top 5 Photo Movie Maker to Create Impressive Slideshow Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-spark-your-creativity-with-these-free-tools/"><u>[Updated] Spark Your Creativity with These Free Tools</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-unlock-icloud-account-without-password-from-apple-iphone-13-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Unlock iCloud Account Without Password From Apple iPhone 13</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-the-world-of-srt-extensions-for-audible-enjoyment/"><u>In 2024, Navigating the World of SRT Extensions for Audible Enjoyment</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-discovering-innovation-in-tiktok-a-complete-backdrop-transformation-handbook/"><u>[Updated] Discovering Innovation in TikTok  A Complete Backdrop Transformation Handbook</u></a></li>
+</ul></div>

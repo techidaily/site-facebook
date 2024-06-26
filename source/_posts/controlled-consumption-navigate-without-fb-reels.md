@@ -1,7 +1,7 @@
 ---
 title: "Controlled Consumption: Navigate without Fb Reels"
-date: 2024-06-20 17:41:40
-updated: 2024-06-23 11:59:29
+date: 2024-06-25T14:28:39.195Z
+updated: 2024-06-26T14:28:39.195Z
 tags:
   - facebook
 categories:
@@ -23,17 +23,13 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web
-
-![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar
-
-![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -53,15 +49,13 @@ Close
 
  If you're using the Facebook app on Android, you can try installing an older version of the app. This won't work on iOS, though, as Apple doesn't allow you to downgrade apps.
 
- You can visit any of the[trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
+ You can visit any of the [trusted APK sites](https://www.makeuseof.com/tag/safe-android-apk-downloads/) , like APKMirror, to find an older version of the Facebook app. Once you've found one, you can uninstall the current Facebook app and install the older one.
 
  Reels should no longer appear in your News Feed or Stories after you've installed the older version of the app.
 
 ###
 
-### 4\. Hide Content You Don't Like
-
-![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -110,3 +104,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unraveling-the-tension-with-social-media-networks/"><u>Unraveling the Tension with Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-landscapes-identifying-facebook-connections/"><u>Navigating Social Landscapes: Identifying Facebook Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-tightening-its-grip-a-threat-to-facebook-and-instagram/"><u>Meta Tightening Its Grip – A Threat to Facebook & Instagram?</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-responsibility-in-the-battle-against-online-fraudsters/"><u>Big Tech's Responsibility in the Battle Against Online Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizable-avatars-redefine-user-experience-at-oculus/"><u>Customizable Avatars Redefine User Experience at Oculus</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigative-study-oculus-q2-uptake-among-hacked-facebookers/"><u>Investigative Study: Oculus Q2 Uptake Among Hacked Facebookers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-small-screen-experience-with-these-leading-and-affordable-tools-to-download-youtubes-tiny-videos-for-2024/"><u>[Updated] Elevate Small Screen Experience with These Leading & Affordable Tools to Download YouTubes' Tiny Videos for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-pro-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Pro Without Passcode? | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-take-your-audio-to-the-next-level-10-online-waveform-generators-for-2024/"><u>New Take Your Audio to the Next Level 10 Online Waveform Generators for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-visual-appeal-making-top-tier-video-banner-templates/"><u>[New] 2024 Approved  Unlocking Visual Appeal  Making Top-Tier Video Banner Templates</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-lock-your-samsung-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Samsung Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-storyboard-suite-for-windows/"><u>[New] Storyboard Suite for Windows</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>[Updated] 2024 Approved  From Ordinary to Outstanding  Crafting Unique Shorts Thumbnails</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-full-scan-the-essence-of-the-lightroom-app-on-android/"><u>[Updated] Full Scan  The Essence of the Lightroom App on Android</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-polishing-tiktok-content-on-mac-a-comprehensive-editors-manual/"><u>[New] 2024 Approved  Polishing TikTok Content on Mac  A Comprehensive Editor's Manual</u></a></li>
+</ul></div>

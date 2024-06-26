@@ -1,7 +1,7 @@
 ---
 title: The Revival of an Iconic Social App in the Digital Age
-date: 2024-06-20 17:33:55
-updated: 2024-06-23 10:43:45
+date: 2024-06-25T14:44:21.725Z
+updated: 2024-06-26T14:44:21.725Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/4a0e802a162a5a423f94ca329819be0d261aa988b
 
 ## Users Speak Out Against Instagram's Changes
 
- There's an ongoing call online rallying against Instagram's raft of changes, particularly pushing video content in an attempt to compete with TikTok. Led by photographer Tati Bruening, the petition to make Instagram Instagram again on[Change.org](https://www.change.org/p/make-instagram-instagram-again-saveinstagram) has attracted the attention and support of creators and celebrities. Among these are the Kardashian-Jenner sisters, who have been pushing it in their Instagram Stories.
+ There's an ongoing call online rallying against Instagram's raft of changes, particularly pushing video content in an attempt to compete with TikTok. Led by photographer Tati Bruening, the petition to make Instagram Instagram again on [Change.org](https://www.change.org/p/make-instagram-instagram-again-saveinstagram) has attracted the attention and support of creators and celebrities. Among these are the Kardashian-Jenner sisters, who have been pushing it in their Instagram Stories.
 
  In addition to bringing back an algorithm that favors photos, the petition wants Instagram to:
 
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/4a0e802a162a5a423f94ca329819be0d261aa988b
 * Stop being a TikTok copycat
 * Listen to creators
 
- Social media apps have been trying to keep up with TikTok for some time now, and it's no wonder, as TikTok has been growing exponentially over the years. To that end,[Facebook introduced separate Feed and Home tabs](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) in July 2022, and[Instagram added new tools to Reels](https://www.makeuseof.com/ways-instagram-is-improving-reels/) in June 2022.
+ Social media apps have been trying to keep up with TikTok for some time now, and it's no wonder, as TikTok has been growing exponentially over the years. To that end,[Facebook introduced separate Feed and Home tabs](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) in July 2022, and [Instagram added new tools to Reels](https://www.makeuseof.com/ways-instagram-is-improving-reels/) in June 2022.
 
  Instagram's creators that built a following primarily based on photo content now worry about the future of their accounts as the app heads in a different direction.
 
@@ -49,9 +49,9 @@ thumbnail: https://thmb.techidaily.com/4a0e802a162a5a423f94ca329819be0d261aa988b
 
 > _Now, I want to be clear: We're going to continue to support photos—it's part of our heritage, you know, I love photos; I know a lot of you out there love photos too. That said, I need to be honest—I do believe that more and more of Instagram is going to become video over time. We see this even if we change nothing. We see this even if you just look at chronological feed. If you look at what people share on Instagram, that's shifting more and more to videos overtime. If you look at what people like and consume and view on Instagram, that's also shifting more and more to video over time, even when we stop changing anything. So, we're going to have to lean into that shift while continuing to support photos._
 
- Given this response, it's unlikely that Instagram will change course and go back to prioritizing photos over videos again. Gone are the days when uploading your best photos could[get you noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) . If you want to get noticed, you'll have to post more Reels.
+ Given this response, it's unlikely that Instagram will change course and go back to prioritizing photos over videos again. Gone are the days when uploading your best photos could [get you noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) . If you want to get noticed, you'll have to post more Reels.
 
- However, you can ensure that people who visit your account see your best pictures. All you need to do is[pin your top three photos to the top of your Instagram grid](https://www.makeuseof.com/how-to-pin-instagram-posts-to-profile/) . According to a post on the[Instagram blog](https://about.instagram.com/blog/announcements/introducing-new-ways-to-collaborate-and-create-with-reels) , you can also remix your photos into a Reel.
+ However, you can ensure that people who visit your account see your best pictures. All you need to do is [pin your top three photos to the top of your Instagram grid](https://www.makeuseof.com/how-to-pin-instagram-posts-to-profile/) . According to a post on the [Instagram blog](https://about.instagram.com/blog/announcements/introducing-new-ways-to-collaborate-and-create-with-reels) , you can also remix your photos into a Reel.
 
 ## Instagram Is Becoming a TikTok Clone
 
@@ -74,3 +74,24 @@ thumbnail: https://thmb.techidaily.com/4a0e802a162a5a423f94ca329819be0d261aa988b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/erase-all-fb-activity-notices-effectively/"><u>Erase All Fb Activity Notices Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-tools-spotting-intruder-usage-quickly/"><u>Monitoring Tools: Spotting Intruder Usage Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-unveils-its-covert-strategy-for-free-services/"><u>WhatsApp Unveils Its Covert Strategy for Free Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-mapping-revolutionized-with-facebooks-new-update/"><u>Social Mapping Revolutionized with Facebook's New Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-between-facebook-and-linkedin-the-group-perspective/"><u>Deciding Between Facebook and LinkedIn: The Group Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-growth-plateau-analysis-needed/"><u>Facebook's Growth Plateau – Analysis Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-audience-reach-posting-instagram-reels-on-facebook/"><u>Maximizing Audience Reach: Posting Instagram Reels on Facebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-unlock-tiktok-potential-with-essentials-guide/"><u>In 2024, Unlock TikTok Potential with Essentials Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] The Smudge Solution  Blurring Visions in Video Content</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-oppo-k11-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Oppo K11 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-essential-latest-tiktok-fads-and-hits/"><u>In 2024, Essential Latest TikTok Fads & Hits</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-hack-your-way-to-speedy-youtube-video-processing/"><u>2024 Approved  Hack Your Way to Speedy YouTube Video Processing</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-make-movies-without-breaking-the-bank-7-best-low-cost-film-software/"><u>New 2024 Approved Make Movies Without Breaking the Bank 7 Best Low-Cost Film Software</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-focus-on-action-exclude-unwanted-surroundings-for-2024/"><u>[New] Focus on Action, Exclude Unwanted Surroundings for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-snap-spectrum-a-compilation-of-favorite-augments/"><u>[New] The Snap Spectrum  A Compilation of Favorite Augments</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-streamlined-mac-tiktok-editing-tools-all-free/"><u>2024 Approved  Streamlined Mac TikTok Editing Tools (All Free)</u></a></li>
+</ul></div>

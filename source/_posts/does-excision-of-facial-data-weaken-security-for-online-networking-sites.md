@@ -1,7 +1,7 @@
 ---
 title: Does Excision of Facial Data Weaken Security for Online Networking Sites?
-date: 2024-06-20 22:51:54
-updated: 2024-06-23 10:59:45
+date: 2024-06-25T13:56:22.250Z
+updated: 2024-06-26T13:56:22.250Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/a1f466c594234ad34f641e87364869a2929ae1aee
 
 ## What’s Changing With Facebook Facial Recognition?
 
- The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
+ The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying [templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
 
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
@@ -47,17 +47,15 @@ thumbnail: https://thmb.techidaily.com/a1f466c594234ad34f641e87364869a2929ae1aee
 
  The overall situation worsened when an October 4, 2021, global outage persisted for more than six hours, affecting Facebook and other companies under the Meta umbrella like Instagram. In fact,[analysts estimate](http://journal.uptimeinstitute.com/too-big-to-fail-facebooks-global-outage/) that event caused approximately $60 million in lost revenue.
 
- More recently, a[CNN poll](http://edition.cnn.com/2021/11/10/business/cnn-poll-facebook/index.html) found 76 percent of people think Facebook makes society worse. Additionally, 55 percent of respondents with that view primarily blame how some people use the site. The remaining 45 percent think the main issue is with the social media site’s operations.
+ More recently, a [CNN poll](http://edition.cnn.com/2021/11/10/business/cnn-poll-facebook/index.html) found 76 percent of people think Facebook makes society worse. Additionally, 55 percent of respondents with that view primarily blame how some people use the site. The remaining 45 percent think the main issue is with the social media site’s operations.
 
- Consumer Reports conducted a study in 2019 to see how users felt about concerns related to the site’s handling of data and user privacy matters in the wake of the[Cambridge Analytica privacy scandal](http://www.makeuseof.com/ways-facebook-invades-privacy-stop/) . The results showed that nearly 25 percent of people felt very or extremely concerned about the amount of personal information Facebook collects and stores.
+ Consumer Reports conducted a study in 2019 to see how users felt about concerns related to the site’s handling of data and user privacy matters in the wake of the [Cambridge Analytica privacy scandal](http://www.makeuseof.com/ways-facebook-invades-privacy-stop/) . The results showed that nearly 25 percent of people felt very or extremely concerned about the amount of personal information Facebook collects and stores.
 
  The Consumer Reports team also heard personal perspectives from people who didn’t like how Facebook used data, but continued using the platform. More specifically, only one in 10 people gave up the site after hearing about the Cambridge Analytica disaster.
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
-## No Major Security Improvements Here
-
-![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+## No Major Security Improvements Here ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -80,3 +78,26 @@ thumbnail: https://thmb.techidaily.com/a1f466c594234ad34f641e87364869a2929ae1aee
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-others-in-fb-on-this-day-feature/"><u>Steer Clear of Others in FB On This Day Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-proximity-evaluating-online-platform-pitfalls/"><u>The Price of Proximity: Evaluating Online Platform Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-mastery-fastest-android-compact-apps/"><u>Mobile Mastery: Fastest Android Compact Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-surge-in-telegram-users-during-facebook-shutdown/"><u>Unveiling the Surge in Telegram Users During Facebook Shutdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-facebook-group-regulations-efficiently/"><u>Modifying Facebook Group Regulations Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-deceptive-deals-avoidance-strategies-in-social-media-swap-sites/"><u>Unmasking Deceptive Deals: Avoidance Strategies in Social Media Swap Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-should-you-reimagine-your-fb-presence/"><u>When Should You Reimagine Your FB Presence?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-turning-images-into-scenes-syncing-beats/"><u>2024 Approved  Turning Images Into Scenes, Syncing Beats</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y55s-5g-2023-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y55s 5G (2023) Phone without Google Account?</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-enhancing-clarity-in-online-soundscape-expert-noise-reduction-techniques/"><u>New Enhancing Clarity in Online Soundscape Expert Noise Reduction Techniques</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-immerse-yourself-in-a-shared-tiktok-journey/"><u>[New] In 2024, Immerse Yourself in a Shared TikTok Journey</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-tecno-spark-20-proplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Tecno Spark 20 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-huawei-p60-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Huawei P60? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-maximize-impact-with-onestreams-streaming-solutions/"><u>[Updated] How to Maximize Impact with OneStream's Streaming Solutions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-secrets-to-preserving-online-broadcasts-professionally-for-2024/"><u>[Updated] Secrets to Preserving Online Broadcasts Professionally for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-efficiently-incorporate-media-in-your-tweets/"><u>[Updated] 2024 Approved  Efficiently Incorporate Media in Your Tweets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+</ul></div>

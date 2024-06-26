@@ -1,7 +1,7 @@
 ---
 title: "Prevent Overuse: Facebook Advises Youngsters for Insta Break"
-date: 2024-06-22 23:11:18
-updated: 2024-06-23 12:28:18
+date: 2024-06-25T14:48:48.070Z
+updated: 2024-06-26T14:48:48.070Z
 tags:
   - facebook
 categories:
@@ -49,7 +49,7 @@ Here's how Clegg explained it:
 
  In October 2021, former Facebook employee Frances Haugen appeared in an interview on CBS News' 60 Minutes, claiming that Facebook is harming teens on its Instagram app.
 
- Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
+ Haugen is the whistleblower behind the Wall Street Journal's bombshell report known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) .
 
  Read more:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
@@ -80,3 +80,23 @@ Here's how Clegg explained it:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-bulletin-boards-to-instagram-the-communication-evolution/"><u>From Bulletin Boards to Instagram: The Communication Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticate-with-meta-us-edition/"><u>Authenticate with Meta – US Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-metas-media-conquest/"><u>Three Warnings: Meta's Media Conquest</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-digital-lifestyle-with-controlled-internet-use/"><u>Designing a Digital Lifestyle with Controlled Internet Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-through-the-competition-with-unique-facebook-reels/"><u>Break Through the Competition with Unique Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-strives-for-educated-user-engagement-with-new-prompt/"><u>Facebook Strives for Educated User Engagement with New Prompt</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-silence-is-golden-a-step-by-step-guide-to-noise-reduction-in-fcpx/"><u>New In 2024, Silence Is Golden A Step-by-Step Guide to Noise Reduction in FCPX</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-video-blurring-made-easy-no-cost-no-hassle/"><u>New Video Blurring Made Easy No Cost, No Hassle</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-honor-x9b-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Honor X9b Phone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-pros-way-of-recording-movs-effectively-on-windows-10/"><u>[Updated] In 2024, The Pro's Way of Recording MOVs Effectively on Windows 10</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/crimson-classic-codec/"><u>Crimson Classic Codec</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-professional-video-demos-harnessing-captivates-power/"><u>[New] Professional Video Demos  Harnessing Captivate's Power</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-all-encompassing-az-screenshot-tool-app-evaluations/"><u>[Updated] In 2024, All-Encompassing AZ Screenshot Tool  App Evaluations</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-essential-tags-for-tiktok-fame-and-viral-potential/"><u>2024 Approved  Essential Tags for TikTok Fame and Viral Potential</u></a></li>
+</ul></div>

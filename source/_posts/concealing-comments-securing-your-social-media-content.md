@@ -1,7 +1,7 @@
 ---
 title: "Concealing Comments: Securing Your Social Media Content"
-date: 2024-06-20 20:56:10
-updated: 2024-06-23 12:55:18
+date: 2024-06-25T14:32:26.577Z
+updated: 2024-06-26T14:32:26.577Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unboxing-facebook-and-instagrams-latest-ad-ventures/"><u>Unboxing Facebook & Instagram's Latest Ad Ventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/abridging-from-social-media-leave-facebook-on-android/"><u>Abridging From Social Media: Leave Facebook on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-most-contentious-innovators/"><u>Tech's Most Contentious Innovators</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-moment-to-update-your-fb-avatar/"><u>Best Moment to Update Your FB Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-older-friends-listings-on-facebook/"><u>Exploring Older Friends Listings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-productivity-on-facebook-using-shortcuts/"><u>Boosting Productivity on Facebook Using Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-metas-status-symbol/"><u>Deciphering Meta's Status Symbol</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-essential-auditory-backtracking-applications-the-best-software-selection-for-2024/"><u>New Essential Auditory Backtracking Applications The Best Software Selection for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-top-rated-mac-mkv-editors-for-trimming-videos-for-2024/"><u>New Top-Rated Mac MKV Editors for Trimming Videos for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-video-editing-face-off-final-cut-pro-vs-lumafusion-which-is-right-for-you/"><u>In 2024, Video Editing Face-Off Final Cut Pro vs LumaFusion - Which Is Right for You?</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-best-multiplayer-game-communities/"><u>In 2024, Best Multiplayer Game Communities</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-windows-11-with-top-tips-for-2024/"><u>Mastering Windows 11 with Top Tips for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-y36i-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo Y36i | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unveiling-sharex-analyses-and-options/"><u>2024 Approved  Unveiling ShareX  Analyses & Options</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-camerasection-breakdown-analysis/"><u>In 2024, CameraSection Breakdown Analysis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-rewind-and-play-instagrams-backwards-videos-unveiled/"><u>[Updated] In 2024, Rewind and Play  Instagram's Backwards Videos Unveiled</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Efficient Steps for Updating Birth Year/Month on FB Platform
-date: 2024-06-22 13:47:39
-updated: 2024-06-23 12:48:27
+date: 2024-06-25T13:53:31.094Z
+updated: 2024-06-26T13:53:31.094Z
 tags:
   - facebook
 categories:
@@ -56,7 +56,7 @@ Close
 
 Here's how:
 
-* Log on to[Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
+* Log on to [Facebook.com](https://www.facebook.com/) on your browser, sign in, and navigate to your profile. You can get to your profile by clicking on your name on the left sidebar or clicking on the icon with your photo on the page header.
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
@@ -112,3 +112,27 @@ Here's how:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tailoring-your-profile-a-comprehensive-guide/"><u>Tailoring Your Profile: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-governance-and-rulings-of-fbs-board/"><u>Dissecting The Governance and Rulings of FB's Board</u></a></li>
+<li><a href="https://facebook.techidaily.com/turning-away-from-app-trackers-iphones-lead/"><u>Turning Away From App Trackers, iPhones Lead</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-facebook-privacy-against-hacking/"><u>Safeguard Facebook Privacy Against Hacking</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-features-of-newest-facebook-portals/"><u>Exploring the Features of Newest Facebook Portals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-restoring-deleted-facebook-likes/"><u>The Pathway to Restoring Deleted Facebook Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/claims-new-era-of-truthful-advertising-at-fb/"><u>Claims: New Era of Truthful Advertising at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/cleaning-up-clutter-removing-objectionable-pages-from-facebook/"><u>Cleaning Up Clutter: Removing Objectionable Pages From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-and-remove-shortcuts-on-facebook/"><u>How to Add and Remove Shortcuts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-networked-lifetimes-on-fb/"><u>Navigating Through Networked Lifetimes on FB</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/4-ways-record-your-screen-on-windows-8/"><u>4 Ways Record Your Screen On Windows 8</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-scrutinizing-the-core-functions-of-recordcast/"><u>In 2024, Scrutinizing the Core Functions of RecordCast</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-mastery-over-buffering-in-vimeo-streams-revised-tips/"><u>[Updated] Mastery Over Buffering in Vimeo Streams (Revised Tips)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-words-to-voices-scriptwriting-for-successful-podcasts/"><u>In 2024, From Words to Voices  Scriptwriting for Successful Podcasts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-unveiling-hidden-gems-instagrams-download-secrets/"><u>[New] In 2024, Unveiling Hidden Gems  Instagram's Download Secrets</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Vivo V30 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlocking-the-secret-of-fbs-lately-viewed-videos/"><u>[New] In 2024, Unlocking the Secret of Fb’s Lately Viewed Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-a-guide-to-tailoring-your-hashtag-strategy-for-maximum-engagement-and-conversion-rates-on-facebook-for-2024/"><u>[New] A Guide to Tailoring Your Hashtag Strategy for Maximum Engagement and Conversion Rates on Facebook for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unmatched-visual-appeal-top-5-tools-for-enhancing-your-tiktok-texts/"><u>[New] Unmatched Visual Appeal  Top 5 Tools for Enhancing Your TikTok Texts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-hashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[New] Hashtag Heroes  The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+</ul></div>

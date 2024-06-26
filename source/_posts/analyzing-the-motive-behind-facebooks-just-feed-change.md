@@ -1,7 +1,7 @@
 ---
 title: Analyzing the Motive Behind Facebook's 'Just Feed' Change
-date: 2024-06-22 13:12:55
-updated: 2024-06-23 10:25:40
+date: 2024-06-25T14:24:49.320Z
+updated: 2024-06-26T14:24:49.320Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  Facebook's News Feed will now simply be known as the "Feed", but Facebook does not offer any real details as to why.
 
- "This is just a name change and does not impact the app experience more broadly," a company spokesperson said in an email to[The Verge](https://www.theverge.com/2022/2/15/22935080/facebook-meta-news-feed-renaming-branding-political-content-misinformation?scrolla=5eb6d68b7fedc32c19ef33b4) .
+ "This is just a name change and does not impact the app experience more broadly," a company spokesperson said in an email to [The Verge](https://www.theverge.com/2022/2/15/22935080/facebook-meta-news-feed-renaming-branding-political-content-misinformation?scrolla=5eb6d68b7fedc32c19ef33b4) .
 
 Not so fast.
 
@@ -29,7 +29,7 @@ Not so fast.
 
  Indeed, a bill called The Social Media NUDGE Act has already been drafted, which seeks to slow down the spread of harmful content and misinformation on social media.
 
- Facebook made at least two changes to how it distributes news prior to this announcement. In October 2019, the company launched[Facebook News](https://about.fb.com/news/2019/10/introducing-facebook-news/) in the US.
+ Facebook made at least two changes to how it distributes news prior to this announcement. In October 2019, the company launched [Facebook News](https://about.fb.com/news/2019/10/introducing-facebook-news/) in the US.
 
  Facebook News is a dedicated place for news on Facebook in the bookmarks section, which independent journalists moderate.
 
@@ -39,7 +39,7 @@ Not so fast.
 
  With this renaming, Facebook has closed the loop. Posts by your friends, groups, pages you follow, and others will now be in the Feed.
 
- Politics and current affairs will now be in Facebook News; according to[Axios](https://www.axios.com/facebook-news-tab-traffic-378e8106-d7f8-481e-b500-e334d3beda3e.html) , US, UK, and German publishers included in the News tab credit Facebook News for referring 30% of all the Facebook traffic they get.
+ Politics and current affairs will now be in Facebook News; according to [Axios](https://www.axios.com/facebook-news-tab-traffic-378e8106-d7f8-481e-b500-e334d3beda3e.html) , US, UK, and German publishers included in the News tab credit Facebook News for referring 30% of all the Facebook traffic they get.
 
  Therefore, segregating the news away from regular updates by your friends and family is a legally smart move for Facebook. It will certainly help their case with regulators if it drives down misinformation. In that regard, a change from News Feed to Feed makes sense.
 
@@ -66,3 +66,27 @@ Not so fast.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/secure-password-management-preventing-fb-account-breaches/"><u>Secure Password Management: Preventing FB Account Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-against-online-frauds-in-social-networks/"><u>Safeguarding Against Online Frauds in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-friendship-to-the-next-level-fb-avatars-and-whatsapp-dialogue/"><u>Taking Friendship to the Next Level: FB Avatars & WhatsApp Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-your-social-media-and-chat-life-on-whatsapp/"><u>Uniting Your Social Media and Chat Life on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-authenticity-with-a-cleaner-facebook-slate/"><u>Boost Authenticity with a Cleaner Facebook Slate</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-global-reach-strategies-for-multilingual-fb-posts/"><u>Unlock Global Reach - Strategies for Multilingual FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-facebook-experience-by-mastering-friends-list-management/"><u>Optimize Your Facebook Experience by Mastering Friends List Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151766914-breaking-down-barriers-to-private-conversations-facebooks-revolutionary-end-to-end-encrypted-services-rollout-for-messenger-and-instagram/"><u>Breaking Down Barriers to Private Conversations: Facebook's Revolutionary End-to-End Encrypted Services Rollout for Messenger and Instagram.</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-question-of-streaming-fb-moviesvideos-via-tv/"><u>[Updated] 2024 Approved  The Question of Streaming FB Movies/Videos via TV</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/seamless-visuals-on-screen-zooming-into-clarity/"><u>Seamless Visuals on Screen  Zooming Into Clarity</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-closer-look-at-the-m1-pro-versus-m1-max-in-apple-devices/"><u>2024 Approved  A Closer Look at the M1 Pro Versus M1 Max in Apple Devices</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/top-rated-disco-capture-software-pcmacios-for-2024/"><u>Top-Rated Disco Capture Software (PC/Mac/iOS) for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-discover-the-leading-15-cost-effective-online-photo-editors-2023/"><u>[New] 2024 Approved  Discover the Leading 15 Cost-Effective Online Photo Editors, 2023</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-plus-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 Plus to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-funimate-the-ultimate-video-guide/"><u>In 2024, Unveiling Funimate  The Ultimate Video Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Oppo K11x? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-samsung-galaxy-f54-5g-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Samsung Galaxy F54 5G? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-quick-setup-for-flawless-time-lapses-on-ipad/"><u>In 2024, Quick Setup for Flawless Time-Lapses on iPad</u></a></li>
+</ul></div>

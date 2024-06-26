@@ -1,7 +1,7 @@
 ---
 title: "Redefining Competition: U.S. Antitrust Law Updates"
-date: 2024-06-20 18:19:29
-updated: 2024-06-23 12:27:17
+date: 2024-06-25T14:30:02.739Z
+updated: 2024-06-26T14:30:02.739Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/61e5e75a143019f7f7c8689be3de97fce55d395ac
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,22 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-5-best-social-media-platforms-for-seniors/"><u>The 5 Best Social Media Platforms for Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-maestro-departs-carolyn-eversons-next-move/"><u>Marketing Maestro Departs: Carolyn Everson's Next Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-giants-stream-nba-season-together/"><u>Social Giants Stream NBA Season Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/enrich-networking-on-facebooks-messenger-service/"><u>Enrich Networking on Facebook's Messenger Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-privacy-predicament-pinpointing-the-9-suspicious-social-behaviors/"><u>Online Privacy Predicament: Pinpointing the 9 Suspicious Social Behaviors</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-shift-unveiling-facebooks-metamorphosis/"><u>Social Network Shift: Unveiling Facebook’s Metamorphosis</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola G54 5G | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-powerdirector-color-grading-unifying-your-video-clips-look/"><u>New In 2024, PowerDirector Color Grading Unifying Your Video Clips Look</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-6-instant-mp4-to-gif-online-tools/"><u>Updated In 2024, 6 Instant Mp4 to GIF Online Tools</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-into-new-dimensions-with-jaunt-vr-review/"><u>2024 Approved  Step Into New Dimensions with Jaunt VR Review</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-tips-for-crafting-the-perfect-discord-profile-picture-for-2024/"><u>[New] Tips for Crafting the Perfect Discord Profile Picture for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-12-pro-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone 12 Pro and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+</ul></div>

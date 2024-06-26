@@ -1,7 +1,7 @@
 ---
 title: "Networking Noteworthy Transformations: 4 Essential Shifts in Social Media"
-date: 2024-06-21 16:20:39
-updated: 2024-06-23 11:18:51
+date: 2024-06-25T14:16:26.894Z
+updated: 2024-06-26T14:16:26.894Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,11 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
 
  Here is a look back at a few ways that different social media giants changed in 2022.
 
-## 1\. Facebook’s Increased Focus on the Metaverse
+## 1\. Facebook’s Increased Focus on the Metaverse ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
-![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
+ Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to [CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
 
- Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to[CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
-
- This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to[Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one[2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
+ This focus has not yet translated to popular use though. Most Facebook users are not in the metaverse yet or even own a VR headset. According to [Forbes](https://www.forbes.com/sites/danidiplacido/2022/08/21/mark-zuckerberg-upgraded-his-metaverse-avatar-after-the-entire-internet-laughed-at-him/?sh=5e6c88ab35a3) , the upgraded metaverse avatar that Mark Zuckerberg unveiled in 2022 was also widely unpopular. Although, one [2023 social media prediction](http://www.makeuseof.com/social-media-predictions-2023/) is that as Meta continues to push the metaverse, consumers may finally join in.
 
 ## 2\. Elon Musk Took Over Twitter
 
@@ -35,9 +33,7 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
 
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
-## 3\. Reels, Reels, Reels
-
-![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
+## 3\. Reels, Reels, Reels ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
 
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
@@ -45,13 +41,11 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
 
 ## 4\. The Rise of BeReal
 
- Speaking of BeReal, the French social media app rose to over 10 million downloads in 2022, going from a small new platform to a ubiquitous concept that Instagram and TikTok are both now copying. Instagram has Candid Stories, while[TikTok launched TikTok Now](https://www.makeuseof.com/what-is-tiktok-now/) . BeReal’s longevity is yet to be seen, but the fun and authentic platform definitely made its mark in 2022.
+ Speaking of BeReal, the French social media app rose to over 10 million downloads in 2022, going from a small new platform to a ubiquitous concept that Instagram and TikTok are both now copying. Instagram has Candid Stories, while [TikTok launched TikTok Now](https://www.makeuseof.com/what-is-tiktok-now/) . BeReal’s longevity is yet to be seen, but the fun and authentic platform definitely made its mark in 2022.
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
-## Social Media in 2022
-
-![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+## Social Media in 2022 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
@@ -72,3 +66,26 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-hidden-handbook-of-handing-over-your-enterprises-social-presence/"><u>The Hidden Handbook of Handing Over Your Enterprise's Social Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-typographic-touch-chat-styles-and-standouts/"><u>The Typographic Touch: Chat Styles and Standouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/full-ban-on-facebook-delivery-of-notifications/"><u>Full Ban on Facebook Delivery of Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-renaming-the-social-media-news-feed-as-just-feed/"><u>The Impact of Renaming the Social Media News Feed as Just 'Feed'</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-connectivity-understanding-facebooks-metaverse-blueprint/"><u>Redefining Online Connectivity: Understanding Facebook's Metaverse Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-oculus-go-with-full-access-through-facebook/"><u>New Era for Oculus Go with Full Access Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-3-concerns-the-facebook-metaverses-potential-risks/"><u>Top 3 Concerns: The Facebook Metaverse's Potential Risks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/why-youtube-tv-is-a-game-changer-in-streaming/"><u>Why YouTube TV Is a Game-Changer in Streaming</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-quick-start-applying-discord-spoilers-correctly/"><u>[New] 2024 Approved  Quick Start  Applying Discord Spoilers Correctly</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-reel-it-in-top-5-action-cameras-for-anglers/"><u>[Updated] Reel It In  Top 5 Action Cameras for Anglers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-the-art-of-instagram-filter-selection-tips-for-the-year-2023/"><u>[New] 2024 Approved  The Art of Instagram Filter Selection  Tips for the Year 2023</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-reduce-shaky-footage-best-video-stabilization-apps-for-2024/"><u>New Reduce Shaky Footage Best Video Stabilization Apps for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-ultimate-guide-to-mp3-converter-windows-why-you-need-to-know/"><u>Updated The Ultimate Guide to Mp3 Converter Windows Why You Need to Know</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-podcast-journey-from-creation-to-google-submission/"><u>2024 Approved  Seamless Podcast Journey  From Creation to Google Submission</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-quietude-in-quarter-notes-advanced-methods-for-drum-ditching-in-digital-music/"><u>Updated 2024 Approved Quietude in Quarter Notes Advanced Methods for Drum Ditching in Digital Music</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamlessly-enter-the-realm-of-ios-vr-videos-for-2024/"><u>Seamlessly Enter the Realm of IOS VR Videos for 2024</u></a></li>
+</ul></div>

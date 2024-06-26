@@ -1,7 +1,7 @@
 ---
 title: Uncovering the Identity of the Whistleblowing Source
-date: 2024-06-22 18:47:16
-updated: 2024-06-23 12:39:18
+date: 2024-06-25T13:47:38.172Z
+updated: 2024-06-26T13:47:38.172Z
 tags:
   - facebook
 categories:
@@ -15,7 +15,7 @@ thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af
 
 ## Uncovering the Identity of the Whistleblowing Source
 
- Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as[The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
+ Frances Haugen, the Facebook whistleblower behind the Wall Street Journal's bombshell report collectively known as [The Facebook Files](https://www.wsj.com/articles/the-facebook-files-11631713039) , has revealed her identity in an interview on CBS News' 60 Minutes.
 
  Read on to find out more about Haugen and some of the claims she made against the social network and tech giant in the interview.
 
@@ -86,3 +86,27 @@ thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-red-flags-how-to-disable-pages-on-facebook/"><u>Eliminating Red Flags: How to Disable Pages on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-dilemrancy-hacked-users-quest-headset-purchase-trend/"><u>The $300 Dilemrancy: Hacked Users' Quest Headset Purchase Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-photodna-image-matching-technique-explained/"><u>Decoding PhotoDNA: Image Matching Technique Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/assault-on-user-privacy-online/"><u>Assault on User Privacy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-the-hate-for-digital-community-hubs/"><u>What Lies Beneath the Hate for Digital Community Hubs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shunned-the-triple-list-of-no-facebook-nations/"><u>Social Media Shunned: The Triple List of No-Facebook Nations</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-benefits-of-creating-a-facebook-group/"><u>6 Benefits of Creating a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/watch-local-videos-on-chromecast-a-comprehensive-guide-for-windows-mac-android-and-ios-users-for-2024/"><u>Watch Local Videos on Chromecast A Comprehensive Guide for Windows, Mac, Android, and iOS Users for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-post-twitter-videos-on-snapchat/"><u>[New] How to Post Twitter Videos on Snapchat?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-enhance-post-impact-auto-adjusting-videos-for-instagram-on-mac-for-2024/"><u>[Updated] Enhance Post Impact  Auto-Adjusting Videos for Instagram on Mac for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/elite-selection-macs-finest-screen-recorder-for-2024/"><u>Elite Selection  Mac's Finest Screen Recorder for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-experts-companion-navigating-the-nuances-of-mobizen-screen-recording/"><u>[Updated] Expert's Companion  Navigating the Nuances of Mobizen Screen Recording</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-critical-steps-to-record-and-relive-athletic-sports-competitions/"><u>[Updated] Critical Steps to Record & Relive Athletic Sports Competitions</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-cutting-edge-pfp-designs-to-stand-out-on-tiktok/"><u>[Updated] Cutting-Edge PFP Designs to Stand Out on TikTok</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-from-iphone-13-pro-max-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud from iPhone 13 Pro Max Safe and Legal</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-ultimate-how-to-subtitling-your-igtv-videos/"><u>[Updated] The Ultimate How-To  Subtitling Your IGTV Videos</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Reject 'People You May Know' Notifications
-date: 2024-06-22 15:17:43
-updated: 2024-06-23 12:23:16
+date: 2024-06-25T14:15:28.451Z
+updated: 2024-06-26T14:15:28.451Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,24 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/messenger-kids-unveiling-sleep-mode-and-its-usage-guide/"><u>Messenger Kids: Unveiling Sleep Mode & Its Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/learning-from-facebook-the-top-5-user-driven-disasters/"><u>Learning From Facebook: The Top 5 User-Driven Disasters</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-privacy-predicament-pinpointing-the-9-suspicious-social-behaviors/"><u>Online Privacy Predicament: Pinpointing the 9 Suspicious Social Behaviors</u></a></li>
+<li><a href="https://facebook.techidaily.com/vaccination-push-via-fb-twittersphere-and-snaps-by-jolie/"><u>Vaccination Push via FB, Twittersphere and Snaps by Jolie</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-control-spotting-and-fixing-fb-hacks/"><u>Reclaiming Control: Spotting and Fixing FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-voices-facebook-introduces-audiovisual-hub/"><u>Bridging Voices: Facebook Introduces Audiovisual Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-failure-of-fb-notifications-to-load/"><u>Fixing the Failure of FB Notifications to Load</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-others-in-fb-on-this-day-feature/"><u>Steer Clear of Others in FB On This Day Feature</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-f54-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy F54 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-effortlessly-eradicate-unwanted-youtube-post-comments-for-2024/"><u>[New] How to Effortlessly Eradicate Unwanted Youtube Post-Comments for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-efficiently-upload-and-render-youtube-videos-with-precision/"><u>[New] Efficiently Upload and Render YouTube Videos with Precision</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-vivo-s17t-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Vivo S17t Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quality-video-sharing-leading-alternative-converters-from-flv-to-yt-for-2024/"><u>Quality Video Sharing  Leading Alternative Converters From FLV to YT for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-navigating-classic-gaming-on-modern-computers-with-5-top-gb-advance-emulators/"><u>[New] 2024 Approved  Navigating Classic Gaming on Modern Computers with 5 Top GB Advance Emulators</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-audio-synchronization-techniques-for-mac-users-bringing-melodies-to-gifs/"><u>New In 2024, Audio Synchronization Techniques for Mac Users Bringing Melodies to GIFs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-premium-fb-videograbber-suite-high-quality-downloads-fast-and-secure/"><u>[New] 2024 Approved  Premium FB Videograbber Suite  High-Quality Downloads, Fast & Secure</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Facebook Cracks Down: New Penalties Against Misinforming Users"
-date: 2024-06-21 16:19:48
-updated: 2024-06-23 10:53:10
+date: 2024-06-25T14:44:52.460Z
+updated: 2024-06-26T14:44:52.460Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/3cdd3221236d54f354b9655c53899223c63a3525e
 
 ## Facebook Makes Misinformation Less Attractive
 
- Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
+ Facebook is making it even harder to encounter and share misinformation on the platform. In a post on [the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
 
  Facebook already lessens a post's reach if it contains misinformation, but the platform wants to take this a step further. If a user has shared misinformation several times in the past, Facebook plans to "reduce the distribution of all posts in News Feed from an individual's Facebook account."
 
@@ -66,3 +66,26 @@ thumbnail: https://thmb.techidaily.com/3cdd3221236d54f354b9655c53899223c63a3525e
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/constructing-a-unique-avatar-for-social-media/"><u>Constructing a Unique Avatar for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-info-on-metas-revised-privacy-regime/"><u>Essential Info on Meta's Revised Privacy Regime</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-backgrounders-to-bannermen-elevating-your-fb-group/"><u>From Backgrounders to Bannermen: Elevating Your FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-tools-target-community-governance-improvement/"><u>Facebook's Latest Tools Target Community Governance Improvement</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebooks-visibility-settings-to-protect-privacy/"><u>Tailoring Facebook's Visibility Settings to Protect Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-freely-on-facebooks-data-management/"><u>Who Spoke Freely on Facebook’s Data Management?</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-fb-notifications-with-a-single-click/"><u>Remove Fb Notifications with a Single Click</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-heartbeat-of-facebooks-infrastructure/"><u>Understanding the Heartbeat of Facebook's Infrastructure</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/choose-wisely-top-10-expert-picked-gopro-housing-for-2024/"><u>Choose Wisely  Top 10 Expert-Picked GoPro Housing for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-google-podcast-mastery-from-creation-to-publication/"><u>[Updated] Google Podcast Mastery  From Creation to Publication</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-compre-written-guide-youtube-video-distribution-on-fb/"><u>2024 Approved  Compre Written Guide  YouTube Video Distribution on FB</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-htc-frp-bypass-by-drfone-android/"><u>Ultimate Guide on HTC FRP Bypass</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-iphone-explores-high-dynamic-range-photography/"><u>In 2024, IPhone Explores High Dynamic Range Photography</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comparison-of-googles-ar-embellishments-to-competitors/"><u>[Updated] Comparison of Google's AR Embellishments to Competitors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-a-list-websites-with-free-thrones-audio-downloads/"><u>2024 Approved  A-List Websites with Free Thrones Audio Downloads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/preserving-audio-broadcasts-a-simple-internet-radio-technique-for-2024/"><u>Preserving Audio Broadcasts  A Simple Internet Radio Technique for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-nubia-red-magic-9-proplus-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Nubia Red Magic 9 Pro+ Phones? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-the-full-spectrum-of-vlc-player-capabilities/"><u>[New] Unlocking the Full Spectrum of VLC Player Capabilities</u></a></li>
+</ul></div>

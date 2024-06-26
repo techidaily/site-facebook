@@ -1,7 +1,7 @@
 ---
 title: Discovering the Operation Principles Behind PhotoDNA
-date: 2024-06-22 10:56:55
-updated: 2024-06-23 11:23:16
+date: 2024-06-25T14:39:11.923Z
+updated: 2024-06-26T14:39:11.923Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 
 ## How Does PhotoDNA Work?
 
- When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
+ When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the [CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
 
  To get to this unique value, the photo is converted to black and white, divided into squares, and the software analyses the resulting shading. The unique hash is added to PhotoDNA's database, shared between physical installations and the PhotoDNA Cloud.
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 
  Since 2015, organizations have been able to use PhotoDNA to analyze videos, too.
 
- In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own[service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
+ In August 2021, Apple broke step with most other Big Tech firms and announced they would use their own [service to scan user's iPhones for CSAM](https://www.makeuseof.com/what-you-need-to-know-about-apples-child-safety-protections/) .
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
 
  Google, for example, has had well-documented issues with its facial recognition software. When Google Photos first launched, it offensively miscategorized black people as gorillas. In March 2017, a House oversight committee heard that some facial recognition algorithms were wrong 15 percent of the time and more likely to misidentify black people.
 
- These[types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
+ These [types of machine learning algorithms](https://www.makeuseof.com/tag/machine-learning-algorithms/) are increasingly commonplace but can be challenging to monitor appropriately. Effectively, the software makes its own decisions, and you have to reverse engineer how it arrived at a specific outcome.
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
@@ -96,3 +96,24 @@ thumbnail: https://thmb.techidaily.com/2e369c90b98435218baf4d297cfbe94e377c61af5
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hacktivism-halts-facebooks-happy-scores-sets-stars-at-1/"><u>Hacktivism Halts Facebook's Happy Scores, Sets Stars at 1</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-how-to-utilize-fb-help-center-services/"><u>Understanding How to Utilize FB Help Center Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-launch-on-facebook-what-are-they/"><u>Ray-Ban Stories Launch on Facebook - What Are They?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-blackout-facebook-whatsapp-in-a-daze/"><u>Digital Blackout: Facebook, WhatsApp in a Daze</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-elevates-mental-health-treatment-through-enhanced-cbt-practices/"><u>ISBM Elevates Mental Health Treatment Through Enhanced CBT Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-mastery-fastest-android-compact-apps/"><u>Mobile Mastery: Fastest Android Compact Apps</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-t-mobile-iphone-13-pro-online-without-sim-card-by-drfone-ios/"><u>In 2024, How to Unlock T-Mobile iPhone 13 Pro online without SIM Card?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-best-ways-to-watch-360-videos-on-android/"><u>In 2024, Unveiling the Best Ways to Watch 360 Videos on Android</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leveraging-daylight-in-home-interiors/"><u>[Updated] Leveraging Daylight in Home Interiors</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/seam-strengthening-secrets-for-the-socially-savvy-sewist-for-2024/"><u>Seam Strengthening Secrets for the Socially Savvy Sewist for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-remove-yourself-from-discord-ecosystem/"><u>[New] In 2024, Remove Yourself From Discord Ecosystem</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-amplify-views-on-tiktok-with-these-standout-username-concepts/"><u>2024 Approved  Amplify Views on TikTok with These Standout Username Concepts</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-samsung-galaxy-s23plus-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Samsung Galaxy S23+</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-zte-is-unlocked-by-drfone-android/"><u>How To Check if Your ZTE Is Unlocked</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-and-adhering-to-soundtracks-legal-requirements-on-instagram/"><u>In 2024, Understanding and Adhering to Soundtracks' Legal Requirements on Instagram</u></a></li>
+</ul></div>

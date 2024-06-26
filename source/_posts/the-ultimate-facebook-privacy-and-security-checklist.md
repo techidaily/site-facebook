@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Facebook Privacy and Security Checklist
-date: 2024-06-22 19:18:41
-updated: 2024-06-23 10:53:39
+date: 2024-06-25T14:03:59.550Z
+updated: 2024-06-26T14:03:59.550Z
 tags:
   - facebook
 categories:
@@ -19,74 +19,62 @@ thumbnail: https://thmb.techidaily.com/cbf529e05dd3135fe67a52edb00f230c5ea151216
 
  With the vast amount of information available on your Facebook profile, it's important to protect your privacy against identity theft, hackers, and people who may want to gain access to your account. By limiting personal data accessible by others, you can protect yourself and those around you.
 
- To help you out, we've put together a checklist of steps you can take to lock down your Facebook profile. We've separated these by the different sections found within[Facebook's settings page](https://www.facebook.com/settings/) .
+ To help you out, we've put together a checklist of steps you can take to lock down your Facebook profile. We've separated these by the different sections found within [Facebook's settings page](https://www.facebook.com/settings/) .
 
-**FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the[Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
+**FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the [Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
 
-## 1. Security and Login
-
-![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
+## 1. Security and Login ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
-* Under the[Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
-* If you believe someone might have access to your Facebook, navigate to the**Login** section of**Security and login** , then select**Change password** . You should[create a difficult to guess passphrase](https://www.makeuseof.com/tag/password-tools-create-strong-passphrases/) , not the same as any you've had before (include upper and lowercase letters, numbers, and special characters).
+* Under the [Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
+* If you believe someone might have access to your Facebook, navigate to the**Login** section of**Security and login** , then select**Change password** . You should [create a difficult to guess passphrase](https://www.makeuseof.com/tag/password-tools-create-strong-passphrases/) , not the same as any you've had before (include upper and lowercase letters, numbers, and special characters).
 * Don't want to save your login information? If someone else has access to your computer or devices, you can decide to not save your login information by editing the**Save your login information** option. Here you can remove an account or remove saved information from other devices.
-* To tighten your security even further, you can add[two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
-* Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
+* To tighten your security even further, you can add [two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
+* Be made aware of any [unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-## 2. Privacy
-
-![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+## 2. Privacy ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
-* You should ensure that the visibility of your current and future posts match your expectations. You can do this by visiting the[Privacy](https://www.facebook.com/settings?tab=privacy) tab and navigating to**Your activity** . Future posts can be set to public, friends, friends except, only me, or specific friends.
+* You should ensure that the visibility of your current and future posts match your expectations. You can do this by visiting the [Privacy](https://www.facebook.com/settings?tab=privacy) tab and navigating to**Your activity** . Future posts can be set to public, friends, friends except, only me, or specific friends.
 * The activity section also allows you to review any posts or images you've been tagged in. You can accept or reject the tags by viewing the**Activity Log** .
-* If you would prefer people not to[view any of your past posts on Facebook](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , you can choose to**limit the audience for old posts on your timeline** . This means any previous public posts or those you've shared with friends of friends will be limited to friends only.
+* If you would prefer people not to [view any of your past posts on Facebook](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , you can choose to**limit the audience for old posts on your timeline** . This means any previous public posts or those you've shared with friends of friends will be limited to friends only.
 * Privacy doesn't just stop at your own information. You can limit the audience who sees the people, pages, and lists you follow. The same options apply here as they do for future posts.
 * Locking down your Facebook security can make it difficult for people to find you, but you can adjust the settings in the**How people can find and contact you** section. Here, you can allow everyone to send you friend requests, or only friends of friends.
 * If people can't find you via Facebook search using your name, they may be able to search for you by using the email address or phone number you provided when you signed up. You can remove this option by selecting**Only me** , or limit this to friends or friends of friends.
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
-## 3. Profile and Tagging
-
-![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+## 3. Profile and Tagging ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
-* Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the[Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
+* Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the [Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
 * Once someone has posted something, it's possible that posts on your profile by other people (friends, friends of friends, friends except, specific friends, and everyone) can be viewed. Be sure to set the audience to decide who can view posts by others on your profile.
 * If you want to further customize your profile settings, you can **hide comments containing certain words from your profile** by adding words, phrases, or emojis. This means the comments containing these words will remain visible only to those who wrote them, and their friends.
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-## 4. Public Posts
-
-![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+## 4. Public Posts ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
-* The[Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
+* The [Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
 * Once you've made a public post, you can adjust the audience that can comment on your posts. However, it's worth noting that if you limit this to friends, their friends may still be able to comment.
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-## 5. Blocking
-
-![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+## 5. Blocking ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
-* Adding people to your restricted list on Facebook via the[Blocking](https://www.facebook.com/settings?tab=blocking) tab means they'll remain your friend on Facebook, but won't be able to see the posts you share with your friends only.
-* If you want to[block a user on Facebook](https://www.makeuseof.com/check-blocked-friends-facebook/) from seeing your timeline, tagging you, adding you as a friend, or even having a conversation with you, you can add them to your blocked list.
+* Adding people to your restricted list on Facebook via the [Blocking](https://www.facebook.com/settings?tab=blocking) tab means they'll remain your friend on Facebook, but won't be able to see the posts you share with your friends only.
+* If you want to [block a user on Facebook](https://www.makeuseof.com/check-blocked-friends-facebook/) from seeing your timeline, tagging you, adding you as a friend, or even having a conversation with you, you can add them to your blocked list.
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-## 6\. Quick Tips
-
-![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+## 6\. Quick Tips ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -113,3 +101,26 @@ thumbnail: https://thmb.techidaily.com/cbf529e05dd3135fe67a52edb00f230c5ea151216
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/uncharted-untangles-fb-list-anonymity/"><u>Uncharted Untangles: FB List Anonymity</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-solution-to-social-media-squabble-scraping/"><u>Simplified Solution to Social Media Squabble Scraping</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-users-shift-to-hardware-for-cybersecurity/"><u>Social Network Users Shift to Hardware for Cybersecurity</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-feed-mastering-customization-in-facebooks-world/"><u>Crafting Your Feed: Mastering Customization in Facebook's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-childs-online-journey-with-caution-on-facebook/"><u>Steering Your Child's Online Journey with Caution on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-conversations-the-countdown-for-fb-messengers-e2ee/"><u>Securing Your Conversations: The Countdown for FB Messenger's E2EE</u></a></li>
+<li><a href="https://facebook.techidaily.com/attain-elite-status-metas-pay-to-verify-advantage/"><u>Attain Elite Status: Meta's Pay-to-Verify Advantage</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-free-dailymotion-video-conversion-without-registration/"><u>Updated 2024 Approved Free Dailymotion Video Conversion without Registration</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-find-brush-sound-effect/"><u>New In 2024, Find Brush Sound Effect</u></a></li>
+<li><a href="https://techidaily.com/repair-corrupt-pdf-file-using-pdf-repair-tool-by-stellar-guide/"><u>Repair Corrupt PDF File using PDF Repair Tool</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-nubia-red-magic-9-proplus-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Nubia Red Magic 9 Pro+ Phone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-visual-markers-guide-customizing-instagram-photo-watermarks/"><u>[New] In 2024, The Visual Marker's Guide  Customizing Instagram Photo Watermarks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-check-of-dji-phantom-3/"><u>The Ultimate Check of DJI Phantom 3</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premier-pro-ultimate-2023-template-collection-free/"><u>2024 Approved  Premier Pro  Ultimate 2023 Template Collection (FREE)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-navigating-nerves-in-10-must-do-vlogs/"><u>[Updated] Navigating Nerves in 10 Must-Do Vlogs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-fb-slideshows-for-content-sharing/"><u>[Updated] In 2024, Mastering FB Slideshows for Content Sharing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-lava-blaze-2-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Lava Blaze 2 5G online without jailbreak</u></a></li>
+</ul></div>

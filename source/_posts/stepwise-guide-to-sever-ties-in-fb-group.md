@@ -1,7 +1,7 @@
 ---
 title: Stepwise Guide to Sever Ties in FB Group
-date: 2024-06-20 19:22:22
-updated: 2024-06-23 11:59:59
+date: 2024-06-25T13:56:48.582Z
+updated: 2024-06-26T13:56:48.582Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ If you are ready to say goodbye to it, this article will help you.
 
  Related:[How to Enable Anonymous Posting in a Facebook Group](https://www.makeuseof.com/how-to-enable-anonymous-facebook-group-posting/)
 
- Facebook provides a pause option for admins who are overwhelmed with[managing posts and member requests](https://www.makeuseof.com/how-to-use-facebook-moderation-tools-to-manage-groups/) in their group. When you pause a group, new posts, comments, and reactions will be paused for all members, including admins.
+ Facebook provides a pause option for admins who are overwhelmed with [managing posts and member requests](https://www.makeuseof.com/how-to-use-facebook-moderation-tools-to-manage-groups/) in their group. When you pause a group, new posts, comments, and reactions will be paused for all members, including admins.
 
  To notify members, Facebook displays a message at the top of the group, letting them know that activity on the group has been paused. This is so they’re not left in the dark as to why they can’t create new posts or make comments.
 
@@ -39,9 +39,7 @@ If you are ready to say goodbye to it, this article will help you.
 
  You can pause your Facebook group via any channel you use to access it. We’ll cover how to pause your group on mobile and the web.
 
-### How to Pause Your Facebook Group on Mobile
-
-![screenshot showing facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-homepage.jpg)
+### How to Pause Your Facebook Group on Mobile ![screenshot showing facebook group homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-homepage.jpg)
 
 ![screenshot showing facebook pause group feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-pause-group-feature.jpg)
 
@@ -58,9 +56,7 @@ Close
 5. Add an optional announcement to let members know why the group is being paused.
 6. Tap**Pause Group** to confirm.
 
-### How to Pause Your Group on the Web
-
-![screenshot showing facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group.JPG)
+### How to Pause Your Group on the Web ![screenshot showing facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group.JPG)
 
 Here's how to pause your group on the web:
 
@@ -74,7 +70,7 @@ Here's how to pause your group on the web:
 
 ![facebook pause group feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-pause-group-feature.JPG)
 
- If you’re just plain tired of the group or its members are just too inactive to be worth it anymore, you can go ahead and delete it. That's assuming you don't want to just[leave the Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
+ If you’re just plain tired of the group or its members are just too inactive to be worth it anymore, you can go ahead and delete it. That's assuming you don't want to just [leave the Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 ## How to Delete Your Facebook Group
 
@@ -82,9 +78,7 @@ Here's how to pause your group on the web:
 
 This makes it a tedious process for larger groups.
 
-### How to Delete Your Facebook Group on Mobile
-
-![screenshot facebook group home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-facebook-group-home-page.jpg)
+### How to Delete Your Facebook Group on Mobile ![screenshot facebook group home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-facebook-group-home-page.jpg)
 
 ![screenshot showing facebook group members](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-members.jpg)
 
@@ -103,9 +97,7 @@ Follow these steps to delete your group on mobile:
 
  Facebook will automatically delete the group once there are no members in it.
 
-### How to Delete Your Facebook Group on the Web
-
-![screen showing admin removing a member from a facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screen-showing-admin-removing-a-member-from-a-facebook-group.JPG)
+### How to Delete Your Facebook Group on the Web ![screen showing admin removing a member from a facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screen-showing-admin-removing-a-member-from-a-facebook-group.JPG)
 
  If you're accessing Facebook through your web browser, here's how to delete your group:
 
@@ -146,3 +138,22 @@ Again, once the group is empty, Facebook will delete it.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/your-online-actions-shape-brand-perceptions/"><u>Your Online Actions Shape Brand Perceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultimate-frisbee-unions-dismiss-online-networking/"><u>Ultimate Frisbee Unions Dismiss Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-facebooks-embedded-web-experience/"><u>Turn Off Facebook's Embedded Web Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-friend-paths-with-effective-fb-tags-learn-3-strategies/"><u>Paving Friend Paths with Effective FB Tags – Learn 3 Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rejects-extinction-why-it-wont-die-off-insightful-analysis/"><u>Facebook Rejects Extinction: Why It Won't Die Off - Insightful Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-search-navigate-to-facebook-group-and-profile-links/"><u>Masterful Search: Navigate to Facebook Group & Profile Links</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-record-and-share-every-victory-in-obs/"><u>[New] Record & Share Every Victory in OBS</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-oppo-k11x-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Oppo K11x | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-converting-audacity-projects-to-mp3-format/"><u>Updated 2024 Approved Converting Audacity Projects to MP3 Format</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-oppo-a38-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-honor-magic-6-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Honor Magic 6 has been deleted</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-boosting-your-short-form-video-content-on-youtube/"><u>[Updated] 2024 Approved  Boosting Your Short-Form Video Content on Youtube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/phones-at-odds-dissecting-iphone-x-vs-galaxy-face-recognition-for-2024/"><u>Phones at Odds  Dissecting iPhone X Vs. Galaxy Face Recognition for 2024</u></a></li>
+</ul></div>

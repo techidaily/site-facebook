@@ -1,7 +1,7 @@
 ---
 title: How to Hide Likes on Your Facebook Posts
-date: 2024-06-21 16:15:56
-updated: 2024-06-23 12:21:53
+date: 2024-06-25T14:42:01.274Z
+updated: 2024-06-26T14:42:01.274Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/5fe7ecb89bcc6e1487d4d4a1019dead48cda049eb
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-### Hiding the Facebook Reaction Count on Mobile
-
-![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+### Hiding the Facebook Reaction Count on Mobile ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
@@ -66,7 +64,7 @@ Your new settings are saved automatically.
 
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
- If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
+ If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 ## Depressurize Your Experience on Facebook
 
@@ -87,3 +85,26 @@ Your new settings are saved automatically.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/disband-your-digital-haven-on-facebook-quickly/"><u>Disband Your Digital Haven on Facebook Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-dark-mode-on-facebook/"><u>How to Enable Dark Mode on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/listing-everyone-who-likes-you/"><u>Listing Everyone Who Likes You</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-control-untag-on-facebook-photos/"><u>Taking Back Control: Untag on Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-people-you-may-know-notifications/"><u>Reject 'People You May Know' Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150151425-anticipated-decision-from-social-media-regulators-on-trump-ban-case/"><u>Anticipated Decision From Social Media Regulators on Trump Ban Case.</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-esteemed-facebook-presence-a-guide/"><u>Crafting an Esteemed Facebook Presence: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-flip-the-friend-switch-on-facebook-insights-and-strategies/"><u>When to Flip the Friend Switch on Facebook: Insights and Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-undervalued-tech-news-that-worth-paying-attention-to/"><u>The Undervalued Tech News That Worth Paying Attention To</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/explore-10-elite-streamers-offering-freshest-live-content/"><u>Explore 10 Elite Streamers Offering Freshest Live Content</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-oppo-reno-9a-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Oppo Reno 9A Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-techniques-for-fast-vimeo-videos-for-2024/"><u>[Updated] Techniques for Fast Vimeo Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-viral-visionaries-most-favored-instagram-filters/"><u>[Updated] In 2024, Viral Visionaries  Most Favored Instagram Filters</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-art-of-optimizing-your-yt-channel-description/"><u>[New] The Art of Optimizing Your YT Channel Description</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-disabling-suggested-podcast-episodes-on-spotify/"><u>[Updated] Disabling Suggested Podcast Episodes on Spotify</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-trending-beats-navigating-the-world-of-viral-tiktok-raps/"><u>2024 Approved  Trending Beats  Navigating the World of Viral TikTok Raps</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/crafting-the-ultimate-mc-community-dwellings-for-2024/"><u>Crafting the Ultimate MC Community Dwellings for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-ultimate-playlist-plan-for-insta/"><u>[Updated] 2024 Approved  The Ultimate Playlist Plan for Insta</u></a></li>
+</ul></div>

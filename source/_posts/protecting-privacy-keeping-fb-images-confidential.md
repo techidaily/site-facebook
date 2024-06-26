@@ -1,7 +1,7 @@
 ---
 title: "Protecting Privacy: Keeping FB Images Confidential"
-date: 2024-06-21 21:40:11
-updated: 2024-06-23 10:57:45
+date: 2024-06-25T13:49:18.324Z
+updated: 2024-06-26T13:49:18.324Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/7f4ae1b9b31cac38f7f5bddb79d648495e38c2278
 
  You can change the privacy of an entire album on Facebook to save time, rather than needing to make photos private one by one.
 
- However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can[untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
+ However, you should remember that you can only edit the audience of your photos—not pictures that your friends uploaded. For the latter, you can [untag yourself from a Facebook photo](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) or ask your friend to delete it.
 
  To make a photo album private on Facebook's Android or iOS app, follow these steps:
 
@@ -119,7 +119,7 @@ Close
 
 * Select**Only me** and click**Done** to save your changes.
 
- You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
+ You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid [the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
 
 ## Who Can See My Photos on Facebook? How to Check
 
@@ -131,7 +131,7 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
- This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the[privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
+ This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
@@ -155,7 +155,7 @@ Close
 
  Also, regularly check your profile in View As mode to see if you may have accidentally shared anything with the public.
 
- Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
+ Having a [Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can [make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
 ## Now You Know How to Hide Photos on Facebook
 
@@ -178,3 +178,23 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/soundscapes-in-speeches-the-rise-of-facebooks-soundemojis/"><u>Soundscapes in Speeches: The Rise of Facebook's Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-with-ai-assisted-photo-posting-to-facebook/"><u>Unleash Creativity with AI-Assisted Photo Posting to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/uninvited-guest-alert-how-to-spot-a-facebook-hack/"><u>Uninvited Guest Alert: How to Spot a Facebook Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehending-online-identity-facebook-vs-unames/"><u>Comprehending Online Identity: FaceBook vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fourth-wave-of-connection-how-social-media-overhauled-us/"><u>The Fourth Wave of Connection: How Social Media Overhauled Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-platforms-adapt-to-sponsored-feature-trends/"><u>Social Networking Platforms Adapt to Sponsored Feature Trends</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/still-using-pattern-locks-with-vivo-v27-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Vivo V27? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-per-view-value-to-youtube-star-economy/"><u>In 2024, Per-View Value to YouTube Star Economy</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-framefusion-matrix-the-ultimate-montage-craft/"><u>In 2024, FrameFusion Matrix  The Ultimate Montage Craft</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-a-comprehensive-guide-to-infusing-fun-with-emojis-in-discords-status-field/"><u>[New] In 2024, A Comprehensive Guide to Infusing Fun with Emojis in Discord's Status Field</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/expert-guide-to-streamlined-and-efficient-mac-screenshots-via-keyboard-shortcuts/"><u>Expert Guide to Streamlined and Efficient Mac Screenshots via Keyboard Shortcuts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-xiaomi-redmi-12-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Xiaomi Redmi 12 5G Lock Screen Password</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-zenith-resolution-for-virtual-voyages/"><u>In 2024, Zenith Resolution for Virtual Voyages</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-future-proofing-data-top-2024-cloud-choices/"><u>[Updated] Future-Proofing Data  Top 2024 Cloud Choices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-honor-play-7t-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Honor Play 7T using Video Repair Utility on Windows?</u></a></li>
+</ul></div>

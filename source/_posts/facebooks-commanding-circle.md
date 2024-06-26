@@ -1,7 +1,7 @@
 ---
 title: Facebook's Commanding Circle
-date: 2024-06-21 22:33:36
-updated: 2024-06-23 12:52:28
+date: 2024-06-25T13:57:36.578Z
+updated: 2024-06-26T13:57:36.578Z
 tags:
   - facebook
 categories:
@@ -27,19 +27,19 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
 
  Following a series of serious scandals, Facebook wiped (or tried to wipe) the slate clean with a rebrand. From October 2021, Facebook's parent company would be known as Meta,[according to CEO Mark Zuckerberg](https://about.fb.com/news/2021/10/founders-letter/) .
 
- Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
+ Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of [the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
 
- In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
+ In the [statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
- Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to[SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
+ Facebook's share structure differs from that of other publicly-traded companies, which assign one vote to one share. Facebook is unique in that it has a 'dual class' share structure, which divides Facebook shares into two classes, namely “Class A” and “Class B” shares. This is according to [SEC filings](https://www.sec.gov/Archives/edgar/data/1326801/000132680120000013/fb-12312019x10kexhibit33.htm) by the company.
 
  The Class A shares are what normal investors can buy on the stock market, and they come with one vote per share. Class B shares, which are primarily owned by Mark Zuckerberg and a small group of insiders, have 10 votes each.
 
- Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to[CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
+ Mutual funds and other large institutional investors own a significant amount of Facebook stock. According to [CNN Business](http://money.cnn.com/quote/shareholders/shareholders.html?symb=FB&subView=institutional) , mutual funds currently own approximately 41% of Facebook's publicly traded stock, with the Vanguard Group and Fidelity Management leading the pack. Individual Facebook stockholders own less than 2% of the company's total shares.
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
@@ -72,3 +72,24 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/nbafever-grows-as-facebook-twitter-stream-games/"><u>NBAFever Grows as Facebook, Twitter Stream Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-from-facebook-strengthens-who-covid-19-fund/"><u>$5 Million From Facebook Strengthens WHO COVID-19 Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-affection-concealing-your-likes-on-networks/"><u>Invisible Affection: Concealing Your Likes on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-facebooks-structural-vision/"><u>What Lies Beneath: Facebook's Structural Vision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-assembling-people-through-fb-groups/"><u>The Art of Assembling People Through FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-misinformation-a-roadmap-for-social-networks/"><u>Curbing COVID Misinformation: A Roadmap for Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstructive-oddities-of-a-stopped-up-facebook-page/"><u>Overcome the Obstructive Oddities of a Stopped-Up Facebook Page</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-interpreting-the-purpose-behind-a-facebooks-blue-video-icon-for-2024/"><u>[New] Interpreting the Purpose Behind a Facebook's Blue Video Icon for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-ios-image-files-conversion-to-pdfs/"><u>In 2024, The Ultimate Guide  IOS Image Files Conversion to PDFs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-your-content-on-facebook-after-algorithms-change/"><u>[New] In 2024, Mastering Your Content on Facebook After Algorithms Change</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-thriving-in-the-youtube-ecosystem-backlink-building-essentials/"><u>2024 Approved  Thriving in the YouTube Ecosystem  Backlink Building Essentials</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-asmr-app-selection-guide-for-phones/"><u>[Updated] ASMR App Selection Guide for Phones</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snapchats-money-making-opportunities-exposed/"><u>[New] 2024 Approved  Snapchat's Money-Making Opportunities Exposed</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-leading-voice-alteration-and-production-software-for-aspiring-sopranos-and-tenors-for-2024/"><u>The Leading Voice Alteration and Production Software for Aspiring Sopranos & Tenors for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-for-effortless-apple-podcast-acquisition-swift-and-smooth/"><u>[Updated] How-To for Effortless Apple Podcast Acquisition – Swift & Smooth</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/1716089177026-new-how-to-watch-facebook-live-on-roku/"><u>[New] How to Watch Facebook Live on Roku</u></a></li>
+</ul></div>

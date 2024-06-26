@@ -1,7 +1,7 @@
 ---
 title: Protecting Adolescent Online Presence - Facebook Privacy Tips
-date: 2024-06-21 21:28:22
-updated: 2024-06-23 10:16:51
+date: 2024-06-25T14:37:37.748Z
+updated: 2024-06-26T14:37:37.748Z
 tags:
   - facebook
 categories:
@@ -23,25 +23,23 @@ thumbnail: https://thmb.techidaily.com/5962b87511edddba346cb57d7aca143b8c59fba6d
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
- Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
+ Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about [what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-## How to Do a Privacy Check of Your Teen's Facebook Account
-
-![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+## How to Do a Privacy Check of Your Teen's Facebook Account ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
 
- When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
+ When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to [ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 ## Privacy Setting Basics
 
- There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
+ There are some [privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many [Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
 
  When you click on your teen's**Privacy** , you'll be given some**Privacy Shortcuts** to look over. In this section, you'll be able to review important things such as: if your teen's birthday is correct.
 
@@ -65,9 +63,7 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-## Check Ad Settings
-
-![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+## Check Ad Settings ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -100,3 +96,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/is-your-facebook-secure-spotting-and-resolving-breaches/"><u>Is Your Facebook Secure? Spotting & Resolving Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-trails-capital-treks-an-analysis/"><u>Consumer Trails, Capital Treks: An Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-validity-of-facebooks-security-mail-address/"><u>Investigating Validity of Facebook's Security Mail Address</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracking-your-social-media-admirers/"><u>Tracking Your Social Media Admirers</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-and-the-wave-of-covid-misguidance/"><u>Influencers and the Wave of Covid Misguidance</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-true-potential-of-fb-events-in-planning/"><u>Unveiling the True Potential of FB Events in Planning</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-your-social-media-pics/"><u>Stealth Mode for Your Social Media Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-break-next-in-line-youths-choice-to-unfollow-instagram/"><u>Social Media Break: Next in Line? Youths' Choice to Unfollow Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enables-oculus-gos-full-access-an-overview-for-users/"><u>Facebook Enables Oculus Go's Full Access: An Overview for Users</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-three-free-sound-integration-techniques-for-diy-filmmakers-and-videographers/"><u>Updated In 2024, Three Free Sound Integration Techniques for DIY Filmmakers and Videographers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-hdr-editing-essentials-for-pc-users/"><u>[Updated] In 2024, HDR Editing Essentials for PC Users</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-quick-tips-for-capturing-gotomeeting-conversations/"><u>[Updated] In 2024, Quick Tips for Capturing GoToMeeting Conversations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-eradicate-dark-playback-on-obs/"><u>[New] In 2024, Eradicate Dark Playback on OBS</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-infinite-recorders-without-bounds/"><u>[New] 2024 Approved  Infinite Recorders Without Bounds</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-free-android-video-editing-software-without-watermarks-or-limitations/"><u>New 2024 Approved Free Android Video Editing Software Without Watermarks or Limitations</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-nokia-g42-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Nokia G42 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-capture-memories-in-teams-snap-camera-guide/"><u>[Updated] 2024 Approved  Capture Memories in Teams  Snap Camera Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-silence-the-chaos-innovative-noise-management-with-premiere-pros-audio-effects-for-2024/"><u>New Silence the Chaos Innovative Noise Management with Premiere Pros Audio Effects for 2024</u></a></li>
+</ul></div>

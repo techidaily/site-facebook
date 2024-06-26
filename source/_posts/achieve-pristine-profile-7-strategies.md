@@ -1,7 +1,7 @@
 ---
 title: "Achieve Pristine Profile: 7 Strategies"
-date: 2024-06-21 17:38:54
-updated: 2024-06-23 11:10:10
+date: 2024-06-25T14:10:32.298Z
+updated: 2024-06-26T14:10:32.298Z
 tags:
   - facebook
 categories:
@@ -25,13 +25,13 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
 
 ![Friend settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729376.jpg)
 
-**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can[spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
+**Unfriend** anyone who you no longer want to connect with.**Unfollow** friends that you no longer want to see content from, and while you're at it,**Favorite** your closest friends and start adding people to your**Friend Lists** . Friend Lists are a great way to segment your followers, and give you more control over who can see the things you post. As you look through your Facebook connections, see if you can [spot fake Facebook profiles](https://www.makeuseof.com/tag/spot-fake-facebook-account-stay-safe-weekly-facebook-tips/) **.**
 
 ![Adding Facebook Friends to a Friends List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729286.jpg)
 
 ## 2\. Clean Up Your Facebook Photos
 
- It's time to go into your photos and decide what you want to be on the internet for all to see. While you can[make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
+ It's time to go into your photos and decide what you want to be on the internet for all to see. While you can [make your photos private on Facebook](https://www.makeuseof.com/how-to-make-photos-private-on-facebook/) , it's safest to remove them altogether. Facebook conveniently groups your photos into**Photos of You** ,**Your Photos** , and**Albums** —here's how to delete photos in each of these sections.
 
 ### Deleting Facebook Photo Albums
 
@@ -53,7 +53,7 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
 
 ### Deleting Photos of You on Facebook
 
- Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our[Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
+ Finally, we come to the dreaded**Photos of You** section of your Facebook photos. This section contains photos you've been tagged in. If you've uploaded the image and tagged yourself, then you can delete it in the same way you would any other photo. If, however, the photo is owned by someone else, and they have tagged you in it, then you can only remove the tag. Take a look at our [Facebook tagging guide](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) if you're still confused.
 
 ![Remove a tagged photo of yourself on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/blur-photocom_1662729047.jpg)
 
@@ -110,3 +110,24 @@ thumbnail: https://thmb.techidaily.com/16a9a32d76913419d0c86bdb7e9f6c144de6a2f54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/sidestep-fbs-2fa-loss-of-device-with-ease/"><u>Sidestep FB’s 2FA Loss of Device with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-secrets-of-fbs-curated-content/"><u>Unraveling the Secrets of Fb's Curated Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-private-conversations-facebooks-encrypted-instagram-dms-messenger-calls-rollout/"><u>New Era of Private Conversations: Facebook's Encrypted Instagram DMs, Messenger Calls Rollout.</u></a></li>
+<li><a href="https://facebook.techidaily.com/journey-of-growth-unveiling-the-new-term-metamate/"><u>Journey of Growth: Unveiling the New Term, 'Metamate'</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-out-membership-and-usage-in-facebook-neighborhoods/"><u>Inside Out: Membership and Usage in Facebook Neighborhoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-encryption-strength-in-fb-chats/"><u>Exploring Encryption Strength in FB Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaming-on-steam-how-data-monitoring-powers-the-platform/"><u>Gaming on Steam: How Data Monitoring Powers the Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-navigating-the-world-of-hulu-recordings-windowsmaciosandroid-for-2024/"><u>[New] Navigating the World of Hulu Recordings  Windows/Mac/iOS/Android for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-searchingforsmartercameraspost-mycam/"><u>[Updated] In 2024, SearchingForSmarterCamerasPost-MyCam</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-starting-an-impactful-fb-community-giving-campaign/"><u>[New] Starting an Impactful FB Community Giving Campaign</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-efficient-airdrop-transfers-fixes-for-all-apple-gadgets/"><u>[New] Unlock Efficient AirDrop Transfers - Fixes for All Apple Gadgets</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-introducing-dimensional-text-with-photoshop-expertise/"><u>[New] Introducing Dimensional Text with Photoshop Expertise</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unseen-algorithms-powering-youtubes-viewer-statistics/"><u>[Updated] Unseen Algorithms Powering YouTube's Viewer Statistics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effective-strategies-for-removing-backgrounds-in-images/"><u>Effective Strategies for Removing Backgrounds in Images</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-boost-visual-speakers-output-enhance-movie-and-video-audibility/"><u>2024 Approved Boost Visual Speakers Output Enhance Movie and Video Audibility</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-propel-your-social-media-success-best-6-apps-for-instagram-reels/"><u>[Updated] In 2024, Propel Your Social Media Success  Best 6 Apps for Instagram Reels</u></a></li>
+</ul></div>

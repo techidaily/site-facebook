@@ -1,7 +1,7 @@
 ---
 title: "Engage Friends: Utilizing Facebook Portal TV for Video Calls"
-date: 2024-06-20 19:50:35
-updated: 2024-06-23 12:38:59
+date: 2024-06-25T14:17:14.191Z
+updated: 2024-06-26T14:17:14.191Z
 tags:
   - facebook
 categories:
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/4099437332566bc0717087ad155c53eccdb95fb25
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
- The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
+ The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
 
@@ -55,9 +55,7 @@ thumbnail: https://thmb.techidaily.com/4099437332566bc0717087ad155c53eccdb95fb25
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV
-
-![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -87,9 +85,7 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi
-
-![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -108,9 +104,7 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know
-
-![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -141,3 +135,27 @@ Your Portal TV has two clips.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/public-skepticism-grows-large-tech-companies-losing-faith/"><u>Public Skepticism Grows: Large Tech Companies Losing Faith</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-exclusivity-recognize-illicit-facebook-access/"><u>Ensure Exclusivity – Recognize Illicit Facebook Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-exact-time-i-joined-facebook/"><u>Pinpointing Exact Time I Joined Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-crowd-sourced-to-customized-redefining-your-facebook-view/"><u>From Crowd-Sourced to Customized: Redefining Your Facebook View</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-deletion-on-facebook/"><u>Mastering Group Deletion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-social-media-experience-on-facebook/"><u>Optimizing Your Social Media Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/like-count-anonymity-the-new-standard-for-fbig-users/"><u>Like Count Anonymity: The New Standard for FB/IG Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-user-engagement-with-auto-generated-imagery-titles/"><u>Enhancing User Engagement with Auto-Generated Imagery Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-world-shadowbans-and-how-to-escape-them/"><u>The Unseen World: Shadowbans & How to Escape Them</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/what-should-i-do-if-i-dont-find-the-deleted-iphone-files-after-scanning-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>What should I do if I dont find the deleted iPhone files after scanning? | Stellar</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-basics-of-effective-fb-ad-cta-design-for-2024/"><u>[Updated] Basics of Effective FB Ad CTA Design for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leveraging-modern-ios-features-for-seamless-task-management/"><u>Leveraging Modern iOS Features for Seamless Task Management</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-14-ultra-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on 14 Ultra</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unlock-efficiency-screen-recording-on-mac-via-keyboard-shortcuts/"><u>[Updated] Unlock Efficiency  Screen Recording on Mac via Keyboard Shortcuts</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Apple iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-xiaomi-14-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Xiaomi 14 is off? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mi-drone-4k-flight-insights-and-features/"><u>[New] Mi Drone 4K  Flight Insights & Features</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-4-things-you-must-know-about-iphone-7-plus-activation-lock-by-drfone-ios/"><u>In 2024, 4 Things You Must Know About iPhone 7 Plus Activation Lock</u></a></li>
+</ul></div>

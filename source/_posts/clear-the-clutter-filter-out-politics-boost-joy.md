@@ -1,7 +1,7 @@
 ---
 title: "Clear the Clutter: Filter Out Politics, Boost Joy"
-date: 2024-06-21 12:39:47
-updated: 2024-06-23 12:57:12
+date: 2024-06-25T14:24:52.337Z
+updated: 2024-06-26T14:24:52.337Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556
 
  Here's how you can block political and other annoying content on your Facebook account.
 
-## Facebook's Timeline Can Get Swamped With Politics
-
-![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
+## Facebook's Timeline Can Get Swamped With Politics ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
 
@@ -35,11 +33,9 @@ thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
- We've talked about[how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
+ We've talked about [how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
-## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
-
-![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
+## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
 
@@ -47,13 +43,11 @@ thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556
 
  You also have the option to**Snooze** that page, group, or person for 30 days. Most articles come from a small handful of sources. If you snooze every source that posts annoying articles, your feed will improve quickly.
 
- Alternatively, if a source is completely unbearable, you can[unfollow a page or person on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) entirely. This is particularly useful if you don't want to unfriend a person but want to stop seeing their posts.
+ Alternatively, if a source is completely unbearable, you can [unfollow a page or person on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) entirely. This is particularly useful if you don't want to unfriend a person but want to stop seeing their posts.
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
-## 2\. Remove Your Political Views From Your Profile
-
-![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
+## 2\. Remove Your Political Views From Your Profile ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
 
@@ -63,11 +57,9 @@ thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
-## 3\. Use a Browser Extension
+## 3\. Use a Browser Extension ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
-![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
-
- You can use a browser extension called[FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
+ You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
@@ -92,3 +84,22 @@ thumbnail: https://thmb.techidaily.com/c3853b005ad6636456539b898eb59cf75f875d556
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-post-a-job-ad-on-facebook/"><u>How to Post a Job Ad on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactivity-or-intrusion-cybersecurity-risks-on-fb-quizzes/"><u>Interactivity or Intrusion? Cybersecurity Risks on FB Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-social-media-experience-on-facebook/"><u>Optimizing Your Social Media Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspension-of-decision-facebooks-regulatory-board/"><u>Suspension of Decision: Facebook's Regulatory Board</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-essential-apps-that-make-social-timing-easier/"><u>9 Essential Apps That Make Social Timing Easier</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-easy-webcam-video-capture-using-vlc/"><u>2024 Approved  Easy Webcam Video Capture Using VLC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-xiaomi-redmi-note-12r-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Xiaomi Redmi Note 12R Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reimagining-photo-presentation-with-top-frame-tools/"><u>In 2024, Reimagining Photo Presentation with Top Frame Tools</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-from-mouth-to-manuscript-speech-to-text-solutions/"><u>Updated In 2024, From Mouth to Manuscript Speech-to-Text Solutions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/golden-text-in-3d-selecting-quality-online-sites/"><u>Golden Text in 3D  Selecting Quality Online Sites</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transforming-passion-into-a-fulfilling-design-career/"><u>Transforming Passion Into a Fulfilling Design Career</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tips-on-how-skip-edgenuity-videos/"><u>[New] Tips on How Skip Edgenuity Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/make-your-whatsapp-status-pop-best-video-makers-free-and-paid/"><u>Make Your WhatsApp Status Pop Best Video Makers (Free & Paid)</u></a></li>
+</ul></div>

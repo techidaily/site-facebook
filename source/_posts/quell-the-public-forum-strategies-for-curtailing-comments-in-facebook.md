@@ -1,7 +1,7 @@
 ---
 title: "Quell the Public Forum: Strategies for Curtailing Comments in Facebook"
-date: 2024-06-21 17:43:26
-updated: 2024-06-23 12:56:39
+date: 2024-06-25T14:30:57.074Z
+updated: 2024-06-26T14:30:57.074Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/community-strengthened-by-7-social-innovations/"><u>Community Strengthened by 7 Social Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-setup-for-extended-messaging-networks/"><u>Quick Setup for Extended Messaging Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-facebook-footsteps-an-analytical-journey-through-social-engagement/"><u>Behind the Scenes of Your Facebook Footsteps: An Analytical Journey Through Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-the-future-of-socializing-with-ar-in-messenger/"><u>Step Into the Future of Socializing with AR in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-engagement-building-lasting-digital-connections/"><u>The Art of Engagement: Building Lasting Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/withheld-implementation-date-for-whatsapps-new-privacy-agreement/"><u>Withheld Implementation Date for WhatsApp's New Privacy Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/update-your-childs-profile-a-parental-guide-to-messenger-kids/"><u>Update Your Child's Profile: A Parental Guide to Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-sarcasm-facebooks-policy-amendments/"><u>Dissecting Sarcasm: Facebook’s Policy Amendments</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-flv-file-symphony-creating-a-single-youtube-playlist/"><u>In 2024, FLV File Symphony  Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-maximize-video-reach-with-effective-tags-titles-for-2024/"><u>[Updated] How to Maximize Video Reach with Effective Tags, Titles for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-new-frontiers-metaverses-vs-omniverse/"><u>[New] Navigating New Frontiers  Metaverses Vs. Omniverse</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-ultimate-facetune-guide-elevating-your-image-quality/"><u>In 2024, Ultimate Facetune Guide  Elevating Your Image Quality</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-maximizing-views-50plus-most-popular-tiktok-hashtags-for-2024/"><u>[Updated] Maximizing Views  50+ Most Popular TikTok Hashtags for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-tweeting-trouble-laughter-league/"><u>[Updated] 2024 Approved  Tweeting Trouble  Laughter League</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-ensuring-your-tweets-meet-aspect-ratio-norms/"><u>[Updated] Ensuring Your Tweets Meet Aspect Ratio Norms</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-fixes-how-to-recover-forgotten-icloud-password-from-your-apple-iphone-15-by-drfone-ios/"><u>In 2024, Easy Fixes How To Recover Forgotten iCloud Password From your Apple iPhone 15</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-deciphering-genuine-connections-in-social-networks/"><u>[New] Deciphering Genuine Connections in Social Networks</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-easy-access-to-expert-tech-insights/"><u>[Updated] In 2024, Easy Access to Expert Tech Insights</u></a></li>
+</ul></div>

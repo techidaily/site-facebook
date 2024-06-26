@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step: Embedding Image Descriptors in Fb Photos"
-date: 2024-06-22 15:44:20
-updated: 2024-06-23 10:39:50
+date: 2024-06-25T14:38:46.701Z
+updated: 2024-06-26T14:38:46.701Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App
-
-![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -56,13 +54,11 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web
-
-![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
-1. Log in to[Facebook](https://www.facebook.com) on your browser.
+1. Log in to [Facebook](https://www.facebook.com) on your browser.
 2. Click on**Photo/Video** at the top of your Newsfeed or timeline.
 3. Select the desired photo.
 4. Hover over the photo and click**Edit** .
@@ -72,9 +68,7 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded
-
-![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -114,3 +108,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/agile-switching-approach-for-disconnected-facebook-accounts/"><u>Agile Switching Approach for Disconnected Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-dwindling-threads-by-year-end-decision/"><u>Instagram's Dwindling Threads by Year-End Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-copyright-after-sharing-a-selfie/"><u>Navigating Copyright After Sharing a Selfie</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-your-phone-listen-to-you-for-ads-or-is-it-just-coincidence/"><u>Does Your Phone Listen to You for Ads? Or Is It Just Coincidence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-kids-unveiling-sleep-mode-and-its-usage-guide/"><u>Messenger Kids: Unveiling Sleep Mode & Its Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-whatsapp-policy-update-keep-access-full-and-complete/"><u>Bypassing WhatsApp Policy Update, Keep Access Full and Complete</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-stance-on-metaverse-a-decision-of-distinction/"><u>Apple’s Stance on Metaverse - A Decision of Distinction</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-career-potential-the-power-of-facebook-engagement/"><u>Unlock Career Potential: The Power of Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlocking-the-full-capabilities-of-zoom-on-windows-10-pcs/"><u>[New] Unlocking The Full Capabilities of Zoom on Windows 10 PCs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-a-complete-guide-on-how-to-capture-and-store-fbs-graphic-delights-effortlessly/"><u>[New] 2024 Approved  A Complete Guide on How to Capture and Store FB's Graphic Delights Effortlessly</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-scratches-comparative-review-of-recorders/"><u>Top Scratches  Comparative Review of Recorders</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harnessing-viral-potential-the-20-best-tiktok-caption-insights/"><u>[Updated] Harnessing Viral Potential  The 20 Best TikTok Caption Insights</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/in-2024-top-10-free-face-blurring-tools-for-photos-and-videos/"><u>In 2024, Top 10 Free Face Blurring Tools for Photos and Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-unblock-mystery-solved-detecting-snapchat-shutout/"><u>[Updated] Unblock Mystery Solved  Detecting Snapchat Shutout</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-adobe-premiere-pro-for-mac-is-the-most-popular-professional-video-editor-if-youre-planning-to-try-it-out-for-your-mac-heres-all-you-need-to-know-abo/"><u>In 2024, Adobe Premiere Pro for Mac Is the Most Popular Professional Video Editor. If Youre Planning to Try It Out for Your Mac, Heres All You Need to Know About It</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-samsung-galaxy-s23-fe-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Samsung Galaxy S23 FE with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-leading-7-solutions-to-swiftly-extract-voices-from-recordings/"><u>New 2024 Approved Leading 7 Solutions to Swiftly Extract Voices From Recordings</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-a2-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi A2 Phones with/without a PC</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Facebook Innovates With Subscription Links: Apple Comparison Explained"
-date: 2024-06-22 20:39:30
-updated: 2024-06-23 10:27:46
+date: 2024-06-25T14:26:00.318Z
+updated: 2024-06-26T14:26:00.318Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
  Facebook has found a way to help creators get around Apple’s controversial in-app fees.
 
- In a[Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of[Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
+ In a [Facebook post](https://www.facebook.com/zuck/posts/10114044739955341) , Mark Zuckerberg, CEO of [Facebook's parent company Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , announced the social media platform is giving creators with popular Facebook pages new custom links that allow them to accept payments directly, circumventing Apple’s 30% cut.
 
 > As we build for the metaverse, we're focused on unlocking opportunities for creators to make money from their work. The 30% fees that Apple takes on transactions make it harder to do that, so we're updating our Subscriptions product so now creators can earn more.
 
@@ -29,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
  This bonus applies whether subscribers pay through Facebook's custom link or through Apple or Google’s payment systems.
 
-## How Facebook's Custom Payment Links Work
-
-![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
+## How Facebook's Custom Payment Links Work ![phone with money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/phone-with-money.jpg)
 
  Creators will be able to share custom web links directing their fans to pay them for subscriptions using Facebook’s payment system, Facebook Pay. If a fan signs up through the link instead of Apple’s in-app payment system, the creator will keep all the money, excluding taxes.
 
@@ -66,3 +64,24 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-your-privacy-from-facebooks-watchfulness/"><u>Taking Back Your Privacy From Facebook's Watchfulness</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-using-the-transparency-hub-for-greater-understanding/"><u>Decoding Facebook: Using the Transparency Hub for Greater Understanding</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-fbs-best-practices-for-safety-and-confidentiality/"><u>Unlocking FB's Best Practices for Safety & Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-your-online-interests-one-page-at-a-time/"><u>Redefining Your Online Interests, One Page at a Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716463666774-local-labor-costs-the-availability-and-rates-of-skilled-electricians-in-the-area-can-affect-labor-costs-significantly/"><u>__Local Labor Costs__  The Availability and Rates of Skilled Electricians in the Area Can Affect Labor Costs Significantly.</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-trim-your-videos-for-free-10-best-online-editors/"><u>Updated In 2024, Trim Your Videos for Free 10 Best Online Editors</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-the-financial-benefits-in-podcasting/"><u>[New] Exploring the Financial Benefits in Podcasting</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-honor-90-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/the-seamless-blend-enhancing-your-ae-projects-with-luts-for-2024/"><u>The Seamless Blend  Enhancing Your AE Projects with LUTs for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/seamlessly-bring-back-windows-photo-viewer-in-win-11-systems-for-2024/"><u>Seamlessly Bring Back Windows Photo Viewer in Win 11 Systems for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/infographic-forecast-the-2023-social-landscape/"><u>Infographic Forecast  The 2023 Social Landscape</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aptivate-viewers-the-art-of-crafting-short-videos-for-2024/"><u>[New] Captivate Viewers  The Art of Crafting Short Videos for 2024</u></a></li>
+</ul></div>

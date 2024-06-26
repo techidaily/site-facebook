@@ -1,7 +1,7 @@
 ---
 title: Facebook Adds a New Penalty for Misinformation Sharers
-date: 2024-06-20 18:51:12
-updated: 2024-06-23 10:43:27
+date: 2024-06-25T14:05:29.583Z
+updated: 2024-06-26T14:05:29.583Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a0790
 
 ## Facebook Makes Misinformation Less Attractive
 
- Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
+ Facebook is making it even harder to encounter and share misinformation on the platform. In a post on [the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
 
  Facebook already lessens a post's reach if it contains misinformation, but the platform wants to take this a step further. If a user has shared misinformation several times in the past, Facebook plans to "reduce the distribution of all posts in News Feed from an individual's Facebook account."
 
@@ -66,3 +66,23 @@ thumbnail: https://thmb.techidaily.com/2667f52774b221737f5b40cebcdbe6bd28a1a0790
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/6-reasons-why-you-should-delete-facebook/"><u>6 Reasons Why You Should Delete Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-profile-a-comprehensive-guide/"><u>Tailoring Your Profile: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-removing-facial-identification-risk-facebook-users-security/"><u>Will Removing Facial Identification Risk Facebook Users' Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-the-full-power-of-facebook-with-these-crucial-configs/"><u>Unleash the Full Power of Facebook with These Crucial Configs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151235755-your-daily-soundtrack-via-spotifys-mini-player-facebook-style/"><u>Your Daily Soundtrack via Spotify's Mini Player, Facebook Style!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-hazards-8-detrimental-psychological-impacts/"><u>Social Media Hazards: 8 Detrimental Psychological Impacts</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-8-plus-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 8 Plus</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-superior-audio-transformation-tools-unleash-voices/"><u>2024 Approved  Superior Audio Transformation Tools  Unleash Voices</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/how-to-make-animation-characters-with-the-best-character-creators-for-2024/"><u>How to Make Animation Characters with the Best Character Creators for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-stepwise-decrease-in-mix-dynamics/"><u>2024 Approved  Stepwise Decrease in Mix Dynamics</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-cutting-edge-avi-video-editors-top-16-picks-for-trimming-and-cutting-cross-platform/"><u>New 2024 Approved Cutting-Edge AVI Video Editors Top 16 Picks for Trimming and Cutting Cross-Platform</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-insider-guide-to-gaming-channel-header-templates/"><u>[Updated] The Insider Guide to Gaming Channel Header Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-spectacle-of-speed-simulators-top-5/"><u>[Updated] In 2024, Spectacle of Speed Simulators (Top 5)</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/youtube-audio-downloader-a-beginners-guide-to-easy-downloads-for-2024/"><u>YouTube Audio Downloader A Beginners Guide to Easy Downloads for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-build-a-custom-vr-device-diy-google-cardboard-guide/"><u>[Updated] Build a Custom VR Device  DIY Google Cardboard Guide</u></a></li>
+</ul></div>

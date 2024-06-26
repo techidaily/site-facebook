@@ -1,7 +1,7 @@
 ---
 title: "Social Network Security 101: Why Avoid Mystery Friends"
-date: 2024-06-20 18:58:22
-updated: 2024-06-23 12:38:14
+date: 2024-06-25T13:57:23.384Z
+updated: 2024-06-26T13:57:23.384Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  Safety should be your top priority when using social media. We have compiled a detailed article on why you shouldn't add strangers on Facebook.
 
-## 1\. Risk of Identity Theft
-
-![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+## 1\. Risk of Identity Theft ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -31,9 +29,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
 
-## 2\. Impairment of the Privacy of Your Friends
-
-![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
+## 2\. Impairment of the Privacy of Your Friends ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
 
@@ -43,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
 ## 3\. Access to Harmful Links
 
- Over the years, people have exploited Facebook to hack accounts into other people's personal space. Everyone is aware of[phishing and hacking scams](https://www.makeuseof.com/types-of-phishing-attack/) , and for that reason, befriending unknown people might be pretty risky.
+ Over the years, people have exploited Facebook to hack accounts into other people's personal space. Everyone is aware of [phishing and hacking scams](https://www.makeuseof.com/types-of-phishing-attack/) , and for that reason, befriending unknown people might be pretty risky.
 
  They can send you harmful links through Messenger or post them on your timeline. Most people click them out of their naivety and curiosity and give their personal information to the so-called friend.
 
@@ -51,15 +47,13 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
 ## 4\. Personal Safety at Risk
 
- Facebook has[launched many new features](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) to keep users engaged. Most people get addicted to these features and update almost every activity.
+ Facebook has [launched many new features](https://www.makeuseof.com/best-facebook-features-other-apps-launched-first/) to keep users engaged. Most people get addicted to these features and update almost every activity.
 
  Becoming friends with strangers allows them to see things like your office, home, shopping hauls, and vacations if you upload their images. If someone dangerous likes what they see, your possessions and finances can come at a risk.
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
 
-## 5\. Become Habitual of Isolation From Family
-
-![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
+## 5\. Become Habitual of Isolation From Family ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -75,9 +69,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-## 7\. Risk of Emotional Damage
-
-![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
+## 7\. Risk of Emotional Damage ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 
@@ -99,7 +91,7 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
 ## 10\. Increased Chances of Getting Scammed
 
- When you add unknown people, they might try to scam you for money and other personal belongings. This is also an emerging[Facebook marketplace scam](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) .
+ When you add unknown people, they might try to scam you for money and other personal belongings. This is also an emerging [Facebook marketplace scam](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) .
 
  Even if you add people on Facebook, be very hesitant to share your money and other resources.
 
@@ -124,3 +116,26 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/counteracting-the-social-media-addiction-fb-reels/"><u>Counteracting the Social Media Addiction: FB Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-your-facebook-footprint-on-android/"><u>Clearing Your Facebook Footprint on Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/leaders-in-controversy-the-top-6-of-tech/"><u>Leaders in Controversy: The Top 6 of Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-sheryls-contributions-to-facebook/"><u>Behind the Scenes: Sheryl's Contributions to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-wellbeing-alerts-youth-advised-to-limit-instagram/"><u>Digital Wellbeing Alerts: Youth Advised to Limit Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/blended-browsing-experience-the-rise-of-fbinsta-ties/"><u>Blended Browsing Experience: The Rise of FB/Insta Ties</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-tackling-live-broadcasts-the-intersection-of-obs-and-zoom/"><u>[New] In 2024, Tackling Live Broadcasts  The Intersection of OBS and Zoom</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/creating-silence-a-comprehensive-guide-to-soundless-video-on-ios-devices-for-2024/"><u>Creating Silence A Comprehensive Guide to Soundless Video on iOS Devices for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-beat-the-curve-top-facebook-ad-strategies/"><u>[New] In 2024, Beat the Curve  Top Facebook Ad Strategies</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/top-audio-mixing-tools-a-comprehensive-assessment/"><u>Top Audio Mixing Tools A Comprehensive Assessment</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-techniques-for-manipulating-iphone-photos/"><u>2024 Approved  Expert Techniques for Manipulating iPhone Photos</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-easy-effective-edits-that-make-a-mark-on-tiktok/"><u>[Updated] In 2024, Easy, Effective Edits that Make a Mark on TikTok</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-essential-list-free-costless-desktop-and-web-screening-solutions/"><u>[Updated] Essential List  Free, Costless Desktop & Web Screening Solutions</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-list-top-5-free-online-video-mergers-for-a-seamless-experience/"><u>New In 2024, The Ultimate List Top 5 Free Online Video Mergers for a Seamless Experience</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-essential-youtube-to-mp3-conversion-apps-reviewed/"><u>[New] In 2024, Essential YouTube to Mp3 Conversion Apps Reviewed</u></a></li>
+</ul></div>

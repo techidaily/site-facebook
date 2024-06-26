@@ -1,7 +1,7 @@
 ---
 title: The Secret to Inconspicuous Social Media Applause
-date: 2024-06-21 16:31:47
-updated: 2024-06-23 10:38:16
+date: 2024-06-25T14:21:56.358Z
+updated: 2024-06-26T14:21:56.358Z
 tags:
   - facebook
 categories:
@@ -23,9 +23,7 @@ thumbnail: https://thmb.techidaily.com/2041635073b88dca4044a894fcdb4e9d1f4358f13
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
-### Hiding the Facebook Reaction Count on Mobile
-
-![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
+### Hiding the Facebook Reaction Count on Mobile ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
@@ -66,7 +64,7 @@ Your new settings are saved automatically.
 
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
- If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
+ If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
 ## Depressurize Your Experience on Facebook
 
@@ -87,3 +85,24 @@ Your new settings are saved automatically.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/whats-hidden-why-facebook-and-instagram-monitor-us-for-app-access/"><u>What's Hidden: Why Facebook & Instagram Monitor Us for App Access?</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-digital-lifestyle-with-controlled-internet-use/"><u>Designing a Digital Lifestyle with Controlled Internet Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-focus-on-innovation-over-metaverse-entry/"><u>Apple's Focus on Innovation Over Metaverse Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-modifying-your-facebook-handle/"><u>Step-by-Step Guide to Modifying Your Facebook Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-interactions-how-to-unearth-pasts-on-fb/"><u>Unseen Interactions: How to Unearth Pasts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-progression-social-media-uses-demystified/"><u>Professional Progression: Social Media Uses Demystified</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-messenger-kids-sleep-mode-for-better-usage/"><u>Understanding Messenger Kids' Sleep Mode for Better Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-pressure-to-part-with-giphy-possibly/"><u>Facebook Faces Pressure to Part With Giphy Possibly</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-debating-digital-communication-who-wins-discord-or-skype/"><u>[Updated] 2024 Approved  Debating Digital Communication  Who Wins, Discord or Skype?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-sd-card-options-for-gopro-hero-8-plus-7-cameras/"><u>In 2024, Best SD Card Options for GoPro Hero 8 + 7 Cameras</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-elevating-roi-in-facebooks-animated-advertising-arena/"><u>[Updated] Elevating ROI in Facebook's Animated Advertising Arena</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-vivo-y78-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Vivo Y78 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-essential-guide-to-vitas-complete-video-editing-software/"><u>The Essential Guide to Vita's Complete Video Editing Software</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-crafting-a-successful-mukbang-video-journey/"><u>[Updated] In 2024, Crafting a Successful Mukbang Video Journey</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-budget-channels-to-big-brands-youtube-sponsorships-demystified/"><u>[Updated] From Budget Channels to Big Brands  YouTube Sponsorships Demystified</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-essential-10-royale-confrontations-for-2024/"><u>[Updated] Essential 10 Royale Confrontations for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-simplify-your-video-sharing-with-our-youtube-upload-strategy/"><u>In 2024, Simplify Your Video Sharing with Our YouTube Upload Strategy</u></a></li>
+</ul></div>

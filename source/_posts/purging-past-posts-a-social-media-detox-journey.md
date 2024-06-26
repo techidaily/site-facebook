@@ -1,7 +1,7 @@
 ---
 title: "Purging Past Posts: A Social Media Detox Journey"
-date: 2024-06-21 17:20:42
-updated: 2024-06-23 12:24:52
+date: 2024-06-25T13:43:50.421Z
+updated: 2024-06-26T13:43:50.421Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
  Read on to know about the top online tools that can help you remove your awkward social media posts.
 
-## 1. BrandYourself
-
-![A visual showing the homepage of BrandYourself](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-BrandYourself.jpeg)
+## 1. BrandYourself ![A visual showing the homepage of BrandYourself](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-BrandYourself.jpeg)
 
  It’s a social media cleanup software that helps you tidy up your complete online presence on Facebook and Twitter. The app uses Machine Learning technology to locate the posts which a potential employer might flag during online screening.
 
@@ -29,19 +27,15 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
  Its image recognition technology can also identify images containing offensive gestures and whatnot. Apart from flagging the previous posts, it also alerts you if any damaging content appears online from your profiles.
 
-## 2. Scrubber
+## 2. Scrubber ![A visual for Scrubber's home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Scrubber.jpeg)
 
-![A visual for Scrubber's home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Scrubber.jpeg)
-
- The tool empowers you with its features to find out all the embarrassing posts, comments, and pictures you have published on your[social media accounts](https://www.makeuseof.com/free-social-media-management-apps/) . Moreover, it can detect the fake news shared on your profiles and save you from awkwardness.
+ The tool empowers you with its features to find out all the embarrassing posts, comments, and pictures you have published on your [social media accounts](https://www.makeuseof.com/free-social-media-management-apps/) . Moreover, it can detect the fake news shared on your profiles and save you from awkwardness.
 
  You can use it to clean the following social media: Facebook, Twitter, Instagram, Reddit, Foursquare, Disqus, and Tumblr. This tool lets you search for custom keywords including, the names you mentioned in the comments.
 
  While it doesn’t remove any content by itself, it provides a report flagging content containing profanity, innuendo, and mention of drugs or alcohol.
 
-## 3. Redact
-
-![An image of the website homepage of Redact](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Redact.jpeg)
+## 3. Redact ![An image of the website homepage of Redact](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Redact.jpeg)
 
  This free app makes cleaning your social profiles a hassle-free task. You can delete various content like posts, images, comments, likes, and follows by using the tool. In addition to that, it lets you set up a recurring schedule for content deletion.
 
@@ -51,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
  You can wipe out everything by deletion. Or, you may customize the items through keyword, content category, or sentiment. It also offers the preview mode that you can use to double-check before deletion.
 
-## 4. TweetDelete
-
-![An image representing the TweetDelete homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-TweetDelete.jpeg)
+## 4. TweetDelete ![An image representing the TweetDelete homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-TweetDelete.jpeg)
 
  This service helps you delete your Twitter posts in bulk. You can set a schedule that will make the tool run automatically to delete tweets. You can remove tweets depending on some text it contains or the time of publishing.
 
@@ -61,9 +53,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
  For free, it lets you delete the previous 3,200 likes. Moreover, it can also delete tweets containing attachments.
 
-## 5\. Facebook's Manage Posts Feature
-
-![Image showing the Manage Posts section on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Facebook.jpeg)
+## 5\. Facebook's Manage Posts Feature ![Image showing the Manage Posts section on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Facebook.jpeg)
 
  The Manage Activity feature on Facebook is a great way to clean up your profile by archiving or deleting posts in bulk. It lets you revisit, edit, and delete any post or comment you posted since joining the platform. To delete an old post on Facebook, follow these steps:
 
@@ -77,9 +67,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
  The best thing about this feature is the ample scope for customization; you can find an old post without any hassle.
 
-## 6\. Twitter Settings
-
-![An image showing how to delete posts on Twitter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Twitter.jpeg)
+## 6\. Twitter Settings ![An image showing how to delete posts on Twitter](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Twitter.jpeg)
 
  Using the delete feature on Twitter, you can manually delete unwanted tweets. Follow these simple steps to remove old tweets that you don't want in your profile anymore.
 
@@ -94,7 +82,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 
 ## 7\. Manage Shared Content in LinkedIn
 
- LinkedIn is the platform for professional connections and[personal branding](https://www.makeuseof.com/personal-branding-tips/) . So, you should be extra careful about what you post or share here. To manually check and delete any offensive post you may have shared earlier, follow these steps one by one:
+ LinkedIn is the platform for professional connections and [personal branding](https://www.makeuseof.com/personal-branding-tips/) . So, you should be extra careful about what you post or share here. To manually check and delete any offensive post you may have shared earlier, follow these steps one by one:
 
 1. Click the**Me** icon located at the top bar of the LinkedIn homepage.
 2. Select the**View profile** option and scroll down to the**Your Activity** section.
@@ -104,9 +92,7 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
 6. Select the**Delete post** option.
 7. Click on**Delete** again to confirm your action.
 
-## 8. Social Erase
-
-![An image of the home page of Social Erase](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Social-Erase.jpeg)
+## 8. Social Erase ![An image of the home page of Social Erase](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Delete-Social-Posts-Social-Erase.jpeg)
 
  This extension is useful for deleting posts, messages, comments, and photos from Facebook and Twitter. It makes the mass deleting of unwanted content from these platforms seamless.
 
@@ -135,3 +121,23 @@ thumbnail: https://thmb.techidaily.com/4599f50b602c6cf6fd2e770298cbc820ac519a960
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/donald-trump-claims-infringement-on-speech-by-tech-giants/"><u>Donald Trump Claims Infringement on Speech by Tech Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/revel-in-social-network-supporters/"><u>Revel in Social Network Supporters</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-compassion-techs-5-million-aid-to-pandemic/"><u>Connecting Compassion: Tech's $5 Million Aid to Pandemic</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-crafting-collectives-a-facebook-foundation-approach/"><u>Guide to Crafting Collectives: A Facebook Foundation Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-potential-for-llife-in-the-metaverse-future/"><u>The Resurgence Potential for LLife in The Metaverse Future</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-unveiling-the-best-8-sonic-wave-patterns-to-improve-your-video-soundtracks-in-2-habits/"><u>New In 2024, Unveiling the Best 8 Sonic Wave Patterns to Improve Your Video Soundtracks in 2 Habits</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-upside-and-downside-of-virtual-reality-experience/"><u>The Upside and Downside of Virtual Reality Experience</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On iPhone 11 Pro Max</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-flawless-frame-capturer-kit/"><u>2024 Approved  Flawless Frame Capturer Kit</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transforming-instagram-footage-into-square-stories-using-imovie-tips-for-2024/"><u>Transforming Instagram Footage Into Square Stories Using iMovie Tips for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-camera-roll-to-igtv-video-upload-101/"><u>[New] From Camera Roll to IGTV  Video Upload 101</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-makeover-manual-revitalizing-your-tiktok-profile/"><u>[Updated] 2024 Approved  Makeover Manual  Revitalizing Your TikTok Profile</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-techniques-for-converting-audacity-projects-into-mp3-format-for-2024/"><u>Updated Techniques for Converting Audacity Projects Into MP3 Format for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unlocking-the-power-of-google-meet-with-your-tech/"><u>[Updated] Unlocking the Power of Google Meet with Your Tech</u></a></li>
+</ul></div>

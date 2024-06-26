@@ -1,7 +1,7 @@
 ---
 title: Who Represents Your Online Pictures?
-date: 2024-06-22 18:42:15
-updated: 2024-06-23 10:57:43
+date: 2024-06-25T14:00:51.150Z
+updated: 2024-06-26T14:00:51.150Z
 tags:
   - facebook
 categories:
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/7231e7cfa11b8c48bc0e8ca6efb14ca7e0a26276b
 
  On the other hand, if you choose to upload someone else's photo to social media, cloud storage, or another platform, it is not your property. The person who took the photo, or the person who has bought the rights to it, still owns that content. For instance, if you upload a digital graphic created by someone else to social media, it is not up to you who uses it. Rather, it is up to the creator or legal owner.
 
- The same goes for cloud storage platforms, like[OneDrive or Google Drive](https://www.makeuseof.com/google-drive-vs-onedrive-android-best-cloud-storage-app/) . These platforms may store your data, but acknowledge that they do not own it. Google Drive, for instance states on its[additional Terms of Service page](https://www.google.com/drive/terms-of-service/) that "your content remains yours" when you upload it for storage.
+ The same goes for cloud storage platforms, like [OneDrive or Google Drive](https://www.makeuseof.com/google-drive-vs-onedrive-android-best-cloud-storage-app/) . These platforms may store your data, but acknowledge that they do not own it. Google Drive, for instance states on its [additional Terms of Service page](https://www.google.com/drive/terms-of-service/) that "your content remains yours" when you upload it for storage.
 
  However, there are some exceptions to this rule. If, for example, you sell the rights to a photo or video you made to someone else, it then becomes their property.
 
@@ -60,11 +60,11 @@ thumbnail: https://thmb.techidaily.com/7231e7cfa11b8c48bc0e8ca6efb14ca7e0a26276b
 
 ![person using instagram on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/instagram-phone-1.jpg)
 
- Even if you own the photos you upload, can websites and apps still use them? Some photographers upload their images for free use on[stock image websites](https://www.makeuseof.com/tag/free-stock-image-sites/) like Pixabay and Unsplash. On such sites, you can use a given image or video in whatever way you'd like without having to credit the creator.
+ Even if you own the photos you upload, can websites and apps still use them? Some photographers upload their images for free use on [stock image websites](https://www.makeuseof.com/tag/free-stock-image-sites/) like Pixabay and Unsplash. On such sites, you can use a given image or video in whatever way you'd like without having to credit the creator.
 
  But if you're uploading photos to cloud storage platforms, social media outlets, and similar platforms, you're not usually looking to have your photo used by others.
 
- Each platform has its own policy on user photo usage, but the general consensus is that your permission is required before another entity can use anything you upload. Instagram, for example, has stated in its[Help Centre](https://help.instagram.com/206875879493855) that, if an[advertiser wants to use your photos](https://www.makeuseof.com/i-saw-my-picture-in-an-ad-now-what/) , it must receive express permission from you. Otherwise, your media is off-limits. However, Facebook has an extra caveat here: if your profile or selected photos are listed as "Public" in your privacy settings, then the platform can use them, i.e. essentially viewing your privacy settings as having your permission.
+ Each platform has its own policy on user photo usage, but the general consensus is that your permission is required before another entity can use anything you upload. Instagram, for example, has stated in its [Help Centre](https://help.instagram.com/206875879493855) that, if an [advertiser wants to use your photos](https://www.makeuseof.com/i-saw-my-picture-in-an-ad-now-what/) , it must receive express permission from you. Otherwise, your media is off-limits. However, Facebook has an extra caveat here: if your profile or selected photos are listed as "Public" in your privacy settings, then the platform can use them, i.e. essentially viewing your privacy settings as having your permission.
 
  If you're worried about someone taking your social media photo and using it elsewhere, there are also laws in place for this. If your images or videos are not classified as license free, a person or company needs your permission before using them. If they do not seek your consent, using your content would be a breach of copyright law.
 
@@ -97,3 +97,23 @@ thumbnail: https://thmb.techidaily.com/7231e7cfa11b8c48bc0e8ca6efb14ca7e0a26276b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-social-to-virtual-sphere-6-revolutionary-facts-about-fbs-metaverse/"><u>From Social to Virtual Sphere: 6 Revolutionary Facts About FB’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition.</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-locked-out-mastering-password-resets-on-facebook/"><u>No More Locked Out! Mastering Password Resets on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/americans-favor-detriments-of-online-networking-dominate/"><u>Americans Favor: Detriments of Online Networking Dominate</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-a-new-chapter-for-nfts-on-instafb/"><u>Meta Drops: A New Chapter for NFTs on Insta/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-languages-boosting-social-media-presence-on-facebook/"><u>Leverage Languages: Boosting Social Media Presence on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-landscapes-identifying-facebook-connections/"><u>Navigating Social Landscapes: Identifying Facebook Connections</u></a></li>
+<li><a href="https://extra-information.techidaily.com/proven-strategies-building-time-lapses-using-samsung-cameras/"><u>Proven Strategies  Building Time-Lapses Using Samsung Cameras</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-phone-aspect-ratio-vertical-definition-types-and-tips-for-2024/"><u>Updated Phone Aspect Ratio Vertical Definition, Types and Tips for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-a54-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy A54 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unleash-your-inner-comedian-top-video-dubbing-software-for-2024/"><u>Updated Unleash Your Inner Comedian Top Video Dubbing Software for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-sprightly-spirits-top-kid-approved-games-in-2024/"><u>[New] Sprightly Spirits  Top Kid-Approved Games, In 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-face-swap-frenzy-the-best-mobile-apps-to-try/"><u>Updated 2024 Approved Face Swap Frenzy The Best Mobile Apps to Try</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-perfect-pixels-a-guide-to-the-11-best-edits-for-color-balance/"><u>[New] Perfect Pixels  A Guide to the 11 Best Edits for Color Balance</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-elevating-your-podcast-remote-recording-done-right/"><u>[Updated] Elevating Your Podcast  Remote Recording Done Right</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Bridging Communities: The 7 Positive Power of Social Sites"
-date: 2024-06-20 19:22:54
-updated: 2024-06-23 10:19:13
+date: 2024-06-25T13:58:52.065Z
+updated: 2024-06-26T13:58:52.065Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends
-
-![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -33,9 +31,7 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy
-
-![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -49,13 +45,11 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication
-
-![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
- Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with[social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
+ Our time is being stretched thinner and thinner by work and family commitments. But social networking sites offer a chance to communicate in a speedy and efficient manner, especially when everyone involved is familiar with [social media slang terms](https://www.makeuseof.com/tag/social-media-slang-terms/) .
 
  Writing a Tweet takes all of 20 seconds, and with cross-posting to other social networks switched on, that update can reach everyone you want it to reach (and probably more besides) in an instant.
 
@@ -63,9 +57,7 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller
-
-![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -77,9 +69,7 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships
-
-![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -87,13 +77,11 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  Social networks can put you (back) in touch with people who you have lots in common with, and that common ground is often the starting point for long-lasting relationships.
 
- As painful as breakups can be (even with the help of[breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
+ As painful as breakups can be (even with the help of [breakup apps](https://www.makeuseof.com/best-breakup-apps/) ), they can sometimes be the right thing for all concerned. What's to say that the new relationship, founded on the steps of Facebook, isn't the one that will last? Even if it doesn't turn into a spectacular coupling, it could be the friendship that is needed at the time. Which has to be a positive thing.
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster
-
-![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -107,9 +95,7 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground
-
-![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -140,3 +126,26 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reinforcing-your-email-defenses-2fa-on-gmail-outlook-and-more-applications/"><u>Reinforcing Your Email Defenses: 2FA on Gmail, Outlook & More Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmart-facebook-scams-find-the-14-predicaments-quickly/"><u>Outsmart Facebook Scams: Find the 14 Predicaments Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-cleaning-up-your-social-sphere/"><u>Unveiling the Process: Cleaning up Your Social Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-dollars-in-the-digital-domain-of-dialogue/"><u>Making Dollars in the Digital Domain of Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-new-front-in-the-war-against-misinformation/"><u>FB's New Front in the War Against Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-selection-of-budget-friendly-social-tools/"><u>Superior Selection of Budget-Friendly Social Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-of-emoji-and-icon-usage-on-facebook-messenger/"><u>In-Depth Analysis of Emoji & Icon Usage on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpening-speech-snippets-bold-and-italic-flair/"><u>Sharpening Speech Snippets: Bold & Italic Flair</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-mastering-lip-sync-magic-advanced-strategies-for-real-time-audio-video-sync/"><u>Updated 2024 Approved Mastering Lip-Sync Magic Advanced Strategies for Real-Time Audio-Video Sync</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-integrating-vids-on-twitter-plus-tumblr-platforms/"><u>[Updated] 2024 Approved  Integrating Vids on Twitter + Tumblr Platforms</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-ultimate-playbook-for-twitter-streamers/"><u>[New] 2024 Approved  The Ultimate Playbook for Twitter Streamers</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-windows-10-essential-knowledge/"><u>[Updated] Mastering Windows 10  Essential Knowledge</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-the-2024-cloud-cost-landscape/"><u>[New] Navigating the 2024 Cloud Cost Landscape</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-become-a-meme-genius-the-best-8-gif-making-methods/"><u>2024 Approved  Become a Meme Genius  The Best 8 GIF-Making Methods</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-essential-5-apps-to-download-social-media-video-clips-for-2024/"><u>[New] Essential 5 Apps to Download  Social Media Video Clips for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-everlasting-screen-saving-utility/"><u>[Updated] Everlasting Screen Saving Utility</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-inside-ustream-review-alternatives-on-hand/"><u>[New] Inside Ustream Review, Alternatives on Hand</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-finest-10-online-spots-to-download-pristine-photos/"><u>[New] The Finest 10 Online Spots to Download Pristine Photos</u></a></li>
+</ul></div>

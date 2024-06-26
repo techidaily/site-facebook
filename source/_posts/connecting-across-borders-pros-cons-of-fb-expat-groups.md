@@ -1,7 +1,7 @@
 ---
 title: Connecting Across Borders? Pros, Cons of FB Expat Groups
-date: 2024-06-21 22:50:28
-updated: 2024-06-23 11:55:52
+date: 2024-06-25T13:49:44.646Z
+updated: 2024-06-26T13:49:44.646Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73
 
  If you are an expat who is interested in finding a group near you, you type "expat" and the city, or country you're interested in, in your Facebook search bar. You should be aware that there are pros and cons to being a part of an expat group on Facebook. Let's take a look at some of them.
 
-## The Advantages of Joining an Expat Group on Facebook
-
-![Three people holding their phones in a park and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6146931.jpg)
+## The Advantages of Joining an Expat Group on Facebook ![Three people holding their phones in a park and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6146931.jpg)
 
  If you've just arrived in a new city, a group dedicated to expats could be just the thing you need to get acquainted with your new city. When you join one, you'll be able to post and ask questions about anything that interests you. There are lots of good points about expat groups on Facebook, some of which are:
 
@@ -69,17 +67,15 @@ thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73
 
 ![Unhappy woman behind a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3755755.jpg)
 
- This is especially important if you are seeking legal information. Apart from[being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
+ This is especially important if you are seeking legal information. Apart from [being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
 
 ### 1\. Lots of Trolls
 
- Unfortunately, expat groups on Facebook are also places where trolls like to hang out. While there are[ways to deal with trolls on social media](https://www.makeuseof.com/ways-to-deal-with-social-media-trolls/) , you should be aware that some expats use the groups to bully others. This may come in the form of pretending to know better, spreading rumors, ganging up on somebody who has come in search of help, or twisting someone's words around.
+ Unfortunately, expat groups on Facebook are also places where trolls like to hang out. While there are [ways to deal with trolls on social media](https://www.makeuseof.com/ways-to-deal-with-social-media-trolls/) , you should be aware that some expats use the groups to bully others. This may come in the form of pretending to know better, spreading rumors, ganging up on somebody who has come in search of help, or twisting someone's words around.
 
  Whichever form it takes, be aware that expats can also spread negativity and hostility, especially if there are no anti-harassment policies in place.
 
-### 2\. You Don't Get Expert Advice
-
-![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
+### 2\. You Don't Get Expert Advice ![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
 
  If you are seeking some serious advice, it is best not to go and ask the expats. On the slim chance that you may actually get expert advice from the group, be aware that there are a lot of "experts" without the credentials to back up what they're saying.
 
@@ -87,11 +83,9 @@ thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73
 
 ### 3\. You Might Get Unwanted Messages
 
- If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are[privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
+ If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are [privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
 
-### 4\. You Get Exposed to Scams
-
-![An annoyed woman looking away from her laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3808008.jpg)
+### 4\. You Get Exposed to Scams ![An annoyed woman looking away from her laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3808008.jpg)
 
  Like with any social media platform, there are a lot of scams lurking about. On a Facebook expat group, it could come in the form of fake offers, thieves luring people in to steal from them, malicious threats, and even identity theft.
 
@@ -118,3 +112,22 @@ thumbnail: https://thmb.techidaily.com/5c825ad46d87b3691d3904b2e30aab153935e0b73
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-choice-your-style-simplified-feed-management-on-social-media/"><u>Your Choice, Your Style: Simplified Feed Management on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-accessibility-at-no-cost-understanding-snapchats-tracking-practices/"><u>App Accessibility at No Cost: Understanding Snapchat’s Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-billionaires-pledge-5m-to-help-combat-virus/"><u>Digital Billionaire's Pledge: $5M to Help Combat Virus</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaviews-and-screenscapes-distinguishing-metaverse-from-vrs-six-aspects/"><u>Metaviews & Screenscapes: Distinguishing Metaverse From VR's Six Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-there-a-risk-of-leaked-numbers-in-my-social-media-activity/"><u>Is There a Risk of Leaked Numbers in My Social Media Activity?</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-how-to-create-a-picture-in-picture-effect-using-final-cut-pro-for-2024/"><u>New How to Create a Picture-in-Picture Effect Using Final Cut Pro for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-the-best-of-the-best-top-professional-audio-editing-programs/"><u>Updated 2024 Approved The Best of the Best Top Professional Audio Editing Programs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-visual-stories-a-detailed-magix-video-pro-x-review/"><u>Crafting Visual Stories  A Detailed Magix Video Pro X Review</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/hourly-highlights-top-10-youtubes-biggest-view-count-for-2024/"><u>Hourly Highlights  Top 10 YouTube's Biggest View Count for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-vivo-v30-lite-5g-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Vivo V30 Lite 5G Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-crystalclear-screenshot-on-w10/"><u>[New] CrystalClear Screenshot on W10</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-unveiling-the-secrets-to-youtubes-music-database-for-2024/"><u>Updated Unveiling the Secrets to YouTubes Music Database for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-the-ultimate-guide-to-hand-drawing-whiteboard-animation-software/"><u>Updated In 2024, The Ultimate Guide to Hand Drawing Whiteboard Animation Software</u></a></li>
+</ul></div>

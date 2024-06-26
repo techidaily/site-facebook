@@ -1,7 +1,7 @@
 ---
 title: Integrating Streaming Services in the Facebook Experience
-date: 2024-06-22 18:14:38
-updated: 2024-06-23 11:38:26
+date: 2024-06-25T14:12:36.081Z
+updated: 2024-06-26T14:12:36.081Z
 tags:
   - facebook
 categories:
@@ -29,15 +29,13 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
 ## Who Can Use the Spotify Miniplayer?
 
- Anyone with a Spotify account is able to use the miniplayer. The features you have will depend on[the Spotify subscription that you have](https://www.makeuseof.com/tag/which-spotify-subscription-is-best/) .
+ Anyone with a Spotify account is able to use the miniplayer. The features you have will depend on [the Spotify subscription that you have](https://www.makeuseof.com/tag/which-spotify-subscription-is-best/) .
 
  Free users have access to the miniplayer, except they are only allowed to listen on shuffle. So once the shared song is done playing through Facebook, you don't have any control over what plays next. Ads will also be peppered in between songs just like they would on the Spotify app.
 
  Premium users will enjoy free rein when using their Spotify miniplayer. The feature offers full control over playability and which songs you listen to. There are also no ads interjected between tunes for premium users.
 
-## How to Use the Spotify Miniplayer on Facebook
-
-![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
+## How to Use the Spotify Miniplayer on Facebook ![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
 
  Once you find a shared track in your news feed, click the track to listen like you normally would.
 
@@ -45,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 
  Once accepted, a small player will appear at the bottom of your screen where you can pause, play, and control track shuffling. Now you can scroll through your feed and browse Facebook without switching to the Spotify app.
 
- If you're concerned about what is being shared between Spotify and Facebook, there are ways you can[limit the amount of data that Facebook shares with Spotify](https://www.makeuseof.com/stop-facebook-sharing-data-with-spotify/) .
+ If you're concerned about what is being shared between Spotify and Facebook, there are ways you can [limit the amount of data that Facebook shares with Spotify](https://www.makeuseof.com/stop-facebook-sharing-data-with-spotify/) .
 
 ## Listen to Spotify Using the Facebook App
 
@@ -68,3 +66,22 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/step-by-step-facebook-shortcut-tailoring-made-simple/"><u>Step-by-Step Facebook Shortcut Tailoring Made Simple</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-from-standard-bot-to-metaai/"><u>The Evolution: From Standard Bot to MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-aggressors-dark-patterns-and-data-breaches/"><u>Invisible Aggressors: Dark Patterns and Data Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-shift-understanding-the-metamate-identity/"><u>Social Sphere Shift: Understanding the Metamate Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-anti-tracking-sentiment-in-iphone-world/"><u>The Rise of Anti-Tracking Sentiment in iPhone World</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/decoding-fraps-video-capturing-techniques-for-2024/"><u>Decoding Fraps Video Capturing Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-your-youtube-income-understanding-adsense-payments-for-every-1k-watch/"><u>[New] Maximizing Your Youtube Income  Understanding AdSense Payments for Every 1K Watch</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-symphony-for-photos-on-digital-platforms-for-2024/"><u>A Symphony for Photos on Digital Platforms for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-6s-plus-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-v29e-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo V29e to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-10-budget-friendly-image-editing-apps-for-smartphones/"><u>Top 10 Budget-Friendly Image Editing Apps for Smartphones</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-11-pro-max-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 11 Pro Max Apple ID on MacBook</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-11-best-video-editing-apps-for-iphone-for-2024/"><u>New 11 Best Video Editing Apps for iPhone for 2024</u></a></li>
+</ul></div>

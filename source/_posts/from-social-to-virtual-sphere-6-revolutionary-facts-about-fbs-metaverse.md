@@ -1,7 +1,7 @@
 ---
 title: "From Social to Virtual Sphere: 6 Revolutionary Facts About FB’s Metaverse"
-date: 2024-06-20 15:50:25
-updated: 2024-06-23 10:51:32
+date: 2024-06-25T13:42:55.112Z
+updated: 2024-06-26T13:42:55.112Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,7 @@ The economic and commercial potential of the Metaverse is enormous.
 
  Since it's an entire virtual world, users will be able to set up shop and purchase items for use not only in their avatars and Meta experiences, but also in the real world.
 
- With[cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and[NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
+ With [cryptocurrencies](https://www.makeuseof.com/how-does-cryptocurrency-work/) and [NFTs](https://www.makeuseof.com/what-is-a-non-fungible-token-nft/) already receiving more widespread adoption, digital payments could easily integrate with Metaverse's commercial aspirations. Mark Zuckerberg mentioned that Meta is working on a Horizon marketplace where creators can sell 3D digital art and earn income.
 
  Virtual merch, concert tickets, cars, decor, and houses are some of the items we can expect to be created and sold in the Metaverse. People can pay to watch movies in a private virtual theater with their friends or explore meticulously designed online scenarios. Also, brands can capitalize on this offering to create exclusive tokens for their customers to access an experience or sales offer.
 
@@ -75,7 +75,7 @@ That brings us to our next Meta advantage.
 
  Related:[Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
- Although most[Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
+ Although most [Big Tech companies](http://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) , such as Amazon and Google, collect user data, Meta stands out because of the type of data it has access to. Following the acquisitions of WhatsApp and Instagram, Facebook now has one of the largest databases of personal information of any company.
 
  Zuck says Meta is all about 'building responsibly.' For all of Meta's promised experiences, there is an emphasis on interoperability, open standards, privacy, and security. Given that Meta is still a rebrand of the Facebook company and has access to tons of user data, it's unclear how that would play out.
 
@@ -108,3 +108,22 @@ That brings us to our next Meta advantage.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/watch-out-a-storm-of-negative-headlines-for-fb/"><u>Watch Out! A Storm of Negative Headlines for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-clickbait-exposing-truth-in-facebook-lore/"><u>Beyond the Clickbait: Exposing Truth in Facebook Lore</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-dynamic-fb-shortcut-management-techniques/"><u>Introducing Dynamic FB Shortcut Management Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-moment-to-update-your-fb-avatar/"><u>Best Moment to Update Your FB Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-feed-hiding-pages-without-disclosure-on-fb/"><u>The Unseen Feed: Hiding Pages without Disclosure on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-audiences-in-fb-posts/"><u>Mastering the Art of Captivating Audiences in FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-self-portrait-journey-how-to-setup-your-facebook-cover-with-an-avatar-backdrop/"><u>A Self-Portrait Journey: How to Setup Your Facebook Cover with an Avatar Backdrop</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-must-buy-tiktok-goodies-top-30-from-amazon/"><u>[Updated] In 2024, Must-Buy TikTok Goodies – Top 30 From Amazon</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-free-3gp-video-rotation-top-5-choices-for-2024/"><u>New The Ultimate Guide to Free 3GP Video Rotation Top 5 Choices for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/unexpected-tiktok-rewind-recover-lost-posts-easily-for-2024/"><u>Unexpected TikTok Rewind – Recover Lost Posts Easily for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-demystifying-facebooks-new-short-form-video-model-for-2024/"><u>[New] Demystifying Facebook's New Short-Form Video Model for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-guide-to-recording-video-without-auditory-disruption/"><u>The Ultimate Guide to Recording Video without Auditory Disruption</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-securing-your-contents-reputation-while-gaining-a-million-viewer-engagements/"><u>[New] Securing Your Content's Reputation While Gaining A Million Viewer Engagements</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-premiers-picks-no-watermark-excellent-tiktok-downloader-tools/"><u>In 2024, Premier's Picks  No Watermark, Excellent TikTok Downloader Tools</u></a></li>
+</ul></div>

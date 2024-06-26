@@ -1,7 +1,7 @@
 ---
 title: Unraveling & Resolving Common FaceBook Confusions
-date: 2024-06-20 12:29:13
-updated: 2024-06-23 10:45:37
+date: 2024-06-25T14:24:39.282Z
+updated: 2024-06-26T14:24:39.282Z
 tags:
   - facebook
 categories:
@@ -46,7 +46,7 @@ We all know someone who posts all the time on Facebook:
 
  These scenarios result in a Facebook friend dilemma. You don't want to unfriend these people and hurt their feelings, but you're also sick of seeing their posts. The solution is to unfollow them; you won't see their updates anymore, but will still remain friends.
 
- To[unfollow someone on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) , visit their profile page. On the right side below their cover photo, you should see a box that says**Friends** . Click that, then select**Unfollow** .
+ To [unfollow someone on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) , visit their profile page. On the right side below their cover photo, you should see a box that says**Friends** . Click that, then select**Unfollow** .
 
 ![Facebook Unfollow 2021](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-2021.png)
 
@@ -100,7 +100,7 @@ We all know someone who posts all the time on Facebook:
 
 ![Facebook Change Audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Change-Audience.png)
 
- To keep someone from seeing your posts all the time, you can[add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
+ To keep someone from seeing your posts all the time, you can [add them to your**Restricted** list](https://www.makeuseof.com/tag/limit-can-see-facebook-posts-restricted-list/) . People on this list won't see anything you post unless it's set to**Public** or you tag them in it. To add someone to this list, visit their page, select the**Friends** button, and then click**Edit Friend List** . Scroll down and click the**Restricted** list.
 
  In this panel, you can also add that person to the**Close Friends** group. This list also provides an easy way to share posts exclusively with your most trusted friends, and is an option in the audience selector.
 
@@ -116,19 +116,19 @@ We all know someone who posts all the time on Facebook:
 
 ## 7\. Block Annoying App Invites
 
- Facebook features hundreds of games, nearly all of them designed to waste your time and//or take your money. If you're sick of friends pleading for extra lives in Facebook games, you can[block all Facebook invites and requests](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) by game or by person.
+ Facebook features hundreds of games, nearly all of them designed to waste your time and//or take your money. If you're sick of friends pleading for extra lives in Facebook games, you can [block all Facebook invites and requests](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) by game or by person.
 
  To do this, take another trip to**Settings & privacy > Settings > Privacy** and pick the**Blocking** tab on the left this time. Find the**Block app invites** section, click**Edit** , and enter the name of any friend who's invited you incessantly. You'll automatically block all game requests from them in the future. This won't affect any other interactions with them on Facebook.
 
- If you'd like, you can also enter an app's name in the**Block apps** field. This will prevent it from contacting you and using your non-public Facebook information. If desired, use the other fields here to granularly[block people on Facebook](https://www.makeuseof.com/how-to-block-facebook/) through various channels.
+ If you'd like, you can also enter an app's name in the**Block apps** field. This will prevent it from contacting you and using your non-public Facebook information. If desired, use the other fields here to granularly [block people on Facebook](https://www.makeuseof.com/how-to-block-facebook/) through various channels.
 
 ![Facebook Blocking Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-blocking-menu.jpg)
 
 ## 8\. Change the Facebook Interface to Your Liking
 
- You can't change many interface elements of Facebook through the default options. If you want to take your Facebook customization to the next level, you'll need to install[a Facebook-transforming browser extension](https://www.makeuseof.com/tag/15-extensions-transform-facebook-experience/) .
+ You can't change many interface elements of Facebook through the default options. If you want to take your Facebook customization to the next level, you'll need to install [a Facebook-transforming browser extension](https://www.makeuseof.com/tag/15-extensions-transform-facebook-experience/) .
 
- The best one is[Social Fixer](https://socialfixer.com/download.html) . It's available as a browser extension for Chrome, Firefox, Safari, and Opera. Once you install Social Fixer, it makes several improvements out of the box.
+ The best one is [Social Fixer](https://socialfixer.com/download.html) . It's available as a browser extension for Chrome, Firefox, Safari, and Opera. Once you install Social Fixer, it makes several improvements out of the box.
 
  To tweak how it runs, click the wrench icon that it shows in the upper-right corner of every Facebook page, followed by**Social Fixer Options** on the resulting menu, to customize your Facebook experience.
 
@@ -151,14 +151,14 @@ We all know someone who posts all the time on Facebook:
 
 ### 9\. You Forgot Your Facebook Password
 
- Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on[recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And[if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
+ Forgetting your Facebook login information is one of the most common issues people run into. We've written a full guide on [recovering your Facebook account if you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) . And [if you think your Facebook account was hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) , you need to act quickly.
 
 ### 10\. You Can't Connect to Facebook
 
- Since Facebook is one of the biggest sites on the web, it rarely experiences an outage. So the next time you can't get on Facebook, the problem likely lies on your end. You should follow a few[steps if you think Facebook is down](https://www.makeuseof.com/tag/6-things-facebook-goes/) :
+ Since Facebook is one of the biggest sites on the web, it rarely experiences an outage. So the next time you can't get on Facebook, the problem likely lies on your end. You should follow a few [steps if you think Facebook is down](https://www.makeuseof.com/tag/6-things-facebook-goes/) :
 
-1. Check a website like[Down for Everyone](https://downforeveryoneorjustme.com/facebook) to see if Facebook is really down. If it is, you can't do much more than wait.
-2. Visit another website to make sure your connection is working. If not, follow our[guide to fixing internet connection problems](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) .
+1. Check a website like [Down for Everyone](https://downforeveryoneorjustme.com/facebook) to see if Facebook is really down. If it is, you can't do much more than wait.
+2. Visit another website to make sure your connection is working. If not, follow our [guide to fixing internet connection problems](https://www.makeuseof.com/tag/7-simple-steps-diagnose-network-problem/) .
 3. [Clear your browser cache and cookies](https://www.makeuseof.com/how-to-clear-cookies-cache-in-chrome/) , or try to open Facebook in an incognito window or another browser. If this works, there may be something wrong with your current browser.
 4. Disable any VPNs or tracker-blocking extensions you're using, then try to connect to Facebook again without them.
 5. Reboot your PC and router.
@@ -194,3 +194,26 @@ We all know someone who posts all the time on Facebook:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-surveillance-capitalism/"><u>What Is Surveillance Capitalism?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnect-on-fb-post-block-friendship-guide/"><u>Reconnect on FB: Post-Block Friendship Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-market-with-these-essential-crowdflower-tools/"><u>Master Your Market with These Essential CrowdFlower Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-your-social-scene-by-removing-politics/"><u>Simplify Your Social Scene by Removing Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/freeing-up-from-facebooks-pervasive-tracking/"><u>Freeing Up From Facebook's Pervasive Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-of-facebooks-newsfeed/"><u>The Hidden Dynamics of Facebook's Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-likes-to-leadership-social-media-and-workplace-success/"><u>From Likes to Leadership: Social Media and Workplace Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-best-practices-for-personal-protection-on-facebook/"><u>Unveiling the Best Practices for Personal Protection on Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/how-to-bring-your-ideas-to-life-in-win-movie-maker/"><u>How to Bring Your Ideas to Life in Win Movie Maker</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-infiltrate-a-tiktok-livestream-with-precision/"><u>[Updated] In 2024, Infiltrate a TikTok Livestream With Precision</u></a></li>
+<li><a href="https://extra-support.techidaily.com/polaroid-camplus-cube-analysis-when-life-is-on-screen-for-2024/"><u>Polaroid Cam+ Cube Analysis  When Life Is on Screen for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-right-approach-to-uploading-photos-from-your-device-to-snapchat-for-2024/"><u>[New] The Right Approach to Uploading Photos From Your Device to Snapchat for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-gionee-f3-pro-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of Gionee F3 Pro using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-flawless-audio-engineering-choosing-your-customized-eq-pathways/"><u>New In 2024, Flawless Audio Engineering Choosing Your Customized EQ Pathways</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-leveraging-obs-for-high-quality-livestreams-youtube-and-twitch-for-2024/"><u>[Updated] Leveraging OBS for High-Quality Livestreams, YouTube & Twitch for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-starting-out-in-audio-visual-filmmaking-on-a-budget/"><u>Updated 2024 Approved Starting Out in Audio-Visual Filmmaking on a Budget</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-maximize-impact-with-custom-icons-and-graphics-on-your-instagram-posts/"><u>[Updated] In 2024, Maximize Impact with Custom Icons and Graphics on Your Instagram Posts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-edge-of-gaming-technology-samsung-ue590-monitor/"><u>[Updated] The Edge of Gaming Technology  Samsung UE590 Monitor</u></a></li>
+</ul></div>

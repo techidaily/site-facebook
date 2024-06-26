@@ -1,7 +1,7 @@
 ---
 title: Strategies for Describing Photos on Popular Networks
-date: 2024-06-20 18:13:24
-updated: 2024-06-23 10:26:38
+date: 2024-06-25T14:37:42.260Z
+updated: 2024-06-26T14:37:42.260Z
 tags:
   - facebook
 categories:
@@ -35,9 +35,7 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App
-
-![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -56,13 +54,11 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web
-
-![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
-1. Log in to[Facebook](https://www.facebook.com) on your browser.
+1. Log in to [Facebook](https://www.facebook.com) on your browser.
 2. Click on**Photo/Video** at the top of your Newsfeed or timeline.
 3. Select the desired photo.
 4. Hover over the photo and click**Edit** .
@@ -72,9 +68,7 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded
-
-![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -114,3 +108,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/connectivity-coalition-evaluating-the-leading-20-social-networks/"><u>Connectivity Coalition: Evaluating the Leading 20 Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponed-enforcement-period-for-whatsapps-new-privacy-terms/"><u>Postponed Enforcement Period for WhatsApp's New Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-misinformation-how-social-networks-are-evolving/"><u>Tackling Misinformation: How Social Networks Are Evolving</u></a></li>
+<li><a href="https://facebook.techidaily.com/overriding-facebooks-built-in-browsing/"><u>Overriding Facebook's Built-In Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-virtual-space-with-your-facebook-portal-tv/"><u>Navigating the Virtual Space with Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-a05-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy A05 Phone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-social-medias-food-scene-tiktoks-top-trends-for-2024/"><u>[Updated] Social Media's Food Scene  TikTok's Top Trends for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-vivo-y100t-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Vivo Y100t</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-bites-of-the-earth-top-international-cuisines-for-2024/"><u>[New] Bites of the Earth  Top International Cuisines for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-art-of-self-talk-in-online-videos/"><u>[Updated] Mastering the Art of Self-Talk in Online Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-asus-rog-phone-7-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-vivo-y28-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Vivo Y28 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-flight-controls-and-beyond-the-2023-h501s-review/"><u>[Updated] Flight Controls and Beyond  The 2023 H501S Review</u></a></li>
+</ul></div>

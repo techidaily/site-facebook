@@ -1,7 +1,7 @@
 ---
 title: Inhibit Friends Who Remain Undisclosed in FB
-date: 2024-06-22 19:53:18
-updated: 2024-06-23 10:32:14
+date: 2024-06-25T14:49:30.519Z
+updated: 2024-06-26T14:49:30.519Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/friendly-fun-in-the-digital-age-staying-positive/"><u>Friendly Fun in the Digital Age: Staying Positive</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-see-a-surge-in-crypto-commercials/"><u>Social Media to See a Surge in Crypto Commercials</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-relationships-insightful-look-at-facebook-history/"><u>Revisiting Relationships: Insightful Look at Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-soundmojis-on-social-messaging-platforms/"><u>Behind the Scenes of Soundmojis on Social Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-smoothly-quitting-facebook-groups/"><u>Guide to Smoothly Quitting Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-conversations-with-messengers-soundmojis/"><u>Enhancing Conversations with Messenger’s Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegram-notifies-tracking-upholds-user-friendly-features/"><u>Telegram Notifies: Tracking Upholds User-Friendly Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-is-facebook-messenger-going-to-offer-end-to-end-encryption/"><u>When Is Facebook Messenger Going to Offer End-to-End Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secure-way-to-delete-your-facebook-account-android/"><u>The Secure Way to Delete Your Facebook Account (Android)</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-behind-the-scenes-with-filmmakers-the-top-6-free-ways-to-extract-audio-from-videos-in-the-year-ahead-for-2024/"><u>Updated Behind the Scenes with Filmmakers The Top 6 Free Ways to Extract Audio From Videos in the Year Ahead. For 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-htc-u23-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crafting-perfect-memos-through-sound-waves-for-2024/"><u>Crafting Perfect Memos Through Sound Waves for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-why-is-ipogo-not-working-on-vivo-v29-pro-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Vivo V29 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-bring-more-life-to-your-instagram-feed-with-these-4-gif-tips-for-2024/"><u>[Updated] Bring More Life to Your Instagram Feed with These 4 GIF Tips for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Itel P40+? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-11x-5g-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on 11X 5G</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-pioneering-screen-capture-methods-with-adobe-captivity-unveiled/"><u>In 2024, Pioneering Screen Capture Methods with Adobe Captivity Unveiled</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unboxing-flight-comprehensive-guide-to-dji-phantom-4/"><u>In 2024, Unboxing Flight  Comprehensive Guide to DJI Phantom 4</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/quick-quality-grabs-for-your-vids/"><u>Quick, Quality Grabs for Your Vids</u></a></li>
+</ul></div>

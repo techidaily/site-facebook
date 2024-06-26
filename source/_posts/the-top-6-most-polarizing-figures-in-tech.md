@@ -1,7 +1,7 @@
 ---
 title: The Top 6 Most Polarizing Figures in Tech
-date: 2024-06-21 20:14:49
-updated: 2024-06-23 10:56:31
+date: 2024-06-25T14:17:38.972Z
+updated: 2024-06-26T14:17:38.972Z
 tags:
   - facebook
 categories:
@@ -21,23 +21,19 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-## 1\. Jack Dorsey
-
-![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+## 1\. Jack Dorsey ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
 
  Jack Dorsey is no stranger to controversy, having been summoned before Congress on multiple occasions to testify about alleged political bias and misinformation on Twitter.
 
- But perhaps his most polarizing moment was when[Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
+ But perhaps his most polarizing moment was when [Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
 
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-## 2\. Elizabeth Holmes
-
-![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+## 2\. Elizabeth Holmes ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -45,13 +41,11 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  Theranos was at its peak when a partnership with Walgreens was announced. However, medical experts were skeptical about Theranos' blood testing machine, and ex-employee whistleblowers came forward to expose the fraud.
 
- A bombshell article published in 2015 in[The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
+ A bombshell article published in 2015 in [The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-## 3\. Julian Assange
-
-![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+## 3\. Julian Assange ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
 
@@ -67,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-## 4\. Susan Wojcicki
-
-![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+## 4\. Susan Wojcicki ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
 
@@ -83,9 +75,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-## 5\. Bill Gates
-
-![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+## 5\. Bill Gates ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -99,9 +89,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-## 6\. Mark Zuckerberg
-
-![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+## 6\. Mark Zuckerberg ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
 
@@ -119,7 +107,7 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
  Facebook employees staged a virtual walkout after Zuckerberg personally stated that he would not remove a post made by Trump in reference to the 2020 Minneapolis protests ("when the looting starts, the shooting starts"). The same version of the post had been hidden under a warning message by Twitter.
 
- When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
+ When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to [delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
 ## Least Polarizing Tech Figure?
 
@@ -144,3 +132,26 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/embracing-the-virtual-shift-6-motivating-facts-about-facebooks-metaverse/"><u>Embracing the Virtual Shift: 6 Motivating Facts About Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-potential-partners-in-a-click-facebooks-innovations-for-singles/"><u>Discovering Potential Partners in a Click: Facebook’s Innovations for Singles</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-on-social-media-spotting-fb-hacks/"><u>Protecting Privacy on Social Media: Spotting FB Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-communities-in-real-time-with-facebooks-update/"><u>Connecting Communities in Real-Time with Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-2023-new-judgment-on-fb-ban/"><u>January 2023: New Judgment on FB Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-users-creating-several-personal-profiles-in-a-facebook-snapshot/"><u>The Case for Users Creating Several Personal Profiles in a Facebook Snapshot</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-vk-russias-social-media-giant/"><u>A Peek Into VK: Russia's Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/intellectual-property-users-photographic-domain/"><u>Intellectual Property: User's Photographic Domain</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-in-2024-easy-tutorial-how-to-record-and-send-talking-emoji-for-iphone/"><u>Updated In 2024, Easy Tutorial How to Record and Send Talking Emoji for iPhone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-much-does-youtube-pay-for-1-million-views-in-2024/"><u>How Much Does YouTube Pay for 1 Million Views, In 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-future-is-now-insights-from-jaunt-vr-review/"><u>[Updated] The Future Is Now  Insights From Jaunt VR Review</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-how-to-add-a-touch-of-personality-to-your-discord-status-a-pc-and-mobile-walkthrough/"><u>2024 Approved  How to Add a Touch of Personality to Your Discord Status  A PC & Mobile Walkthrough</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-poco-c65-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Poco C65 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pocket-sized-picture-playwriting/"><u>In 2024, Pocket-Sized Picture Playwriting</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-sculpting-stories-with-specialty-fonts-in-after-effects-for-2024/"><u>[New] Sculpting Stories with Specialty Fonts in After Effects for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/quick-fixes-for-why-is-my-vivo-y78t-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Vivo Y78t Black and White | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-unleash-creativity-a-guide-to-adding-texts-in-tiktoks/"><u>2024 Approved  Unleash Creativity  A Guide to Adding Texts in TikToks</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-experts-picks-top-5-free-screen-recorders-for-pc-users/"><u>2024 Approved  Expert's Picks  Top 5 Free Screen Recorders For PC Users</u></a></li>
+</ul></div>

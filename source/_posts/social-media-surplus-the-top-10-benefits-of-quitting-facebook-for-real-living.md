@@ -1,7 +1,7 @@
 ---
 title: "Social Media Surplus: The Top 10 Benefits of Quitting Facebook for Real Living"
-date: 2024-06-20 21:52:24
-updated: 2024-06-23 10:33:56
+date: 2024-06-25T14:42:22.020Z
+updated: 2024-06-26T14:42:22.020Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/39eb12846caac832ee1b1d85070e2dd4cb557f022
 
  Since its early days, Facebook's privacy policy has somehow managed to secure a place in controversies. That's because Meta, the company that owns and runs Facebook, uses you and your data as its primary product.
 
- In early 2018, the company hit the headlines for its involvement in[the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-privacy-scandal-good/) . Mark Zuckerberg came under fire for letting the data analysis firm receive and retain the information of a large number of its users.
+ In early 2018, the company hit the headlines for its involvement in [the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-privacy-scandal-good/) . Mark Zuckerberg came under fire for letting the data analysis firm receive and retain the information of a large number of its users.
 
  In other words, like many other online entities, Facebook uses your information to gain profits, which is a pretty questionable business model.
 
@@ -37,21 +37,21 @@ thumbnail: https://thmb.techidaily.com/39eb12846caac832ee1b1d85070e2dd4cb557f022
 
  The social media giant goes to great lengths to track your online activities. It does so to display the relevant ads from its advertising partners.
 
- This report by[BBC News](https://www.bbc.com/news/technology-46618582) in 2018 shows how Facebook allegedly shared your data with other tech companies. In short, the social network cares more about the business and advertisers than its users.
+ This report by [BBC News](https://www.bbc.com/news/technology-46618582) in 2018 shows how Facebook allegedly shared your data with other tech companies. In short, the social network cares more about the business and advertisers than its users.
 
 ## 3\. Facebook Has Misrepresented Its Data in the Past
 
- A lot happened in 2018 that you might have missed. According to[CNBC](http://www.cnbc.com/2021/02/18/facebook-knew-ad-metrics-were-inflated-but-ignored-the-problem-lawsuit-claims.html) , a lawsuit against Facebook alleged that the company misquoted the numbers advertisers could reach through its ads program in order to make more money,
+ A lot happened in 2018 that you might have missed. According to [CNBC](http://www.cnbc.com/2021/02/18/facebook-knew-ad-metrics-were-inflated-but-ignored-the-problem-lawsuit-claims.html) , a lawsuit against Facebook alleged that the company misquoted the numbers advertisers could reach through its ads program in order to make more money,
 
  Facebook was fully aware of the number of people that it could reach. However, it chose to say nothing and kept making profits quietly.
 
- Before that, back in 2016, Facebook admitted to overstating its video statistics for numerous years by not discounting three-second views from its figures, as reported by[The Drum](https://www.thedrum.com/news/2016/09/23/facebook-admits-it-overstated-average-video-view-times-between-60-80-two-years) . Naturally, the stakeholders involved were pretty unhappy about it.
+ Before that, back in 2016, Facebook admitted to overstating its video statistics for numerous years by not discounting three-second views from its figures, as reported by [The Drum](https://www.thedrum.com/news/2016/09/23/facebook-admits-it-overstated-average-video-view-times-between-60-80-two-years) . Naturally, the stakeholders involved were pretty unhappy about it.
 
  The point is if Facebook is not focused on you and has a history of breaking the trust of its business partners, should you be trusting it?
 
 ## 4\. Facebook Tracks Other App and Website Usage
 
- Facebook's data tracking isn't just limited to WhatsApp, Instagram, and Facebook. It also tracks you as you use other apps and websites. This is evident because, as stated by[Inc.](http://www.inc.com/jason-aten/apples-ios-152-is-a-major-privacy-update-that-lets-you-see-how-apps-are-tracking-you-its-very-bad-news-for-facebook.html) , Apple's latest OS update could block this data tracking on its devices.
+ Facebook's data tracking isn't just limited to WhatsApp, Instagram, and Facebook. It also tracks you as you use other apps and websites. This is evident because, as stated by [Inc.](http://www.inc.com/jason-aten/apples-ios-152-is-a-major-privacy-update-that-lets-you-see-how-apps-are-tracking-you-its-very-bad-news-for-facebook.html) , Apple's latest OS update could block this data tracking on its devices.
 
  You must have experienced seeing ads for things you might have searched for in other apps on your phone. It is pretty common. There are ways to stop Facebook from doing so. However, do you really feel safe with someone spying on your every tap and click?
 
@@ -67,15 +67,15 @@ thumbnail: https://thmb.techidaily.com/39eb12846caac832ee1b1d85070e2dd4cb557f022
 
  Unlike the algorithms of other popular apps like TikTok, the suggestions you see for the content on Facebook are not always relevant to your activity. The company tampers with the recommendations by promoting posts that provoke reactions, regardless of whether the post is accurate.
 
- If you're unaware of Facebook's algorithm, you will be shocked to learn some of the real-life consequences it has caused. According to[The Guardian](https://www.theguardian.com/technology/2021/oct/07/facebooks-role-in-myanmar-and-ethiopia-under-new-scrutiny) , the company was allegedly involved in worsening the conditions in Myanmar and Ethiopia.
+ If you're unaware of Facebook's algorithm, you will be shocked to learn some of the real-life consequences it has caused. According to [The Guardian](https://www.theguardian.com/technology/2021/oct/07/facebooks-role-in-myanmar-and-ethiopia-under-new-scrutiny) , the company was allegedly involved in worsening the conditions in Myanmar and Ethiopia.
 
- Recently, a study revealed that posts with significant[political misinformation during the 2020 US Presidential election](http://www.makeuseof.com/study-facebook-election-misinformation/) performed the best on Facebook. Both of these examples show how Facebook's algorithm works to promote viral stuff rather than factual and moral content.
+ Recently, a study revealed that posts with significant [political misinformation during the 2020 US Presidential election](http://www.makeuseof.com/study-facebook-election-misinformation/) performed the best on Facebook. Both of these examples show how Facebook's algorithm works to promote viral stuff rather than factual and moral content.
 
 ## 7\. Its User Interface and Timeline Have Flaws
 
  Facebook keeps on updating its timeline and UI for the web and its app. However, it still carries a lot of glitches and flaws, like something as simple as not being able to switch to a chronological feed.
 
- The new web interface is under a great deal of scrutiny. Facebook has made it look like a bigger version of its smartphone UI. Here is a detailed article by[Search Engine Journal](http://www.searchenginejournal.com/facebook-design-hated/378881/#close) on how the company has screwed up the timeline and UI.
+ The new web interface is under a great deal of scrutiny. Facebook has made it look like a bigger version of its smartphone UI. Here is a detailed article by [Search Engine Journal](http://www.searchenginejournal.com/facebook-design-hated/378881/#close) on how the company has screwed up the timeline and UI.
 
  However, you cannot do much about it as it forces its design on you. In contrast, you can customize your timeline on other social networks to better suit your requirements. This lack of freedom is pretty debilitating.
 
@@ -101,7 +101,7 @@ thumbnail: https://thmb.techidaily.com/39eb12846caac832ee1b1d85070e2dd4cb557f022
 
  At this point, you might have made up your mind about quitting Facebook. But wait, are you worried that you will miss out on all the social trends and news and be unable to stay in touch with your actual friends?
 
- You no longer need to worry about that as we have found some great social networks for you that are[secure and more private alternatives to Facebook](https://www.makeuseof.com/tag/facebook-alternatives/) . Check and test a couple of these platforms out. It might feel odd in the beginning, but give it time.
+ You no longer need to worry about that as we have found some great social networks for you that are [secure and more private alternatives to Facebook](https://www.makeuseof.com/tag/facebook-alternatives/) . Check and test a couple of these platforms out. It might feel odd in the beginning, but give it time.
 
 ## Take the Plunge and See How It Affects Your Life
 
@@ -124,3 +124,23 @@ thumbnail: https://thmb.techidaily.com/39eb12846caac832ee1b1d85070e2dd4cb557f022
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/digital-dissent-whatsapp-questions-legality-of-new-privacy-laws/"><u>Digital Dissent: WhatsApp Questions Legality of New Privacy Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-tech-landscape-through-facebook-rust-collaboration/"><u>Enhancing Tech Landscape Through Facebook-Rust Collaboration</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendships-ebb-and-flow-unfollowing-a-user/"><u>Friendship's Ebb and Flow: Unfollowing a User</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-the-truth-about-facebook-user-counts/"><u>Debunking Myths: The Truth About Facebook User Counts</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-removal-of-spotify-from-your-facebook-account/"><u>Navigating the Removal of Spotify From Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-a-music-revenue-sharing-program-how-does-it-work/"><u>Facebook Launches a Music Revenue-Sharing Program: How Does It Work?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-illustrator-way-adding-realistic-blur-to-your-pics/"><u>[New] The Illustrator Way  Adding Realistic Blur to Your Pics</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-oppo-find-x6-pro-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Oppo Find X6 Pro? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-different-fb-video-proportions-for-2024/"><u>[Updated] Different FB Video Proportions for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-best-pop-background-music-list-to-videos-for-2024/"><u>Updated Best Pop Background Music List to Videos for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-list-websites-with-free-thrones-audio-downloads/"><u>A-List Websites with Free Thrones Audio Downloads</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-oppo-reno-10-pro-5g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Oppo Reno 10 Pro 5G Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/eliminate-fuzziness-clearer-facebook-video-tips/"><u>Eliminate Fuzziness  Clearer Facebook Video Tips</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-xiaomi-civi-3-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Xiaomi Civi 3 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Samsung Galaxy F34 5G | Dr.fone</u></a></li>
+</ul></div>

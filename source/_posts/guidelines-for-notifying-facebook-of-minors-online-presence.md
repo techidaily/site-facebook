@@ -1,7 +1,7 @@
 ---
 title: Guidelines for Notifying Facebook of Minors' Online Presence
-date: 2024-06-22 20:49:15
-updated: 2024-06-23 12:53:39
+date: 2024-06-25T13:44:36.137Z
+updated: 2024-06-26T13:44:36.137Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 2. Find the underage user by searching from their Facebook name and opening their profile.
 3. Copy their profile link that includes their username.  
 ![Copy link of Facebook user](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Copy-link-of-Facebook-user.JPG)
-4. Open the[Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
+4. Open the [Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
@@ -43,7 +43,7 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  Parents can request data from their underage child's Facebook account. You will need to fill out a verification form for data privacy purposes.
 
-1. Open the[Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
+1. Open the [Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
 3. Paste the URL of your child’s Facebook account.
@@ -61,9 +61,7 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
 
-### Facebook Can Be Addictive
-
-![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
+### Facebook Can Be Addictive ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
@@ -75,15 +73,13 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-### It Can Worsen Mental Health Issues
-
-![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
+### It Can Worsen Mental Health Issues ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
 ### It Might Expose Your Child to Inappropriate Content
 
- The Facebook Community Guidelines are pretty strict—you can even[get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
+ The Facebook Community Guidelines are pretty strict—you can even [get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
 
  Young children can be exposed to this content if they've lied about their age and are using Facebook despite the age limit.
 
@@ -110,3 +106,24 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/security-of-facebooks-hidden-dialogue/"><u>Security of Facebook's Hidden Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-whispers-tracing-social-medias-future-wrist-tech/"><u>Innovative Whispers: Tracing Social Media's Future Wrist Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwind-with-these-six-reasons-to-let-go-of-facebook/"><u>Unwind with These Six Reasons to Let Go of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-fbcta-affect-your-social-media-feed/"><u>How Does FBCTA Affect Your Social Media Feed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-wealth-wisely-how-meta-aids-in-the-art-of-monetizing-reels/"><u>Creating Wealth Wisely: How Meta Aids in the Art of Monetizing Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-the-rollout-of-whatsapps-revised-privacy-rules/"><u>Delay in the Rollout of WhatsApp's Revised Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-direct-messages-show-your-spot-to-friends/"><u>FB Direct Messages: Show Your Spot to Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-roadmap-to-successful-online-job-promotions/"><u>The Roadmap to Successful Online Job Promotions</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-exploring-the-essence-of-digital-audio-studios-debunking-myths-about-daw-technology/"><u>In 2024, Exploring the Essence of Digital Audio Studios Debunking Myths About DAW Technology</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mastering-valheim-agriculture-seed-selection-insights/"><u>[New] In 2024, Mastering Valheim Agriculture  Seed Selection Insights</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pristine-visionary-storytelling-system-for-2024/"><u>Pristine Visionary Storytelling System for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/mastering-screencast-technology-with-itop-review/"><u>Mastering Screencast Technology with ITop Review</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prime-photo-enhancements-at-no-charge-15-to-check-out-today/"><u>2024 Approved  Prime Photo Enhancements at No Charge  #15 to Check Out Today</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-crafting-breathtaking-time-lapses-with-gopro/"><u>In 2024, The Ultimate Guide to Crafting Breathtaking Time-Lapses with GoPro</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-facebooks-most-impressive-new-additions-decoded-for-2024/"><u>[New] Facebook's Most Impressive New Additions Decoded for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-discovering-the-leading-8-voice-command-programs-for-desktop-and-mobile-devices/"><u>Updated 2024 Approved Discovering the Leading 8 Voice Command Programs for Desktop and Mobile Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-a05s-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy A05s to New Phone | Dr.fone</u></a></li>
+</ul></div>

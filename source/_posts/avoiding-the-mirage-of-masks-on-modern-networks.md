@@ -1,7 +1,7 @@
 ---
 title: Avoiding the Mirage of Masks on Modern Networks
-date: 2024-06-21 23:39:50
-updated: 2024-06-23 11:17:37
+date: 2024-06-25T14:02:29.504Z
+updated: 2024-06-26T14:02:29.504Z
 tags:
   - facebook
 categories:
@@ -31,13 +31,11 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
  At first glance, a fake Facebook profile isn't any different from a genuine one. However, the devil is in the details. Here are some tips for identifying a fake profile on Facebook:
 
-### 1\. Fake or Stolen Photos
+### 1\. Fake or Stolen Photos ![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
 
-![Woman looking at her mobile phone with laptop open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Woman-looking-at-her-mobile-phone-with-laptop-open.jpg)
+ Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by [online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
 
- Fake profiles don't have a lot of things to say about their day-to-day life because, well, they aren't living it. Instead, they opt for using a lot of photos to create a semblance of being active. One thing that stands out is the nature of the photos they post. Because they aren't living the life they claim, they'll typically have to steal the photos of people they're impersonating. This is especially the case with fake Facebook profiles used by[online dating scammers](https://www.makeuseof.com/tag/spot-avoid-online-dating-scammer/) .
-
- If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like[TinEye](http://tineye.com) and[Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
+ If you suspect an account to be fake, you can do a simple Google reverse image search. Or, you can use other dedicated image search tools like [TinEye](http://tineye.com) and [Pixsy](http://pixsy.com) . The process is fairly simple, just upload the photo and start searching. If you find the same image posted at an earlier time somewhere else, it could be that the account you're interacting with is a sham.
 
 ### 2\. An Inconsistent Timeline
 
@@ -47,9 +45,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
  Sometimes, you'll find a long period of dormancy where there's no post at all and then a period of almost daily posting. This is a red flag.
 
-### 3\. Strange Stories with a Plea for Help
-
-![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
+### 3\. Strange Stories with a Plea for Help ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
@@ -63,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
 
  If you're getting lots of friend requests from accounts that do not have any mutual friends, there's a possibility that it's a fake account that's directly targeting you. Sadly, there are a lot of fake profiles out there which are hand-crafted to deceive a particular person. These are trickier to spot, especially as they gain credibility by learning a lot about you. However, they're little slip-ups that you'll still notice along the way.
 
- It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other[ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
+ It's possible to block friend requests from people who have no friends in common with you. To do this, head to the**Settings** section of your Facebook mobile app, scroll down and tap on**How people can find and contact you >** **Who can send you friend requests? >** **Friends of friends** . You can also try out other [ways to limit the people that can contact you on Facebook](https://www.makeuseof.com/limit-people-contacting-you-facebook/) .
 
 ## Protect Yourself From Fake Profiles
 
@@ -86,3 +82,23 @@ thumbnail: https://thmb.techidaily.com/e43b0bc66a6afa452744238286fc0843b9dfd431d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-call-for-action-facebook-and-google-must-tackle-online-scams-head-on/"><u>A Call for Action: Facebook & Google Must Tackle Online Scams Head-On</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-revelations-from-the-facebook-papers/"><u>7 Key Revelations From The Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-virtual-space-with-your-facebook-portal-tv/"><u>Navigating the Virtual Space with Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-online-communities-tailored-for-seniors/"><u>Top 5 Online Communities Tailored for Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-reality-on-facebook-3-red-flags-to-note/"><u>Virtual Reality on Facebook – 3 Red Flags to Note</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-sharing-content-across-various-fb-groups/"><u>Maximizing Engagement: Sharing Content Across Various FB Groups</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-step-by-step-setting-up-tiktok-on-a-macbook/"><u>[New] 2024 Approved  Step-by-Step  Setting Up TikTok on a Macbook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Does Airplane Mode Turn off GPS Location On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-lightning-fast-photo-reader-for-pcs/"><u>2024 Approved  Lightning-Fast Photo Reader for PCs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastery-in-mapping-out-your-youtube-audience-for-2024/"><u>Mastery in Mapping Out Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-innovative-methods-for-effective-screen-capture/"><u>[Updated] Innovative Methods for Effective Screen Capture</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Tecno Pova 5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-epic-expeditions-terrarias-richest-map-finds-for-2024/"><u>[New] Epic Expeditions  Terraria's Richest Map Finds for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-superior-picks-top-9-chat-and-call-apps-for-smartphones-iosandroid/"><u>[New] Superior Picks  Top 9 Chat & Call Apps for Smartphones iOS/Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-the-quick-guide-to-capturing-and-storing-twitter-animated-content/"><u>[New] The Quick Guide to Capturing and Storing Twitter Animated Content</u></a></li>
+</ul></div>

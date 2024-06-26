@@ -1,7 +1,7 @@
 ---
 title: English Football's Giants Shun Online Channels Due to Toxic Trolling
-date: 2024-06-20 22:39:31
-updated: 2024-06-23 11:52:22
+date: 2024-06-25T14:23:14.237Z
+updated: 2024-06-26T14:23:14.237Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/3b5dbab902dc8db71b72fe778c491655a451dd9fd
 
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
- In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+ In February 2021, the English football community wrote [a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
 
 > The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
 
@@ -76,3 +76,24 @@ thumbnail: https://thmb.techidaily.com/3b5dbab902dc8db71b72fe778c491655a451dd9fd
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/infuse-text-with-tune-utilizing-soundemojis-in-chats/"><u>Infuse Text with Tune: Utilizing Soundemojis in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-leaks-decoded-the-implications-explored/"><u>Facebook Leaks Decoded: The Implications Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/encrypting-convo-on-fb-and-ig-delayed-to-next-years-start/"><u>Encrypting Convo on FB & IG Delayed to Next Year's Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-connections-one-profile-at-a-time-facebooks-redefined-dating-approach/"><u>Building Connections, One Profile at a Time: Facebook's Redefined Dating Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-your-brands-reach-unveiling-eight-key-differences-between-profiles-and-pages/"><u>Amplify Your Brand's Reach: Unveiling Eight Key Differences Between Profiles & Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-interpretations-what-does-facebooks-pages-labeling-change-imply/"><u>New Interpretations: What Does Facebook's Pages Labeling Change Imply?</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-engagement-tactics-via-facebook-stories-polls/"><u>Innovative Engagement Tactics via Facebook Stories Polls</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-web-crews-revolutionizing-av-media-creation/"><u>Elite Web Crews Revolutionizing Av Media Creation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/metaverse-memetic-mastery-tips-for-aspiring-content-creators-for-2024/"><u>Metaverse Memetic Mastery  Tips for Aspiring Content Creators for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/mastering-free-video-text-dynamics-for-2024/"><u>Mastering FREE Video Text Dynamics for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/techniques-for-crafting-encouraging-personal-growth-vids/"><u>Techniques for Crafting Encouraging Personal Growth Vids</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-premier-mixers-transforming-your-home-streaming-setup/"><u>New Premier Mixers Transforming Your Home Streaming Setup</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transform-your-avi-images-from-video-to-graphics-using-filmora/"><u>Transform Your AVI Images  From Video To Graphics Using Filmora</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-infinix-smart-8-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP from Infinix Smart 8 Pro?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-pros-choice-identifying-the-best-9-webmicrone-capture-gear-23/"><u>2024 Approved  Pro's Choice  Identifying the Best 9 Webmicrone Capture Gear ('23)</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-screencapture-simplified-the-comprehensive-camstudio-review/"><u>2024 Approved  ScreenCapture Simplified  The Comprehensive CamStudio Review</u></a></li>
+</ul></div>

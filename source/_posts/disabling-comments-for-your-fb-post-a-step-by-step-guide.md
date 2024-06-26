@@ -1,7 +1,7 @@
 ---
 title: "Disabling Comments for Your FB Post: A Step-by-Step Guide"
-date: 2024-06-20 13:51:20
-updated: 2024-06-23 11:59:10
+date: 2024-06-25T14:17:05.044Z
+updated: 2024-06-26T14:17:05.044Z
 tags:
   - facebook
 categories:
@@ -48,7 +48,7 @@ Close
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
 
-* Log in to[Facebook](https://www.facebook.com/) on your browser.
+* Log in to [Facebook](https://www.facebook.com/) on your browser.
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
@@ -103,3 +103,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/discreet-discourse-on-fb-utilizing-archive-for-secrecy/"><u>Discreet Discourse on FB: Utilizing Archive for Secrecy</u></a></li>
+<li><a href="https://facebook.techidaily.com/searching-for-archived-facebook-communication/"><u>Searching for Archived Facebook Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/rest-in-peace-but-not-on-your-timeline-fb-guide/"><u>Rest in Peace, but Not on Your Timeline - FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-11-social-network-snags-and-how-to-tackle-them/"><u>Top 11 Social Network Snags and How to Tackle Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalizing-on-our-daily-movements/"><u>Capitalizing on Our Daily Movements</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-for-fair-competition-separating-tech-titans/"><u>The Battle for Fair Competition: Separating Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-local-groups-and-usage-policies/"><u>Exploring Facebook's Local Groups & Usage Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adds-a-new-penalty-for-misinformation-sharers/"><u>Facebook Adds a New Penalty for Misinformation Sharers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-the-art-of-selecting-free-music-for-videos/"><u>[New] Mastering the Art of Selecting Free Music for Videos</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-become-an-audio-trailblazer-exclusive-vocal-change-techniques-in-free-fire-free/"><u>In 2024, Become an Audio Trailblazer – Exclusive Vocal Change Techniques in Free Fire (Free)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-country-on-app-store-for-apple-iphone-15-plus-with-7-methods-drfone-by-drfone-ios/"><u>How To Change Country on App Store for Apple iPhone 15 Plus With 7 Methods | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/digital-detective-work-cracking-the-code-to-live-streams-for-2024/"><u>Digital Detective Work  Cracking the Code to Live Streams for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/non-competitive-front-row-fun-ranking-the-top-ten/"><u>Non-Competitive Front Row Fun  Ranking the Top Ten</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-innovations-in-digital-vocal-alteration-top-notch-applications/"><u>Updated Innovations in Digital Vocal Alteration Top-Notch Applications</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-wacky-world-of-webinars-top-10-hilarious-tiktok-challenges/"><u>[New] 2024 Approved  Wacky World of Webinars  Top 10 Hilarious TikTok Challenges</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-virtual-collaboration-share-your-screens-with-facebook-viewers/"><u>In 2024, Virtual Collaboration  Share Your Screens with Facebook Viewers</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-s-most-entertaining-video-dubbing-apps-for-mobile-devices-for-2024/"><u>New S Most Entertaining Video Dubbing Apps for Mobile Devices for 2024</u></a></li>
+</ul></div>

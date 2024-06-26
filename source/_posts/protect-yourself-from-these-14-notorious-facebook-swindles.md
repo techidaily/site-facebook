@@ -1,7 +1,7 @@
 ---
 title: Protect Yourself From These 14 Notorious Facebook Swindles
-date: 2024-06-20 19:17:41
-updated: 2024-06-23 10:35:46
+date: 2024-06-25T13:59:11.041Z
+updated: 2024-06-26T13:59:11.041Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,17 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
  From scammers asking for all kinds of additional postage costs, to people pretending to be legitimate businesses, to people selling authentic "celebrity signed merchandise", there are definitely a lot of things to be aware of before performing any type of transaction.
 
- Make sure you learn[how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
+ Make sure you learn [how to avoid common Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) so that you can transact safely on the platform.
 
 ## 4\. Scams That Claim to Have Videos of You
 
  There's nothing worse than believing your privacy has been violated. If a friend is sending you a link claiming they've found a video of you doing something shocking or inappropriate, there is a high chance that your friend's Facebook account got hacked. What the scammers want you to do is to click on the link and view the message so that they can send you malicious software to meddle with your devices.
 
- These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
+ These days there are a [few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
 ## 5\. Facebook Job Advertisement Scams
 
- Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
+ Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are [red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
@@ -55,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
 ## 7\. Charity Scams
 
- This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check[Charity Navigator](https://www.charitynavigator.org/) or[CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
+ This scam is usually one that you would see when something terrible happens in the world and nasty scammers use the opportunity of the disaster to get people to donate. Before you dish out your credit card details for a good cause, take a look online at reputable charities, or check [Charity Navigator](https://www.charitynavigator.org/) or [CharityWatch](https://www.charitywatch.org/) for the most recent charity scams out there.
 
 ## 8\. Scams Posing As Official Pages
 
@@ -83,7 +83,7 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
 
  Whatever it is, their purpose is to win your trust, and they may even do this by chatting to you for weeks or months. If you happen to fall for one of these scammers, at some point, they will ask you for money.
 
- They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
+ They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are [some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
 ## 12\. Loan Lending Scams
 
@@ -118,3 +118,27 @@ thumbnail: https://thmb.techidaily.com/3f22ae9e837b10e05053cf12480b5c15e8d166c20
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/tracking-down-earlier-friends-interactions-on-fb/"><u>Tracking Down Earlier Friends Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/illuminating-the-path-of-your-facebook-presence-with-precision/"><u>Illuminating the Path of Your Facebook Presence with Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-ten-no-cost-applications-for-social-media-supremacy/"><u>Top Ten No-Cost Applications for Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-exclusivity-recognize-illicit-facebook-access/"><u>Ensure Exclusivity – Recognize Illicit Facebook Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-struggle-fb-access-denied/"><u>The Silent Struggle: FB Access Denied</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/ejecting-facebooks-watchfulness-through-off-fb-settings/"><u>Ejecting Facebook's Watchfulness Through Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-prudent-approach-to-user-removal-from-your-facebook-page/"><u>A Prudent Approach to User Removal From Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-overlords-why-governments-are-challenging-the-status-quo/"><u>Silicon Overlords: Why Governments Are Challenging the Status Quo</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-music-and-messaging-merge-a-guide-to-spotifydiscord/"><u>2024 Approved  Music & Messaging Merge  A Guide to Spotify/Discord</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-beginners-path-to-a-unique-youtube-url/"><u>The Beginner's Path to a Unique YouTube URL</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-essential-handheld-guide-to-youtube-production/"><u>2024 Approved  The Essential Handheld Guide to YouTube Production</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-crafting-compelling-narratives-the-top-8-educational-hubs/"><u>[Updated] Crafting Compelling Narratives  The Top 8 Educational Hubs</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-mastering-windows-movie-maker-a-free-download-and-tutorial-guid/"><u>2024 Approved Mastering Windows Movie Maker A Free Download and Tutorial Guid</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-the-art-of-anonymity-in-video-hiding-private-data/"><u>[Updated] The Art of Anonymity in Video  Hiding Private Data</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-se-2022-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone SE (2022) online without jailbreak</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-camera-woes-over-obs-now-functioning/"><u>2024 Approved  Camera Woes Over  OBS Now Functioning</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-master-live-broadcast-setup-using-obs-studio-pc-mac-laptop/"><u>[New] In 2024, Master Live Broadcast Setup Using OBS Studio (PC, Mac, Laptop)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-a-step-by-step-walkthrough-to-change-profile-pictorials/"><u>[Updated] In 2024, A Step-by-Step Walkthrough to Change Profile Pictorials</u></a></li>
+</ul></div>

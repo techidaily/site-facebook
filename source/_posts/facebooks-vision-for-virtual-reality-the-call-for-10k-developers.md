@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Vision for Virtual Reality: The Call for 10K Developers"
-date: 2024-06-21 16:50:46
-updated: 2024-06-23 10:30:31
+date: 2024-06-25T14:08:59.423Z
+updated: 2024-06-26T14:08:59.423Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,7 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
 
 ## Facebook Is Betting Big on EU Tech Talent
 
- In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
+ In an October 17 post on the [Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
 
  According to the post, “This investment is a vote of confidence in the strength of the European tech industry and the potential of European tech talent.”
 
@@ -78,3 +78,24 @@ thumbnail: https://thmb.techidaily.com/3b3746640fe26afab367eb3d6989fbedd82bfd022
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-doppelganger-delight-customizing-your-facebook-profile-cover-photo/"><u>Digital Doppelganger Delight: Customizing Your Facebook Profile Cover Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/freeing-up-from-facebooks-pervasive-tracking/"><u>Freeing Up From Facebook's Pervasive Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-strategies-for-updating-fb-image/"><u>Timely Strategies for Updating FB Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-dormant-accounts-on-meta-resurrected/"><u>Trump's Dormant Accounts on Meta Resurrected</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-languages-boosting-social-media-presence-on-facebook/"><u>Leverage Languages: Boosting Social Media Presence on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-facebook-2fa-post-phone-loss/"><u>Bypassing Facebook 2FA Post-Phone Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/pursuing-new-frontiers-fb-sets-aside-5m-for-groundbreaking-content-creator-tools/"><u>Pursuing New Frontiers: FB Sets Aside $5M for Groundbreaking Content Creator Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-ultimate-tiktok-essentials-handbook-2023/"><u>[New] In 2024, Ultimate TikTok Essentials Handbook 2023</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-efficient-video-editing-techniques-for-instagram-mac-edition/"><u>[Updated] In 2024, Efficient Video Editing Techniques for Instagram, Mac Edition</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sideways-scene-understanding-igs-upside-down-issue/"><u>2024 Approved  Sideways Scene  Understanding IG's Upside-Down Issue</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-secret-sauce-for-clearer-more-informative-youtube-videos/"><u>[New] The Secret Sauce for Clearer, More Informative YouTube Videos</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-the-ultimate-tiktok-twitter-syncing-method/"><u>2024 Approved  The Ultimate TikTok-Twitter Syncing Method</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-retention-mastery-on-youtube-top-6-methods-for-engaged-audience-growth/"><u>[New] Retention Mastery on YouTube  Top 6 Methods for Engaged Audience Growth</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inspirational-collage-ideas-for-beginners/"><u>Inspirational Collage Ideas for Beginners</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/learn-how-to-convert-mp4-videos-to-60-fps-gifs-with-this-easy-to-follow-tutorial-get-smooth-and-crisp-motion-in-your-gifs-in-just-a-few-simple-steps-for-202/"><u>Learn How to Convert MP4 Videos to 60 FPS GIFs with This Easy-to-Follow Tutorial. Get Smooth and Crisp Motion in Your GIFs in Just a Few Simple Steps for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unveiling-the-power-of-zoom-in-enhancing-your-youtube-experience/"><u>In 2024, Unveiling the Power of Zoom in Enhancing Your YouTube Experience</u></a></li>
+</ul></div>

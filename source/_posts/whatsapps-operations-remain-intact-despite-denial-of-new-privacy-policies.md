@@ -1,7 +1,7 @@
 ---
 title: WhatsApp's Operations Remain Intact Despite Denial of New Privacy Policies
-date: 2024-06-20 16:12:57
-updated: 2024-06-23 10:54:13
+date: 2024-06-25T13:50:26.874Z
+updated: 2024-06-26T13:50:26.874Z
 tags:
   - facebook
 categories:
@@ -15,13 +15,13 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
 
 ## WhatsApp's Operations Remain Intact Despite Denial of New Privacy Policies
 
- WhatsApp's new privacy policy has managed to create quite a bit of controversy since the company[first announced it in early 2021](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) . Following user backlash, WhatsApp delayed the rollout of its new privacy until mid-May.
+ WhatsApp's new privacy policy has managed to create quite a bit of controversy since the company [first announced it in early 2021](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) . Following user backlash, WhatsApp delayed the rollout of its new privacy until mid-May.
 
  The company planned to limit WhatsApp users' account functionality who did not accept its new privacy policy by May 15th. However, the company has now had a change of heart.
 
 ## WhatsApp Reverses Its Stance on Limiting Account Functionality
 
- In a statement to[The Verge](https://www.theverge.com/2021/5/28/22458805/whatsapp-privacy-policy-no-plans-limit-functionality) , WhatsApp says that it will not limit the account functionality of users who do not accept its new privacy policy. The company will be sticking to this stance going forward. Below is the statement issued by WhatsApp:
+ In a statement to [The Verge](https://www.theverge.com/2021/5/28/22458805/whatsapp-privacy-policy-no-plans-limit-functionality) , WhatsApp says that it will not limit the account functionality of users who do not accept its new privacy policy. The company will be sticking to this stance going forward. Below is the statement issued by WhatsApp:
 
 > Given recent discussions with various authorities and privacy experts, we want to make clear that we will not limit the functionality of how WhatsApp works for those who have not yet accepted the update.
 
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
 
 ## WhatsApp's New Privacy Policy Has Been Controversial
 
- The whole controversy around WhatsApp's new privacy policy has been related to the company sharing more user data with Facebook. However, WhatsApp has repeatedly denied this saying the new privacy policy will only[share one's communication data with businesses](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) , which Facebook could use for marketing purposes.
+ The whole controversy around WhatsApp's new privacy policy has been related to the company sharing more user data with Facebook. However, WhatsApp has repeatedly denied this saying the new privacy policy will only [share one's communication data with businesses](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) , which Facebook could use for marketing purposes.
 
 
 <ins class="adsbygoogle"
@@ -58,3 +58,22 @@ thumbnail: https://thmb.techidaily.com/4f82ef6a5653e12bb243abaaf90bd8a672c270d2a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/prompt-your-way-to-enlightened-social-media-posts-at-facebook/"><u>Prompt Your Way to Enlightened Social Media Posts at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-erase-and-reset-your-facebook-narrative/"><u>Easy Steps: Erase and Reset Your Facebook Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-get-a-text-upgrade-with-fb-news/"><u>Messenger and Instagram Get a Text Upgrade with FB News</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-minimizing-facebooks-annoying-targeted-ads/"><u>The Ultimate Guide to Minimizing Facebook's Annoying Targeted Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-phony-facebook-account-creation-schemes/"><u>Exploring Phony Facebook Account Creation Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-excessive-ad-content-tailoring-on-social-networks/"><u>Cut Excessive Ad Content Tailoring on Social Networks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-ranked-youtube-extractors-pc-mobile-and-more-tips/"><u>2024 Approved  Top-Ranked YouTube Extractors - PC, Mobile, and More Tips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-covert-recording-erasing-identifiable-information/"><u>[Updated] Covert Recording  Erasing Identifiable Information</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-videopad-video-editing-software-a-comprehensive-review-and-guide/"><u>Updated Videopad Video Editing Software A Comprehensive Review and Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-mastering-ad-avoidance-stopping-fb-video-promos/"><u>2024 Approved  Mastering Ad Avoidance  Stopping FB Video Promos</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-15-top-montage-music-for-different-video-types/"><u>Updated 2024 Approved 15 Top Montage Music for Different Video Types</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-htc-u23-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on HTC U23? | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-pick-your-preferred-music-editor-the-best-ios-and-android-apps-for-2024/"><u>Updated Pick Your Preferred Music Editor The Best iOS and Android Apps for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/building-a-custom-link-for-youtubes-auto-subscribe/"><u>Building a Custom Link for YouTube's Auto-Subscribe</u></a></li>
+</ul></div>

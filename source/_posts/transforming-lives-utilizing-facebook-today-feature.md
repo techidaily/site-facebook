@@ -1,7 +1,7 @@
 ---
 title: "Transforming Lives: Utilizing Facebook Today Feature"
-date: 2024-06-20 12:15:46
-updated: 2024-06-23 11:13:29
+date: 2024-06-25T13:46:46.487Z
+updated: 2024-06-26T13:46:46.487Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,7 @@ To share a memory from the On This Day feature:
 
 1. Open**Memories** from your Facebook menu. It will be available by tapping the three horizontal lines in the bottom right corner of your screen. Users who wish to access memories through the website can scroll through the menu on the left side of their Facebook homepage.
 2. Select the memory you wish to share.
-3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on[Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
+3. Tap the**Share** button for a new menu. You can post this memory on your Facebook Feed. You can also send it as a link on [Messenger, which is separate and can be used without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
@@ -83,7 +83,7 @@ To access your saved memories:
 
 Close
 
- To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
+ To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
@@ -95,7 +95,7 @@ Close
 
 ## Customization Options for the On This Day Feature
 
- If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes[hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
+ If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
 
 1. Open**Memories** from the Facebook**Menu** .
 2. Tap the**Settings** icon that looks like a gear in the top-right corner of the screen.
@@ -144,3 +144,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/directive-mechanisms-for-leading-facebook-group-discussions/"><u>Directive Mechanisms for Leading Facebook Group Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-a-more-pleasant-online-space-escaping-irksome-fb-ads/"><u>Strategies for a More Pleasant Online Space: Escaping Irksome FB Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-essential-mobile-settings-in-fb-app/"><u>Unlock Potential: Essential Mobile Settings in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-news-streams-user-opinions-on-social-networking-sites/"><u>Reimagining News Streams: User Opinions on Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-metaverse-facebooks-revolution-in-digital-spaces/"><u>Decoding the Metaverse: Facebook's Revolution in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-relationship-timelines-on-fb/"><u>Navigating Relationship Timelines on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719148962192-which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-compelling-list-of-premium-free-phone-video-chat-applications-iosandroid-for-2024/"><u>[New] Compelling List of Premium-Free Phone Video Chat Applications (iOS/Android) for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-14-pro-passcode-without-a-computer-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone 14 Pro Passcode without a Computer</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-funimate-insiders-path-to-flawless-downloads/"><u>In 2024, Funimate Insider's Path to Flawless Downloads</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-redmi-note-12-4g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Redmi Note 12 4G?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlocking-the-secrets-of-successful-youtube-thumbnail-crafting/"><u>In 2024, Unlocking the Secrets of Successful YouTube Thumbnail Crafting</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-motorola-razr-40-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Motorola Razr 40 for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-secrets-to-crafting-winning-freefire-videos/"><u>2024 Approved  Secrets to Crafting Winning FreeFire Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-guide-to-windows-11-photo-customization-audio-plus-visuals/"><u>In 2024, The Ultimate Guide to Windows 11 Photo Customization  Audio + Visuals</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevate-your-content-with-expertly-crafted-360-videos-for-fb-for-2024/"><u>[Updated] Elevate Your Content with Expertly Crafted 360 Videos for FB for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-precision-in-portability-the-ultimate-list-of-35-free-android-video-compressors/"><u>[Updated] Precision in Portability  The Ultimate List of 35 Free Android Video Compressors</u></a></li>
+</ul></div>

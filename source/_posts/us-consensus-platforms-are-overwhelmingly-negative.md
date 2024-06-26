@@ -1,7 +1,7 @@
 ---
 title: "U.S. Consensus: Platforms Are Overwhelmingly Negative"
-date: 2024-06-20 11:22:51
-updated: 2024-06-23 11:27:20
+date: 2024-06-25T14:07:51.327Z
+updated: 2024-06-26T14:07:51.327Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/ef64597bda93820e24d8ab2d0a8cbf446e80301b9
 
 ## US Adults Use Social Media Despite Believing It Divides People
 
- A nationwide poll conducted by[NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
+ A nationwide poll conducted by [NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
 
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
@@ -53,11 +53,11 @@ thumbnail: https://thmb.techidaily.com/ef64597bda93820e24d8ab2d0a8cbf446e80301b9
 
 ## Help Make Social Media Great Again
 
- Spending time on social media fulfills the need for interaction for a lot of people, but users should work together to lessen[its many negative effects](https://www.makeuseof.com/tag/negative-effects-social-media/) .
+ Spending time on social media fulfills the need for interaction for a lot of people, but users should work together to lessen [its many negative effects](https://www.makeuseof.com/tag/negative-effects-social-media/) .
 
  If we're all going to be on it because having big social gatherings is still widely discouraged (or prohibited, in some areas), then we should do our part to make it a space that fosters unity and encouragement instead of friction and judgement.
 
- You can view the documentation for the NBC News poll on [DocumentCloud](https://www.documentcloud.org/documents/20701409-210098-nbc-news-april-poll) . Most of[the results](https://www.nbcnews.com/politics/meet-the-press/poll-100-days-biden-s-approval-remains-strong-can-honeymoon-n1265199) were released in late April, as respondents were asked for their opinion on the performance of US president Joe Biden.
+ You can view the documentation for the NBC News poll on [DocumentCloud](https://www.documentcloud.org/documents/20701409-210098-nbc-news-april-poll) . Most of [the results](https://www.nbcnews.com/politics/meet-the-press/poll-100-days-biden-s-approval-remains-strong-can-honeymoon-n1265199) were released in late April, as respondents were asked for their opinion on the performance of US president Joe Biden.
 
 
 <ins class="adsbygoogle"
@@ -74,3 +74,24 @@ thumbnail: https://thmb.techidaily.com/ef64597bda93820e24d8ab2d0a8cbf446e80301b9
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-workings-of-photodna-system/"><u>Breaking Down the Workings of PhotoDNA System</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-tracking-access-to-multiple-user-ids-in-facebook/"><u>Fast-Tracking Access to Multiple User IDs in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-instagrams-conversational-space-is-disbanding/"><u>Why Instagram's Conversational Space Is Disbanding</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-gesture-communication-benefits/"><u>Deciphering Facebook’s Gesture Communication Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-disguise-in-online-consent-forms/"><u>The Art of Disguise in Online Consent Forms</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-silence-an-effective-method-to-stop-comments-on-fb/"><u>Eternal Silence: An Effective Method to Stop Comments on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersing-in-the-digital-future-facebooks-metaverse-concerns/"><u>Immersing in the Digital Future: Facebook’s Metaverse Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-decline-social-networking-amid-abuse-outcry/"><u>Premier League Stars Decline Social Networking Amid Abuse Outcry</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-prime-net-selections-personalized-alarm-rhythm-files/"><u>In 2024, Prime Net Selections  Personalized Alarm Rhythm Files</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-5-leading-chrome-modifiers-seamless-vimeo-downloads/"><u>In 2024, 5 Leading Chrome Modifiers  Seamless Vimeo Downloads</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-slomos-full-potential-a-compre-written-context/"><u>2024 Approved  Exploring SloMo's Full Potential  A Compre Written Context</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-precision-convert-guide-unbeatable-on-line-ytvideos-translation/"><u>[New] Precision Convert Guide  Unbeatable On-Line YTVideos Translation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-3-ways-to-live-stream-on-youtube-without-1000-subscribers/"><u>[Updated] 3 Ways to Live Stream on YouTube without 1000 Subscribers</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazons-all-star-series-most-retweeted-and-watched-originals/"><u>[Updated] Amazon's All-Star Series  Most Retweeted & Watched Originals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-sliding-to-victory-celebrating-the-best-in-snowboard-cross-winter-games-22/"><u>[New] Sliding to Victory  Celebrating the Best in Snowboard Cross, Winter Games '22</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-time-bending-tips-iphone-video-reversal-hacks/"><u>In 2024, Time-Bending Tips  IPhone Video Reversal Hacks</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-pc-video-trimming-the-top-10-tools-you-need/"><u>New PC Video Trimming The Top 10 Tools You Need</u></a></li>
+</ul></div>

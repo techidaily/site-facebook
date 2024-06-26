@@ -1,7 +1,7 @@
 ---
 title: "Navigating Facebook Post-Death: Memories and Termination"
-date: 2024-06-20 23:42:59
-updated: 2024-06-23 10:32:56
+date: 2024-06-25T14:20:44.930Z
+updated: 2024-06-26T14:20:44.930Z
 tags:
   - facebook
 categories:
@@ -27,22 +27,20 @@ thumbnail: https://thmb.techidaily.com/33277df87367d0cdbce49fd32569ab0c6e35402a2
 
 To get a Facebook account memorialized, follow these steps:
 
-1. Open the[Facebook Account Memorialization Form](https://www.facebook.com/help/contact/234739086860192) from your mobile or desktop. You need to be logged in to Facebook to access it.  
+1. Open the [Facebook Account Memorialization Form](https://www.facebook.com/help/contact/234739086860192) from your mobile or desktop. You need to be logged in to Facebook to access it.  
 ![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
 2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
 3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
 ![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
-4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also[convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
+4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also [convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
 5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
 6. Tap**Send** .
 
  Once the account is memorialized, Facebook notifies its legacy contact or the loved one who requested the report. The process takes some time, so you must remain patient.
 
- If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
+ If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use [valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
-## How to Get a Facebook Account Removed After the Person Dies
-
-![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
+## How to Get a Facebook Account Removed After the Person Dies ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -52,7 +50,7 @@ To get a Facebook account memorialized, follow these steps:
 
  Here are the steps on how to get your deceased loved one’s account removed from Facebook:
 
-1. Open the[Special Request For Medically Incapacitated or Deceased Person's Account Form](https://www.facebook.com/help/contact/228813257197480) .  
+1. Open the [Special Request For Medically Incapacitated or Deceased Person's Account Form](https://www.facebook.com/help/contact/228813257197480) .  
 ![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
 2. In the**Full Name** section, enter your official credentials.
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -62,14 +60,14 @@ To get a Facebook account memorialized, follow these steps:
 1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
 ![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
-3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
+3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the [acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
 4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
 5. Under**When Did They Pass Away** , select the date of death.
 6. Press**Send** .
 
  Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
 
- If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
+ If your account is to be deleted, the legacy contact will be able to [download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
@@ -94,3 +92,26 @@ To get a Facebook account memorialized, follow these steps:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorators-dream-designing-collage-content-on-social-platforms/"><u>Digital Decorators' Dream: Designing Collage Content on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-do-a-privacy-check-for-your-teens-facebook-account/"><u>How to Do a Privacy Check for Your Teen's Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-neutrality-right-to-suspend-trump-but-for-how-long/"><u>Networking Neutrality: Right to Suspend Trump, But for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-favorites-hiding-facebook-affection/"><u>Unseen Favorites: Hiding Facebook Affection</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-receiving-random-friends-suggestions/"><u>Stop Receiving Random Friends Suggestions</u></a></li>
+<li><a href="https://facebook.techidaily.com/collective-charisma-cultivating-a-thriving-online-band/"><u>Collective Charisma: Cultivating a Thriving Online Band</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-direct-mp4-uploader-for-facebook-services/"><u>2024 Approved  Direct MP4 Uploader for Facebook Services</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-your-first-steps-in-podcast-editing-a-comprehensive-beginners-guide/"><u>2024 Approved Your First Steps in Podcast Editing A Comprehensive Beginners Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Lava Blaze 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-apple-iphone-8-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your Apple iPhone 8 When You Forget the Passcode?</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-xiaomi-redmi-k70-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Xiaomi Redmi K70 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/how-to-upload-a-video-from-imovie-to-youtube-in-2024/"><u>How to Upload a Video From iMovie to YouTube, In 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/ideal-video-intros-selecting-from-top-15-youtube-sets/"><u>Ideal Video Intros  Selecting From Top 15 YouTube Sets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exclusive-list-11-pioneering-cost-free-online-title-makers-for-yt-for-2024/"><u>[Updated] Exclusive List  11 Pioneering, Cost-Free Online Title Makers for YT for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-streamlining-your-presentations-vimeo-video-embedding-in-powerpoint/"><u>[Updated] Streamlining Your Presentations  Vimeo Video Embedding in PowerPoint</u></a></li>
+</ul></div>

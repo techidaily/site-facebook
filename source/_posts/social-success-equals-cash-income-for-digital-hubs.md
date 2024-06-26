@@ -1,7 +1,7 @@
 ---
 title: "Social Success Equals Cash: Income for Digital Hubs"
-date: 2024-06-21 13:32:30
-updated: 2024-06-23 10:49:21
+date: 2024-06-25T14:41:25.485Z
+updated: 2024-06-26T14:41:25.485Z
 tags:
   - facebook
 categories:
@@ -19,9 +19,7 @@ thumbnail: https://thmb.techidaily.com/7deb0baa73b5dfc75fe84cd47c60ae37428dbd644
 
  Most social media networks make money through advertising to you. There are other methods, like raising finance through investment or premium membership schemes. We're going to look at all the ways that social media companies make money.
 
-## 1\. Venture Capital
-
-![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
+## 1\. Venture Capital ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
 
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
 
@@ -29,23 +27,19 @@ thumbnail: https://thmb.techidaily.com/7deb0baa73b5dfc75fe84cd47c60ae37428dbd644
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
-## 2\. Advertising
-
-![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
+## 2\. Advertising ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
  You can see it everywhere you go. Promoted posts on Reddit's front page, videos within Instagram's Stories, sponsored tweets on Twitter's timeline, and so on.
 
- Consider that Facebook alone has 2.9 billion monthly active users. Those are a lot of eyeballs ready to be exposed to the latest goods and services that companies want you to buy (here's[how to change your Facebook ad preferences](https://www.makeuseof.com/tag/how-to-change-facebook-ads/) ).
+ Consider that Facebook alone has 2.9 billion monthly active users. Those are a lot of eyeballs ready to be exposed to the latest goods and services that companies want you to buy (here's [how to change your Facebook ad preferences](https://www.makeuseof.com/tag/how-to-change-facebook-ads/) ).
 
  Social media platforms charge companies money so they can advertise on their site. The exact cost of that depends on many factors. For example, companies can pay more for their advert to be seen by more people or promoted for a longer period of time.
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
-## 3\. User Data
-
-![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+## 3\. User Data ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -57,21 +51,17 @@ thumbnail: https://thmb.techidaily.com/7deb0baa73b5dfc75fe84cd47c60ae37428dbd644
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
-## 4\. Premium Memberships
-
-![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
+## 4\. Premium Memberships ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
 
- One example is[Reddit's Premium subscription](https://www.makeuseof.com/tag/what-is-reddit-premium/) , which gives you an ad-free experience, access to an exclusive subreddit, a profile badge, and more. Reddit also sells Coins, which you can buy to give other users badges in reward for good contributions.
+ One example is [Reddit's Premium subscription](https://www.makeuseof.com/tag/what-is-reddit-premium/) , which gives you an ad-free experience, access to an exclusive subreddit, a profile badge, and more. Reddit also sells Coins, which you can buy to give other users badges in reward for good contributions.
 
  Another example is LinkedIn Premium. This gives access to LinkedIn learning courses, greater insight into who is viewing your profile, the ability to send InMail to recruiters, and more.
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
-## 5\. Transaction Fees and Virtual Products
-
-![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
+## 5\. Transaction Fees and Virtual Products ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
@@ -85,7 +75,7 @@ thumbnail: https://thmb.techidaily.com/7deb0baa73b5dfc75fe84cd47c60ae37428dbd644
 
  It's why Meta owns Facebook, WhatsApp, Instagram, and Oculus. It's also why Twitter has acquired companies like Gnip, MoPub, and Periscope. Not only do they get the technologies and user data that these companies possess, but they can also use them as an additional revenue source to fund their social media platform.
 
- Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
+ Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are [concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
 ## You Can Make Money on Social Media
 
@@ -108,3 +98,23 @@ thumbnail: https://thmb.techidaily.com/7deb0baa73b5dfc75fe84cd47c60ae37428dbd644
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-alteration-of-childs-information-in-facebook-messenger/"><u>Stepwise Alteration of Child's Information in Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-sharing-3d-facebook-photos/"><u>The Ultimate Guide to Sharing 3D Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-back-breaking-ties-on-facebook/"><u>Stepping Back: Breaking Ties on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unfolded-six-significant-shifts-in-facebooks-new-world/"><u>The Metaverse Unfolded: Six Significant Shifts in Facebook's New World</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/viral-video-legends-youtubed-for-millions-for-2024/"><u>Viral Video Legends  YouTubed for Millions for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/are-you-a-videographer-or-video-content-creator-is-enhancing-your-videography-skills-your-priority-do-you-want-to-learn-the-basics-of-lumafusion-color-gradi/"><u>Are You a Videographer or Video Content Creator? Is Enhancing Your Videography Skills Your Priority? Do You Want to Learn the Basics of LumaFusion Color Grading? Read on to Find All the Information You Need</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimal-viewing-and-audio-top-webcams-for-podcast-creators/"><u>[Updated] Optimal Viewing & Audio  Top Webcams for Podcast Creators</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-infallible-technique-for-embedding-profile-urls-in-tiktok/"><u>2024 Approved  The Infallible Technique for Embedding Profile URLs in TikTok</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtubes-potential-with-targeted-keywords/"><u>[New] Unlocking YouTube's Potential with Targeted Keywords</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-use-luts-in-premiere-pro/"><u>[New] How To Use LUTs In Premiere Pro</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-14-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 14 Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/win11s-lightning-quick-visualizer/"><u>Win11's Lightning Quick Visualizer</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+</ul></div>

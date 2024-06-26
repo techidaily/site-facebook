@@ -1,7 +1,7 @@
 ---
 title: "Digital Deterrents: Enhanced Sanctions to Halt Misinformation"
-date: 2024-06-20 12:25:35
-updated: 2024-06-23 11:35:50
+date: 2024-06-25T14:17:03.014Z
+updated: 2024-06-26T14:17:03.014Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/9778babca71d8c322c58ebdc5b0f6b1ae6df8f808
 
 ## Facebook Makes Misinformation Less Attractive
 
- Facebook is making it even harder to encounter and share misinformation on the platform. In a post on[the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
+ Facebook is making it even harder to encounter and share misinformation on the platform. In a post on [the About Facebook blog](https://about.fb.com/news/2021/05/taking-action-against-people-who-repeatedly-share-misinformation/) , Facebook announced that it's launching a new penalty for users who repeatedly share misinformation.
 
  Facebook already lessens a post's reach if it contains misinformation, but the platform wants to take this a step further. If a user has shared misinformation several times in the past, Facebook plans to "reduce the distribution of all posts in News Feed from an individual's Facebook account."
 
@@ -66,3 +66,26 @@ thumbnail: https://thmb.techidaily.com/9778babca71d8c322c58ebdc5b0f6b1ae6df8f808
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-hidden-facebook-accounts/"><u>Tactical Approaches to Hidden Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-battle-with-political-satire/"><u>Social Media's Battle with Political Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-players-with-a-unified-online-identity-for-xbox/"><u>Empowering Players with a Unified Online Identity for Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-age-of-nba-fandom-with-fb-and-twt-partnership/"><u>The New Age of NBA Fandom with FB and Twt Partnership</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-an-expert-in-facebooks-visual-communication/"><u>Becoming an Expert in Facebook’s Visual Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-a-legal-tone-setting-boundaries-on-fb-platforms/"><u>Establishing a Legal Tone: Setting Boundaries on FB Platforms</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-do-you-want-to-find-out-the-alternatives-of-windows-10-photos-this-article-will-let-you-know-8-best-windows-10-photos-alternatives-check-it-out./"><u>New In 2024, Do You Want to Find Out the Alternatives of Windows 10 Photos? This Article Will Let You Know 8 Best Windows 10 Photos Alternatives. Check It Out</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-comprehensive-guide-to-slowing-video-on-iphone/"><u>[New] In 2024, The Comprehensive Guide to Slowing Video on iPhone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/audacitys-silence-secret-eliminating-rests-of-noise/"><u>Audacity's Silence Secret  Eliminating Rests of Noise</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/skillful-tactics-for-procuring-image-archives/"><u>Skillful Tactics for Procuring Image Archives</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-optimal-visual-snatchers-for-videos/"><u>[Updated] In 2024, Optimal Visual Snatchers for Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-windows-audio-enhancement-top-ten-applications-to-transform-your-music-experience/"><u>In 2024, Windows Audio Enhancement Top Ten Applications to Transform Your Music Experience</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-livestream-titans-clash-facebook-youtube-and-twitspaces/"><u>2024 Approved  Livestream Titans Clash  FACEbook, YOUTube, and TWITSpaces</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-oppo-a56s-5g-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Oppo A56s 5G Without the Home Button | Dr.fone</u></a></li>
+</ul></div>

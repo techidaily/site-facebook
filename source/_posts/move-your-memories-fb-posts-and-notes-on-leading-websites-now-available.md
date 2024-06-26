@@ -1,7 +1,7 @@
 ---
 title: "Move Your Memories: FB Posts & Notes on Leading Websites Now Available"
-date: 2024-06-20 19:58:57
-updated: 2024-06-23 11:53:39
+date: 2024-06-25T14:12:42.111Z
+updated: 2024-06-26T14:12:42.111Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 
 ## Export Facebook Notes and Posts to Three Major Services
 
- As announced on[Facebook Newsroom](https://about.fb.com/news/2021/04/transfer-your-facebook-posts-and-notes-with-our-expanded-data-portability-tool/) , the social giant will allow users to transfer their posts and notes to three popular online services. You'll be able to export your posts and notes to Google Docs, Blogger, and WordPress.com.
+ As announced on [Facebook Newsroom](https://about.fb.com/news/2021/04/transfer-your-facebook-posts-and-notes-with-our-expanded-data-portability-tool/) , the social giant will allow users to transfer their posts and notes to three popular online services. You'll be able to export your posts and notes to Google Docs, Blogger, and WordPress.com.
 
 In Facebook's own words:
 
@@ -43,7 +43,7 @@ In Facebook's own words:
 
  If you haven't used the data transfer tool before, the following should help you out:
 
-1. Open the[Facebook](https://www.facebook.com/) site, click the down-arrow icon at the top-right corner, select**Settings & Privacy** , and then select**Settings** .
+1. Open the [Facebook](https://www.facebook.com/) site, click the down-arrow icon at the top-right corner, select**Settings & Privacy** , and then select**Settings** .
 2. Click**Your Facebook Information** on the left.
 3. Select**Transfer a Copy of Your Information** on the right.
 4. Choose either**Posts** or**Notes** to transfer.
@@ -73,3 +73,24 @@ In Facebook's own words:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-multi-language-marketing-on-fb/"><u>The Ultimate Guide to Multi-Language Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-your-digital-footprint-full-facebook-activity-archives/"><u>Preserving Your Digital Footprint: Full Facebook Activity Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-depart-with-dignity-ungrouping-on-facebook/"><u>How to Depart with Dignity: Ungrouping on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-cant-you-turn-off-facebook-content-recommendations/"><u>Why Can't You Turn Off Facebook Content Recommendations?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-artfully-crafted-online-ruses/"><u>Avoiding Artfully Crafted Online Ruses</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-data-eradication-clear-facebook-records/"><u>Mastering Data Eradication: Clear Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-comments-securing-your-social-media-content/"><u>Concealing Comments: Securing Your Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/stumble-upon-substantial-comment-sections/"><u>Stumble upon Substantial Comment Sections</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/elite-5-video-snapshot-recorders-for-2024/"><u>Elite 5 Video Snapshot Recorders for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-realme-narzo-60-pro-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Realme Narzo 60 Pro 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-explaining-instagrams-spontaneous-video-pauses/"><u>In 2024, Explaining Instagram's Spontaneous Video Pauses</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/no-expense-yes-watch-one-frame-at-a-time-on-youtube/"><u>No Expense? Yes! Watch One Frame at a Time on YouTube</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-cloud-stop-motion-toolkit-features-pricing-and-more-for-2024/"><u>New The Ultimate Cloud Stop Motion Toolkit Features, Pricing, and More for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-oppo-a59-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Oppo A59 5G?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/navigating-google-meet-profile-edit-laptopmobile-for-2024/"><u>Navigating Google Meet Profile Edit (Laptop/Mobile) for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/insightful-recap-updated-sony-bdp-s3700-features-for-2024/"><u>Insightful Recap  Updated Sony BDP-S3700 Features for 2024</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Reminisce Connections: A Dive Into Facebook's Past"
-date: 2024-06-20 16:19:24
-updated: 2024-06-23 10:14:49
+date: 2024-06-25T14:35:55.964Z
+updated: 2024-06-26T14:35:55.964Z
 tags:
   - facebook
 categories:
@@ -64,7 +64,7 @@ Close
 
 ## Can You See the Friendship Between Any Two People on Facebook?
 
- It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to[make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
+ It used to be possible to see the friendship history between any two people, but Facebook removed this feature due to privacy concerns. And we recommend tweaking certain settings to [make your Facebook more secure](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) .
 
  Today, the URL still exists (indeed, it is used in this process), but you are restricted to seeing the history between yourself and your Facebook friends. And the addition of the**See Friendship** button makes it even easier.
 
@@ -74,7 +74,7 @@ Close
 
  Facebook is no stranger to privacy risks. Almost all users now accept that Facebook is harvesting their data. Yet it doesn't seem to dampen people's appetite for logging on. So, the risk of this tool is the same as using Facebook in general.
 
- Some other[common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
+ Some other [common Facebook privacy risks](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) include insecure third-party apps, incorrectly configured privacy settings, Facebook Marketplace scams, predators, and even social media addiction itself. Only you can decide where this Facebook friendship history tool ranks in the list of threats. If you don't want someone using this tool on your Facebook profile, you should unfriend them.
 
  The friendship history tool is excellent for reminiscing about your past with someone. You can even use this to remember important dates, events, and the anniversaries of your Facebook friends. But if you don't want the tool used on your profile, it's best to stop being Facebook friends with the person in question.
 
@@ -93,3 +93,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-intruder-within-understanding-9-digital-red-flags/"><u>The Intruder Within: Understanding 9 Digital Red Flags</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-notifying-facebook-of-minors-online-presence/"><u>Guidelines for Notifying Facebook of Minors' Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/joint-endeavor-facebook-advances-rust-development/"><u>Joint Endeavor: Facebook Advances Rust Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-family-connections-with-facebook-portal-tv/"><u>Unlocking Family Connections with Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-headsets-a-new-hacked-account-reset-method/"><u>$300 Oculus Headsets, A New Hacked Account Reset Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-fb-experience-to-escape-annoying-ads/"><u>Customizing Your FB Experience to Escape Annoying Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-vs-removing-loved-ones-from-fb/"><u>Keeping Memories Alive Vs. Removing Loved Ones From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-hacking-how-often/"><u>Social Media Hacking: How Often?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-stance-on-having-duplicate-user-identities-in-one-account/"><u>Understanding Facebook's Stance on Having Duplicate User Identities in One Account</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-social-sphere-strikes-again-latest-hot-tweets/"><u>[New] In 2024, Social Sphere Strikes Again  Latest Hot Tweets</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-asus-rog-phone-7-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Asus ROG Phone 7 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-best-practices-in-fb-advertising-leading-video-trends-for-2024/"><u>[New] Best Practices in FB Advertising  Leading Video Trends for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-locked-out-of-iphone-13-mini-5-ways-to-get-into-a-locked-iphone-13-mini-drfone-by-drfone-ios/"><u>In 2024, Locked Out of iPhone 13 mini? 5 Ways to get into a Locked iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/instagram-tutorial-upload-and-share-video/"><u>Instagram Tutorial  Upload and Share Video</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/expert-strategies-for-tackling-copyright-claims-on-youtube-for-2024/"><u>Expert Strategies for Tackling Copyright Claims on YouTube for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-perfect-every-moment-top-10-free-video-editing-apps-on-a-mac/"><u>[Updated] 2024 Approved  Perfect Every Moment - Top 10 Free Video Editing Apps on a Mac</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-master-the-art-of-dialing-down-video-speed-in-snapchat/"><u>2024 Approved  Master the Art of Dialing Down Video Speed in Snapchat</u></a></li>
+</ul></div>

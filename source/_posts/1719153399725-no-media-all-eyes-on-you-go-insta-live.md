@@ -1,7 +1,7 @@
 ---
 title: "No Media, All Eyes On You: Go Insta-Live!"
-date: 2024-06-22 20:57:45
-updated: 2024-06-23 10:27:20
+date: 2024-06-25T14:34:11.678Z
+updated: 2024-06-26T14:34:11.678Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
 
  For those of you who use Instagram Live, it may please you to know that you no longer have to run video or audio feeds in order to broadcast. So, if you want, you're able to broadcast a blank screen now, or just show your video feed if you don't want environmental sounds bleeding into your stream.
 
- Instagram has yet to announce the extra features officially beyond a tweet, but[TechCrunch](https://techcrunch.com/2021/04/29/instagram-live-takes-on-clubhouse-with-options-to-mute-and-turn-off-the-video/) broke the news, explaining the features in more detail.
+ Instagram has yet to announce the extra features officially beyond a tweet, but [TechCrunch](https://techcrunch.com/2021/04/29/instagram-live-takes-on-clubhouse-with-options-to-mute-and-turn-off-the-video/) broke the news, explaining the features in more detail.
 
 ## Why Would You Disable Your Camera and Mic on Instagram Live?
 
@@ -64,3 +64,24 @@ thumbnail: https://thmb.techidaily.com/7e2e77f0d86cd559dbfa986d906ed8c2ea5221019
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/ultimate-frisbee-unions-dismiss-online-networking/"><u>Ultimate Frisbee Unions Dismiss Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-non-facebook-direct-message-platforms/"><u>Navigating Non-Facebook Direct Message Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/impact-on-safety-do-user-records-removal-influence-facebook-privacy/"><u>Impact on Safety: Do User Records Removal Influence Facebook Privacy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-which-facebook-portable-screen-suits-you-best/"><u>Assessing Which Facebook Portable Screen Suits You Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-change-in-online-communities-with-new-admin-resources-from-fb/"><u>Leading Change in Online Communities with New Admin Resources From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-engaging-with-your-fb-audience/"><u>Mastering the Art of Engaging with Your FB Audience</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-frontier-for-listeners-facebooks-audio-initiative/"><u>New Frontier for Listeners: Facebook's Audio Initiative</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-link-audio-to-facebook-profiles-iphoneandroid/"><u>[Updated] 2024 Approved  How to Link Audio to Facebook Profiles (iPhone/Android)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-nokia-xr21-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Nokia XR21 Users</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-earn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits/"><u>[New] 2024 Approved  Earn Wisely  The Simple Triad Method for Scrutinizing YouTube Profits</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/sell-more-grow-faster-discover-how-these-15-facebook-apps-can-help/"><u>Sell More, Grow Faster  Discover How These 15 Facebook Apps Can Help</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-from-flat-to-fabulous-converting-videos-to-vr-with-ease/"><u>Updated In 2024, From Flat to Fabulous Converting Videos to VR with Ease</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/optimize-your-presence-mastering-snapchat-business-use-for-2024/"><u>Optimize Your Presence  Mastering Snapchat Business Use for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-infinix-hot-40-pro-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-discovering-the-best-vocal-enhancement-tools-an-examination-and-comparison-for-2024/"><u>New Discovering the Best Vocal Enhancement Tools An Examination & Comparison for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-step-by-step-guide-to-zoom-call-recordings/"><u>[Updated] In 2024, Step-by-Step Guide to Zoom Call Recordings</u></a></li>
+</ul></div>

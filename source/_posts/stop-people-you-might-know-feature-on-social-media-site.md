@@ -1,7 +1,7 @@
 ---
 title: Stop 'People You Might Know' Feature on Social Media Site
-date: 2024-06-22 20:26:34
-updated: 2024-06-23 10:46:30
+date: 2024-06-25T14:31:58.868Z
+updated: 2024-06-26T14:31:58.868Z
 tags:
   - facebook
 categories:
@@ -54,11 +54,11 @@ Close
 
  While Facebook does not specify how long the feature stays hidden, it does take a while before it returns.
 
- Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to[take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
+ Some users also get friend suggestions via text and email, which could be frustrating. If you are one of these users, you can take back control of your app notifications without needing to [take a break from Facebook](https://www.makeuseof.com/how-to-take-break-facebook/) .
 
 ## How to Turn off Facebook's "People You May Know" Alerts
 
- Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to[block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
+ Facebook allows you to opt out of getting friend-suggestion texts and emails on its mobile app and website. The good thing is, you can do this without having to [block all notifications from Facebook](https://www.makeuseof.com/how-to-block-all-facebook-notifications/) .
 
  Follow these steps to turn off friend suggestion alerts on Facebook using your smartphone:
 
@@ -108,3 +108,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/streamlining-your-online-presence-by-adjusting-facebooks-birthdate/"><u>Streamlining Your Online Presence by Adjusting Facebook's Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-relationships-best-networking-sites-for-business/"><u>Revolutionizing Relationships: Best Networking Sites for Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-unmask-these-14-typical-facebook-tricks-immediately/"><u>Beware! Unmask These 14 Typical Facebook Tricks Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-capitalize-on-your-tracks-through-facebooks-shared-earnings/"><u>How to Capitalize on Your Tracks Through Facebook's Shared Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-smart-language-for-social-networking-success/"><u>The Ultimate Guide to SMART Language for Social Networking Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-hacking-how-often/"><u>Social Media Hacking: How Often?</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-direct-access-in-facebook-application/"><u>Blocking Direct Access in Facebook Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-job-announcements/"><u>Best Practices for FB Job Announcements</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-oneplus-nord-n30-se-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on OnePlus Nord N30 SE Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/add-and-edit-a-song-to-video-for-free/"><u>Add & Edit A Song To Video For Free</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-saying-goodbye-a-guide-for-ending-your-discord-membership/"><u>[New] In 2024, Saying Goodbye  A Guide for Ending Your Discord Membership</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-vivo-y27-4g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Vivo Y27 4G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-finding-the-best-synthetic-textures-to-replicate-a-paintbrushs-swipe/"><u>In 2024, Finding the Best Synthetic Textures to Replicate a Paintbrushs Swipe</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-culinary-callings-innovative-naming-for-foodie-channels/"><u>2024 Approved  Culinary Callings  Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-what-to-do-if-the-facebook-message-shows-its-you-in-this-video/"><u>In 2024, What To Do If the Facebook Message Shows It’s You in This Video?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-what-should-consider-when-converting-mp3-into-mp4/"><u>Updated In 2024, What Should Consider when Converting MP3 Into MP4</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-privacy-stopping-followers-on-ig/"><u>Mastering Privacy  Stopping Followers on IG</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-12-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 12 Pro After Forgetting my PIN Code?</u></a></li>
+</ul></div>

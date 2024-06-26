@@ -1,7 +1,7 @@
 ---
 title: The Top Twelve Spreading Misinformation About COVID
-date: 2024-06-20 17:12:48
-updated: 2024-06-23 11:57:44
+date: 2024-06-25T13:59:21.194Z
+updated: 2024-06-26T13:59:21.194Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,7 @@ But what if, in reality, there are only 12 prime suspects?
 
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
- According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
+ According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The [Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
 
 > The Disinformation Dozen are twelve anti-vaxxers who play leading roles in spreading digital misinformation about COVID vaccines. They were selected because they have large numbers of followers, produce high volumes of anti-vaccine content or have seen rapid growth of their social media accounts in the last two months.
 
@@ -67,3 +67,27 @@ But what if, in reality, there are only 12 prime suspects?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/delay-in-announcing-new-privacy-policies-by-whatsapp/"><u>Delay in Announcing New Privacy Policies by WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unearth-facebook-accounts-youve-locked-out/"><u>How to Unearth Facebook Accounts You've Locked Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-not-clicks-leave-facebook/"><u>Cultivate Connections, Not Clicks: Leave Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dissent-whatsapp-questions-legality-of-new-privacy-laws/"><u>Digital Dissent: WhatsApp Questions Legality of New Privacy Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-different-look-at-online-connectivity-metrics/"><u>A Different Look at Online Connectivity Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-platforms-instagrams-new-whatsapp-2fa-strategy/"><u>Bridging Platforms: Instagram's New WhatsApp 2FA Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-players-beware-examining-new-us-antitrust-rules/"><u>Big Players Beware: Examining New U.S. Antitrust Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-workflow-with-facebooks-8-core-features/"><u>Revolutionize Your Workflow with Facebook's 8 Core Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-cyberspace-for-socializing/"><u>Secure Cyberspace for Socializing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-frame-your-vision-leading-lines-for-dynamic-iphone-photos/"><u>2024 Approved  Frame Your Vision  Leading Lines for Dynamic iPhone Photos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/revolutionize-your-speaking-style-in-snapchat-with-two-easy-methods-for-2024/"><u>Revolutionize Your Speaking Style in Snapchat with Two Easy Methods for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-video-potential-with-expert-chroma-techniques/"><u>2024 Approved  Unlock Video Potential with Expert Chroma Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-best-budget-friendly-android-chat-services/"><u>[Updated] In 2024, Best Budget-Friendly Android Chat Services</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-secrets-to-joining-friends-tiktok-live-events/"><u>In 2024, Secrets to Joining Friends' TikTok Live Events</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-supercharge-your-social-media-scrapping-the-best-5-chrome-plugins/"><u>In 2024, Supercharge Your Social Media Scrapping  The Best 5 Chrome Plugins</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-future-of-advertising-on-youtube-shorts/"><u>In 2024, The Future of Advertising on YouTube Shorts</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-financial-breakdown-of-youtube-shorts-royalties/"><u>In 2024, The Financial Breakdown of YouTube Shorts Royalties</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-eliminate-your-instagram-existence-a-comprehensive-walkthrough/"><u>[Updated] How to Eliminate Your Instagram Existence  A Comprehensive Walkthrough</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-elevating-your-podcast-game-mastering-video-and-audio-techniques-on-zoom/"><u>[Updated] In 2024, Elevating Your Podcast Game  Mastering Video and Audio Techniques on Zoom</u></a></li>
+</ul></div>

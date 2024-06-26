@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Modifying Your Facebook Handle
-date: 2024-06-22 21:14:40
-updated: 2024-06-23 11:15:10
+date: 2024-06-25T14:06:39.395Z
+updated: 2024-06-26T14:06:39.395Z
 tags:
   - facebook
 categories:
@@ -39,9 +39,7 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App
-
-![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 
@@ -94,11 +92,11 @@ Close
 * You can't use characters from multiple languages. (But you can enter your name in a non-Latin alphabet if you choose to.)
 * You can't include your title.
 * Don't use words or phrases in place of a name, including offensive or suggestive words.
-* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on[Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
+* Facebook also suggests that you use the name your friends call you in everyday life. Its guidelines specify that the name should appear on an ID or document listed on [Facebook's Help Centre article](http://www.facebook.com/help/159096464162185?helpref=faq%5Fcontent) . The list is flexible enough that some of the documents could potentially include a nickname you use, rather than just your name as it appears on your official ID.
 * On the topic of nicknames, Facebook actually specifies that they can be used as a first or middle name if they're a variation of your real name (i.e. Bob instead of Robert).
 * You can only change your name once Facebook every 60 days.
 
- If you choose a name that[requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
+ If you choose a name that [requires confirmation](https://fb.facebook.com/help/work/1090831264320592) , Facebook says you may temporarily lose access to some features while the change is confirmed.
 
  The confirmation also requires you to submit a form of ID or mail displaying that name. This could be a government-issued ID like a passport, birth certificate, and tax identification card.
 
@@ -125,3 +123,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-do-a-privacy-check-for-your-teens-facebook-account/"><u>How to Do a Privacy Check for Your Teen's Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-making-your-mark-with-facebook-events/"><u>How-To: Making Your Mark with Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-media-integration-a-step-by-step-guide/"><u>Streamlining Social Media Integration: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-data-breaches-how-common/"><u>Social Network Data Breaches: How Common?</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-describing-photos-on-popular-networks/"><u>Strategies for Describing Photos on Popular Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-reasoning-behind-feeding-on-facebook/"><u>Exploring the Reasoning Behind 'Feeding' On Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secret-data-the-new-headline-maker/"><u>Facebook's Secret Data: The New Headline-Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-engagement-make-your-fb-circle-the-talk-of-town/"><u>Ignite Engagement: Make Your FB Circle the Talk of Town</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebookinstagram-to-witness-growth-in-crypto-promos/"><u>Facebook/Instagram to Witness Growth in Crypto Promos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-capture-every-word-in-meetings-the-top-10-free-recorders-for-slack/"><u>[Updated] Capture Every Word in Meetings - The Top 10 Free Recorders for Slack</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-poco-x6-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Poco X6 Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-poco-c65-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/best-15-sci-fi-and-educational-youtube-hubs/"><u>Best 15 Sci-Fi & Educational YouTube Hubs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-lut-heaven-the-10-finest-and-accessible-resources/"><u>[New] Free LUT Heaven  The 10 Finest and Accessible Resources</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-the-power-of-words-in-transforming-realities-to-documentaries-for-2024/"><u>[Updated] The Power of Words in Transforming Realities to Documentaries for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Vivo V27 Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-downgrade-iphone-12-pro-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 12 Pro without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-iphone-7-plus-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock iPhone 7 Plus Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-amazons-viral-discoveries-your-essential-list-from-tiktok/"><u>In 2024, Amazon's Viral Discoveries - Your Essential List From TikTok</u></a></li>
+</ul></div>

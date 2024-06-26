@@ -1,7 +1,7 @@
 ---
 title: Facebook Faces Data Collection Hurdles with iOS 14.5
-date: 2024-06-20 11:12:10
-updated: 2024-06-23 12:50:19
+date: 2024-06-25T14:45:48.328Z
+updated: 2024-06-26T14:45:48.328Z
 tags:
   - facebook
 categories:
@@ -59,9 +59,9 @@ thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
- Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
+ Before ATT was implemented, a survey from the [Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
- It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
+ It now appears that this number was highly optimistic as [data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
 ## What Does This All Mean for Facebook?
 
@@ -102,3 +102,26 @@ thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-amend-your-birthday-details-on-facebook/"><u>How to Amend Your Birthday Details on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-group-discussions-via-channels-feature/"><u>Revolutionizing Group Discussions via Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-esteemed-facebook-presence-a-guide/"><u>Crafting an Esteemed Facebook Presence: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-the-messages-fb-icon-semantics/"><u>Untangling the Messages: FB Icon Semantics</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-pics-and-popularity-the-image-based-connection/"><u>Profile Pics & Popularity: The Image-Based Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/functionality-seamless-in-whatsapp-post-privacy-policy-rejection/"><u>Functionality Seamless in WhatsApp Post-Privacy Policy Rejection</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-the-tide-facebook-spends-5-million-to-diversify-from-substacks-authorship-model/"><u>Facing the Tide: Facebook Spends $5 Million to Diversify From Substack's Authorship Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profile-becoming-a-safe-indicator-on-fb/"><u>Securing Profile: Becoming a Safe Indicator on FB</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-expert-picks-the-10-most-affordable-video-conferencing-for-ios-and-android-for-2024/"><u>[New] Expert Picks  The 10 Most Affordable Video Conferencing for iOS & Android for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-edit-a-comprehensive-look-at-title-and-description-for-igtv-for-2024/"><u>Mastering the Edit  A Comprehensive Look at Title & Description for IGTV for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-explore-the-world-writes-itself-the-top-20-youtube-playlists-for-enthusiasts/"><u>2024 Approved  Explore the World' Writes Itself  The Top 20 YouTube Playlists for Enthusiasts</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-transform-your-tiktok-experience-simple-ways-to-reduce-video-noise-levels/"><u>New 2024 Approved Transform Your TikTok Experience Simple Ways to Reduce Video Noise Levels</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oneplus-ace-2withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on OnePlus Ace 2with/without a PC</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-se-2020-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone SE (2020)? Learn All 4 Methods</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-in-2024-the-ultimate-guide-to-controlling-video-speed-in-quicktime-player/"><u>Updated In 2024, The Ultimate Guide to Controlling Video Speed in QuickTime Player</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-xiaomi-redmi-k70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Xiaomi Redmi K70 | Dr.fone</u></a></li>
+</ul></div>

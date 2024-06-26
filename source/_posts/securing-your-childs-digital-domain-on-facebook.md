@@ -1,7 +1,7 @@
 ---
 title: Securing Your Child's Digital Domain on Facebook
-date: 2024-06-22 15:10:46
-updated: 2024-06-23 11:45:58
+date: 2024-06-25T13:45:45.512Z
+updated: 2024-06-26T13:45:45.512Z
 tags:
   - facebook
 categories:
@@ -23,25 +23,23 @@ thumbnail: https://thmb.techidaily.com/7055739b2ba9c96c4320b4adbabab9131b89b7fc1
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
 
- Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
+ Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about [what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-## How to Do a Privacy Check of Your Teen's Facebook Account
-
-![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+## How to Do a Privacy Check of Your Teen's Facebook Account ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 Close
 
- When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
+ When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to [ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
 
 ## Privacy Setting Basics
 
- There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
+ There are some [privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many [Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
 
  When you click on your teen's**Privacy** , you'll be given some**Privacy Shortcuts** to look over. In this section, you'll be able to review important things such as: if your teen's birthday is correct.
 
@@ -65,9 +63,7 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
-## Check Ad Settings
-
-![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+## Check Ad Settings ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -100,3 +96,22 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-revises-privacy-terms-what-you-should-know/"><u>Meta Revises Privacy Terms: What You Should Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/artistic-assets-transforming-video-content-into-money-through-metric-mastery/"><u>Artistic Assets: Transforming Video Content Into Money Through Metric Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-explainer-leveraging-facebooks-transparency-toolkit/"><u>The Ultimate Explainer: Leveraging Facebook’s Transparency Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-networks-for-workplace-success/"><u>Mastering Online Networks for Workplace Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-our-favorite-online-spaces/"><u>Explore Our Favorite Online Spaces</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leveraging-keywords-for-peak-marketing-results/"><u>Leveraging Keywords for Peak Marketing Results</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-nubia-z50s-pro-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Nubia Z50S Pro Phone</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-oppo-reno-11-pro-5g-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Oppo Reno 11 Pro 5G.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-comprehensive-guide-to-nikon-d7500-performance/"><u>2024 Approved  Comprehensive Guide to Nikon D7500 Performance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/obs-walkthrough-turn-your-screen-into-a-youtube-live-showcase-for-2024/"><u>OBS Walkthrough  Turn Your Screen Into a Youtube Live Showcase for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-tiktok-to-facebook-social-media-linking-guide/"><u>[Updated] TikTok-to-Facebook Social Media Linking Guide</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-transfer-videos-to-dvd-a-comprehensive-guide-for-windows-and-mac-users/"><u>In 2024, Transfer Videos to DVD A Comprehensive Guide for Windows and Mac Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-excellent-10-drone-fleet-for-professional-photos-and-films/"><u>[New] Excellent 10-Drone Fleet for Professional Photos & Films</u></a></li>
+</ul></div>

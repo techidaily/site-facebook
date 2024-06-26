@@ -1,7 +1,7 @@
 ---
 title: Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms
-date: 2024-06-22 23:10:55
-updated: 2024-06-23 11:57:45
+date: 2024-06-25T13:57:06.541Z
+updated: 2024-06-26T13:57:06.541Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/d0b73eb28e24a2f2ed6215d7e2c211efc75eaeb77
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,26 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-networking-platforms-adapt-to-sponsored-feature-trends/"><u>Social Networking Platforms Adapt to Sponsored Feature Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/beware-the-web-discerning-social-media-pitfalls/"><u>Beware the Web: Discerning Social Media Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-transparency-center-to-understand-the-social-network-better/"><u>How to Use Facebook's Transparency Center to Understand the Social Network Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-managing-fb-photo-settings/"><u>Maximizing Privacy: Managing FB Photo Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-through-unwanted-personalized-promos-in-social-networks/"><u>Navigate Through Unwanted Personalized Promos in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-success-stories-elevating-your-fanbase-with-fb-mastery/"><u>Social Media Success Stories: Elevating Your Fanbase with FB Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-eradicating-fb-pop-up-notifications/"><u>Guide to Eradicating Fb Pop-Up Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-cyberspace-for-socializing/"><u>Secure Cyberspace for Socializing</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/the-ultimate-guide-to-splice-video-editing-capabilities-and-more-for-2024/"><u>The Ultimate Guide to Splice Video Editing Capabilities and More for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[Updated] 2024 Approved  Navigating TikTok Lives as a Virtual Attendee</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-assessing-sns-hdr-pro-habits-and-alternative-options/"><u>[New] Assessing SNS HDR Pro’ Habits & Alternative Options</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On iPhone 12 Pro Max</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-demystifying-payment-systems-in-shortform-creator-ecosystem/"><u>2024 Approved  Demystifying Payment Systems in Shortform Creator Ecosystem</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6s-plus-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 6s Plus Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713960784736-updated-top-8-memoji-makers-to-make-a-memoji-on-pc-android-and-iphone-for-2024/"><u>Updated Top 8 Memoji Makers to Make a Memoji on PC, Android, and iPhone for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/game-development-behind-the-scenes-for-2024/"><u>Game Development Behind-the-Scenes for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-the-ultimate-guide-to-mastering-sound-inversion-top-audio-reversers/"><u>New In 2024, The Ultimate Guide to Mastering Sound Inversion Top Audio Reversers</u></a></li>
+</ul></div>

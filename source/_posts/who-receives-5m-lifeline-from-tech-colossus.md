@@ -1,7 +1,7 @@
 ---
 title: WHO Receives $5M Lifeline From Tech Colossus
-date: 2024-06-22 21:45:41
-updated: 2024-06-23 10:28:25
+date: 2024-06-25T14:49:08.788Z
+updated: 2024-06-26T14:49:08.788Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/3940086541c823408b7e3893cd4adcfe04714cf8a
 
 ## Facebook to Donate $20 to Every Go Give One Facebook Fundraiser
 
- A post on[the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
+ A post on [the About Facebook blog](https://about.fb.com/news/2021/04/supporting-equitable-access-to-covid-19-vaccines/) revealed Facebook's planned contribution to the Go Give One fundraiser, which "calls on everyone to play their part in helping to vaccinate the world."
 
  The money raised in the fundraiser will go directly to COVAX (COVID-19 Vaccines Global Access), a WHO-backed international fund that hopes to provide COVID vaccines to poorer countries.
 
@@ -66,3 +66,27 @@ Image Credit: Facebook
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/instagram-chats-end-in-december-what-to-expect/"><u>Instagram Chats End in December: What to Expect</u></a></li>
+<li><a href="https://facebook.techidaily.com/joining-the-expats-on-fb-here-are-your-guiding-insights/"><u>Joining the Expats on FB? Here Are Your Guiding Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-audience-for-effective-social-media-marketing/"><u>Understanding Your Audience for Effective Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-banishing-your-faux-pas-fb-business-page/"><u>Step-by-Step Guide to Banishing Your Faux Pas - FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-wake-up-call-unauthorized-digital-access/"><u>Security Wake-Up Call: Unauthorized Digital Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventive-practices-at-play-how-meta-halt-intimate-photo-sharing/"><u>Preventive Practices at Play: How Meta Halt Intimate Photo Sharing</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Does find my friends work on Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-narzo-60-pro-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme Narzo 60 Pro 5G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-holistic-photo-tale-architect-platform/"><u>In 2024, Holistic Photo Tale Architect Platform</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-switch-between-normal-and-picture-in-picture-views-in-youtube/"><u>How to Switch Between Normal and Picture In Picture Views in Youtube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/resolve-your-apple-iphone-14-plus-keeps-asking-for-outlook-password-by-drfone-ios/"><u>Resolve Your Apple iPhone 14 Plus Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubers-choice-the-10-best-online-content-cutters/"><u>In 2024, YouTubers' Choice  The 10 Best Online Content Cutters</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-leverage-these-10-devices-for-crystal-clear-zooms/"><u>[Updated] In 2024, Leverage These 10 Devices for Crystal Clear Zooms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unleashing-content-effortless-download-of-youtube-video-for-ios/"><u>[New] Unleashing Content  Effortless Download of Youtube Video for iOS</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-free-ad-avoidance-screen-recording-apps-ranked/"><u>[Updated] 2024 Approved  Free, Ad-Avoidance Screen Recording Apps Ranked</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>[Updated] Master the Art of Editing on Zero Budget  Discover These Apps</u></a></li>
+</ul></div>

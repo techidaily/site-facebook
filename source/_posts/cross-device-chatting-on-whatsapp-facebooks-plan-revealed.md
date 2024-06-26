@@ -1,7 +1,7 @@
 ---
 title: "Cross-Device Chatting on WhatsApp: Facebook's Plan Revealed"
-date: 2024-06-20 21:54:47
-updated: 2024-06-23 10:24:57
+date: 2024-06-25T13:47:53.415Z
+updated: 2024-06-26T13:47:53.415Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,7 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 
 ## WhatsApp and Facebook CEOs Confirm New Messaging Features Are in the Works
 
- This information comes from the highest authority, Facebook CEO Mark Zuckerberg and WhatsApp CEO Will Cathcart themselves. In an unexpected group chat with[WABetaInfo](https://wabetainfo.com/will-cathcart-and-mark-zuckerberg-confirm-to-wabetainfo-3-features-to-come-on-whatsapp/) , the executives have apparently confirmed that multi-device capability will soon launch in beta capacity for fans of the popular messaging service.
+ This information comes from the highest authority, Facebook CEO Mark Zuckerberg and WhatsApp CEO Will Cathcart themselves. In an unexpected group chat with [WABetaInfo](https://wabetainfo.com/will-cathcart-and-mark-zuckerberg-confirm-to-wabetainfo-3-features-to-come-on-whatsapp/) , the executives have apparently confirmed that multi-device capability will soon launch in beta capacity for fans of the popular messaging service.
 
 One of the messages from Zuckerberg reads as follows:
 
@@ -65,3 +65,22 @@ One of the messages from Zuckerberg reads as follows:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebook-rated-poorly-a-decade-of-pal-activist-campaigns/"><u>Facebook Rated Poorly: A Decade of Pal-Activist Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-genesis-day-on-facebook-for-myself/"><u>Unraveling: The Genesis Day on Facebook for Myself</u></a></li>
+<li><a href="https://facebook.techidaily.com/steady-as-she-goes-unveiling-the-world-of-crypto-stability-coins/"><u>Steady as She Goes: Unveiling the World of Crypto Stability Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-facebook-memories-selective-sharing/"><u>Personalizing Facebook Memories: Selective Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-woes-facebook-and-friends-unavailable-today/"><u>Web Woes: Facebook & Friends Unavailable Today</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ideal-tech-companion-apps-for-macos-recording-for-2024/"><u>[Updated] Ideal Tech Companion Apps for MacOS Recording for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-design-and-construct-your-dream-mc-house/"><u>In 2024, Design and Construct Your Dream MC House</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-note-30-vip-racing-edition-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Infinix Note 30 VIP Racing Edition Phone without Any Data Loss</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-voice-alteration-devices-explained-features-insights-and-alternatives/"><u>Updated 2024 Approved Voice Alteration Devices Explained Features, Insights, and Alternatives</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/techniques-for-extracting-and-storing-instagram-video-files-pcmac-systems/"><u>Techniques for Extracting and Storing Instagram Video Files (PC/Mac Systems)</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-best-minitool-movie-maker-alternatives-a-review-of-top-video-editing-software/"><u>New Best Minitool Movie Maker Alternatives A Review of Top Video Editing Software</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-storytelling-with-epic-videos/"><u>2024 Approved  Instagram Storytelling with Epic Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-educational-excellence-through-effective-lecture-audio-documentation-mac/"><u>[Updated] 2024 Approved  Educational Excellence Through Effective Lecture Audio Documentation (Mac)</u></a></li>
+</ul></div>

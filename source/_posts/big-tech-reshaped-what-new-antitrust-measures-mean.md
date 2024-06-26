@@ -1,7 +1,7 @@
 ---
 title: "Big Tech Reshaped: What New Antitrust Measures Mean"
-date: 2024-06-22 13:38:29
-updated: 2024-06-23 12:10:46
+date: 2024-06-25T13:43:26.199Z
+updated: 2024-06-26T13:43:26.199Z
 tags:
   - facebook
 categories:
@@ -25,17 +25,15 @@ thumbnail: https://thmb.techidaily.com/5d40c0bfb2b671dade97ca433b00bb587bba5a397
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
 
- According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
+ According to [Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
 ## What Are the Five Antitrust Bills?
 
- More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
+ More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act
-
-![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -81,9 +79,7 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021
-
-![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -118,3 +114,22 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/why-your-life-is-better-with-these-9-social-media-uses/"><u>Why Your Life Is Better with These 9 Social Media Uses</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendships-ebb-and-flow-unfollowing-a-user/"><u>Friendship's Ebb and Flow: Unfollowing a User</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-real-life-experiences-matter-more-than-virtual-friends-on-facebook/"><u>Why Real-Life Experiences Matter More Than Virtual Friends on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-solutions-10-lightweight-android-tools/"><u>Speedy Solutions: 10 Lightweight Android Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/unauthorized-peek-into-fbs-hidden-realm/"><u>Unauthorized Peek Into Fb's Hidden Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-did-sheryl-do-that-changed-facebook/"><u>What Did Sheryl Do That Changed Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-end-of-your-facebook-era-key-steps/"><u>Navigating the End of Your Facebook Era: Key Steps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/instagram-artists-and-intellectual-property-rights/"><u>Instagram Artists & Intellectual Property Rights</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/itop-screen-recorder-essential-or-excessive/"><u>ITop Screen Recorder - Essential or Excessive?</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-a-step-further-with-your-tiktok-profile-top-30-innovative-pfps/"><u>In 2024, A Step Further with Your TikTok Profile  Top 30 Innovative PFPs</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unleash-zooms-full-potential-with-essential-3-methods/"><u>In 2024, Unleash Zoom's Full Potential with Essential 3 Methods</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-cross-cuisine-delights-tasty-treats-from-around-the-globe/"><u>[Updated] Cross-Cuisine Delights  Tasty Treats From Around The Globe</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-master-sound-capture-on-your-macos-device-via-audacity/"><u>[New] Master Sound Capture on Your MacOS Device via Audacity</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-enhancing-visual-storytelling-with-impeccable-voice-over/"><u>[Updated] In 2024, Enhancing Visual Storytelling with Impeccable Voice Over</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-moziscreen-recording-solutions/"><u>In 2024, MoziScreen Recording Solutions</u></a></li>
+</ul></div>

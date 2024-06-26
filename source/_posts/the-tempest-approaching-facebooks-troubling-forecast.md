@@ -1,7 +1,7 @@
 ---
 title: "The Tempest Approaching: Facebook's Troubling Forecast"
-date: 2024-06-21 22:50:36
-updated: 2024-06-23 11:26:49
+date: 2024-06-25T14:14:46.088Z
+updated: 2024-06-26T14:14:46.088Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/8787ab7f7fcdda2f4df516fbd446b3033c8b29f54
 
  Following the release of the Wall Street Journal's report, whistleblower and former Facebook employee Frances Haugen appeared in a CBS News' 60 Minutes interview, where she made damning accusations against Facebook to back up the report.
 
- And the storm isn't over yet. According to[Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
+ And the storm isn't over yet. According to [Axios](https://www.axios.com/clegg-facebook-exec-bad-headlines-whistleblower-documents-9acbf8c8-94c1-4ce6-97f0-0cf03b1bc7c0.html) , Clegg told employees, “We need to steel ourselves for more bad headlines in the coming days, I’m afraid.”
 
  That's because Facebook had caught wind of an upcoming, coordinated release of the leaked documents from Haugen by a consortium of reporters. In the memo, Clegg encouraged employees to, “listen and learn from criticism when it is fair, and push back strongly when it is not.”
 
@@ -78,3 +78,27 @@ thumbnail: https://thmb.techidaily.com/8787ab7f7fcdda2f4df516fbd446b3033c8b29f54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/pioneering-a-new-dimension-understanding-the-metaverse/"><u>Pioneering a New Dimension: Understanding the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-step-into-the-ar-realm-with-messenger/"><u>Facebook Chats Step Into the AR Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-ears-of-phones-spying-for-marketing-reality/"><u>Digital Ears of Phones: Spying for Marketing Reality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-online-interactions-which-sites/"><u>Safe Online Interactions: Which Sites?</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-meta-business-tools-that-can-help-you-succeed-in-your-business/"><u>4 Meta Business Tools That Can Help You Succeed in Your Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast!</u></a></li>
+<li><a href="https://facebook.techidaily.com/switch-to-night-mode-your-facebook-guide/"><u>Switch to Night Mode: Your Facebook Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-yourself-in-the-digital-age-changing-your-name-on-facebook/"><u>Reinventing Yourself in the Digital Age: Changing Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-global-reach-with-multi-language-posts-on-facebook/"><u>Enhancing Global Reach with Multi-Language Posts on Facebook</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-lenovo-thinkphone-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Lenovo ThinkPhone Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-keyboard-moguls-choices-leading-16-youtube-intros-for-more-watchers/"><u>2024 Approved  Keyboard Moguls' Choices  Leading 16 YouTube Intros for More Watchers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-guiding-iphone-and-android-owners-to-fix-video-sending-problems-in-fb-chat-for-2024/"><u>[New] Guiding iPhone & Android Owners to Fix Video Sending Problems in FB Chat for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/effortlessly-integrating-obs-into-your-mac-step-by-step-guide-for-2024/"><u>Effortlessly Integrating OBS Into Your Mac  Step by Step Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-best-gimbals-matched-for-high-res-dslrs/"><u>2024 Approved  Best Gimbals Matched for High-Res DSLRs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-mass-download-tiktok-videos-in-2024/"><u>How To Mass Download TikTok Videos, In 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-youtube-audio-resource-hub/"><u>New 2024 Approved YouTube Audio Resource Hub</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-tiktok-video-reversal-the-complete-guide-for-creators-updated-2023/"><u>Updated TikTok Video Reversal The Complete Guide for Creators Updated 2023</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-how-to-save-skype-calls-on-windows-and-os-x/"><u>[Updated] How to Save Skype Calls on Windows and OS X</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-3ips-precision-audio-capture-solutions-for-2024/"><u>Top 3iP's Precision Audio Capture Solutions for 2024</u></a></li>
+</ul></div>

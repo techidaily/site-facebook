@@ -1,7 +1,7 @@
 ---
 title: Germany Calls for Halt to Facebook's WhatsApp Data Harvesting
-date: 2024-06-21 12:48:39
-updated: 2024-06-23 12:27:46
+date: 2024-06-25T14:28:51.288Z
+updated: 2024-06-26T14:28:51.288Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,7 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 
  It is unclear how Facebook might retaliate to this, but it seems likely it will need to stop the new privacy policy rolling out in the EU. This is because the only other alternative would be to cease EU operations, which Facebook isn't likely to do.
 
- In a statement to[Bloomberg](https://www.bloomberg.com/news/articles/2021-05-11/facebook-ordered-to-stop-collecting-german-whatsapp-users-data) , Caspar said:
+ In a statement to [Bloomberg](https://www.bloomberg.com/news/articles/2021-05-11/facebook-ordered-to-stop-collecting-german-whatsapp-users-data) , Caspar said:
 
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 
 ## Everyone Is Gunning for Facebook Right Now
 
- Facebook's moves are getting blocked left, right, and center. The company has been asked to[cancel its plans for an Instagram for kids](https://www.makeuseof.com/attorneys-general-facebook-instagram-for-children/) ,[India is investigating the new WhatsApp policy](https://www.makeuseof.com/india-investigating-whatsapp-privacy-policy/) , and[Apple has been coming for Facebook's ad tracking](https://www.makeuseof.com/zuckerberg-apple-privacy-push/) .
+ Facebook's moves are getting blocked left, right, and center. The company has been asked to [cancel its plans for an Instagram for kids](https://www.makeuseof.com/attorneys-general-facebook-instagram-for-children/) ,[India is investigating the new WhatsApp policy](https://www.makeuseof.com/india-investigating-whatsapp-privacy-policy/) , and [Apple has been coming for Facebook's ad tracking](https://www.makeuseof.com/zuckerberg-apple-privacy-push/) .
 
  So, with everyone seemingly gunning for Facebook right now, the social network needs to tread carefully in order to avoid yet another PR disaster.
 
@@ -64,3 +64,27 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/top-10-changes-to-maximize-your-fb-appease-and-effectiveness/"><u>Top 10 Changes to Maximize Your Fb App'ease and Effectiveness</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-facebook-secure-spotting-and-resolving-breaches/"><u>Is Your Facebook Secure? Spotting & Resolving Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-watch-history-and-why-you-should/"><u>How to Delete Your Facebook Watch History (and Why You Should)</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-out-the-real-story-behind-user-figures-on-fb/"><u>Chill Out! The Real Story Behind User Figures on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/lasting-connections-or-closing-facebook-heres-what-you-should-do-first/"><u>Lasting Connections or Closing Facebook? Here's What You Should Do First</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-access-add-admin-to-your-social-media-hub/"><u>Secure Access: Add Admin to Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-unfollowfollow-uses-and-timing/"><u>Understanding FB Unfollow/Follow: Uses & Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-ascendancy-in-social-media-marketing/"><u>Cryptocurrency's Ascendancy in Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-break-free-from-periscope-unique-mobile-video-apps-for-smartphones/"><u>[New] In 2024, Break Free From Periscope  Unique Mobile Video Apps for Smartphones</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/escaping-boredom-with-a-chuckle-best-fb-incarceration-comical-stories/"><u>Escaping Boredom with a Chuckle  Best FB Incarceration Comical Stories</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-something-you-should-know-about-twistedwave-audio-editor/"><u>In 2024, Something You Should Know About TwistedWave Audio Editor</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-direct-audio-streaming-from-spotify-in-discord/"><u>2024 Approved  Direct Audio Streaming From Spotify in Discord</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-reign-at-the-top-the-best-tiktok-typography-for-maximum-engagement/"><u>[New] Reign at the Top  The Best TikTok Typography for Maximum Engagement</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streamlining-media-addition-a-comprehensive-guide-to-youtube-shelves/"><u>[Updated] Streamlining Media Addition  A Comprehensive Guide to YouTube Shelves</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-the-power-of-authenticity-in-testimonial-videography-for-2024/"><u>Unlocking the Power of Authenticity in Testimonial Videography for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-best-front-row-non-sports-options/"><u>[New] Best Front Row Non-Sports Options</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-transform-your-videos-10-online-rotators-to-try/"><u>2024 Approved Transform Your Videos 10 Online Rotators to Try</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/2024-approved-integrating-melodies-enhance-videos-using-filmoras-soundtrack-tools/"><u>2024 Approved Integrating Melodies Enhance Videos Using Filmoras Soundtrack Tools</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Freedom From Facebook: Your Step-by-Step Plan"
-date: 2024-06-22 22:38:31
-updated: 2024-06-23 10:39:17
+date: 2024-06-25T14:04:28.417Z
+updated: 2024-06-26T14:04:28.417Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
- Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+ Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
 ### No Notifications
 
@@ -47,7 +47,7 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
- Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
 ## How to Deactivate Your Facebook Account
 
@@ -75,7 +75,7 @@ Close
 4. From**Account** , go to**Personal and account information** .
 5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
 
-1. Select**Deactivation and Deletion** to choose between both. There is a difference between[deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between [deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
 2. Tap**Continue to Account Deactivation** .
 3. Re-enter your Facebook password and press**Continue** .
 4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
@@ -84,11 +84,11 @@ Close
 7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
 8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
 
-**Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+**Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
 ### Via Desktop
 
- To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
+ To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
 
 1. After logging in, you will be directed to your Facebook Home page.
 2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
@@ -140,3 +140,26 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
+<li><a href="https://facebook.techidaily.com/easing-out-ending-your-facebook-friend-list/"><u>Easing Out: Ending Your Facebook Friend List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-reinventing-instagrams-app-design/"><u>The Allure of Reinventing Instagram's App Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-essential-tips-for-perfect-fb-timeline-covers/"><u>10 Essential Tips for Perfect Fb Timeline Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-fb-id-with-new-numbers/"><u>Revamp Your FB ID with New Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-censorship-action-trump-versus-major-online-companies/"><u>Anti-Censorship Action: Trump Versus Major Online Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149455836-top-social-network-cast-your-vote/"><u>Top Social Network: Cast Your Vote!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-vk-a-closer-look-at-russias-global-counterpart/"><u>Unveiling VK: A Closer Look at Russia's Global Counterpart</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-on-us-an-industry-insight/"><u>Digital Eyes on Us: An Industry Insight</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-every-moment-top-tasks-to-master-while-listening-to-your-favorite-podcasts/"><u>In 2024, Transform Every Moment  Top Tasks to Master While Listening to Your Favorite Podcasts</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/what-is-talking-avatar/"><u>What Is Talking Avatar?</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/1713963216992-updated-have-you-ever-tried-to-remove-motion-blur-from-photos-this-article-will-address-how-to-remove-the-motion-blur-effect-using-photoshop-and-its-alterna/"><u>Updated Have You Ever Tried to Remove Motion Blur From Photos? This Article Will Address How to Remove the Motion Blur Effect Using Photoshop and Its Alternatives for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-create-engaging-screencasts-a-practical-guide/"><u>[New] How to Create Engaging Screencasts  A Practical Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/removing-device-from-apple-id-for-your-iphone-6s-by-drfone-ios/"><u>Removing Device From Apple ID For your iPhone 6s</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-elevate-your-presentations-with-voiceovers/"><u>[New] 2024 Approved  Elevate Your Presentations with Voiceovers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-capture-and-share-with-confidence-a-step-by-step-guide-to-desktop-video-uploads-on-instagram/"><u>[New] 2024 Approved  Capture & Share with Confidence  A Step-by-Step Guide to Desktop Video Uploads on Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-guide-to-eye-catching-after-effects-texture-for-2024/"><u>Ultimate Guide to Eye-Catching After Effects Texture for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/best-video-screen-grabbers/"><u>Best Video Screen Grabbers</u></a></li>
+</ul></div>

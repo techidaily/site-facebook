@@ -1,7 +1,7 @@
 ---
 title: "Sustainability Shines: Facebook's Full Renewable Dependency"
-date: 2024-06-20 19:51:52
-updated: 2024-06-23 11:52:20
+date: 2024-06-25T14:18:25.215Z
+updated: 2024-06-26T14:18:25.216Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 
  In 2018,[Facebook set a comprehensive goal](https://engineering.fb.com/2020/09/14/data-center-engineering/net-zero-carbon/) of reaching a 75 percent reduction in operational greenhouse gas emissions. Along with that, the company promised to support its global operations with 100 percent renewable energy.
 
- In a post on[Tech@Facebook](https://tech.fb.com/renewable-energy/) , the company announced that it has now achieved its previously set environmental goal and successfully reached net-zero emissions. Moreover, it exceeded the greenhouse gas emissions goal and has reduced them by 94 percent.
+ In a post on [Tech@Facebook](https://tech.fb.com/renewable-energy/) , the company announced that it has now achieved its previously set environmental goal and successfully reached net-zero emissions. Moreover, it exceeded the greenhouse gas emissions goal and has reduced them by 94 percent.
 
  Related:[Carbon Offsetting Flights: How You Can Help Save the World](https://www.makeuseof.com/tag/carbon-offsetting-flights/)
 
@@ -35,15 +35,13 @@ thumbnail: https://thmb.techidaily.com/1d1233e027868c7eb597be592cc478aeb7aba77b4
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
-## Facebook Has Already Set Its Next Environmental Target
-
-![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+## Facebook Has Already Set Its Next Environmental Target ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
 > We will continue to contract for new renewable energy projects to ensure that our global operations remain supported by 100 percent renewable energy as our business grows. We remain committed to innovative solutions that increase the amount of renewable energy on electricity grids around the world, including energy storage. This year alone, we’ve already announced 720 MWh of new energy storage projects paired to solar power plants.
 
- More and more tech companies, including Microsoft (which is[hoping to be carbon-neutral by 2030](https://www.makeuseof.com/one-year-on-microsoft-details-progress-in-push-to-become-carbon-neutral-by-2030/) ) and Razer (which is also[targeting carbon neutral status by 2030](https://www.makeuseof.com/razer-pledges-carbon-neutrality-2030/) ), are joining forces to reduce greenhouse gas emissions and help with climate change.
+ More and more tech companies, including Microsoft (which is [hoping to be carbon-neutral by 2030](https://www.makeuseof.com/one-year-on-microsoft-details-progress-in-push-to-become-carbon-neutral-by-2030/) ) and Razer (which is also [targeting carbon neutral status by 2030](https://www.makeuseof.com/razer-pledges-carbon-neutrality-2030/) ), are joining forces to reduce greenhouse gas emissions and help with climate change.
 
 So, things may, finally, be moving in the right direction.
 
@@ -64,3 +62,24 @@ So, things may, finally, be moving in the right direction.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/fb-ceo-welcomes-new-chief-after-everson-departs/"><u>FB CEO Welcomes New Chief After Everson Departs</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-swapping-outdated-login-credentials-for-facebook/"><u>Securely Swapping Outdated Login Credentials for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-exploring-russias-digital-gathering-place/"><u>Decoding VK: Exploring Russia's Digital Gathering Place</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-pristine-profile-7-strategies/"><u>Achieve Pristine Profile: 7 Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanded-social-footprint-distribute-instagram-reels-to-facebook-network/"><u>Expanded Social Footprint: Distribute Instagram Reels to Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-releases-ray-bans-stories-insights-and-pricing-info/"><u>Facebook Releases Ray-Bans Stories: Insights & Pricing Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-privacy-on-facebook-a-handy-list-of-7-steps/"><u>Navigating Privacy on Facebook: A Handy List of 7 Steps</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-aerial-robotics-simplified-how-drones-fly-talk-and-work/"><u>[Updated] Aerial Robotics Simplified  How Drones Fly, Talk & Work</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-edit-and-add-music-to-video-on-windows-11/"><u>2024 Approved  How to Edit & Add Music to Video on Windows 11</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-the-essential-guide-to-boosting-your-tiktok-reach-via-hashes/"><u>[New] In 2024, The Essential Guide to Boosting Your TikTok Reach via Hashes</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-mini-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 mini Passcode Screen?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-epic-viewership-winners-youtubes-ultimate-list/"><u>[New] In 2024, Epic Viewership Winners  YouTube's Ultimate List</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-nokia-c22-phone-by-drfone-android/"><u>How to Reset a Locked Nokia C22 Phone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-pro-video-illumination-top-strategies-for-immaculate-cinematography/"><u>[New] 2024 Approved  Pro Video Illumination  Top Strategies for Immaculate Cinematography</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-free-ad-free-tools-for-android-screen-recording/"><u>[Updated] Top Free, Ad-Free Tools for Android Screen Recording</u></a></li>
+</ul></div>

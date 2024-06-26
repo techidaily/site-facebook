@@ -1,7 +1,7 @@
 ---
 title: "Facebook Quizzes: A Disguised Threat to Security?"
-date: 2024-06-21 16:34:49
-updated: 2024-06-23 10:32:21
+date: 2024-06-25T14:24:07.620Z
+updated: 2024-06-26T14:24:07.620Z
 tags:
   - facebook
 categories:
@@ -25,9 +25,7 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-## Cybersecurity Risks of Facebook Quizzes
-
-![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+## Cybersecurity Risks of Facebook Quizzes ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -35,7 +33,7 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
- These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+ These quizzes are [a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -45,13 +43,11 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
  First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
 
- If the quiz was multiple-choice questions on another website, such as Buzzfeed, you are probably not in any danger. It is difficult to give away any personal information in a multiple-choice quiz since the answers are already written. There are also a few tools you can use to[check if the link was safe](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) or not.
+ If the quiz was multiple-choice questions on another website, such as Buzzfeed, you are probably not in any danger. It is difficult to give away any personal information in a multiple-choice quiz since the answers are already written. There are also a few tools you can use to [check if the link was safe](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) or not.
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-### Take Screenshots and Notes
-
-![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
+### Take Screenshots and Notes ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
@@ -59,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
 
 ### Report the Scam Quiz
 
- Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using[their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
+ Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using [their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
 
  Contact your bank and credit card companies. Explain the situation so they can stay alert for potential unauthorized attempts to access your account. They can also provide guidance on securing your financial accounts, so the information from the quiz is useless to hackers.
 
@@ -94,3 +90,24 @@ thumbnail: https://thmb.techidaily.com/9b1d54d7ae73d83b91bdfdadbf959717f77a8b021
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/from-hashtags-to-happiness-posting-less-living-more/"><u>From Hashtags to Happiness: Posting Less, Living More</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-social-platforms-a-safe-choice/"><u>Best Social Platforms: A Safe Choice?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-venues-for-questing-freelancing-roles/"><u>Leading Venues for Questing Freelancing Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/after-the-social-giant-your-datas-fate/"><u>After the Social Giant: Your Data's Fate</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-engagement-make-your-fb-circle-the-talk-of-town/"><u>Ignite Engagement: Make Your FB Circle the Talk of Town</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-previous-facebook-stories/"><u>Uncovering Previous Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-wont-limit-account-functionality-if-you-dont-accept-its-new-privacy-policy/"><u>WhatsApp Won't Limit Account Functionality If You Don't Accept Its New Privacy Policy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-from-finish-to-start-the-art-of-negative-playback-on-instagram/"><u>[New] In 2024, From Finish to Start  The Art of Negative-Playback on Instagram</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-a-sustainable-income-via-youtube-and-adsense/"><u>Building a Sustainable Income via YouTube and AdSense</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-motorola-moto-g14-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Motorola Moto G14 Phone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-web-compendium-alarm-rhythms-guidebook/"><u>Ultimate Web Compendium  Alarm Rhythms Guidebook</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-bold-pfp-strategies-for-a-memorable-tiktok-persona/"><u>[Updated] In 2024, Bold PFP Strategies for a Memorable TikTok Persona</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/retrospective-facebook-viewing-techniques-for-laptops-and-phones/"><u>Retrospective Facebook Viewing Techniques for Laptops and Phones</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-techniques-for-unbiased-and-structured-interviews/"><u>[New] Techniques for Unbiased and Structured Interviews</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-screen-capture-without-breaking-the-bank-our-top-picks/"><u>[Updated] 2024 Approved  Screen Capture Without Breaking the Bank  Our Top Picks</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-top-16-avi-video-cutters-trimcut-avi-videos-windows-mac-android-iphone-and-online/"><u>New 2024 Approved Top 16 AVI Video Cutters Trim/Cut AVI Videos Windows, MAC, Android, iPhone, and Online</u></a></li>
+</ul></div>

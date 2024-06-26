@@ -1,7 +1,7 @@
 ---
 title: "Mimicry on Instagram: Identity Theft Concerns"
-date: 2024-06-20 18:14:52
-updated: 2024-06-23 10:50:47
+date: 2024-06-25T14:12:41.112Z
+updated: 2024-06-26T14:12:41.112Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,7 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
  Sometimes, people simply steal what they find or like. A lot of fake (or bot) accounts use celebrity shots or stock photos. But some users take a more personal route, finding it more advantageous to steal photos from the average Joe, making the impersonation less obvious.
 
- It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for[scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
+ It can be a random “attack” where someone happens to stumble across a profile of yours and steals a couple of natural-looking shots. It makes profiles look more organic and perfect weapons for [scamming or catfishing people](https://www.makeuseof.com/what-does-catfish-mean/) . In some cases, these attacks aim to hurt the victim themselves rather than con people they send the messages or requests to.
 
  There were cases where the impersonation victims knew their perpetrators. The offenders had a personal vendetta against the victim, so they made a fake account. These accounts are often more convincing as the impersonator may have access to sensitive information about family, friends, and demographics that make the profiles much more believable.
 
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
 ![instructions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/instructions-1.png)
 
- Social media administrators rightly take this seriously. Even[Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
+ Social media administrators rightly take this seriously. Even [Reddit formally banned impersonating](https://www.makeuseof.com/tag/do-not-impersonate-people-on-reddit/) people.
 
  Fortunately, removing fake profiles can be a relatively simple process.
 
@@ -100,3 +100,23 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reminisce-connections-a-dive-into-facebooks-past/"><u>Reminisce Connections: A Dive Into Facebook's Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-evolving-meanings-of-facebooks-page-names/"><u>Decoding the Evolving Meanings of Facebook's Page Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-invisible-social-network-transparency-on-facebook/"><u>Understanding the Invisible: Social Network Transparency on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-social-media-exposure-the-art-of-facebooks-privacy-lists/"><u>Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151660089-facebooks-metaverse-project-seeks-global-talent-pool-of-10k/"><u>Facebook's Metaverse Project Seeks Global Talent Pool of 10K</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-newsfeed-to-dodge-objectionable-ads/"><u>Tailoring Your Newsfeed to Dodge Objectionable Ads</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-ultimate-lens-selection-tips-for-vloggers-and-editors/"><u>[Updated] Ultimate Lens Selection Tips for Vloggers & Editors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-mobile-video-enhancers-for-high-quality-gopro-videos/"><u>Leading Mobile Video Enhancers for High-Quality GoPro Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/experience-the-next-level-of-virtual-reality-with-htcs-vive-headset/"><u>Experience the Next Level of Virtual Reality with HTC's Vive Headset</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-tier-video-editing-insights-with-vivacut-review-and-guide-2024/"><u>Top-Tier Video Editing Insights with VivaCut Review & Guide 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-online-sound-wave-video-makers-top-picks-for-2024/"><u>New Online Sound Wave Video Makers Top Picks for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-elevate-your-online-sound-experience-with-these-5-steps/"><u>[Updated] 2024 Approved  Elevate Your Online Sound Experience with These 5 Steps</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-incorporate-engaging-text-in-videos-at-no-extra-cost/"><u>[New] In 2024, Incorporate Engaging Text in Videos at No Extra Cost</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y78-5g-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y78 5G Phone Hassle-Free</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-enhancing-youtube-thumbnails-neon-borders-top-3-methods/"><u>In 2024, Enhancing YouTube Thumbnails  Neon Borders - Top 3 Methods</u></a></li>
+</ul></div>

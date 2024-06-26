@@ -1,7 +1,7 @@
 ---
 title: "Tracking Behind the Scenes: Keeping Social Media Favorites Free"
-date: 2024-06-22 20:11:15
-updated: 2024-06-23 10:16:42
+date: 2024-06-25T14:32:10.421Z
+updated: 2024-06-26T14:32:10.421Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,7 @@ thumbnail: https://thmb.techidaily.com/7270266df833210c4618ef395558e4a1dd14a566b
 
  In continued pushback against Apple's iOS 14 privacy updates, the iOS apps for Facebook and Instagram have added a new notice. The pop-ups are near identical on both platforms, saying that the company (Facebook owns Instagram) uses info on your activity to help keep the app(s) "free of charge."
 
- Facebook made a[blog post](https://about.fb.com/news/2020/12/speaking-up-for-small-businesses/) in mid-December 2020 about how it was taking a stand for small businesses, arguing the Apple's new policies "force businesses to turn to subscriptions and other in-app payments for revenue."
+ Facebook made a [blog post](https://about.fb.com/news/2020/12/speaking-up-for-small-businesses/) in mid-December 2020 about how it was taking a stand for small businesses, arguing the Apple's new policies "force businesses to turn to subscriptions and other in-app payments for revenue."
 
  In February, that post was updated with a mockup of the Facebook notification that appeared before Apple's security prompt. At the end of April,[the post was updated a second time, with what seems to be a redesign](https://www.makeuseof.com/facebook-wants-ios-users-allow-activity-tracking-permissions/) and preview for Instagram, as well.
 
@@ -58,3 +58,26 @@ thumbnail: https://thmb.techidaily.com/7270266df833210c4618ef395558e4a1dd14a566b
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expert-advice-for-effective-facebook-refund-applications/"><u>Expert Advice for Effective Facebook Refund Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-playbook-for-dodging-online-charlatans/"><u>The Essential Playbook for Dodging Online Charlatans</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-online-peace-with-limited-facebook-friends/"><u>Enhancing Online Peace with Limited Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-lost-facebook-credentials-no-codes-needed/"><u>Resetting Lost Facebook Credentials, No Codes Needed</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-community-oversight-facebooks-latest-update/"><u>Revolutionizing Community Oversight: Facebook's Latest Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-erasing-your-fb-watch-history/"><u>Understanding & Erasing Your FB Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-metas-media-conquest/"><u>Three Warnings: Meta's Media Conquest</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153081491-facebook-founder-names-goat-as-crypto-pet/"><u>Facebook Founder Names Goat as 'Crypto' Pet</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/ideal-changing-voices-for-online-influencers-for-2024/"><u>Ideal Changing Voices for Online Influencers for 2024</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-crafting-captivating-jujutsu-kaisen-videos-for-tiktok/"><u>[Updated] In 2024, Crafting Captivating Jujutsu Kaisen Videos for TikTok</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-discovering-serenity-10-choice-ios-and-android-auditory-escapes-in-nature-for-2024/"><u>Updated Discovering Serenity 10 Choice iOS & Android Auditory Escapes in Nature for 2024</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-samsung-galaxy-s23-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Samsung Galaxy S23 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expediting-windows-file-reviews-with-ease/"><u>[Updated] Expediting Windows File Reviews with Ease</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-next-gen-gloves-top-picks-to-immerse-in-vr-worlds/"><u>[Updated] Next-Gen Gloves  Top Picks to Immerse in VR Worlds</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mac-magic-cost-free-screen-tracker/"><u>Mac Magic  Cost-Free Screen Tracker</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/navigating-screen-space-enlargement-on-youtube/"><u>Navigating Screen Space Enlargement on YouTube</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y78t-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Vivo Y78t</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/1716070142738-updated-2024-approved-expertly-capture-your-macs-display-with-no-cost/"><u>[Updated] 2024 Approved  Expertly Capture Your Mac's Display with No Cost!</u></a></li>
+</ul></div>

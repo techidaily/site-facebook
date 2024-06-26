@@ -1,7 +1,7 @@
 ---
 title: When Did I First Connect to the World Wide Web? - A Facebook Story
-date: 2024-06-22 18:44:36
-updated: 2024-06-23 11:46:29
+date: 2024-06-25T14:28:31.667Z
+updated: 2024-06-26T14:28:31.667Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3ad4f7e8b48f19c37105255d0826afad52f6608be
 
 Follow these steps to find your Facebook account creation date:
 
-1. Open the[Facebook website](https://www.facebook.com/) .
+1. Open the [Facebook website](https://www.facebook.com/) .
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
@@ -95,7 +95,7 @@ Close
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
- Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily[find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
+ Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
@@ -109,9 +109,9 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
- You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
+ You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our [Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
- However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+ However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 ## Find Out When You Joined Facebook
 
@@ -134,3 +134,27 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/exploring-secure-social-media-options/"><u>Exploring Secure Social Media Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-for-a-seamless-disconnection-from-digital-groups/"><u>Easy Steps for a Seamless Disconnection From Digital Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unearth-facebook-accounts-youve-locked-out/"><u>How to Unearth Facebook Accounts You've Locked Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-three-nations-where-facebook-fails/"><u>The Three Nations Where Facebook Fails</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-business-page-discontinuation-on-facebook/"><u>Navigating Through Business Page Discontinuation on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-timeline-enhance-your-online-social-experience/"><u>Tailoring the Timeline: Enhance Your Online Social Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-a-friendly-interface-revolutionize-your-neighborhoods-retail-scene/"><u>Could a Friendly Interface Revolutionize Your Neighborhood's Retail Scene?</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-facebook-your-step-by-step-plan/"><u>Freedom From Facebook: Your Step-by-Step Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-the-portal-go-making-the-portal-portable-for-the-first-time/"><u>Facebook Launches the Portal Go, Making the Portal Portable for the First Time</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-live-tv-battle-who-wins-obs-or-twitch-studio/"><u>[New] Live TV Battle  Who Wins? OBS or Twitch Studio</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-essential-ai-driven-audio-to-text-tools-of-the-year/"><u>Updated Essential AI-Driven Audio to Text Tools of the Year</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/a-step-by-step-for-delving-into-fb-archives/"><u>A Step-by-Step for Delving Into FB Archives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/online-aggregators-for-securing-affiliates-on-googles-platform-for-2024/"><u>Online Aggregators for Securing Affiliates on Google's Platform for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/essential-tools-for-capturing-every-google-meet-moment/"><u>Essential Tools for Capturing Every Google Meet Moment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/7-comedy-youtube-video-ideas-that-funny-people-can-try-for-2024/"><u>7 Comedy YouTube Video Ideas That Funny People Can Try for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-easy-tips-to-create-a-funny-meme-for-2024/"><u>[Updated] Easy Tips to Create a Funny Meme for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-logic-pros-approach-to-subtle-audio-dimming/"><u>2024 Approved  Logic Pro's Approach to Subtle Audio Dimming</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-best-value-for-money-top-6-budget-4k-projector-models/"><u>[New] In 2024, Best Value for Money  Top 6 Budget 4K Projector Models</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-poco-x6-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Poco X6? | Dr.fone</u></a></li>
+</ul></div>

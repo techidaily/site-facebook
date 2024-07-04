@@ -1,7 +1,7 @@
 ---
 title: "Mastering Meta: Entry to User Account Central"
-date: 2024-06-25T14:08:11.656Z
-updated: 2024-06-26T14:08:11.656Z
+date: 2024-07-03T12:12:32.642Z
+updated: 2024-07-04T12:12:32.642Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,15 @@ thumbnail: https://thmb.techidaily.com/b926e430c3910450366f0c5eac6f2faf425580bfe
 
  The Accounts Center is easy to access and use. If you're interested in learning more about how to access the Accounts Center, read ahead.
 
-## Facebook and Instagram: Navigating to the Accounts Center ![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
+## Facebook and Instagram: Navigating to the Accounts Center
+![Title card for Meta Accounts Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143112---Copy.jpg)
 
  It's easy to confuse the Accounts Center in the Facebook and Instagram apps with other settings, like**Account** ,**Security** ,**Notifications** , and**Privacy** . These options are specific for each app and the account you're using. The Accounts Center, however, is a central hub under Meta, the parent company of both platforms. Among the many features it offers, you can use it to [create and link Facebook and Instagram](http://www.makeuseof.com/facebook-instagram-account-center-linked-accounts/) accounts.
 
  Here's a brief look at how to access the Accounts Center on Instagram and Facebook.
 
-### Finding the Accounts Center on Instagram ![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
+### Finding the Accounts Center on Instagram
+![Instagram page with images of cats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151629.jpg)
 
 ![Instagram page with settings window open](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-151639.jpg)
 
@@ -40,7 +42,8 @@ Here's how you can access the Accounts Center on Instagram:
 3. Tap**Settings** .
 4. At the bottom of the**Settings** page tap**Accounts Center** .
 
-### Finding the Accounts Center on Facebook ![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
+### Finding the Accounts Center on Facebook
+![Facebook home page portraying a post and icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143300.jpg)
 
 ![Settings menu for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screenshot_20221003-143358.jpg)
 

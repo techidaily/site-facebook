@@ -1,7 +1,7 @@
 ---
 title: Are Online Tests a Stealthy Cybersecurity Menace?
-date: 2024-06-25T14:43:39.329Z
-updated: 2024-06-26T14:43:39.329Z
+date: 2024-07-03T12:12:32.810Z
+updated: 2024-07-04T12:12:32.810Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,8 @@ thumbnail: https://thmb.techidaily.com/f827a2513363710538e9a15901545a1f6478c686b
 
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
-## Cybersecurity Risks of Facebook Quizzes ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+## Cybersecurity Risks of Facebook Quizzes
+![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -47,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/f827a2513363710538e9a15901545a1f6478c686b
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
-### Take Screenshots and Notes ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
+### Take Screenshots and Notes
+![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 

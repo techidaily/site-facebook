@@ -1,7 +1,7 @@
 ---
 title: "Social Network Security 101: Why Avoid Mystery Friends"
-date: 2024-06-25T13:57:23.384Z
-updated: 2024-06-26T13:57:23.384Z
+date: 2024-07-03T12:12:33.662Z
+updated: 2024-07-04T12:12:33.662Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  Safety should be your top priority when using social media. We have compiled a detailed article on why you shouldn't add strangers on Facebook.
 
-## 1\. Risk of Identity Theft ![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
+## 1\. Risk of Identity Theft
+![Man showing an image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-showing-an-image.jpg)
 
  We upload multiple posts, photos, and pictures on Facebook. As a matter of fact, some people share their entire life with their friends. With so much information on your profile, it gives people a chance to collect your data.
 
@@ -29,7 +30,8 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  It becomes hard to accuse one person of committing a crime with unknown people in the profile. You can bypass these scams by avoiding anonymous requests or people you don't trust.
 
-## 2\. Impairment of the Privacy of Your Friends ![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
+## 2\. Impairment of the Privacy of Your Friends
+![Man checking others on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-checking-others-on-Facebook.jpg)
 
  Our loved ones, acquaintances, and friends on our Facebook profiles choose to trust us with their content. However, they might have different opinions about adding unknowns.
 
@@ -53,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  Consistently updating locations on the map has led to multiple robbery and stalking crimes. If you only keep trustworthy people in your profile, it will eliminate the risk of getting stalked, mugged, or robbed from home.
 
-## 5\. Become Habitual of Isolation From Family ![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
+## 5\. Become Habitual of Isolation From Family
+![Using Facebook on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Using-Facebook-on-smartphone.jpg)
 
  Talking to strangers online can be fascinating, especially if you get in touch with some nice ones. This simple app can become your whole life.
 
@@ -69,7 +72,8 @@ thumbnail: https://thmb.techidaily.com/0c6fb3954d1e2db91c62e36b902addd3def785021
 
  Lack of engagement on your Facebook profile gives the impression of being dull and not an exciting person.
 
-## 7\. Risk of Emotional Damage ![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
+## 7\. Risk of Emotional Damage
+![Man in emotional stress](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Man-in-emotional-stress.jpg)
 
  When you talk to people who know you in real life, there is an emotional connection and bonding. However, this is not the case with short-term online relations. These people are just there for fun or scams.
 

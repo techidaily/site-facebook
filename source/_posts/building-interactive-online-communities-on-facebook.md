@@ -1,7 +1,7 @@
 ---
 title: Building Interactive Online Communities on Facebook
-date: 2024-06-25T14:15:00.791Z
-updated: 2024-06-26T14:15:00.791Z
+date: 2024-07-03T12:12:34.532Z
+updated: 2024-07-04T12:12:34.532Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/92ce41ef8b05767b09e5cccf1de47f0c1a1c9c1b0
 
  Follow these quick and easy steps to set up your Facebook group to connect with like-minded individuals from all over the world.
 
-## Steps to Make a Group on Facebook ![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
+## Steps to Make a Group on Facebook
+![Facebook app menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318180626_1305065376700688_893057211392699849_n.jpg)
 
 ![Facebook app menu showing groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318097009_540592084597722_6156826463203386396_n.jpg)
 
@@ -45,7 +46,8 @@ Close
 
  When you're finished, click**Create Group** at the bottom of the screen. You'll then be taken to a page that will allow you to invite members from your Facebook friends.
 
-## Go Live With Your Facebook Group ![Create group page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318217881_894969165206821_5445276175446551093_n.jpg)
+## Go Live With Your Facebook Group
+![Create group page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318217881_894969165206821_5445276175446551093_n.jpg)
 
 ![Choose group options when creating a group on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/318477258_939639773675965_2846710644227593590_n.jpg)
 

@@ -1,7 +1,7 @@
 ---
 title: New Age of Digital Advertising on Instagram, Facebook
-date: 2024-06-25T13:56:36.403Z
-updated: 2024-06-26T13:56:36.403Z
+date: 2024-07-03T12:12:33.430Z
+updated: 2024-07-04T12:12:33.430Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/99f8be9be102276bc593db3bcc6b07419f9816f24
 
  Out of all the TikTok clones on social media, Instagram Reels are probably the most successful. For that reason, this move shouldn't come as a surprise to anyone.[Instagram added Shopping to Reels](https://www.makeuseof.com/instagram-reels-shopping-goes-live/) in an update last December, which allowed its creators to link products in their videos.
 
-## Facebook Is Testing Brand-Created Stickers for Stories ![Facebook Sticker ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-sticker-ads-1.png)
+## Facebook Is Testing Brand-Created Stickers for Stories
+![Facebook Sticker ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-sticker-ads-1.png)
 
  Meanwhile Facebook, which owns the photo-sharing platform, is experimenting with branded stickers for stories. Select influencers can use them to "monetize their Facebook Stories with ads that look like stickers and receive a portion of the resulting revenue."
 

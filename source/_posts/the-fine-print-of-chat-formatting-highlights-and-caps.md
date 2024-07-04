@@ -1,7 +1,7 @@
 ---
 title: "The Fine Print of Chat Formatting: Highlights & Caps"
-date: 2024-06-25T14:29:15.911Z
-updated: 2024-06-26T14:29:15.911Z
+date: 2024-07-03T12:12:33.382Z
+updated: 2024-07-04T12:12:33.382Z
 tags:
   - facebook
 categories:
@@ -29,21 +29,25 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
 
  Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
 
-## How to Add Bold Text in Messenger ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
+## How to Add Bold Text in Messenger
+![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
-## How to Make Italic Text in Messenger ![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
+## How to Make Italic Text in Messenger
+![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
-## How to Use Strikethrough Text in Messenger ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
+## How to Use Strikethrough Text in Messenger
+![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
-## How to Use Monospace Text in Messenger ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
+## How to Use Monospace Text in Messenger
+![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
@@ -51,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
-## How to Send Blocks of Code in Messenger ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+## How to Send Blocks of Code in Messenger
+![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 

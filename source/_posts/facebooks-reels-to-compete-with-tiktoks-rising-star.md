@@ -1,7 +1,7 @@
 ---
 title: Facebook's Reels to Compete With TikTok’s Rising Star?
-date: 2024-06-25T14:26:02.337Z
-updated: 2024-06-26T14:26:02.337Z
+date: 2024-07-03T12:12:34.197Z
+updated: 2024-07-04T12:12:34.197Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
-## How TikTok Is Hurting Facebook ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+## How TikTok Is Hurting Facebook
+![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
@@ -47,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-## How Facebook Plans to Regain Momentum ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+## How Facebook Plans to Regain Momentum
+![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
 
@@ -79,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/f0922cdea4398af9eb93c3915c9d932ac3a495368
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-### Monetization Issues ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+### Monetization Issues
+![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 

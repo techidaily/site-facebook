@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Navigation of Facebook's Transparency for Users
-date: 2024-06-25T14:06:40.444Z
-updated: 2024-06-26T14:06:40.444Z
+date: 2024-07-03T12:12:33.684Z
+updated: 2024-07-04T12:12:33.684Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/46486d3cf08c5d74abeb420acca02a4bdb0158ce8
 
  Advocates are concerned about how the company uses and shares users’ information, how it polices and manages users’ speech, and how it regulates information on its platform.
 
-## How to Navigate Facebook’s Transparency Center and Understand Its Policies ![Facebook transparency center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-transparency-1.jpg)
+## How to Navigate Facebook’s Transparency Center and Understand Its Policies
+![Facebook transparency center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-transparency-1.jpg)
 
  Below, you'll find out what you can learn when using [Facebook's Transparency Center](https://transparency.fb.com/data/) .
 

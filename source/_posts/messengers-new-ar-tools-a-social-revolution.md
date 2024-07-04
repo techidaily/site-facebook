@@ -1,7 +1,7 @@
 ---
 title: "Messenger's New AR Tools: A Social Revolution"
-date: 2024-06-25T14:02:50.414Z
-updated: 2024-06-26T14:02:50.414Z
+date: 2024-07-03T12:12:33.012Z
+updated: 2024-07-04T12:12:33.012Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/b2faccf55ba2f62eeda01fb2856eae6cf952310d8
 
 So, what are Group Effects all about? Keep reading to find out.
 
-## Facebook Amps Up Its Video Call Function With Group Effects ![Illustration of Video Conference Calls on Three Different Devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/video-conference-call-illustration.jpg)
+## Facebook Amps Up Its Video Call Function With Group Effects
+![Illustration of Video Conference Calls on Three Different Devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/video-conference-call-illustration.jpg)
 
  Facebook Messenger has added Group Effects, a new feature that allows everyone on a video call to join in on the same AR experience at the same time, making video calls more engaging and fun.
 
@@ -29,7 +30,8 @@ So, what are Group Effects all about? Keep reading to find out.
 
  Related:[Facebook Messenger Icons and Symbols: What Do They Mean?](https://www.makeuseof.com/tag/what-do-the-different-facebook-messenger-circles-mean-and-more/)
 
-## How Facebook Messenger’s Group Effects Work ![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
+## How Facebook Messenger’s Group Effects Work
+![Screenshot of messenger group effects effects on facebook blog](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Screenshot-of-messenger-AR-effects.jpg)
 
  A huge shift from the platform's one-participant-at-a-time AR feature, the Group Effects feature allows you to play multiplayer games with your friends during a video call, so you can do more than just catch up.
 

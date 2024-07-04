@@ -1,7 +1,7 @@
 ---
 title: Seamless Transition to Spotify While Staying in Facebook App
-date: 2024-06-25T14:34:48.409Z
-updated: 2024-06-26T14:34:48.409Z
+date: 2024-07-03T12:12:32.694Z
+updated: 2024-07-04T12:12:32.694Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/3ce7ce4cef66cdb03e7ac7e019dea8d112e1795f8
 
  Premium users will enjoy free rein when using their Spotify miniplayer. The feature offers full control over playability and which songs you listen to. There are also no ads interjected between tunes for premium users.
 
-## How to Use the Spotify Miniplayer on Facebook ![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
+## How to Use the Spotify Miniplayer on Facebook
+![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
 
  Once you find a shared track in your news feed, click the track to listen like you normally would.
 

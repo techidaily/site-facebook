@@ -1,7 +1,7 @@
 ---
 title: Insight Into the Benefits and Reasons of Multiple Profiles on One Facebook Account
-date: 2024-06-25T14:28:55.304Z
-updated: 2024-06-26T14:28:55.304Z
+date: 2024-07-03T12:12:34.454Z
+updated: 2024-07-04T12:12:34.454Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/6504740a985b93f1ab7ddf2a2493507fc4e1a65d7
 
  Yet social media allows everyone to see what you are saying or doing with your friends, unless you take steps to restrict your account. In order to address this, Meta is testing a feature that will allow users to maintain up to five separate profiles under the same Facebook account.
 
-## Coming Soon: One Facebook Account, 5 Profiles ![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
+## Coming Soon: One Facebook Account, 5 Profiles
+![photo of man taking selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/profile.jpg)
 
  Meta prohibits users from having more than one Facebook account. However, the company is testing a way for users to have more than one profile connected to their account, as first reported by [Bloomberg](https://www.bloomberg.com/news/articles/2022-07-14/meta-to-start-letting-facebook-users-have-up-to-five-profiles) .
 

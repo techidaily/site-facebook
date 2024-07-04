@@ -1,7 +1,7 @@
 ---
 title: Reclaim Your Digital Domain From Facebook Spies
-date: 2024-06-25T13:43:04.937Z
-updated: 2024-06-26T13:43:04.937Z
+date: 2024-07-03T12:12:33.742Z
+updated: 2024-07-04T12:12:33.742Z
 tags:
   - facebook
 categories:
@@ -109,7 +109,8 @@ thumbnail: https://thmb.techidaily.com/18e0761348cb4d28e3480c4ed08a893497db31dc3
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-### uBlock Origin ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
+### uBlock Origin
+![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 

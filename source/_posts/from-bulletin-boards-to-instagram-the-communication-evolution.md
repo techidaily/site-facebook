@@ -1,7 +1,7 @@
 ---
 title: "From Bulletin Boards to Instagram: The Communication Evolution"
-date: 2024-06-25T14:04:29.432Z
-updated: 2024-06-26T14:04:29.432Z
+date: 2024-07-03T12:12:34.165Z
+updated: 2024-07-04T12:12:34.165Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,8 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
  While you may be happy with the familiarity that comes from forums, a lot of people expect much more innovation than these platforms typically get. Even if social media platforms are sometimes slow to implement changes that their user base wants, you're probably less likely to stick around for changes to happen on a forum that already falls short of many features that social media offers.
 
-## 2\. Social Media Is Designed to be Attention-Grabbing ![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
+## 2\. Social Media Is Designed to be Attention-Grabbing
+![A class of students paying attention to a lecture.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/students-attention.jpg)
 
  Social media, by design, knows how to grab your attention and then hold it. You likely find yourself scrolling for a while on Twitter, Facebook, or some other social media before realizing you've lost track of time. While you could have the same experience on a forum, social media platforms are more adept at maintaining users' attention. This is because they run on an [attention economy model](https://www.makeuseof.com/tag/what-is-attention-economy/) , as your sustained usage makes these platforms money.
 
@@ -43,7 +44,8 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
-## 5\. Apps Are More User-Friendly ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
+## 5\. Apps Are More User-Friendly
+![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though [social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 

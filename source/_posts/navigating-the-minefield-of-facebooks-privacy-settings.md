@@ -1,7 +1,7 @@
 ---
 title: Navigating the Minefield of Facebook's Privacy Settings
-date: 2024-06-25T14:34:39.437Z
-updated: 2024-06-26T14:34:39.437Z
+date: 2024-07-03T12:12:32.963Z
+updated: 2024-07-04T12:12:32.963Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 
 **FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the [Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
 
-## 1. Security and Login ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
+## 1. Security and Login
+![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 * To tighten your security even further, you can add [two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any [unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-## 2. Privacy ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+## 2. Privacy
+![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -46,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
-## 3. Profile and Tagging ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+## 3. Profile and Tagging
+![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
@@ -56,7 +59,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-## 4. Public Posts ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+## 4. Public Posts
+![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
@@ -65,7 +69,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-## 5. Blocking ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+## 5. Blocking
+![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
@@ -74,7 +79,8 @@ thumbnail: https://thmb.techidaily.com/154ba651f58f7b61c6d13ed51a3e08aab825faff3
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-## 6\. Quick Tips ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+## 6\. Quick Tips
+![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 

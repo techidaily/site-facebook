@@ -1,0 +1,85 @@
+---
+title: Anticipating Facebook's Revamped Stories Panels with Reels and Rooms
+date: 2024-07-03T12:13:30.161Z
+updated: 2024-07-04T12:13:30.161Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Anticipating Facebook's Revamped Stories Panels with Reels and Rooms
+excerpt: This Article Describes Anticipating Facebook's Revamped Stories Panels with Reels and Rooms
+keywords: Facebook Story Updates,Reel & Room News,Stories Revamp Tips,Reels in Social Media,New Facebook Panels,Rooms for Stories,Facebook Content Shift
+thumbnail: https://thmb.techidaily.com/eb5fe9623ef8001592b893ca9dc19a617df53079daa5a9aa99a5d5766cabadbb.jpg
+---
+
+## Anticipating Facebook's Revamped Stories Panels with Reels and Rooms
+
+ Facebook has come a long way since its days of only hosting personal profiles and pages. Now, you can watch videos and livestreams, have audio and video chats with your friends, sell things in the Marketplace, and more.
+
+ The downside to having so much functionality in one app is that is can be difficult to organize the user interface in such a way that all that info isn't too overwhelming.
+
+## Facebook Tests Reels and Rooms In Home Feed
+
+ In its continued push to compete with TikTok and Clubhouse, Facebook is reportedly testing new tabs in the Stories panel for Instagram Reels and its own Rooms.
+
+ Once again, app researcher Alessandro Paluzzi was the first to take notice of this, taking to Twitter to post screenshots of what the new feature may look like:
+
+ Facebook Rooms are not to be confused with Messenger Rooms, though. Unveiled in late June 2021, Live Audio Rooms are Facebook's take on the speaker-and-listeners live audio chat format that's recently taken the internet by storm.
+
+ Related: [Facebook Adds New Customization Features to Messenger Rooms](https://www.makeuseof.com/messenger-rooms-new-customization-features/)
+
+ It's unclear whether the Rooms tab would only contain Live Audio Rooms, or if it would show both active Live Audio Rooms and Messenger Rooms.
+
+ Originally, it was believed that [Facebook was making a standalone app to compete with Clubhouse](https://www.makeuseof.com/facebook-making-clubhouse-app/) , but Live Audio Rooms (and Podcasts) were instead built right into Facebook. You can read their introduction on [Facebook Newsroom](https://about.fb.com/news/2021/06/live-audio-rooms-and-podcasts-on-facebook/) .
+
+## Facebook Continues to Compete With… Just About Everything, Really
+
+![Facebook Slows Down Election Misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-slow-down-election-misinfo.jpg)
+
+ Everyone knows the Facebook story by now: CEO Mark Zuckerberg created a website in 2003 while he was attending Harvard University, and it blew up much bigger than he ever imagined.
+
+ Since then, Facebook has grown into a tech conglomerate, rolling out new products and services to capitalize on almost every major tech trend—and succeeding, more often than not. There are quite a few examples of this, even aside from Instagram Reels and Rooms.
+
+ For instance, Neighborhoods is widely considered to be [Facebook's response to Nextdoor](https://www.makeuseof.com/new-facebook-neighborhoods-feature/) , an app meant to connect you to other people in your local area. Facebook Dating and its Sparked have respectively come about after Tinder's initial burst on the scene and its resurgence.
+
+ Related: [Facebook Is Testing a Free Speed Dating App Called Sparked](https://www.makeuseof.com/sparked-facebook-speed-dating-app/)
+
+ There seems to be very few things that Facebook won't at least try, which makes entering the tech market pretty tricky to enter for software developers. Facebook has been at the top of the pack for a very long time, and clearly it doesn't plan on giving up its place as king that easily.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/bridging-platforms-instagrams-new-whatsapp-2fa-strategy/"><u>Bridging Platforms: Instagram's New WhatsApp 2FA Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-inquiry-the-role-of-facebook-in-shaping-it/"><u>Metaverse Inquiry: The Role of Facebook in Shaping It</u></a></li>
+<li><a href="https://facebook.techidaily.com/did-facebook-expose-your-contact-info/"><u>Did Facebook Expose Your Contact Info?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-stories-behind-4-major-declines-in-facebook-usage/"><u>The Hidden Stories Behind 4 Major Declines in Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-relationships-using-social-polls-on-whatsapp/"><u>Enhance Relationships Using Social Polls on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-page-personalize-the-url-notify-friends/"><u>Revamp Your Page: Personalize the URL, Notify Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-likes-on-your-facebook-posts/"><u>How to Hide Likes on Your Facebook Posts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-narzo-n55-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme Narzo N55?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-most-susbcribed-youtuber-in-the-world/"><u>10 Most Susbcribed YouTuber in the World</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-innovative-ideas-to-make-your-youtube-shorts-exceptional/"><u>[New] In 2024, Innovative Ideas to Make Your YouTube Shorts Exceptional</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-uot-file-document-with-electronic-digital-signature-tutorial-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to Sign .uot file document with Electronic Digital Signature - (Tutorial)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/audible-adventures-navigating-free-streaming-and-download-options/"><u>Audible Adventures Navigating Free Streaming and Download Options</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-edit-mp4-videos-on-windows-8-a-simple-guide/"><u>Updated Edit MP4 Videos on Windows 8 A Simple Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-apple-iphone-12-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock Apple iPhone 12 With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-the-ultimate-android-moba-game-series-countdown-10/"><u>[Updated] 2024 Approved  The Ultimate Android MOBA Game Series Countdown (#10)</u></a></li>
+</ul></div>

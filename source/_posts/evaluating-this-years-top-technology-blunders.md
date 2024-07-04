@@ -1,7 +1,7 @@
 ---
 title: Evaluating This Year's Top Technology Blunders
-date: 2024-06-25T14:46:40.836Z
-updated: 2024-06-26T14:46:40.836Z
+date: 2024-07-03T12:12:33.218Z
+updated: 2024-07-04T12:12:33.218Z
 tags:
   - facebook
 categories:
@@ -17,7 +17,8 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 
  The tech industry changes every year, with new inventions and ideas coming to the fore in an attempt to change our lives forever. While many of these products and services make the grade, others don't. These are the biggest tech fails of 2022.
 
-## 1\. Google Stadia ![A screenshot of the Google Stadia platform](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-stadia.jpg)
+## 1\. Google Stadia
+![A screenshot of the Google Stadia platform](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-stadia.jpg)
 
  It was the most highly anticipated launch of 2019;[Google Stadia](https://stadia.google.com/) was set to revolutionize gaming by giving players access to games anytime, anywhere, with no downloads or installs necessary. But it quickly became apparent that the results did not match the hype. By December 2022, Google Stadia had become one of the biggest tech flops of recent times, and certainly 2022.
 
@@ -27,7 +28,8 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 
  Overall, Google Stadia's launch greatly disappointed gamers and tech enthusiasts. Despite its lofty ambitions, the service failed to live up to expectations and ultimately flopped in 2022.
 
-## 2\. Elon Musk's Twitter Takeover ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
+## 2\. Elon Musk's Twitter Takeover
+![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
 
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
@@ -39,7 +41,8 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
 
-## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
+## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
+![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when [Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
-## 4\. Meta ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
+## 4\. Meta
+![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on [Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
@@ -67,7 +71,8 @@ thumbnail: https://thmb.techidaily.com/8979e8080587e2a8dc2c43407031e5a8747618e7a
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-## 5\. Amazon Alexa ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
+## 5\. Amazon Alexa
+![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 

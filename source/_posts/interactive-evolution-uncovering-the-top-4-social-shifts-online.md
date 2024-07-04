@@ -1,7 +1,7 @@
 ---
 title: "Interactive Evolution: Uncovering the Top 4 Social Shifts Online"
-date: 2024-06-25T14:40:18.887Z
-updated: 2024-06-26T14:40:18.887Z
+date: 2024-07-03T12:12:33.909Z
+updated: 2024-07-04T12:12:33.909Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/f858bf5f9e0327b42a985f450fae85190a7aad26f
 
  Here is a look back at a few ways that different social media giants changed in 2022.
 
-## 1\. Facebook’s Increased Focus on the Metaverse ![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
+## 1\. Facebook’s Increased Focus on the Metaverse
+![logo of meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/logo-of-meta.jpg)
 
  Meta originally announced their company name change from Facebook in 2021, but 2022 saw an intense push from the platform for the metaverse. Several advertisers have joined the metaverse in 2022, and Meta developed and released high-tech VR headsets for users, according to [CNN](https://www.cnn.com/2022/10/30/tech/meta-metaverse-transition/index.html) .
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/f858bf5f9e0327b42a985f450fae85190a7aad26f
 
  Potential changes to Twitter’s community guidelines and policies have also been the subject of controversy in 2022 as Musk prioritized “free speech” on the platform.
 
-## 3\. Reels, Reels, Reels ![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
+## 3\. Reels, Reels, Reels
+![Instagram reel on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Instagram-Reel-Idea.jpg)
 
  Instagram made a major shift from a photo-sharing app to just about an everything social media app in 2022\. The app’s main focus has been pushing Instagram Reels and supporting creators who make and post Reels by showing their content to more people on the algorithmic home feed.
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/f858bf5f9e0327b42a985f450fae85190a7aad26f
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
-## Social Media in 2022 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+## Social Media in 2022
+![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 

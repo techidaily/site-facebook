@@ -1,7 +1,7 @@
 ---
 title: "Facebook May Be Forced to Sell Giphy: Here's Why"
-date: 2024-06-25T14:14:09.255Z
-updated: 2024-06-26T14:14:09.255Z
+date: 2024-07-03T12:12:32.863Z
+updated: 2024-07-04T12:12:32.863Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/cd8e54aa3eca787ba3997c63d63710b97ceb4c1f0
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
-## Meta's Appeal to Keep Giphy ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+## Meta's Appeal to Keep Giphy
+![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 

@@ -1,7 +1,7 @@
 ---
 title: Rescheduled WhatsApp Privacy Policy Update Enforcement
-date: 2024-06-25T14:01:22.218Z
-updated: 2024-06-26T14:01:22.218Z
+date: 2024-07-03T12:12:33.453Z
+updated: 2024-07-04T12:12:33.453Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/66f3cf36e141a02ee3ef4f8fc90997bfb9adc3902
 
  For the past few weeks, WhatsApp has been showing a notification inside its app to provide more information about its privacy policy. It is also sending reminders if you have not accepted its new privacy policy. Eventually, if you don't accept the privacy policy, the reminder from WhatsApp will become persistent.
 
-## Your WhatsApp Account Functionality Will Be Limited ![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
+## Your WhatsApp Account Functionality Will Be Limited
+![WhatsApp running on an iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/india-investigating-whatsapp-featured.jpg)
 
  Once a persistent reminder is shown, the functionality of your WhatsApp account will be limited. Initially, you'll only lose access to your chat list. You can, however, still answer incoming video or voice calls. You'll also be able to read and respond to messages or call back a missed voice or video call via notifications. In an [FAQ](https://faq.whatsapp.com/general/security-and-privacy/what-happens-when-our-terms-and-privacy-policy-updates-take-effect/?lang=en) , WhatsApp says the limitations will not apply to everyone at the same time.
 

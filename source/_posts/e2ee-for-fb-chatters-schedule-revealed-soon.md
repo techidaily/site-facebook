@@ -1,7 +1,7 @@
 ---
 title: "E2EE for FB Chatters: Schedule Revealed Soon?"
-date: 2024-06-25T13:59:35.888Z
-updated: 2024-06-26T13:59:35.888Z
+date: 2024-07-03T12:12:34.119Z
+updated: 2024-07-04T12:12:34.119Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,8 @@ thumbnail: https://thmb.techidaily.com/3ad0b37de8405ddff0a5f39b812ec8d893ee35987
 
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
-## Why Facebook Messenger Chats Are Yet to Be Encrypted ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
+## Why Facebook Messenger Chats Are Yet to Be Encrypted
+![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
 

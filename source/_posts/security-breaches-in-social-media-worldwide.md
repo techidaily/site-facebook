@@ -1,7 +1,7 @@
 ---
 title: Security Breaches in Social Media Worldwide
-date: 2024-06-25T14:26:21.508Z
-updated: 2024-06-26T14:26:21.508Z
+date: 2024-07-03T12:12:33.695Z
+updated: 2024-07-04T12:12:33.695Z
 tags:
   - facebook
 categories:
@@ -65,7 +65,8 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
  Fortunately, you can do a few key things to make it harder for hackers to take control of your social media accounts. Start by [setting strong, unique passwords](https://www.makeuseof.com/tag/5-common-tactics-hack-passwords/) . Then, see if your chosen platforms offer Two-Factor Authentication (2FA). Activating it sends text messages or email alerts about unusual access attempts to your registered device.
 
-## How to Handle a Social Media Hack ![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
+## How to Handle a Social Media Hack
+![man with hand over his mouth sitting at a desk and working on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/man-at-desk-working-on-laptop.jpg)
 
  You may follow all the cybersecurity best practices and still eventually deal with account hacks. Here are some tips for working through them.
 

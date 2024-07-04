@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Method for FB Photo and Video Downloads
-date: 2024-06-25T14:16:45.188Z
-updated: 2024-06-26T14:16:45.188Z
+date: 2024-07-03T12:12:33.975Z
+updated: 2024-07-04T12:12:33.975Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/dc54f112c78b3afb0110331eb25c5f493a4d3b214
 
  We'll show you the official methods as well as third-party photo downloader apps, allowing you to download your Facebook photos, your friends' photos, and videos.
 
-## How to Download Facebook Photos ![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
+## How to Download Facebook Photos
+![how to download facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/download-facebook-photo.jpg)
 
  If you want to save a single photo on Facebook, don't bother with third-party apps or websites. Facebook itself offers an easyphoto downloader tool.
 
@@ -83,7 +84,8 @@ Follow these steps to download your Facebook album:
 
  However, like most third-party downloading apps (including our previous favorite, VNHero Studio's Download Videos and Photos: Facebook and Instagram), the app is no longer available on Google's Play Store. We, therefore, recommend using the built-in download feature to save your Facebook photos or those of your friends offline.
 
-## How to Save Facebook Videos to Your Computer or Phone ![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
+## How to Save Facebook Videos to Your Computer or Phone
+![FDown.net Facebook video downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/fdown-net-facebook-downloader.jpg)
 
  Pictures on Facebook have a simple Download button. But videos don't have any such easy way to download them.[FDown.net](https://fdown.net/) is one of the easiest web apps you can use to save Facebook videos. The site lets you [download private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) and works on desktop computers and smartphones.
 

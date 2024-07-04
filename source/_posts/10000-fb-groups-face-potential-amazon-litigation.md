@@ -1,7 +1,7 @@
 ---
 title: 10,000 FB Groups Face Potential Amazon Litigation
-date: 2024-06-25T14:51:21.977Z
-updated: 2024-06-26T14:51:21.977Z
+date: 2024-07-03T12:12:33.651Z
+updated: 2024-07-04T12:12:33.651Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/db2dfa016aad5526d4e3599a68e42c8f3cfa16759
 
  Amazon doesn't like this one bit and have taken legal steps to stop it. Here are the details...
 
-## Amazon Sues Facebook Group Admins ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
+## Amazon Sues Facebook Group Admins
+![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
@@ -31,7 +32,8 @@ thumbnail: https://thmb.techidaily.com/db2dfa016aad5526d4e3599a68e42c8f3cfa16759
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
-## Why Amazon Filed the Case ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+## Why Amazon Filed the Case
+![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 

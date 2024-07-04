@@ -1,7 +1,7 @@
 ---
 title: 3 Sophisticated Social Media Scams You Need to Avoid
-date: 2024-06-25T14:28:33.155Z
-updated: 2024-06-26T14:28:33.155Z
+date: 2024-07-03T12:12:33.643Z
+updated: 2024-07-04T12:12:33.643Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/e61ec8b8b6fcdc5ae49f80ff7f35fd26c15f5f9f2
 
  Owing to widespread awareness, common internet scams like the infamous "Nigerian prince" fraud are now easily discerned by potential victims. Unfortunately, scammers have evolved and now employ more sophisticated tactics to defraud their victims. And social media plays a key part in that. Here's what you need to look out for, and how to spot online scams.
 
-## 1\. Instragam Celebrity Scam ![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
+## 1\. Instragam Celebrity Scam
+![Instagram Log In](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/solen-feyissa-KWZa42a1kds-unsplash.jpg)
 
  Although largely unnoticed, Instagram celebrity scams are one of the most financially costly examples of fraud on the internet. Unlike most scams that involve small amounts of money, this type of scam—typically orchestrated on, but not necessarily isolated to, Instagram—is designed to hit victims hard in one swoop.
 
@@ -46,7 +47,8 @@ There are some simple things you can do to avoid this kind of scam:
 * Always do thorough research of a celebrity's management team before committing to any form of payment.
 * Remember that most of these opportunities aren't opportunities at all: they're scams.
 
-## 2\. Telegram Cryptocurrency Scam ![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
+## 2\. Telegram Cryptocurrency Scam
+![Telegram app opened on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Telegram-Group-Vs-Channel-Cover.jpg)
 
  The Telegram cryptocurrency scam is a bogus cryptocurrency mining scheme carried out on Telegram groups. Like most scams executed on social media apps, the scammers leverage a huge number of participants to spoof legitimacy.
 
@@ -70,7 +72,8 @@ There are some simple things you can do to avoid this kind of scam:
 
  To avoid this kind of scam, only transact with reputable cryptocurrency businesses. Also, ignore messages asking you to pay a certain fee to secure a tool to mine cryptocurrency.
 
-## 3\. Facebook Dating Scams ![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
+## 3\. Facebook Dating Scams
+![Facebook logo on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-logo-on-a-smartphone.jpg)
 
  In the past, dating scams were mainly carried out on dating apps and websites. Fortunately, most people have learned not to trust random strangers they meet on dating sites. With that frontier being less profitable, scammers have evolved their tactics. They've taken up Facebook as a viable platform to execute their scams.
 

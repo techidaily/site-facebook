@@ -1,7 +1,7 @@
 ---
 title: Discovering Sheryl's Strategies at Facebook Inc
-date: 2024-06-25T14:18:00.733Z
-updated: 2024-06-26T14:18:00.733Z
+date: 2024-07-03T12:12:34.555Z
+updated: 2024-07-04T12:12:34.555Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cb
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
-## A Brief History of Sheryl Sandberg's Role at Facebook ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+## A Brief History of Sheryl Sandberg's Role at Facebook
+![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -55,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/ebd8fd55586bef5fe806c5a6931ae068dd25745cb
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
-## Why Sheryl Sandberg Is Leaving Meta ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## Why Sheryl Sandberg Is Leaving Meta
+![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 

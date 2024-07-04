@@ -1,7 +1,7 @@
 ---
 title: Dissecting Meta's New Privacy Standards and Impact
-date: 2024-06-25T14:16:04.114Z
-updated: 2024-06-26T14:16:04.114Z
+date: 2024-07-03T12:12:34.031Z
+updated: 2024-07-04T12:12:34.031Z
 tags:
   - facebook
 categories:
@@ -25,7 +25,8 @@ thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a4
 
  Meta began rolling out notifications about their new privacy policy update in May 2022\. These notifications serve as a way to let Meta users educate themselves on the new update, but no action is required to continue using Meta platforms.
 
-## Three phone screens with facebook notifications about a privacy policy update ![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
+## Three phone screens with facebook notifications about a privacy policy update
+![Three phone screens with facebook notifications about a privacy policy update](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Meta_Notifications.jpeg)
 
  According to Meta, these changes have been "inspired by feedback from privacy experts, policymakers, and people who use \[Meta\] services".
 

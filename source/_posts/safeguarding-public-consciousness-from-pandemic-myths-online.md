@@ -1,7 +1,7 @@
 ---
 title: Safeguarding Public Consciousness From Pandemic Myths Online
-date: 2024-06-25T14:18:16.748Z
-updated: 2024-06-26T14:18:16.748Z
+date: 2024-07-03T12:12:33.752Z
+updated: 2024-07-04T12:12:33.752Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,8 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
+## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
+![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 

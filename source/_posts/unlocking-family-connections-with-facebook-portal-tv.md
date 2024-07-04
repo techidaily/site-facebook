@@ -1,7 +1,7 @@
 ---
 title: Unlocking Family Connections with Facebook Portal TV
-date: 2024-06-25T13:58:36.829Z
-updated: 2024-06-26T13:58:36.829Z
+date: 2024-07-03T12:12:33.965Z
+updated: 2024-07-04T12:12:33.965Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/9ca2eff6ae26123de716ede19623049b700dbda01
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV
+![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -85,7 +86,8 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi
+![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -104,7 +106,8 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know
+![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 

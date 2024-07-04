@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Social Supremacy Is a Nightmare
-date: 2024-06-25T14:15:51.045Z
-updated: 2024-06-26T14:15:51.045Z
+date: 2024-07-03T12:12:33.032Z
+updated: 2024-07-04T12:12:33.032Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/cda03445bb5af4617363a25ef0e62c6e1b665fa4b
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
-## 1\. An Entrapping Social Media Monopoly ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## 1\. An Entrapping Social Media Monopoly
+![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  According to [Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
@@ -37,7 +38,8 @@ thumbnail: https://thmb.techidaily.com/cda03445bb5af4617363a25ef0e62c6e1b665fa4b
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-## 2\. Meta Wields Too Much Power ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+## 2\. Meta Wields Too Much Power
+![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
@@ -47,7 +49,8 @@ thumbnail: https://thmb.techidaily.com/cda03445bb5af4617363a25ef0e62c6e1b665fa4b
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-## 3\. A Privacy Dilemma ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+## 3\. A Privacy Dilemma
+![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 

@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Procedure for Altering Your Facebook Nickname
-date: 2024-06-25T14:28:26.630Z
-updated: 2024-06-26T14:28:26.630Z
+date: 2024-07-03T12:12:33.315Z
+updated: 2024-07-04T12:12:33.315Z
 tags:
   - facebook
 categories:
@@ -39,7 +39,8 @@ To change your name on the Facebook website, do the following:
 7. Make your selection, enter your password, and click**Save Changes** .  
 ![Saving your new name on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/review-name-change-facebook.png)
 
-### On the Facebook App ![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
+### On the Facebook App
+![facebook menu page ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/facebook-menu-page-ios.jpg)
 
 ![personal information page facebook ios](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/personal-information-page-facebook-ios.jpg)
 

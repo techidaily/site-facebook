@@ -1,7 +1,7 @@
 ---
 title: "Mobile Mastery: Fastest Android Compact Apps"
-date: 2024-06-25T14:04:41.172Z
-updated: 2024-06-26T14:04:41.172Z
+date: 2024-07-03T12:12:33.954Z
+updated: 2024-07-04T12:12:33.954Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/747b49f807ccf9f14c19b340ff456a78dd6771bea
 
  Here are the lite versions of some of the popular apps that are worth installing.
 
-## 1\. Skype Lite ![Skype Lite - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Skype-Lite---Home.png)
+## 1\. Skype Lite
+![Skype Lite - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Skype-Lite---Home.png)
 
 ![Skype Lite - Calls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Skype-Lite---Calls.png)
 
@@ -35,7 +36,8 @@ Close
 
 **Download:** [Skype Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.skype.m2&hl=en&gl=CN) (Free)
 
-## 2\. Facebook Lite ![Facebook Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---Main.png)
+## 2\. Facebook Lite
+![Facebook Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---Main.png)
 
 ![Facebook Lite - News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Lite---News-Feed.png)
 
@@ -53,7 +55,8 @@ Close
 
 **Download:** [Facebook Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.facebook.lite) (Free)
 
-## 3\. Messenger Lite ![Messenger Lite - Chat](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Chat.png)
+## 3\. Messenger Lite
+![Messenger Lite - Chat](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Chat.png)
 
 ![Messenger Lite - Search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Messenger-Lite---Search.png)
 
@@ -67,7 +70,8 @@ Close
 
 **Download:** [Messenger Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.facebook.mlite) (Free)
 
-## 4\. Instagram Lite ![Instagram Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Sign-Up.png)
+## 4\. Instagram Lite
+![Instagram Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Sign-Up.png)
 
 ![Instagram Lite - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Instagram-Lite---Home.png)
 
@@ -85,7 +89,8 @@ Close
 
 **Download:** [Instagram Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.instagram.lite) (Free)
 
-## 5\. LinkedIn Lite ![LinkedIn Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Registration.png)
+## 5\. LinkedIn Lite
+![LinkedIn Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Registration.png)
 
 ![LinkedIn Lite - Profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/LinkedIn-Lite---Profile.png)
 
@@ -99,7 +104,8 @@ Close
 
 **Download:** [LinkedIn Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.linkedin.android.lite) (Free)
 
-## 6\. Twitter Lite ![Twitter Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Sign-Up.png)
+## 6\. Twitter Lite
+![Twitter Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Sign-Up.png)
 
 ![Twitter Lite - Search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Twitter-Lite---Search.png)
 
@@ -115,7 +121,8 @@ Close
 
 **Download:** [Twitter Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.twitter.android.lite) (Free)
 
-## 7\. Spotify Lite ![Spotify Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Spotify-Lite---Sign-Up.png)
+## 7\. Spotify Lite
+![Spotify Lite - Sign Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Spotify-Lite---Sign-Up.png)
 
 ![Spotify Lite - Album](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Spotify-Lite---Album.png)
 
@@ -131,7 +138,8 @@ Close
 
 **Download:** [Spotify Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.spotify.lite) (Free)
 
-## 8\. Parallel Space Lite ![ParallellSpace Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParallellSpace-Lite---Main.png)
+## 8\. Parallel Space Lite
+![ParallellSpace Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParallellSpace-Lite---Main.png)
 
 ![ParallelSpace Lite - Cloning Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ParallelSpace-Lite---Cloning-Menu.png)
 
@@ -147,7 +155,8 @@ The Lite version lacks the incognito feature of Parallel Space.
 
 **Download:** [Parallel Space Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.parallel.space.lite) (Free, in-app purchases available)
 
-## 9\. Pinterest Lite ![Pinterest Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Registration.png)
+## 9\. Pinterest Lite
+![Pinterest Lite - Registration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Registration.png)
 
 ![Pinterest Lite - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Pinterest-Lite---Main.png)
 
@@ -161,7 +170,8 @@ Close
 
 **Download:** [Pinterest Lite](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU45221/https://play.google.com/store/apps/details?id=com.pinterest.twa) (Free)
 
-## 10\. Go Versions of Google Apps ![Google Go - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Google-Go---Home.png)
+## 10\. Go Versions of Google Apps
+![Google Go - Home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Google-Go---Home.png)
 
 ![Maps Go - Main](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Maps-Go---Main.png)
 

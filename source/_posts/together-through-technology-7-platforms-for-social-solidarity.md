@@ -1,7 +1,7 @@
 ---
 title: "Together Through Technology: 7 Platforms for Social Solidarity"
-date: 2024-06-25T14:07:47.276Z
-updated: 2024-06-26T14:07:47.276Z
+date: 2024-07-03T12:12:32.854Z
+updated: 2024-07-04T12:12:32.854Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/83810aeb2f4e9067a8450e307f943cc7eb4a02a55
 
 Here are the ways that social media brings people together...
 
-## 1\. Keeping in Touch With Friends and Family ![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
+## 1\. Keeping in Touch With Friends and Family
+![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
 
  Many people around the world experience loneliness. It may be because you are newly single, widowed, have moved away from family and friends for work—or you may just be shy and uncomfortable with in-person interaction.
 
@@ -29,7 +30,8 @@ Here are the ways that social media brings people together...
 
  It's a great way to reconnect with people you have lost touch with and keep in contact with your loved ones. Check out our guide on [stopping strangers from seeing your Facebook](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) if you want to up your privacy settings.
 
-## 2\. Maintaining Long-Distance Relationships ![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
+## 2\. Maintaining Long-Distance Relationships
+![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
 
  Sometimes, life keeps couples physically apart from one another. But through social media, you and your partner can stay connected without needing to constantly chat.
 
@@ -45,7 +47,8 @@ To use Facebook Messenger's video call feature:
 
  If you're looking for different messaging apps to try, consider checking out the [best all-in-one messaging platforms to simplify your communications](https://www.makeuseof.com/best-all-in-one-messaging-platforms/) .
 
-## 3\. Sharing Pictures With Your Family and Friends ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
+## 3\. Sharing Pictures With Your Family and Friends
+![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
 
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
@@ -61,7 +64,8 @@ To use Facebook Messenger's video call feature:
 
  If you are feeling lonely, joining a Facebook group is a perfect way to meet people who share the same interests as you.
 
-### How to Join Groups on Facebook ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
+### How to Join Groups on Facebook
+![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
 
 To join a group on Facebook, follow these steps:
 
@@ -76,7 +80,8 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
-## 5\. Joining Social Media Movements ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
+## 5\. Joining Social Media Movements
+![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
 
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many [Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
 
@@ -84,13 +89,15 @@ Then, wait for your request to be approved and start connecting!
 
  The birthplace of many social media movements is on Twitter. People use hashtags such as #metoo to unite all the posts in one place and tell their stories. Hashtags have brought attention to many injustices in the world and have also bonded people together in times of tragedy.
 
-## 6\. Meeting New People ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
+## 6\. Meeting New People
+![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
 
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great [social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
 
-## 7\. Helping People Reunite With Others and Items ![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
+## 7\. Helping People Reunite With Others and Items
+![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
 
  In addition to raising awareness for important global issues, social media is also powerful in potentially dangerous situations. For example, some people have used Facebook and Twitter to share details of missing people or pets—which has allowed others to inform the original poster if they see or know something.
 

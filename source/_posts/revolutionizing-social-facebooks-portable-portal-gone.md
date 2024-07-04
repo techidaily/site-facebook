@@ -1,7 +1,7 @@
 ---
 title: "Revolutionizing Social: Facebook's Portable Portal Gone"
-date: 2024-06-25T14:22:35.458Z
-updated: 2024-06-26T14:22:35.458Z
+date: 2024-07-03T12:12:32.929Z
+updated: 2024-07-04T12:12:32.929Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/964056d5a42fd554adb9e457ea6c862e5065495ad
 
  We'll take a look at the new product and how it differs from other devices in the Portal family.
 
-## Video Chatting and More on the Go ![facebook portal go charger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-portal-go-charger-1.jpg)
+## Video Chatting and More on the Go
+![facebook portal go charger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-portal-go-charger-1.jpg)
 
  Portal Go brings the usual smart camera experience but with a unique twist. Thanks to a built-in battery, the device can be taken from room to room in a home during a Zoom video call or anything else.
 

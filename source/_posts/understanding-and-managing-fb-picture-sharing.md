@@ -1,7 +1,7 @@
 ---
 title: Understanding & Managing Fb Picture Sharing
-date: 2024-06-25T13:48:36.639Z
-updated: 2024-06-26T13:48:36.639Z
+date: 2024-07-03T12:12:33.374Z
+updated: 2024-07-04T12:12:33.374Z
 tags:
   - facebook
 categories:
@@ -36,7 +36,8 @@ thumbnail: https://thmb.techidaily.com/700625a34f6d568e2eb348094b74f328e37fece77
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
 
-### 1\. Inline Privacy Controls ![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
+### 1\. Inline Privacy Controls
+![facebook upload privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-upload-privacy.png)
 
  Let's start at the very beginning. Even if the privacy of your old photos is a mess, it's time to turn over a new leaf. So let's make sure the privacy is correct for all your new photos going forward.
 
@@ -70,7 +71,8 @@ thumbnail: https://thmb.techidaily.com/700625a34f6d568e2eb348094b74f328e37fece77
 
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
-### Pro Tip: Use the Activity Log ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
+### Pro Tip: Use the Activity Log
+![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
@@ -88,7 +90,8 @@ thumbnail: https://thmb.techidaily.com/700625a34f6d568e2eb348094b74f328e37fece77
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-### Tag Suggestions ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+### Tag Suggestions
+![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 

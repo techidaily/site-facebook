@@ -1,7 +1,7 @@
 ---
 title: Five Times Facebook Missed the Mark on Privacy and Trust
-date: 2024-06-25T14:07:19.862Z
-updated: 2024-06-26T14:07:19.862Z
+date: 2024-07-03T12:12:34.423Z
+updated: 2024-07-04T12:12:34.423Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,8 @@ thumbnail: https://thmb.techidaily.com/58d1c82f33ff87a2a49ef482dc26ca840416cdee7
 
  Before its permanent shutdown in September 2009, Facebook users were informed of the decision. Mark Zuckerberg publicly apologized to all Facebook users. He also accepted that Facebook Beacon had some issues. Some people bought it as an honest mistake, but many remained unimpressed.
 
-## 2\. Copying Competitors and Not Offering Something New ![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
+## 2\. Copying Competitors and Not Offering Something New
+![Facebook Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-stories.jpg)
 
 ![Snapchat Stories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/snapchat-stories.JPG)
 
@@ -45,7 +46,8 @@ Close
 
  So, will Facebook take some action and bring creativity to the table? Maybe, maybe not. Only time can tell.
 
-## 3\. Data Harvesting Through Quizzes and Third-Party Apps ![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
+## 3\. Data Harvesting Through Quizzes and Third-Party Apps
+![Data-collection](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/data-collection.jpg)
 
  Many Facebook users have taken quizzes and played games on the app. We are talking about things like “Which SpongeBob Character Are You?” or “What Does Your Zodiac Say About You?”.
 
@@ -57,7 +59,8 @@ Close
 
  Mark Zuckerberg was considered directly responsible for this failure. Users now have a dedicated section to review the apps that you have connected to Facebook and what websites are logged in using Facebook. You can deny permission to Facebook for any app you feel uncomfortable sharing your personal information with.
 
-## 4\. The Spread of Fake News ![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
+## 4\. The Spread of Fake News
+![Tick cross](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/tick-cross.jpg)
 
  With billions of users and regular engagement, Facebook has become a hub for spreading false news online.
 

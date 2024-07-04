@@ -1,7 +1,7 @@
 ---
 title: "Archive Every Echo: Comprehensive History Collection on Social Media"
-date: 2024-06-25T13:51:24.728Z
-updated: 2024-06-26T13:51:24.728Z
+date: 2024-07-03T12:12:33.414Z
+updated: 2024-07-04T12:12:33.414Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,8 @@ thumbnail: https://thmb.techidaily.com/3f45b4986206d046cd956542a295fe465671e73b8
 
  Since the file you're downloading is quite large, we'll cover the method most users will opt for—sending the request via your desktop browser.
 
-## How to Request Your Data on the Facebook Website ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
+## How to Request Your Data on the Facebook Website
+![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
@@ -47,7 +48,8 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related:[How to Extract Files From ZIP, RAR, 7z, and Other Common Archives](https://www.makeuseof.com/tag/extract-files-zip-rar-7z-common-archives/)
 
-## Customizing Your Facebook Data Download ![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
+## Customizing Your Facebook Data Download
+![Facebook download your information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-information-1.png)
 
  Facebook allows you to sort your downloads and to choose which information to download according to a variety of filters. These include:
 

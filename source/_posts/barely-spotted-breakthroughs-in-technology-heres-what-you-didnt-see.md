@@ -1,7 +1,7 @@
 ---
 title: Barely Spotted Breakthroughs in Technology - Here's What You Didn't See
-date: 2024-06-25T14:16:51.259Z
-updated: 2024-06-26T14:16:51.259Z
+date: 2024-07-03T12:12:33.889Z
+updated: 2024-07-04T12:12:33.889Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/d8f58ce885808b79b129b3a2207409d6b0df7e72b
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks
+![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/d8f58ce885808b79b129b3a2207409d6b0df7e72b
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet
+![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/d8f58ce885808b79b129b3a2207409d6b0df7e72b
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse
+![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/d8f58ce885808b79b129b3a2207409d6b0df7e72b
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War
+![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 

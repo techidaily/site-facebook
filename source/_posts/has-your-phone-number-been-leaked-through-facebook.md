@@ -1,7 +1,7 @@
 ---
 title: Has Your Phone Number Been Leaked Through Facebook?
-date: 2024-06-25T13:59:03.941Z
-updated: 2024-06-26T13:59:03.941Z
+date: 2024-07-03T12:12:33.822Z
+updated: 2024-07-04T12:12:33.822Z
 tags:
   - facebook
 categories:
@@ -61,7 +61,8 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
 
-## How to Keep Your Personal Data Protected ![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+## How to Keep Your Personal Data Protected
+![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
 
  By employing the following tactics, you can keep your personal data protected.
 
@@ -79,7 +80,8 @@ thumbnail: https://thmb.techidaily.com/4e9049dc8c6c71972ee6cfdb2106ce48df8399753
 
  A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
 
-### Enable Multi-Factor Authentication On Social Media Accounts ![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+### Enable Multi-Factor Authentication On Social Media Accounts
+![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
 
  Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
 

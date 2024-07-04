@@ -1,7 +1,7 @@
 ---
 title: "Exploring Advanced Conversational AI: MetaAI"
-date: 2024-06-25T14:25:01.867Z
-updated: 2024-06-26T14:25:01.867Z
+date: 2024-07-03T12:12:32.915Z
+updated: 2024-07-04T12:12:32.915Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/1226fbaa741004693d1f4b8bc9bf88f0e71c8201e
 
  Meta, a significant player in the AI space, has mostly been silent in the ongoing AI face-offs. However, the social media giant has unveiled MetaAI, its response to OpenAI's ChatGPT and Google's Bard. But how good is MetaAI and will it be able to compete with other established AI chatbots? Let's find out.
 
-## Meta Announces MetaAI Chatbot ![3D meta logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/meta-6946620.jpg)
+## Meta Announces MetaAI Chatbot
+![3D meta logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/meta-6946620.jpg)
 
  While the likes of OpenAI, Anthropic, and Google are today's public face of AI technology, Meta has made comparable strides in the AI landscape, although with less publicity. Most of Meta's platforms, including Facebook and Instagram, rely heavily on AI to operate smoothly.
 

@@ -1,7 +1,7 @@
 ---
 title: Deciphering the Refund Regulations of Social Media Commerce
-date: 2024-06-25T14:09:44.640Z
-updated: 2024-06-26T14:09:44.640Z
+date: 2024-07-03T12:12:33.207Z
+updated: 2024-07-04T12:12:33.207Z
 tags:
   - facebook
 categories:
@@ -34,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/48b583faa31b393aa904516c2278bd0e1546bcda1
 
  We've written about some of [the best ways to send money to friends](https://www.makeuseof.com/tag/6-apps-help-transfer-money-friends/) if you would like to learn about other options.
 
-## Refunds for Facebook Page Purchases ![facebook pay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-pay-1.jpg)
+## Refunds for Facebook Page Purchases
+![facebook pay](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-pay-1.jpg)
 
  Facebook does not process refunds for purchases made on Pages. Instead, the responsibility falls on the seller. This means that you'll need to reach out and contact the person and hope they are amenable to your request.
 
@@ -60,7 +61,8 @@ If you want a refund, follow these steps:
 
  You can always refund game charges purchased on your account by someone under the age of 18 or if you notice unidentified charges on your account.
 
-## Facebook Marketplace Returns Policy ![facebook responsible marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-responsible-marketplace.jpg)
+## Facebook Marketplace Returns Policy
+![facebook responsible marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-responsible-marketplace.jpg)
 
  Broadly speaking, Facebook takes no responsibility for the items sold in its Marketplace. The web is littered with stories from people who have received a defective item, only for the seller to delete the listing and remove all traces of the transaction. It is very much a case of "buyer beware".
 

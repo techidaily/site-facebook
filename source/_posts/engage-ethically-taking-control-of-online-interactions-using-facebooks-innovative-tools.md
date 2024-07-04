@@ -1,7 +1,7 @@
 ---
 title: "Engage Ethically: Taking Control of Online Interactions Using Facebook’s Innovative Tools"
-date: 2024-06-25T14:08:53.343Z
-updated: 2024-06-26T14:08:53.343Z
+date: 2024-07-03T12:12:34.091Z
+updated: 2024-07-04T12:12:34.091Z
 tags:
   - facebook
 categories:
@@ -32,7 +32,8 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ## How to Use Facebook's New Moderation Tools
 
-### Content Moderation ![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
+### Content Moderation
+![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
 
  This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
 

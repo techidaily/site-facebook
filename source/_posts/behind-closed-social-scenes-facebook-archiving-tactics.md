@@ -1,0 +1,139 @@
+---
+title: "Behind Closed Social Scenes: Facebook Archiving Tactics"
+date: 2024-07-03T12:17:46.458Z
+updated: 2024-07-04T12:17:46.458Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Behind Closed Social Scenes: Facebook Archiving Tactics"
+excerpt: "This Article Describes Behind Closed Social Scenes: Facebook Archiving Tactics"
+keywords: FB Archiving Secrets,Social Media Storage,Behind-the-Scenes FB,Private Page Preservation,Digital Content Management,Online Profile Backups,Platform Privacy Controls
+thumbnail: https://thmb.techidaily.com/eb6c43743edfe7719c43f746c3a62c94afe56182a98c24ab59e2903c5366daaa.jpg
+---
+
+## Behind Closed Social Scenes: Facebook Archiving Tactics
+
+ Don't you just love it when you get a notification that the Facebook friend whose request you accepted minutes ago liked your 2013 photo?
+
+ We've all been there. If you're like most people, then you probably have some Facebook posts, photos especially, that you don't want to delete but at the same time don't want people's eyes on them.
+
+ This article will show you how to use the archive feature to hide such posts from prying eyes on Facebook.
+
+## How the Archive Feature Works on Facebook
+
+ The archive feature is a tool you can use to hide posts you no longer want to show on your profile. The archive feature is available on the Facebook app as well as on the web version.
+
+ Only you can see posts in your archive and restore them to your profile at any time. Archiving your posts may not protect them in case of [a data breach](https://www.makeuseof.com/worst-data-breaches/) , but it can help keep them away from prying eyes.
+
+ You can also choose to move posts from your archive to the recycle bin, where they'll be auto-deleted after 30 days.
+
+ Related:[How to Hide Your Social Media Profiles From Bullies](https://www.makeuseof.com/tag/how-to-hide-your-social-media-profiles/)
+
+## How to Hide Facebook Posts With the Archive Feature
+
+ Depending on the number of posts you'd like to hide, you can choose between archiving individual posts or bulk-archiving them.
+
+This guide will show you how to do both.
+
+### How to Archive a Single Facebook Post
+
+Follow the steps below to archive a post on Facebook.
+
+![screen showing facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile-page.jpg)
+
+![screen showing move to archive on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-move-to-archive-on-facebook.jpg)
+
+Close
+
+1. Launch the Facebook app on your device.
+2. Navigate to your profile and then scroll to the post you want to hide. You can only archive a post from your timeline, so you may need to scroll for a while if the post is an old post.
+3. Tap on the**ellipsis** (three dots) on the post box.
+4. Select**Move to archive** .
+
+ This will immediately remove the post from your timeline, and you can only access it through the archive folder.
+
+### How to Archive Facebook Posts in Bulk
+
+Here's how you can archive multiple posts at once:
+
+![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
+
+![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
+
+![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
+
+![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
+
+Close
+
+1. Navigate to your profile.
+2. Tap on the**ellipsis button** below your profile picture.
+3. Select**Activity log** .
+4. Tap on**Manage Your Posts** .
+5. Select all the posts you'd like to archive, then tap**Archive** .
+
+This will immediately move the posts to your archive.
+
+## How to Restore Archived Posts on Facebook
+
+Here's how to restore archived posts on Facebook:
+
+![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
+
+![screen showing navigation to archive page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-archive-page-on-Facebook.jpg)
+
+![screen showing how to restore archived post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-restore-archived-post-on-Facebook.jpg)
+
+Close
+
+1. Tap on the**ellipsis button** on your profile.
+2. Select**Archive** .
+3. Check the posts you'd like to restore.
+4. Tap**Restore** .
+5. Confirm you want to restore by tapping**Restore** .
+
+ The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
+
+## Keep Your Memories Away From Prying Eyes
+
+ If you want to hide old posts on Facebook but at the same time don't want to delete them, go ahead and archive them.
+
+ The archived posts will only be accessible through your Archive page, and others can't see them. You can always restore an archived post anytime in the future.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/personalizing-self-safety-marker-on-social-media/"><u>Personalizing Self-Safety Marker on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-apocalypse-today-fb-whatsapp-ig-failures/"><u>App Apocalypse Today: FB, WhatsApp, IG Failures</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-did-my-social-journey-begin-on-facebook/"><u>When Did My Social Journey Begin on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-smart-social-networking-balancing-favorites-and-blocks-on-facebook/"><u>A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-identity-codes-fb-pages-and-unames/"><u>Understanding Social Media Identity Codes: FB Pages & UNAMES</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-free-and-fabulous-the-top-online-video-stabilizers-for-a-professional-finish/"><u>In 2024, Free and Fabulous The Top Online Video Stabilizers for a Professional Finish</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-whats-new-with-bandicam-the-2023-expert-analysis/"><u>[New] In 2024, What's New with Bandicam – The 2023 Expert Analysis</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-how-to-remove-distortion-from-audio-for-your-video-for-2024/"><u>Updated How to Remove Distortion From Audio for Your Video for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-terrain-trove-top-maps-for-treasure-seeking/"><u>[Updated] 2024 Approved  Terrain Trove  Top Maps for Treasure Seeking</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-uncovering-the-truth-behind-4-second-youtube-subscriptions/"><u>[Updated] Uncovering the Truth Behind 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratitude-freepaid-video-outro-template-gallery-for-2024/"><u>Gratitude  Free/Paid Video Outro Template Gallery for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-audio-liberation-nine-simple-methods-for-mp4-sound-retrieval-future-edition/"><u>New Audio Liberation Nine Simple Methods for MP4 Sound Retrieval, Future Edition</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instasaves-the-leading-videophoto-downloaders-for-2024/"><u>[Updated] InstaSaves  The Leading Video/Photo Downloaders for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-harmony-hearts-the-ideal-playlist-for-a-life-changing-kiss/"><u>[Updated] Harmony Hearts  The Ideal Playlist for a Life-Changing Kiss</u></a></li>
+</ul></div>

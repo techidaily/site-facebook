@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Guide to Recruitment via Social Media Platforms
-date: 2024-06-25T14:36:53.844Z
-updated: 2024-06-26T14:36:53.844Z
+date: 2024-07-03T12:12:34.325Z
+updated: 2024-07-04T12:12:34.325Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390
 
 Here's how to do just that…
 
-## Facebook Job Posting Requirements ![Facebook create a business page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-a-business-page.png)
+## Facebook Job Posting Requirements
+![Facebook create a business page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-a-business-page.png)
 
 ![get started on your business page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/get-page-started.png)
 
@@ -37,7 +38,8 @@ To create a new business page, follow these steps:
 
  Related:[What Happens When You Convert Your Facebook Profile to a Page?](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/)
 
-## How to Post a Job on Facebook ![menu options on business page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-post.png)
+## How to Post a Job on Facebook
+![menu options on business page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-post.png)
 
 ![create job option.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-job.png)
 

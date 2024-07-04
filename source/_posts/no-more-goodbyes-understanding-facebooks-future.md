@@ -1,7 +1,7 @@
 ---
 title: 'No More Goodbyes' - Understanding Facebook’s Future
-date: 2024-06-25T14:46:55.516Z
-updated: 2024-06-26T14:46:55.516Z
+date: 2024-07-03T12:12:33.351Z
+updated: 2024-07-04T12:12:33.351Z
 tags:
   - facebook
 categories:
@@ -27,7 +27,8 @@ In the post, Facebook Head Tom Alison said:
 
  This doesn't mean, however, that Facebook plans to stay on the exact same course. Alison also noted various ways the platform will change in the future.
 
-## How Facebook Is Evolving ![mobile phone showing aFacebook profile and placed beside a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/1200x600-27.jpg)
+## How Facebook Is Evolving
+![mobile phone showing aFacebook profile and placed beside a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/1200x600-27.jpg)
 
  Rather than connecting with family and friends, Facebook says that more users come to the platform to be entertained. As a result, the company is investing more in AI-powered discovery on Facebook.
 

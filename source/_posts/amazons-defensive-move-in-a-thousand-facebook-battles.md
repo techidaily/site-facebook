@@ -1,0 +1,97 @@
+---
+title: Amazon's Defensive Move in a Thousand Facebook Battles
+date: 2024-07-03T12:17:42.608Z
+updated: 2024-07-04T12:17:42.608Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Amazon's Defensive Move in a Thousand Facebook Battles
+excerpt: This Article Describes Amazon's Defensive Move in a Thousand Facebook Battles
+keywords: Amazon Defense Strategy,Amazon vs Facebook,Online Retail Warfare,Marketplace Dominance,E-Commerce Tactics,Social Media Influence,Retail Battlefronts
+thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2e7b43e02dacf71b94afcc8e.jpg
+---
+
+## Amazon's Defensive Move in a Thousand Facebook Battles
+
+ Amazon shoppers rely on reviews of a product by previous customers to help guide their buying choices. Crafty sellers have found a way to exploit this by using Facebook groups to mobilize fake positive product reviews.
+
+ Amazon doesn't like this one bit and have taken legal steps to stop it. Here are the details...
+
+## Amazon Sues Facebook Group Admins
+
+![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
+
+ Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
+
+ According to an [Amazon press release](https://press.aboutamazon.com/news-releases/news-release-details/amazon-targets-fake-review-fraudsters-social-media) :
+
+> These groups are set up to recruit individuals willing to post incentivized and misleading reviews on Amazon’s stores in the US, the UK, Germany, France, Italy, Spain, and Japan.
+
+ According to the company, the fake reviews affect hundreds of products across the site.
+
+ One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
+
+## Why Amazon Filed the Case
+
+![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+ Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
+
+ Furthermore, Amazon says Facebook groups like the now closed Amazon Product Review group avoid Facebook detection by "obfuscating letters from problematic phrases" (misspelling or replacing letters of key phrases).
+
+ Therefore, Amazon intends to use the information that this case uncovers to "identify bad actors and remove fake reviews" that both Facebook and Amazon have failed to catch.
+
+ The issue of fake reviews is also being investigated in the UK, according to a [statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
+
+## Are Fake Reviews a Big Problem?
+
+ Although fake reviews have been a problem for Amazon for years, COVID-19-related lockdowns intensified the problem as more people turned to online shopping.
+
+ According to [NY Intelligencer](https://nymag.com/intelligencer/2022/07/amazon-fake-reviews-can-they-be-stopped.html) , Fakespot (a plugin that detects fake reviews) reports that around 42 percent of 720 million Amazon reviews assessed in 2020 were fake.
+
+ Amazon says it took down more than 200 million suspected fake reviews in 2020 alone. Amazon has also reported more than 10,000 fake review groups to Meta since 2020\. Meta has taken down more than half.
+
+ There are several [tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
+
+## Amazon Might Never Succeed in Eliminating All Fake Reviews
+
+ Fake product reviews on the internet can't be eliminated entirely. However, fake reviews can be lowered to tolerable levels.
+
+ Amazon, Facebook, and all tech companies have no choice but to fight the problem with all the tools at their disposal, and in cooperation with one another, in order for e-commerce to thrive.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-amend-your-birthday-details-on-facebook/"><u>How to Amend Your Birthday Details on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-irreversible-disconnection-from-fb-community/"><u>Breaking Free: Irreversible Disconnection From FB Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-is-facebook-messenger-going-to-offer-end-to-end-encryption/"><u>When Is Facebook Messenger Going to Offer End-to-End Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-digital-life-the-complete-fb-safety-guidebook/"><u>Fortify Your Digital Life: The Complete FB Safety Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-cyberspace-for-socializing/"><u>Secure Cyberspace for Socializing</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-essential-calendar-tools-to-plan-your-feeds/"><u>8 Essential Calendar Tools to Plan Your Feeds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ovative-strategies-for-crafting-youtube-titles-and-tags-for-2024/"><u>5 Innovative Strategies for Crafting YouTube Titles & Tags for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-templates-and-makers-insights-for-end-credits/"><u>[Updated] Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-gaming-intro-makers-compared-top-picks-for-windows-and-mac-users/"><u>Updated 2024 Approved Gaming Intro Makers Compared Top Picks for Windows and Mac Users</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-honor-x9b-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Honor X9b</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/the-ultimate-list-of-iphone-and-ipad-audio-cutting-software-for-2024/"><u>The Ultimate List of iPhone and iPad Audio Cutting Software for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-a-call-concert-customize-your-ios-sound-scape/"><u>Crafting a Call Concert  Customize Your iOS Sound Scape</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/photographic-albums-with-background-music/"><u>Photographic Albums with Background Music</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-cutting-edge-identifying-the-best-10-free-online-art-schools-on-youtube/"><u>[New] 2024 Approved  Cutting Edge  Identifying the Best 10 Free Online Art Schools on YouTube</u></a></li>
+</ul></div>

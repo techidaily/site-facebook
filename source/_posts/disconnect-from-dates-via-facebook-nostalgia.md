@@ -1,7 +1,7 @@
 ---
 title: Disconnect From Dates via Facebook Nostalgia
-date: 2024-06-25T13:47:00.260Z
-updated: 2024-06-26T13:47:00.260Z
+date: 2024-07-03T12:12:34.064Z
+updated: 2024-07-04T12:12:34.064Z
 tags:
   - facebook
 categories:
@@ -47,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/c9b8fd1733901244b30160c420a56660fbc286946
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
 
-## How to Block Dates or Date Ranges in Facebook Memories ![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
+## How to Block Dates or Date Ranges in Facebook Memories
+![Screenshot Memories on Facebook hide date ranges](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/date-ranges.jpg)
 
  Facebook also lets you hide certain dates or entire date ranges. Here's how to do this:
 
@@ -58,7 +59,8 @@ thumbnail: https://thmb.techidaily.com/c9b8fd1733901244b30160c420a56660fbc286946
 
  That's it, memories from that particular date range won't show up.
 
-## How to Turn Off Facebook Memories Notifications ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
+## How to Turn Off Facebook Memories Notifications
+![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 

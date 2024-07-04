@@ -1,7 +1,7 @@
 ---
 title: "The Do and Don't of Social Media: Keeping Your Privacy Intact"
-date: 2024-06-25T14:13:51.126Z
-updated: 2024-06-26T14:13:51.126Z
+date: 2024-07-03T12:12:33.855Z
+updated: 2024-07-04T12:12:33.855Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans
+![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,7 +76,8 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 
  Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice
+![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -83,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/8b43ab5590e81a6b5b3d54c5bc573112dc5983325
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests
+![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 

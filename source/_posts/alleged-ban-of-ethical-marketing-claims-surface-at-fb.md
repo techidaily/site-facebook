@@ -73,23 +73,4 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook.techidaily.com/why-am-i-exposed-to-these-certain-fb-campaigns/"><u>Why Am I Exposed to These Certain Fb Campaigns?</u></a></li>
-<li><a href="https://facebook.techidaily.com/inhibit-people-you-may-know-alerts-on-social-network/"><u>Inhibit 'People You May Know' Alerts on Social Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-science-of-storytelling-creating-compelling-reels-for-your-business-on-facebook/"><u>The Science of Storytelling: Creating Compelling Reels for Your Business on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-we-at-the-top-of-facebooks-hype-curve/"><u>Are We at the Top of Facebook’s Hype Curve?</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-non-facebook-direct-message-apps/"><u>Mastering Non-Facebook Direct Message Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-filter-bubble-transparency-act/"><u>Decoding the Filter Bubble Transparency Act</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-queries-gain-friends-insights-via-chats/"><u>Crafting Queries: Gain Friends' Insights via Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-facebook-customizations-for-an-optimal-mobile-experience/"><u>Key Facebook Customizations for an Optimal Mobile Experience</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-revolutionize-your-unboxings-proven-tactics-to-impress-on-instagram/"><u>[Updated] Revolutionize Your Unboxings  Proven Tactics to Impress on Instagram</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-shorts-monetization-how-to-make-money-on-youtube-shorts/"><u>[New] YouTube Shorts Monetization  How to Make Money on YouTube Shorts?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-motorola-moto-g-stylus-5g-2023-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Motorola Moto G Stylus 5G (2023)</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-complete-insider-guide-to-creating-and-editing-videos-on-windows-11/"><u>In 2024, The Complete Insider Guide to Creating & Editing Videos on Windows 11</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-seize-your-online-sessions-the-ultimate-browser-recording-tools-list/"><u>[New] Seize Your Online Sessions  The Ultimate Browser Recording Tools List</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-essential-guide-to-apples-iphone-camera-evolution-in-ios-11/"><u>[Updated] The Essential Guide to Apple's iPhone Camera Evolution in iOS 11</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-kinetic-illustration-101-core-skills-and-concepts/"><u>[Updated] In 2024, Kinetic Illustration 101  Core Skills & Concepts</u></a></li>
-<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-sony-xperia-5-v-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Sony Xperia 5 V? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
-</ul></div>
+

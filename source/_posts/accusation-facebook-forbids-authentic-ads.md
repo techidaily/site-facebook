@@ -73,26 +73,4 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook.techidaily.com/the-ultimate-facebook-smart-hub-buying-guide/"><u>The Ultimate Facebook Smart Hub Buying Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-orders-judgment-for-trumps-prohibition/"><u>Facebook Orders Judgment for Trump's Prohibition.</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-with-selective-fb-sharing/"><u>Secure Your Digital Footprint with Selective FB Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-a-music-revenue-sharing-program-how-does-it-work/"><u>Facebook Launches a Music Revenue-Sharing Program: How Does It Work?</u></a></li>
-<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-is-my-online-life-suddenly-muted/"><u>Why Is My Online Life Suddenly Muted?</u></a></li>
-<li><a href="https://facebook.techidaily.com/count-of-friends-liking-you-online/"><u>Count of Friends Liking You Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/defeating-fb-pursuit-through-off-facebook-settings/"><u>Defeating FB Pursuit Through Off-Facebook Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
-<li><a href="https://facebook.techidaily.com/unshielded-from-sanctions-facebook-fosters-hate-campaigns/"><u>Unshielded From Sanctions, Facebook Fosters Hate Campaigns</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-oneplus-12rwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on OnePlus 12Rwith/without a PC</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mastering-cartoon-selfies-snapchats-fun-lens-guide-for-2024/"><u>[New] Mastering Cartoon Selfies  Snapchat's Fun Lens Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-learn-to-prevent-persistent-commercials-in-digital-platforms/"><u>[Updated] Learn to Prevent Persistent Commercials in Digital Platforms</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/no-budget-maximum-quality-8-prime-editors-for-youtubers/"><u>No Budget, Maximum Quality  8 Prime Editors for YouTubers</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-shake-up-your-streams-xplit-alternatives-explored/"><u>In 2024, Shake Up Your Streams  Xplit-Alternatives Explored</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-digital-recording-sounds-and-speech-capture/"><u>In 2024, Digital Recording  Sounds & Speech Capture</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/visual-virality-strategies-that-transform-snaps-into-success/"><u>Visual Virality  Strategies That Transform Snaps Into Success</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Where Is the Best Place to Catch Dratini On Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-full-review-of-facetune-2024s-new-photo-modifications/"><u>[New] Full Review of Facetune 2024'S New Photo Modifications</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-exploring-leading-free-mobile-audio-capture-solutions-for-android/"><u>New Exploring Leading Free Mobile Audio Capture Solutions for Android</u></a></li>
-</ul></div>
+

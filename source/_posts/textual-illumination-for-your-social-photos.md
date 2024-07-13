@@ -1,7 +1,7 @@
 ---
 title: Textual Illumination for Your Social Photos
-date: 2024-06-25T14:20:57.491Z
-updated: 2024-06-26T14:20:57.491Z
+date: 2024-07-12T10:10:06.567Z
+updated: 2024-07-13T10:10:06.567Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
-### How to Add Alt Text to Images on the Facebook App ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
+### How to Add Alt Text to Images on the Facebook App
+![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
@@ -54,7 +55,8 @@ Here’s how you add alt text to images while uploading them:
 
  There you have it. Your photos will now upload with your desired alt text.
 
-### How to Add Alt Text to Facebook Images on the Web ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
+### How to Add Alt Text to Facebook Images on the Web
+![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
  Here’s how to add alt text to your photos on Facebook's web browser.
 
@@ -68,7 +70,8 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-## How to Add Alt Text to Facebook Photos You've Already Uploaded ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
+## How to Add Alt Text to Facebook Photos You've Already Uploaded
+![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
@@ -110,3 +113,61 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-unfriendly-book-how-to-break-up-with-facebook-friends/"><u>The Unfriendly Book: How to Break Up with Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-spotify-account-from-your-facebook-space/"><u>Disconnecting Spotify Account From Your Facebook Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153264015-fb-oversight-to-announce-verdict-trump-ban-under-microscope/"><u>FB Oversight to Announce Verdict - Trump Ban Under Microscope</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-boosting-social-reach-share-tiktoks-with-a-twist-of-twitter-for-2024/"><u>[Updated] Boosting Social Reach  Share TikToks with a Twist of Twitter for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/activating-facebooks-secure-measures-a-step-by-step-guide/"><u>Activating Facebook's Secure Measures: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connecting-friends-to-global-community-facebook-as-meta-reimagined/"><u>From Connecting Friends to Global Community - Facebook as Meta Reimagined</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-streamlining-content-delivery-on-discord-platform/"><u>[Updated] Streamlining Content Delivery on Discord Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-an-absence-from-messenger/"><u>What Lies Behind an Absence From Messenger?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-speech-to-text-solutions-for-engaging-ppts/"><u>In 2024, Speech-to-Text Solutions for Engaging PPTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-engaging-translated-content-for-social-networking-sites/"><u>Creating Engaging Translated Content for Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-real-vs-phantom-identifying-false-accounts-in-fb/"><u>Unveiling Real Vs. Phantom: Identifying False Accounts in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/forgot-your-login-no-worries-we-reset-it-for-you/"><u>Forgot Your Login, No Worries! We Reset It for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-direct-messages-show-your-spot-to-friends/"><u>FB Direct Messages: Show Your Spot to Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-for-structured-relaxation-and-recovery/"><u>Leveraging Facebook for Structured Relaxation and Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-facebook-page-polling/"><u>A Step-by-Step Guide to Facebook Page Polling</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essence-of-ffmpeg-original-audio-capture-for-2024/"><u>The Essence of FFmpeg  Original Audio Capture for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-fine-tuning-minecrafts-ram-for-better-gaming-results-for-2024/"><u>[Updated] Fine-Tuning Minecraft's RAM for Better Gaming Results for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-15-pro-by-drfone-ios/"><u>A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 15 Pro</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-budget-friendly-vr-headsets-that-deliver-immersion/"><u>In 2024, Budget-Friendly VR Headsets That Deliver Immersion</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiency-and-wellness-mastering-facebook-breaks/"><u>Efficiency and Wellness: Mastering Facebook Breaks</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-effortless-flv-video-editing-on-windows-8-the-ultimate-guide/"><u>New In 2024, Effortless FLV Video Editing on Windows 8 The Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-the-messages-fb-icon-semantics/"><u>Untangling the Messages: FB Icon Semantics</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-couch-to-city-facebooks-mobile-portal/"><u>From Couch to City: Facebook's Mobile Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-sportsmen-leave-social-media-to-shun-online-harassment/"><u>Elite Sportsmen Leave Social Media to Shun Online Harassment</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-power-of-facebooks-latest-document-leak/"><u>Dissecting the Power of Facebook's Latest Document Leak</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-enhancing-your-presence-on-tiktok-from-mac-and-windows-pcs-for-2024/"><u>[New] Enhancing Your Presence on TikTok  From Mac and Windows PCs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-tour-of-metas-digital-command-center/"><u>A Comprehensive Tour of Meta's Digital Command Center</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-from-the-shadows-to-spotlight-rise-in-popularity-with-these-steps-on-youtube/"><u>[New] From the Shadows to Spotlight  Rise in Popularity with These Steps on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-7-ways-to-tidy-up-your-profile/"><u>Digital Detox: 7 Ways to Tidy Up Your Profile</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-precision-audio-editing-a-step-by-step-method-to-free-your-video-from-distorted-sounds/"><u>New 2024 Approved Precision Audio Editing A Step-by-Step Method to Free Your Video From Distorted Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-trend-alert-unbundling-giphy-from-facebook-debated/"><u>Tech Trend Alert: Unbundling Giphy From Facebook Debated</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-filters-a-comprehensive-guide/"><u>[New] In 2024, Instagram Filters  A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-opening-overtures-10-superior-tunes-to-pique-interest/"><u>[Updated] Opening Overtures  10 Superior Tunes to Pique Interest</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-which-facebook-portable-screen-suits-you-best/"><u>Assessing Which Facebook Portable Screen Suits You Best</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-significance-of-emojis-and-glyphs-on-facebook-messenger/"><u>Understanding the Significance of Emojis and Glyphs on Facebook Messenger</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-essential-strategies-for-locating-targeted-discord-channels-for-2024/"><u>[Updated] Essential Strategies for Locating Targeted Discord Channels for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-firefoxs-popup-window-magic-for-2024/"><u>Mastering Firefox's Popup Window Magic for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mastering-maccam-easy-webcam-recordings-for-2024/"><u>[Updated] Mastering MacCam  Easy Webcam Recordings for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-illuminating-ideas-the-basics-of-video-setup/"><u>2024 Approved  Illuminating Ideas  The Basics of Video Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-vital-business-metrics-to-ignite-your-trajectory/"><u>4 Vital Business Metrics to Ignite Your Trajectory</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-zoom-meets-fun-6-must-try-voice-change-tools-to-brighten-up-online-interactions-for-2024/"><u>Updated Zoom Meets Fun 6 Must-Try Voice Change Tools to Brighten Up Online Interactions for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-unseen-content-exposure-a-video-sharing-roadmap/"><u>In 2024, Unseen Content Exposure  A Video-Sharing Roadmap</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-everyone-needs-to-chill-out-about-facebooks-user-numbers/"><u>Why Everyone Needs to Chill Out About Facebook's User Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-full-scope-guide-to-digitally-preserving-friendships-and-posts/"><u>The Full Scope Guide to Digitally Preserving Friendships and Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-social-media-governance-facebooks-latest-policies-hub/"><u>Unveiling Social Media Governance: Facebook's Latest Policies Hub</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Oppo Reno 9A | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-basic-guide-to-modify-clown-voiceprint-in-windoze-pc/"><u>[New] Basic Guide to Modify Clown Voiceprint in Windoze PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-xs-passcode-without-a-computer-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone XS Passcode without a Computer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/four-rising-trends-causing-a-drop-in-facebooks-user-count/"><u>Four Rising Trends Causing a Drop in Facebook's User Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-how-facebook-profits-from-musicians-tunes/"><u>Discovering How Facebook Profits From Musicians’ Tunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-gap-between-media-and-authors-with-facebooks-5-million-financing/"><u>Bridging the Gap Between Media and Authors with Facebook's $5 Million Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-there-a-risk-of-leaked-numbers-in-my-social-media-activity/"><u>Is There a Risk of Leaked Numbers in My Social Media Activity?</u></a></li>
+</ul></div>

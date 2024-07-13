@@ -1,7 +1,7 @@
 ---
 title: The Great Connective Power of Modern Social Media
-date: 2024-06-25T14:22:46.505Z
-updated: 2024-06-26T14:22:46.505Z
+date: 2024-07-12T10:12:11.208Z
+updated: 2024-07-13T10:12:11.208Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends
+![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -31,7 +32,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy
+![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication
+![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller
+![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -69,7 +73,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships
+![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -81,7 +86,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster
+![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -95,7 +101,8 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground
+![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -128,3 +135,52 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-news-feed-a-hub-for-targeted-business-promotions/"><u>Facebook's Upcoming News Feed: A Hub for Targeted Business Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-nuances-steering-clear-of-trading-traps-on-fb/"><u>Navigating Network Nuances: Steering Clear of Trading Traps on FB</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-sprightly-spirits-top-kid-approved-games/"><u>[New] Sprightly Spirits  Top Kid-Approved Games</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-harnessing-altitude-live-streaming-with-dji-drones/"><u>[Updated] 2024 Approved  Harnessing Altitude  Live-Streaming with DJI Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/grasp-the-core-points-in-metas-revised-data-protection-plan/"><u>Grasp the Core Points in Meta's Revised Data Protection Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-facebook-group-more-popular/"><u>How to Make Your Facebook Group More Popular</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-identity/"><u>Tailoring Your Social Media Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-online-image-on-facebook/"><u>Mastering Your Online Image on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-transparency-center-to-understand-the-social-network-better/"><u>How to Use Facebook's Transparency Center to Understand the Social Network Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-digital-world-identifying-fb-breaches/"><u>Guard Your Digital World: Identifying FB Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-adolescent-online-presence-facebook-privacy-tips/"><u>Protecting Adolescent Online Presence - Facebook Privacy Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/nullify-all-social-media-interruptions-by-fb/"><u>Nullify All Social Media Interruptions by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-to-gather-user-reactions-on-news-feed-usage/"><u>Facebook To Gather User Reactions on News Feed Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-describing-photos-on-popular-networks/"><u>Strategies for Describing Photos on Popular Networks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-scouting-for-subtle-sophisticated-and-spare-tiktok-screenshots/"><u>2024 Approved  Scouting for Subtle, Sophisticated, and Spare TikTok Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-scale-of-facebooks-user-exodus/"><u>The Real Scale of Facebook's User Exodus</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-checklist-for-mastering-bandicam-in-the-new-year/"><u>2024 Approved  The Ultimate Checklist for Mastering Bandicam in the New Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-20-redux-a-strategic-makeover/"><u>Instagram 2.0 Redux: A Strategic Makeover?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-your-zte-blade-a73-5g-lock-screen-password-by-drfone-android/"><u>How to Reset your ZTE Blade A73 5G Lock Screen Password</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-blurred-lines-the-art-of-anonymizing-youtube-content/"><u>[New] In 2024, Blurred Lines  The Art of Anonymizing YouTube Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-protocol-revitalizing-a-stagnant-fb-group/"><u>The Popularity Protocol: Revitalizing a Stagnant FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-hashtags-to-harmony-what-i-discovered-post-social-media/"><u>From Hashtags to Harmony: What I Discovered Post-Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-the-significant-date-of-my-digital-enlightenment-facebook/"><u>Seeking the Significant Date of My Digital Enlightenment: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-coding-shaped-by-facebook-and-rust-alliance/"><u>The Future of Coding, Shaped by Facebook & Rust Alliance</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-path-to-personalized-tiktok-hash-creation-for-2024/"><u>[Updated] The Path to Personalized TikTok Hash Creation for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-unlock-filmora-for-free-safe-torrenting-without-viruses/"><u>New In 2024, Unlock Filmora for Free Safe Torrenting Without Viruses</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connection-the-unveiling-of-facebooks-new-identity-meta/"><u>Rethinking Connection: The Unveiling of Facebook’s New Identity, Meta</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-boost-your-channels-popularity-optimal-post-dates/"><u>In 2024, Boost Your Channel's Popularity - Optimal Post Dates</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-xbox-screen-recording-uncovered-a-step-by-step-manual/"><u>[Updated] 2024 Approved  Xbox Screen Recording Uncovered  A Step-by-Step Manual</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-high-res-gaming-the-best-screen-capture-options/"><u>[Updated] 2024 Approved  High-Res Gaming  The Best Screen Capture Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-guide-updating-your-facebook-birthday/"><u>Simple Guide: Updating Your Facebook Birthday</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-networked-lifetimes-on-fb/"><u>Navigating Through Networked Lifetimes on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-distinctive-fb-video-aspects/"><u>[Updated] In 2024, Distinctive FB Video Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/harness-the-power-of-linkedin-and-facebook-for-career-advancement/"><u>Harness the Power of LinkedIn & Facebook for Career Advancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-websites-for-aging-demographics-socializing/"><u>Ideal Websites for Aging Demographics' Socializing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-informed-facebook-usage-via-its-transparency-hub/"><u>The Path to Informed Facebook Usage via Its Transparency Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-beginners-guide-to-creating-compelling-videos-on-facebook/"><u>The Beginner's Guide to Creating Compelling Videos on Facebook</u></a></li>
+</ul></div>

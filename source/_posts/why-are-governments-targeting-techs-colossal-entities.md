@@ -1,7 +1,7 @@
 ---
 title: Why Are Governments Targeting Tech's Colossal Entities?
-date: 2024-06-25T13:45:59.258Z
-updated: 2024-06-26T13:45:59.258Z
+date: 2024-07-12T09:30:39.220Z
+updated: 2024-07-13T09:30:39.220Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-## Big Tech Companies Use Data for Profit ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
+## Big Tech Companies Use Data for Profit
+![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
@@ -45,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-## Big Tech Fails to Catch Misleading Ads ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+## Big Tech Fails to Catch Misleading Ads
+![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -53,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
-## Big Tech Limits the Market Access of Smaller Companies ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
+## Big Tech Limits the Market Access of Smaller Companies
+![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
@@ -71,7 +74,8 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Furthermore, there are ways that you can [help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-## Big Tech Can Impact Government Decisions and Operations ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+## Big Tech Can Impact Government Decisions and Operations
+![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -81,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
-## Big Tech Companies Have Incredible Influence ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+## Big Tech Companies Have Incredible Influence
+![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -124,3 +129,44 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-video-splitter-and-merger-tools-for-beginners-top-picks/"><u>Free Video Splitter and Merger Tools for Beginners Top Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-valid-ban-on-trump-but-for-how-long/"><u>Digital Disruption: Valid Ban on Trump, but for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-unsolicited-group-tags/"><u>Block Unsolicited Group Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-google-pixel-7a-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Google Pixel 7a FRP Locks</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pushing-boundaries-with-high-speed-cinematography-for-2024/"><u>Pushing Boundaries with High-Speed Cinematography for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehending-fbctas-influence-on-usage/"><u>Comprehending FBCTA's Influence on Usage</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-momentum-at-rest-best-idle-pc-games/"><u>[Updated] 2024 Approved  Momentum at Rest  Best Idle PC Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-behind-accepting-friend-requests-on-fb/"><u>Unveiling the Mystery Behind Accepting Friend Requests on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-dialogue-understanding-key-acronyms-and-phrases-in-online-communities/"><u>Decoding Digital Dialogue: Understanding Key Acronyms and Phrases in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-a-stress-free-fb-deletion/"><u>Essential Steps for a Stress-Free FB Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-tools-for-social-media-embarrassment-extraction/"><u>7 Key Tools for Social Media Embarrassment Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-focus-5-ways-to-unclutter-and-sharpen-your-image/"><u>Facebook Focus: 5 Ways to Unclutter and Sharpen Your Image</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-honor-magic5-ultimate-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Honor Magic5 Ultimate to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-leveraging-frameworks-like-bootstrap-for-rapid-prototyping/"><u>[New] 2024 Approved  Leveraging Frameworks Like Bootstrap for Rapid Prototyping</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-safety-in-social-media-environments/"><u>User Safety in Social Media Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-navigating-the-subreddit-terrain-essential-steps-uncovered/"><u>[Updated] Navigating the Subreddit Terrain  Essential Steps Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-getting-started-with-your-new-youtube-premium-account/"><u>[Updated] In 2024, Getting Started with Your New YouTube Premium Account</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-apple-iphone-15-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock Apple iPhone 15 After Forgetting the Passcode?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-room-efficiency-with-these-10-sms-tactics/"><u>Unlock Room Efficiency with These 10 SMS Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-future-facebooks-stance-on-metaverse/"><u>Decoding the Future: Facebook's Stance on Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-blackout-facebook-whatsapp-in-a-daze/"><u>Digital Blackout: Facebook, WhatsApp in a Daze</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-innovation-facebook-and-its-stealthy-smartwatch/"><u>Whispers of Innovation: Facebook and Its Stealthy Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-exodus-analyzing-four-reasons-for-social-media-dwindle/"><u>The Unseen Exodus: Analyzing Four Reasons for Social Media Dwindle</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-directing-the-stream-choosing-between-obs-and-twitch-studio/"><u>[New] 2024 Approved  Directing the Stream  Choosing Between OBS and Twitch Studio</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-discover-top-platforms-for-youtube-brand-partnerships/"><u>In 2024, Discover  Top Platforms for YouTube Brand Partnerships</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-google-pixel-8-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-spectacular-results-with-hdr-portraits/"><u>In 2024, Unveiling Spectacular Results with HDR Portraits</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Big Brother Business: Profit From Peering"
-date: 2024-06-25T14:14:57.763Z
-updated: 2024-06-26T14:14:57.763Z
+date: 2024-07-12T10:03:15.840Z
+updated: 2024-07-13T10:03:15.840Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
-### Granular Data Gathering ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+### Granular Data Gathering
+![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -45,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-### Emotional Volatility ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+### Emotional Volatility
+![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -61,7 +63,8 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-### Ease of Transactions ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
+### Ease of Transactions
+![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -77,7 +80,8 @@ thumbnail: https://thmb.techidaily.com/655813b140cebedb2250090e80755301611474980
 
  In addition, Amazon's Prime membership which offers free and fast shipping also [hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-### The Commodification of Personal Experiences ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+### The Commodification of Personal Experiences
+![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -114,3 +118,63 @@ In fact, we are already running out of ways to opt out.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/minimizing-visibility-of-post-endorsements/"><u>Minimizing Visibility of Post Endorsements</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-proven-picks-for-high-quality-screenshot-tools-on-a-budget/"><u>[New] Proven Picks for High-Quality Screenshot Tools on a Budget</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-unraveling-zooms-secrets-mastery-of-screenshot-sharing/"><u>[Updated] Unraveling Zoom's Secrets  Mastery of Screenshot Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-switching-approach-for-disconnected-facebook-accounts/"><u>Agile Switching Approach for Disconnected Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-buzz-tactics-to-reactivate-a-dormant-facebook-account/"><u>Bring Back the Buzz: Tactics to Reactivate a Dormant Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-underlying-themes-in-fb-chatter/"><u>Decoding Underlying Themes in FB Chatter</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://extra-information.techidaily.com/vectors-explained-an-entry-level-guide-to-forms-and-applications/"><u>Vectors Explained  An Entry-Level Guide to Forms and Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alert-sidestep-these-three-risky-applications/"><u>Privacy Alert: Sidestep These Three Risky Applications</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-lumafusion-for-mac-install-it-or-get-alternatives/"><u>Updated In 2024, Lumafusion for Mac Install It or Get Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-you-turn-off-facebooks-in-app-browser-how-it-works/"><u>Can You Turn Off Facebook's In-App Browser? How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-crafting-pages-and-group-polls/"><u>Interactive Social Media: Crafting Pages & Group Polls</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-the-art-of-stabilizing-handheld-gopro-videos-for-2024/"><u>Mastering the Art of Stabilizing Handheld GoPro Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastermakers-ranking-the-top-5-digital-titling-pros/"><u>[New] Mastermakers  Ranking the Top 5 Digital Titling Pros</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/tweet-tales-the-story-behind-the-viral-videos/"><u>Tweet Tales  The Story Behind the Viral Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-reset-and-fix-obs-fullscreen-issue-for-2024/"><u>[New] How to Reset and Fix OBS Fullscreen Issue for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripple-effects-how-stablecoins-revolutionize-crypto/"><u>Ripple Effects: How Stablecoins Revolutionize Crypto</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodge-facebooks-data-mining-safety-tips-revealed/"><u>Dodge Facebook's Data Mining: Safety Tips Revealed</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-chuckles-and-challenges-best-fun-for-young-minds/"><u>[Updated] Chuckles & Challenges - Best Fun for Young Minds</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-14-plus-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 14 Plus?</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-tips-for-endlessly-playing-facebook-videos/"><u>2024 Approved  Tips for Endlessly Playing Facebook Videos</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/dont-get-fooled-5-key-factors-to-evaluate-when-selecting-a-video-to-audio-converter/"><u>Dont Get Fooled 5 Key Factors to Evaluate When Selecting a Video to Audio Converter</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-secretly-developing-a-smartwatch-what-we-know-so-far/"><u>Facebook Is Secretly Developing a Smartwatch: What We Know So Far</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/language-learning-made-simple-top-3-multilingual-aid-apps-reviewed/"><u>Language Learning Made Simple: Top 3 Multilingual Aid Apps Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflections-on-a-life-with-less-social-media/"><u>Reflections on a Life with Less Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-audiences-profoundly-the-5-social-platforms-leading-biz/"><u>Engaging Audiences Profoundly: The 5 Social Platforms Leading Biz</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-from-iphone-13-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication From iPhone 13 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-closure-coming-for-instagram-in-the-last-month/"><u>Chat Closure Coming for Instagram in the Last Month</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/path-to-profit-deciphering-vids-on-dm-and-yo-for-2024/"><u>Path to Profit  Deciphering Vids on Dm and Yo for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-on-us-an-industry-insight/"><u>Digital Eyes on Us: An Industry Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/if-all-social-platforms-closed-down-tomorrow-would-your-life-be-better-or-worse-poll/"><u>If All Social Platforms Closed Down Tomorrow, Would Your Life Be Better or Worse? [Poll]</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflecting-on-2022s-biggest-tech-gaffes/"><u>Reflecting on 2022'S Biggest Tech Gaffes</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-5-leading-video-volume-boosters-online-for-optimal-sound-experience/"><u>New 2024 Approved 5 Leading Video Volume Boosters Online for Optimal Sound Experience</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-seamless-blend-linking-spotify-and-discord-directly/"><u>[New] 2024 Approved  Seamless Blend  Linking Spotify & Discord Directly</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-securityfbcom/"><u>Evaluating Trust in Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-samsung-galaxy-a54-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Samsung Galaxy A54 5G Devices</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>[Updated] In 2024, Debugging Techniques  Identifying and Resolving Common JavaScript Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-to-play-spotify-without-leaving/"><u>Navigating Social Media to Play Spotify Without Leaving</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-10-parody-songs-that-totally-crack-you-up/"><u>[New] In 2024, 10 Parody Songs That Totally Crack You Up</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-guide-to-muting-instagram-accounts/"><u>[Updated] In 2024, Guide to Muting Instagram Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivation-day-what-happens-next/"><u>Deactivation Day: What Happens Next?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-meme-mastery-money-making-the-financial-figures-of-a-video-virtuoso/"><u>2024 Approved  Meme Mastery Money-Making  The Financial Figures of a Video Virtuoso</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-enhanced-privacy-hub-for-safer-browsing/"><u>Decoding Facebook’s Enhanced Privacy Hub for Safer Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
+</ul></div>

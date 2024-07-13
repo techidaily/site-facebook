@@ -1,7 +1,7 @@
 ---
 title: "Reclaiming Control: Spotting and Fixing FB Hacks"
-date: 2024-06-25T14:06:33.520Z
-updated: 2024-06-26T14:06:33.520Z
+date: 2024-07-12T09:53:45.937Z
+updated: 2024-07-13T09:53:45.937Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,8 @@ thumbnail: https://thmb.techidaily.com/a0951da729f49f8bf93e8223ca1a50717bbb6f5f3
 
  There are two main ways to tell if your Facebook account was hacked: checking your login locations and checking your payment history.
 
-### How to Check Your Facebook Login Locations ![facebook login locations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-logins.jpg)
+### How to Check Your Facebook Login Locations
+![facebook login locations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-logins.jpg)
 
  Thankfully, there's an easy way to discover whether or not someone else has logged into your Facebook account.
 
@@ -39,7 +40,8 @@ thumbnail: https://thmb.techidaily.com/a0951da729f49f8bf93e8223ca1a50717bbb6f5f3
 
  If you do find a discrepancy with where you've logged in to Facebook, you can easily end the activity of that session, which should help safeguard you from any hacking attempt on that device. You can also log out of all sessions to be safe.
 
-### Checking Your Payment History on Facebook ![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
+### Checking Your Payment History on Facebook
+![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
 
  There's another way to check whether someone has hacked your Facebook account, and that's by checking your purchase history. If you have a credit card stored on your account, it's possible that hackers could make fraudulent purchases and drive up your bill.
 
@@ -47,7 +49,8 @@ thumbnail: https://thmb.techidaily.com/a0951da729f49f8bf93e8223ca1a50717bbb6f5f3
 
  If you notice any fraudulent charges, you can inform [Facebook Support](https://www.facebook.com/support) about them. The company is pretty good with replying to concerns, whether that's through the Facebook account or through its official Twitter account.
 
-## How to Report Your Hacked Facebook Account ![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
+## How to Report Your Hacked Facebook Account
+![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
 
  If you have any problems with hacking whatsoever, you should inform Facebook. Facebook is keen to know about hacks and wants to do its part to keep the site as safe and secure as possible. Facebook is constantly adapting and improving it's security,
 
@@ -55,7 +58,8 @@ thumbnail: https://thmb.techidaily.com/a0951da729f49f8bf93e8223ca1a50717bbb6f5f3
 
  You could check out the [Bullying Center](https://www.facebook.com/safety/bullying) ,[Safety Check](https://www.facebook.com/about/safetycheck/) , and [Safety Center](https://www.facebook.com/safety) pages if you have additional problems with your Facebook account and/or security.
 
-## How to Fix a Hacked Facebook Account ![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
+## How to Fix a Hacked Facebook Account
+![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
 
  If you have been unfortunate enough to suffer from a hacked Facebook account, don't worry. It is possible to rectify the issue.
 
@@ -119,3 +123,45 @@ To minimize the damage you should:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/mastering-3d-images-posting-them-on-facebook/"><u>Mastering 3D Images: Posting Them on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-sharing-content-across-numerous-fb-groups/"><u>Simplifying Sharing Content Across Numerous FB Groups</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-youtubes-privacy-controls-for-video-accessibility/"><u>2024 Approved  Navigating YouTube's Privacy Controls for Video Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-surplus-the-top-10-benefits-of-quitting-facebook-for-real-living/"><u>Social Media Surplus: The Top 10 Benefits of Quitting Facebook for Real Living</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-key-audio-equipment-for-content-creators/"><u>2024 Approved  Key Audio Equipment for Content Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/motorsport-unions-cut-internet-cord/"><u>Motorsport Unions Cut Internet Cord</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-best-mc-housing-plans-for-vibrant-villages/"><u>2024 Approved  Best MC Housing Plans for Vibrant Villages</u></a></li>
+<li><a href="https://facebook.techidaily.com/seek-out-fbs-freshly-streamed-videos/"><u>Seek Out FB’s Freshly Streamed Videos</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/fine-tuning-androids-m4a-performance-expert-tips-to-improve-sound-quality-for-2024/"><u>Fine-Tuning Androids M4A Performance Expert Tips to Improve Sound Quality for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-premium-picks-for-pros-top-10-webcams-in-win-11/"><u>[New] 2024 Approved  Premium Picks for Pros  Top 10 Webcams in Win 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-specs-on-hold-oculus-quest-iii-announcement-moved/"><u>Tech Specs on Hold: Oculus Quest III Announcement Moved</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-spooky-halloween-with-the-best-15plus-halloween-countdown-video-clips/"><u>New Spooky Halloween with the Best 15+ Halloween Countdown Video Clips</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks/"><u>[New] 2024 Approved  Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-playful-teasing-on-social-media-wisely/"><u>Navigating Playful Teasing on Social Media Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscovering-trump-on-meta-platforms/"><u>Rediscovering Trump on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-paradigm-shift-top-strategies-for-wealth-building-on-social-media/"><u>Profit Paradigm Shift: Top Strategies for Wealth-Building on Social Media</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-gamers-top-nine-live-video-destinations/"><u>[New] Gamer’s Top Nine Live Video Destinations</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-spys-guide-to-unearthing-hidden-youtube-videos/"><u>2024 Approved  The Spy's Guide to Unearthing Hidden YouTube Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oneplus-nord-n30-se-device-sim-by-drfone-android/"><u>Easily Unlock Your OnePlus Nord N30 SE Device SIM</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-layers-of-facebooks-white-listing/"><u>Navigating the Layers of Facebook's White Listing</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-relationships-insightful-look-at-facebook-history/"><u>Revisiting Relationships: Insightful Look at Facebook History</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-navigating-cross-platform-social-media-fb-vids-on-whatsapp/"><u>[New] In 2024, Navigating Cross-Platform Social Media  FB Vids on WhatsApp</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-sustainable-practices-greening-urban-landscapes/"><u>2024 Approved  Sustainable Practices  Greening Urban Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-edge-unveiling-a-full-report-on-your-fb-actions/"><u>The Explorer's Edge: Unveiling a Full Report on Your FB Actions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-timing-your-podcast-release-effectively/"><u>[Updated] Timing Your Podcast Release Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-concealing-your-facebook-content-via-archiving/"><u>Mastering the Art: Concealing Your Facebook Content via Archiving</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/expert-techniques-in-no-cost-windows-software-recording/"><u>Expert Techniques in No-Cost Windows Software Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-unlocking-soundmojis-magic/"><u>Mastering Messenger: Unlocking Soundmojis Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/reach-out-make-connection-discover-these-top-3-fb-social-spotting-methods/"><u>Reach Out, Make Connection: Discover These Top 3 Fb Social Spotting Methods</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-login-info-for-facebook/"><u>Rebooting Login Info for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-endless-loop-breaker-deleting-your-account-forever/"><u>The Endless Loop Breaker: Deleting Your Account Forever</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/transforming-your-videography-from-monochrome-to-high-dynamic-range-masterpieces/"><u>Transforming Your Videography  From Monochrome to High-Dynamic Range Masterpieces</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-from-novice-to-pro-a-comprehensive-tiktok-toolset-2023-for-2024/"><u>[Updated] From Novice to Pro  A Comprehensive TikTok Toolset, 2023 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-space-controls-block-stranger-viewers-on-facebook/"><u>Personal Space Controls: Block Stranger Viewers on Facebook</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-in-this-article-i-will-show-you-how-to-change-the-shape-of-a-video-in-3-different-ways-with-filmora/"><u>Updated In 2024, In This Article, I Will Show You How to Change the Shape of a Video in 3 Different Ways with Filmora</u></a></li>
+</ul></div>

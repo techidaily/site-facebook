@@ -1,7 +1,7 @@
 ---
 title: "Masked Manipulations: How Design Misguides Us"
-date: 2024-06-25T14:09:09.565Z
-updated: 2024-06-26T14:09:09.565Z
+date: 2024-07-12T09:56:40.134Z
+updated: 2024-07-13T09:56:40.134Z
 tags:
   - facebook
 categories:
@@ -52,7 +52,8 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy
+![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -155,3 +156,58 @@ The site lists 12 types of dark patterns to watch out for:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-latest-commitment-to-data-security/"><u>Decoding Meta's Latest Commitment to Data Security</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-step-by-step-guide-to-installing-streamlabs-in-obs-mac/"><u>[Updated] Step-by-Step Guide to Installing Streamlabs in OBS (Mac)</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-essential-ytp2024-joining-and-earning-on-youtube/"><u>The Essential YTP2024  Joining and Earning on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-unlocks-whatsapp-as-a-2fa-code-vessel/"><u>Instagram Unlocks: WhatsApp as a 2FA Code Vessel</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-for-restoring-access-after-fb-security-breach/"><u>Guide for Restoring Access After FB Security Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/enterprise-excellence-navigating-5-leading-social-sites/"><u>Enterprise Excellence: Navigating 5 Leading Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-are-you-trying-to-create-a-stunning-intro-for-your-video-for-free-this-article-will-show-you-how-to-make-an-intro-video-using-invideo-in-a-few/"><u>2024 Approved Are You Trying to Create a Stunning Intro for Your Video for Free? This Article Will Show You How to Make an Intro Video Using InVideo in a Few Simple Steps</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-a78-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after A78 has been deleted</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-ends-tenure-at-facebook/"><u>Carolyn Everson Ends Tenure at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-every-like-post-and-comment-youve-made-on-facebook/"><u>How to See Every Like, Post, and Comment You've Made on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/essential-tips-for-using-instagrams-sound-emojis-for-2024/"><u>Essential Tips for Using Instagram's Sound Emojis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-climb-in-online-advertising-landscape/"><u>Crypto's Climb in Online Advertising Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-the-mobility-driven-portal-go-model/"><u>Facebook's Latest: The Mobility-Driven Portal Go Model</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-ultimate-guide-to-posting-vids-on-facebook/"><u>2024 Approved  The Ultimate Guide to Posting Vids on Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-from-live-demos-to-recordings-harness-ezvide-power-for-2024/"><u>[Updated] From Live Demos to Recordings  Harness EZvide Power for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-strategies-for-incorporating-b-roll-in-video-projects/"><u>2024 Approved  Strategies for Incorporating B-Roll in Video Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-image-text-style-facebooks-revolutionary-ai-breakthrough/"><u>From Image, Text Style: Facebook's Revolutionary AI Breakthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-master-quickfix-for-podcast-broadcasts/"><u>[Updated] Master Quickfix for Podcast Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-fb-privacy-settings/"><u>Essential Tips for FB Privacy Settings</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-audible-riches-from-social-media-videos-fb-to-mp3-guide/"><u>[Updated] 2024 Approved  Audible Riches From Social Media Videos - FB To MP3 Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-4-solutions-to-add-white-borders-on-mobile-and-desktop-for-2024/"><u>New 4 Solutions to Add White Borders on Mobile and Desktop for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-strategies-to-boost-your-obs-editing-skills-for-2024/"><u>Top Strategies to Boost Your OBS Editing Skills for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-social-norms-for-online-networking/"><u>Decoding Hidden Social Norms for Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/decipher-friendship-chronicles-on-fb/"><u>Decipher Friendship Chronicles on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-sleep-mode-the-key-to-efficient-messenger-kids-use/"><u>Dive Into Sleep Mode: The Key to Efficient Messenger Kids Use</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-how-to-use-windows-media-player-to-rip-and-burn-cd/"><u>In 2024, How to Use Windows Media Player to Rip and Burn Cd</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-clearer-connections-a-comprehensive-guide-to-crop-and-share-on-instagram/"><u>[Updated] Clearer Connections  A Comprehensive Guide to Crop and Share on Instagram</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/trendsetters-on-twitternet-top-10-threads-ranking-for-2024/"><u>Trendsetters on Twitternet  Top 10 Threads Ranking for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-achieving-professional-quality-with-instagrams-virtual-screens-for-2024/"><u>[New] Achieving Professional Quality with Instagram's Virtual Screens for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-iphone-and-ipad-apps-for-movie-trailers/"><u>Best iPhone and iPad Apps for Movie Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-live-unadorned-instagrams-new-feature/"><u>Go Live Unadorned: Instagram's New Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-facebooks-new-framework/"><u>Comedic Content: Facebook's New Framework</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-sound-masterpieces-selecting-the-top-10-on-spotify/"><u>[New] Sound Masterpieces  Selecting the Top 10 on Spotify</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/picsart-edge-perfecting-face-movements-with-blur-techniques/"><u>Picsart Edge  Perfecting Face Movements with Blur Techniques</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-examination-the-top-tier-ar-parrot-drone-20/"><u>2024 Approved  Examination  The Top-Tier AR Parrot Drone 2.0</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-humble-beginnings-to-metamates-milestone/"><u>From Humble Beginnings to Metamates Milestone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-chapter-nine-exciting-reasons-to-dive-into-the-metaverse/"><u>Facebook's Next Chapter: Nine Exciting Reasons to Dive Into the Metaverse</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-14-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi 14 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-reimagining-home-security-the-rise-of-multi-camera-recorders/"><u>2024 Approved  Reimagining Home Security  The Rise of Multi-Camera Recorders</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-watch-project-hints-at-dual-cam-features-in-upcoming-devices/"><u>FB Watch Project Hints at Dual Cam Features in Upcoming Devices</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-pro-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 Pro to other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-your-facebook-account-when-you-cant-log-in/"><u>How to Recover Your Facebook Account When You Can't Log In</u></a></li>
+</ul></div>

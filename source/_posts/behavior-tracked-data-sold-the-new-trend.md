@@ -1,7 +1,7 @@
 ---
 title: "Behavior Tracked, Data Sold: The New Trend"
-date: 2024-06-25T14:39:04.855Z
-updated: 2024-06-26T14:39:04.855Z
+date: 2024-07-12T10:30:39.217Z
+updated: 2024-07-13T10:30:39.217Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/526587f9f9083224ba90b469fae9f684a8ef66dad
 
  Surveillance capitalism also has its fair share of drawbacks—one of which is the inherent predatory behavior of the machine that makes it possible. For the machine of surveillance capitalism to thrive, there are several factors that need to be in place. Here are a few of them.
 
-### Granular Data Gathering ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
+### Granular Data Gathering
+![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
@@ -45,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/526587f9f9083224ba90b469fae9f684a8ef66dad
 
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
-### Emotional Volatility ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
+### Emotional Volatility
+![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -61,7 +63,8 @@ thumbnail: https://thmb.techidaily.com/526587f9f9083224ba90b469fae9f684a8ef66dad
 
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
-### Ease of Transactions ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
+### Ease of Transactions
+![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
@@ -77,7 +80,8 @@ thumbnail: https://thmb.techidaily.com/526587f9f9083224ba90b469fae9f684a8ef66dad
 
  In addition, Amazon's Prime membership which offers free and fast shipping also [hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-### The Commodification of Personal Experiences ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+### The Commodification of Personal Experiences
+![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
@@ -114,3 +118,54 @@ In fact, we are already running out of ways to opt out.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-facebook-networks-profiling-and-page-links/"><u>Unlocking Facebook Networks: Profiling and Page Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-insights-busting-top-10-facebook-fables/"><u>Social Media Insights: Busting Top 10 Facebook Fables</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-discovering-the-future-of-broadcast-roku-and-facebook-live/"><u>In 2024, Discovering the Future of Broadcast  Roku & Facebook LIVE</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-public-discontent-with-social-media-giants/"><u>Unraveling Public Discontent with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-wisdom-teens-heeding-the-call-to-unplug-from-instagram/"><u>New Age Wisdom: Teens Heeding the Call to Unplug From Instagram</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vast-majority-of-iphone-users-are-opting-out-of-app-tracking/"><u>The Vast Majority of iPhone Users Are Opting Out of App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstructive-oddities-of-a-stopped-up-facebook-page/"><u>Overcome the Obstructive Oddities of a Stopped-Up Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-censorship-action-trump-versus-major-online-companies/"><u>Anti-Censorship Action: Trump Versus Major Online Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-sharing-space-removing-interaction-from-your-fb-content/"><u>Secure Sharing Space: Removing Interaction From Your FB Content</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-vivo-v29e-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Vivo V29e Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/zoom-innovations-key-techniques-to-improve-video-transformation-processes/"><u>Zoom Innovations  Key Techniques to Improve Video Transformation Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150747284-facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-for-seeking-freelance-opportunities/"><u>Top 5 Hubs for Seeking Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-dreamscape-films-entering-vr-worlds/"><u>[New] In 2024, Dreamscape Films  Entering VR Worlds</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-are-you-searching-for-professional-subtitle-apps-read-this-article-to-explore-various-compatible-subtitle-apps-that-you-can-run-on-multiple-pl/"><u>2024 Approved Are You Searching for Professional Subtitle Apps? Read This Article to Explore Various Compatible Subtitle Apps that You Can Run on Multiple Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-friendship-to-the-next-level-fb-avatars-and-whatsapp-dialogue/"><u>Taking Friendship to the Next Level: FB Avatars & WhatsApp Dialogue</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/synchronizing-sonic-elements-controlling-audio-duration-and-tonality-in-adobe-rush-for-2024/"><u>Synchronizing Sonic Elements Controlling Audio Duration and Tonality in Adobe Rush for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-profile-a-comprehensive-guide/"><u>Tailoring Your Profile: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticker-ads-in-facebook-stories-test-for-marketers/"><u>Sticker Ads in Facebook Stories: Test for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/designing-efficient-auto-subscribe-web-addresses-for-2024/"><u>Designing Efficient Auto-Subscribe Web Addresses for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-true-nature-of-metaverse-versus-vr-six-factors/"><u>Uncovering The True Nature of Metaverse Versus VR: Six Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-unveils-its-covert-strategy-for-free-services/"><u>WhatsApp Unveils Its Covert Strategy for Free Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/through-a-screen-analyzing-modern-lifes-negative-effects/"><u>Through a Screen: Analyzing Modern Life's Negative Effects</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/apex-capture-vs-lumen-hub-for-2024/"><u>Apex Capture VS Lumen Hub for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-reality-gain-or-loss-perspectives/"><u>Offline Reality: Gain or Loss Perspectives?</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-how-to-make-memes-with-white-background-step-by-step/"><u>New How to Make Memes with White Background Step by Step</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-streamline-your-way-to-a-thriving-biz-youtube-channel/"><u>2024 Approved  Streamline Your Way to a Thriving Biz YouTube Channel</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-misdirection-in-digital-consent/"><u>Understanding Misdirection in Digital Consent</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-roi-of-hashtag-campaigns-within-facebook-advertising/"><u>Analyzing the ROI of HashTag Campaigns Within Facebook Advertising</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-the-ultimate-breakdown-understanding-tiktoks-pfp-symbol-for-2024/"><u>[New] The Ultimate Breakdown  Understanding TikTok's PFP Symbol for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-and-its-forensic-capabilities/"><u>Understanding PhotoDNA and Its Forensic Capabilities</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harmonizing-your-spotify-queue-with-youtube-music-catalogs-for-2024/"><u>[New] Harmonizing Your Spotify Queue with YouTube Music Catalogs for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-2024-approved-uncover-the-secrets-changing-your-profile-display-in-discord/"><u>[New] 2024 Approved  Uncover the Secrets  Changing Your Profile Display in Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamped-social-messaging-discover-how-fb-upgrades-apps-like-messenger-and-instagram/"><u>Revamped Social Messaging: Discover How FB Upgrades Apps Like Messenger & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-locations-unveiling-freelancer-openings/"><u>Prime Locations Unveiling Freelancer Openings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-event-design-and-promotion-on-facebook/"><u>The Essentials of Event Design & Promotion on Facebook</u></a></li>
+</ul></div>

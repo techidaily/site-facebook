@@ -1,7 +1,7 @@
 ---
 title: 4 Important Tech News Stories You Might Have Missed
-date: 2024-06-25T13:54:15.379Z
-updated: 2024-06-26T13:54:15.379Z
+date: 2024-07-12T09:40:00.298Z
+updated: 2024-07-13T09:40:00.298Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-## GameStop and the Birth of Meme Stocks ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+## GameStop and the Birth of Meme Stocks
+![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-## The $2.9 Million Tweet ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
+## The $2.9 Million Tweet
+![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-## Welcome to the Metaverse ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
+## Welcome to the Metaverse
+![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-## Apple and Facebook's Privacy War ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
+## Apple and Facebook's Privacy War
+![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
 
@@ -92,3 +96,44 @@ thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/marketing-maestro-departs-carolyn-eversons-next-move/"><u>Marketing Maestro Departs: Carolyn Everson's Next Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/rusts-expansion-fueled-by-social-media-giant/"><u>Rust's Expansion Fueled by Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/generating-engagement-with-new-group-creation-on-fb/"><u>Generating Engagement with New Group Creation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-sanctions-top-3-locations-where-facebook-is-forbidden/"><u>Internet Sanctions: Top 3 Locations Where Facebook Is Forbidden</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-storage-for-social-media-snaps-download-instructions/"><u>Secure Storage for Social Media Snaps: Download Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-community-support-or-subversion/"><u>Online Community: Support or Subversion?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tag-someone-on-facebook-3-different-ways/"><u>How to Tag Someone on Facebook: 3 Different Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-over-the-ideal-time-to-update-avatar/"><u>Pondering Over the Ideal Time to Update Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-eradicating-fb-notification-alerts/"><u>Steps for Eradicating Fb Notification Alerts</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/masterful-video-starts-get-them-for-free-for-2024/"><u>Masterful Video Starts, Get Them for Free for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/likes-and-dislikes-analyzing-the-negative-side-effects/"><u>Likes and Dislikes: Analyzing the Negative Side Effects</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionizing-art-sales-7-top-generators-for-turning-images-into-nfts-for-2024/"><u>Revolutionizing Art Sales - 7 Top Generators for Turning Images Into NFTs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-the-science-behind-a-break-from-online-life/"><u>Instagram Interruption: The Science Behind a Break From Online Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-by-severing-all-ties-to-facebook/"><u>Securing Privacy by Severing All Ties to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet.</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-tecno-pova-5-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Tecno Pova 5 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-signature-wars-claiming-victory-as-meta-gold-or-blue-ticked/"><u>Social Signature Wars: Claiming Victory as Meta-Gold or Blue-Ticked</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-cutting-edge-sound-design-the-top-5-audio-manipulation-apps-for-android-devices/"><u>2024 Approved Cutting Edge Sound Design The Top 5 Audio Manipulation Apps for Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-notifications-track-vanished-screenshots/"><u>Messenger Notifications: Track Vanished Screenshots</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-empowering-yourself-via-facebooks-privacy-center/"><u>Step-by-Step Guide: Empowering Yourself via Facebook's Privacy Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeking-at-potential-renaming-scheme-of-facebook/"><u>Peeking at Potential Renaming Scheme of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unleashed-3-reasons-to-worry/"><u>Meta Unleashed: 3 Reasons to Worry</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-absence-on-social-media-messengers/"><u>Navigating Absence on Social Media Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-when-will-facebooks-tribunal-rule/"><u>Expectation Hangover: When Will Facebook's Tribunal Rule?</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-social-interaction-with-integrated-fb-channels/"><u>Seamless Social Interaction with Integrated FB Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-experiences-awaiting-unraveling-facebooks-metaverse-intentions/"><u>Immersive Experiences Awaiting: Unraveling Facebook's Metaverse Intentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-likers-fb-post-privacy-tips/"><u>Stealthy Likers: FB Post Privacy Tips</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-explore-the-list-of-the-top-six-online-video-speed-controllers-for-chrome-safari-and-firefox/"><u>New 2024 Approved Explore the List of the Top Six Online Video Speed Controllers for Chrome, Safari, and Firefox</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-meta-entry-to-user-account-central/"><u>Mastering Meta: Entry to User Account Central</u></a></li>
+<li><a href="https://facebook.techidaily.com/mutual-growth-social-medias-7-societal-boosters/"><u>Mutual Growth: Social Media's 7 Societal Boosters</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-new-privacy-center-and-why-you-should/"><u>How to Use Facebook's New Privacy Center (and Why You Should)</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/get-and-set-up-microsofts-xp-video-editor-installer/"><u>Get & Set Up Microsoft's XP Video Editor Installer</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-in-2024-add-some-shake-to-videos-with-alight-motion/"><u>New In 2024, Add Some Shake to Videos with Alight Motion</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Sony Xperia 10 V? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-5-tips-for-enhancing-roblox-gaming-recordings-mac/"><u>[New] In 2024, 5 Tips for Enhancing Roblox Gaming Recordings (Mac)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-guide-to-excellent-voice-recorders-for-macs-for-2024/"><u>[New] Guide to Excellent Voice Recorders for Macs for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-communication-on-the-horizon-exciting-changes-coming-to-fbs-messaging-platforms/"><u>Enhanced Communication on the Horizon: Exciting Changes Coming to FB's Messaging Platforms</u></a></li>
+</ul></div>

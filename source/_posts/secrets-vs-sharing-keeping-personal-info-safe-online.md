@@ -1,7 +1,7 @@
 ---
 title: "Secrets vs Sharing: Keeping Personal Info Safe Online"
-date: 2024-06-25T13:51:06.077Z
-updated: 2024-06-26T13:51:06.077Z
+date: 2024-07-12T09:36:26.916Z
+updated: 2024-07-13T09:36:26.916Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/7dae447899f95c82a6cf6fb6c187f3946b55a92e5
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans
+![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,7 +76,8 @@ thumbnail: https://thmb.techidaily.com/7dae447899f95c82a6cf6fb6c187f3946b55a92e5
 
  Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice
+![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -83,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/7dae447899f95c82a6cf6fb6c187f3946b55a92e5
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests
+![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -128,3 +131,42 @@ thumbnail: https://thmb.techidaily.com/7dae447899f95c82a6cf6fb6c187f3946b55a92e5
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-comprehensible-guide-to-retreating-cash-from-social-networks/"><u>The Comprehensible Guide to Retreating Cash From Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-after-deactivating-your-fb-page/"><u>The Quiet After Deactivating Your FB Page</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-flv-file-symphony-creating-a-single-youtube-playlist/"><u>[Updated] FLV File Symphony  Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-best-badge-cleaners-for-tiktok-on-mobile-tech/"><u>[Updated] 2024 Approved  The Best Badge Cleaners for TikTok on Mobile Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-yourself-from-these-14-notorious-facebook-swindles/"><u>Protect Yourself From These 14 Notorious Facebook Swindles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-rise-above-the-crowd-in-instagram-world-with-these-9-must-try-strategies/"><u>[Updated] Rise Above the Crowd in Instagram World with These 9 Must-Try Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/solving-popular-facebook-problems-quick-fixes-for-11-errors/"><u>Solving Popular Facebook Problems: Quick Fixes for 11 Errors</u></a></li>
+<li><a href="https://article-helps.techidaily.com/essential-iphone-slide-show-tools-x-ix/"><u>Essential iPhone Slide Show Tools (X-IX)</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-bypassing-format-barriers-a-complete-guide-to-chromecast-video-streaming-for-2024/"><u>New Bypassing Format Barriers A Complete Guide to Chromecast Video Streaming for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-metaais-distinctive-features-against-bots/"><u>Unveiling MetaAI's Distinctive Features Against Bots</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-your-digital-self-how-to-change-facebook-name/"><u>Redefining Your Digital Self: How to Change Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-focus-on-innovation-over-metaverse-entry/"><u>Apple's Focus on Innovation Over Metaverse Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-interactions-harmonizing-tunes-boomboxs-facebook-spotify-synergy/"><u>Amplifying Interactions, Harmonizing Tunes: Boombox's Facebook-Spotify Synergy</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-immersive-inventory-visualization/"><u>In 2024, Immersive Inventory Visualization</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-postponements-whats-behind-oculus-quest-iii-delay/"><u>Unveiling Postponements: What's Behind Oculus Quest III Delay?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-x-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone X When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-commerce-codex-for-instagram-creators-securing-profitable-alignments/"><u>[Updated] In 2024, The Commerce Codex for Instagram Creators  Securing Profitable Alignments</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-refreshing-your-facebook-visual-representation/"><u>Swiftly Refreshing Your Facebook Visual Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networking-diving-into-facebooks-metaverse-concept/"><u>Beyond Social Networking: Diving Into Facebook's Metaverse Concept</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-renowned-crafters-exquisite-instagram-hlv-designers-online/"><u>[New] Renowned Crafters  Exquisite Instagram HLV Designers Online</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-ultimate-guide-to-ios-gif-tools-for-iphones/"><u>The Ultimate Guide to iOS GIF Tools for iPhones</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/everyone-should-have-one-video-collage-app-in-android-phone/"><u>Everyone Should Have One Video Collage App in Android Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-twelve-spreading-misinformation-about-covid/"><u>The Top Twelve Spreading Misinformation About COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-neighborhoods-and-available-memberships/"><u>Understanding Facebook Neighborhoods and Available Memberships</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-mastering-the-art-of-creative-tiktok-fp-for-standout-profiles/"><u>[Updated] 2024 Approved  Mastering the Art of Creative TikTok FP for Standout Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-removal-techniques-cleaning-up-twitter-instagram/"><u>Tailored Removal Techniques: Cleaning up Twitter, Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-scope-of-facebooks-content-tribunal/"><u>Understanding the Scope of Facebook’s Content Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-private-profile-access/"><u>Secrets of Private Profile Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-photodna-a-comparative-analysis-tool/"><u>Unveiling PhotoDNA: A Comparative Analysis Tool</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-perfecting-your-home-studios-auditory-experience-a-2023-guide/"><u>New In 2024, Perfecting Your Home Studios Auditory Experience (A 2023 Guide)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-thief-strikes-again-learning-the-9-hack-signals-early/"><u>The Invisible Thief Strikes Again: Learning the 9 Hack Signals Early</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-unlock-the-potential-of-hashtags-for-fb-success/"><u>Social Media Mastery: Unlock the Potential of Hashtags for FB Success</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-vivo-y36-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-you-see-these-specific-fb-advertisements/"><u>Why Do You See These Specific FB Advertisements?</u></a></li>
+</ul></div>

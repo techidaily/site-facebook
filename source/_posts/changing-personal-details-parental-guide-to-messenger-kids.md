@@ -1,7 +1,7 @@
 ---
 title: "Changing Personal Details: Parental Guide to Messenger Kids"
-date: 2024-06-25T13:46:02.192Z
-updated: 2024-06-26T13:46:02.192Z
+date: 2024-07-12T09:30:42.517Z
+updated: 2024-07-13T09:30:42.517Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,8 @@ Close
 
 **Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture
+![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -87,7 +88,8 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -99,7 +101,8 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -157,3 +160,47 @@ Follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/echoes-of-anonymity-permanently-retiring-from-facebook/"><u>Echoes of Anonymity: Permanently Retiring From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-privacy-boundaries-in-adolescent-social-media-use/"><u>Establishing Privacy Boundaries in Adolescent Social Media Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-bulletin-boards-to-instagram-the-communication-evolution/"><u>From Bulletin Boards to Instagram: The Communication Evolution</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/advanced-audio-configuration-tips-for-devices-for-2024/"><u>Advanced Audio Configuration Tips for Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/custom-avatar-designs-for-your-facebook-page/"><u>Custom Avatar Designs for Your Facebook Page</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-resource-audio-recommendations-for-unboxing-content-creators-for-2024/"><u>Ultimate Resource  Audio Recommendations for Unboxing Content Creators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-harmony-8-ways-to-interlink-socially/"><u>Digital Harmony: 8 Ways to Interlink Socially</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-measure-up-against-standard-bot-tech/"><u>How Does MetaAI Measure Up Against Standard Bot Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-telegrams-popularity-post-facebook-outage/"><u>Demystifying Telegram’s Popularity Post-Facebook Outage</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-the-workplace-dynamics-on-facebook-groups/"><u>Inside Look: The Workplace Dynamics on Facebook Groups</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-oneplus-nord-n30-5g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your OnePlus Nord N30 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phone-a-covert-marketer-in-disguise-truth-exposed/"><u>Is Your Phone a Covert Marketer in Disguise? Truth Exposed!</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-boosting-visual-appeal-in-tiktok-videos/"><u>2024 Approved  Boosting Visual Appeal in TikTok Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/discovering-the-ultimate-14-stardew-valley-upgrades-for-2024/"><u>Discovering the Ultimate 14  Stardew Valley Upgrades for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-suggested-feeds/"><u>Navigating Facebook's Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-out-facebooks-covert-user-countdown/"><u>Digging Out Facebook's Covert User Countdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-changing-the-game-for-musicians-and-earnings/"><u>How Facebook Is Changing the Game for Musicians and Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-path-to-influence/"><u>Mastering Social Media: Path to Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-leaving-facebook-on-android/"><u>Master the Art of Leaving Facebook on Android</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unleash-creativity-with-iphone-burst-photography-for-2024/"><u>Unleash Creativity with iPhone Burst Photography for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-free-youtube-thumbnail-downloaderssavers-online-download-youtube-thumbnail/"><u>[Updated] In 2024, 10 Free YouTube Thumbnail Downloaders/Savers Online-Download YouTube Thumbnail</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-proactive-gaming-enhancing-minecraft-through-ram-upgrade-for-2024/"><u>[New] Proactive Gaming  Enhancing Minecraft Through RAM Upgrade for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-samsung-galaxy-f15-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Samsung Galaxy F15 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expert-guide-to-leveraging-obs-in-android/"><u>[New] 2024 Approved  Expert Guide to Leveraging OBS in Android</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-digital-misappropriation-of-intriguing-selfies/"><u>Halt Digital Misappropriation of Intriguing Selfies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oppo-reno-8t-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Oppo Reno 8T 5G Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-facebook-your-step-by-step-plan/"><u>Freedom From Facebook: Your Step-by-Step Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-growth-essential-meta-concepts-and-strategies/"><u>Elevate Growth: Essential Meta Concepts & Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-mastery-fastest-android-compact-apps/"><u>Mobile Mastery: Fastest Android Compact Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-facebook-security-using-2fa-and-mtcg-together/"><u>Enhance Your Facebook Security: Using 2FA and MTCG Together</u></a></li>
+<li><a href="https://facebook.techidaily.com/money-magic-on-facebook-and-instagram-top-5-methods/"><u>Money Magic on Facebook & Instagram: Top 5 Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-metas-authenticated-us-community/"><u>Join Meta's Authenticated US Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-user-chat-new-tools-for-instagram-messenger-users-announced/"><u>Facebook Enhances User Chat: New Tools for Instagram, Messenger Users Announced</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-clearer-screen-cleaner-sound-techniques-for-dampening-background-audio-in-digital-videos/"><u>Updated 2024 Approved Clearer Screen, Cleaner Sound Techniques for Dampening Background Audio in Digital Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-expert-pick-mics-for-youtube-entrepreneurs-for-2024/"><u>[Updated] Expert Pick  Mics for YouTube Entrepreneurs for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unlock-pro-level-editing-top-5-final-cut-pro-secrets-revealed-for-2024/"><u>Updated Unlock Pro-Level Editing Top 5 Final Cut Pro Secrets Revealed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-feed-mastering-customization-in-facebooks-world/"><u>Crafting Your Feed: Mastering Customization in Facebook's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
+</ul></div>

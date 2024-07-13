@@ -1,7 +1,7 @@
 ---
 title: "Reinforcing Your Email Defenses: 2FA on Gmail, Outlook & More Applications"
-date: 2024-06-25T13:51:56.820Z
-updated: 2024-06-26T13:51:56.821Z
+date: 2024-07-12T09:37:23.494Z
+updated: 2024-07-13T09:37:23.494Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c76737
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
-### Google Prompt ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
+### Google Prompt
+![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
@@ -41,7 +42,8 @@ thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c76737
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
-### Authenticator App ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
+### Authenticator App
+![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
 
  Some users may prefer to use a different 2FA system. One such option is the Google Authenticator app. The Authenticator app generates a six-digit code for you to log into your account, but you must have your phone with you for the system to work.
 
@@ -55,7 +57,8 @@ thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c76737
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
-## How to Set Up 2FA on Microsoft Outlook ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
+## How to Set Up 2FA on Microsoft Outlook
+![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
@@ -73,7 +76,8 @@ thumbnail: https://thmb.techidaily.com/5396014f071443efd9e1f13ed6c2f299f41c76737
 
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf [guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
-## How to Set Up 2FA on Facebook ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
+## How to Set Up 2FA on Facebook
+![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
 Locking your Facebook account is as important as your email address.
 
@@ -81,7 +85,8 @@ Locking your Facebook account is as important as your email address.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires [a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
-## How to Set Up 2FA on Twitter ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
+## How to Set Up 2FA on Twitter
+![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
@@ -89,7 +94,8 @@ Locking your Facebook account is as important as your email address.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
-## How to Set Up 2FA on Instagram ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
+## How to Set Up 2FA on Instagram
+![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
 
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
 
@@ -124,3 +130,47 @@ Locking your Facebook account is as important as your email address.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/personal-space-protection-escape-from-these-invasive-apps/"><u>Personal Space Protection: Escape From These Invasive Apps</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-discord-vs-skype-selecting-your-communication-platform-for-2024/"><u>[New] Discord vs Skype  Selecting Your Communication Platform for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-ally-facebook-aids-rust-growth/"><u>Social Media's New Ally: Facebook Aids Rust Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-facebooks-reels-in-the-social-media-race/"><u>Investigating Facebook’s Reels in the Social Media Race</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-techniques-for-gradual-mix-adjustments-in-pro-tools/"><u>[New] Techniques for Gradual Mix Adjustments in Pro Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-boost-removing-facebook-watch-history-details/"><u>Privacy Boost: Removing Facebook Watch History Details</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-13-official-method-to-unlock-your-apple-iphone-13-by-drfone-ios/"><u>How To Unlock Apple iPhone 13 Official Method to Unlock Your Apple iPhone 13</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-newsfeed-to-dodge-objectionable-ads/"><u>Tailoring Your Newsfeed to Dodge Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-method-to-update-fb-birth-details/"><u>Seamless Method to Update FB Birth Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unleashes-pioneering-ai-powerhouse-worldwide/"><u>Meta Unleashes Pioneering AI Powerhouse Worldwide</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-a-beginners-guide-to-vimeo-caption-addition/"><u>[New] In 2024, A Beginner's Guide to Vimeo Caption Addition</u></a></li>
+<li><a href="https://facebook.techidaily.com/revised-tips-youngsters-advised-against-insta-use/"><u>Revised Tips: Youngsters Advised Against Insta Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-social-facebooks-portable-portal-gone/"><u>Revolutionizing Social: Facebook's Portable Portal Gone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-quick-guide-the-most-effective-ways-to-save-fb-story-videos/"><u>[Updated] 2024 Approved  Quick Guide  The Most Effective Ways to Save FB Story Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/linkedin-and-facebook-synergy-for-job-advancement/"><u>LinkedIn & Facebook Synergy for Job Advancement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-make-a-thumbnail-for-your-youtube-free-easily/"><u>[Updated] How to Make a Thumbnail for Your YouTube Free Easily</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-banishing-unwanted-green-in-mac-recorded-youtube-content/"><u>[New] In 2024, Banishing Unwanted Green in Mac-Recorded YouTube Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-premium-15-ultra-mobile-video-devices/"><u>2024 Approved  Premium 15 Ultra-Mobile Video Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpening-speech-snippets-bold-and-italic-flair/"><u>Sharpening Speech Snippets: Bold & Italic Flair</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-screen-for-interactive-video-conferences/"><u>Optimizing Your Screen for Interactive Video Conferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-when-will-fb-messaging-go-e2ee/"><u>Privacy Concerns: When Will FB Messaging Go E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-footprints-purge-facebook-history-efficiently/"><u>No More Footprints: Purge Facebook History Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategizing-discreet-social-media-exposure/"><u>Strategizing Discreet Social Media Exposure</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-voice-recognition-converting-spoken-words-to-text/"><u>New Voice Recognition Converting Spoken Words to Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-fb-page-pristine-banning-inappropriate-users/"><u>Keeping Your FB Page Pristine: Banning Inappropriate Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/pursuing-new-frontiers-fb-sets-aside-5m-for-groundbreaking-content-creator-tools/"><u>Pursuing New Frontiers: FB Sets Aside $5M for Groundbreaking Content Creator Tools</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-dynamic-mac-screen-and-audio-capture-tool/"><u>[Updated] Dynamic Mac Screen and Audio Capture Tool</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-implementing-look-up-tables-luts-to-elevate-design-work/"><u>2024 Approved  Implementing Look-Up Tables (LUTs) to Elevate Design Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-sneaky-onlookers-on-facebook-platform/"><u>Spotting Sneaky Onlookers on Facebook Platform</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unleash-your-fitness-top-motion-tracking-apps-for-mobile/"><u>New In 2024, Unleash Your Fitness Top Motion Tracking Apps for Mobile</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-firstrow-leisure-without-the-sports-commitment/"><u>[New] In 2024, FirstRow Leisure Without the Sports Commitment</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-drive-engagement-tips-for-going-viral-on-instagram-for-2024/"><u>[New] Drive Engagement  Tips for Going Viral on Instagram for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-8-pioneering-exercise-videos-to-keep-your-viewers-active/"><u>[New] In 2024, 8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-facebook-refining-news-feed-for-business-outreach/"><u>Spotlight: Facebook Refining News Feed for Business Outreach</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-tagging-elevate-your-youtube-content-for-2024/"><u>Mastering Tagging  Elevate Your YouTube Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-chart-wolfs-sonorous-call-pattern-for-2024/"><u>New Chart Wolfs Sonorous Call Pattern for 2024</u></a></li>
+</ul></div>

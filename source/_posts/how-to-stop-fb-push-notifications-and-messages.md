@@ -1,7 +1,7 @@
 ---
 title: How to Stop FB Push Notifications and Messages
-date: 2024-06-25T14:48:38.922Z
-updated: 2024-06-26T14:48:38.922Z
+date: 2024-07-12T10:41:27.276Z
+updated: 2024-07-13T10:41:27.276Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/dd77f8cbbec8ed8ce40dfd9ce55bda6a399ba6919
 
  Fortunately, it doesn't have to be this way. If you want to know how to delete Facebook notifications, how to clear notifications on Facebook, or how to turn off Facebook notifications completely, here's what you need to know.
 
-## How to Delete Facebook Notifications ![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
+## How to Delete Facebook Notifications
+![facebook notification remove](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-remove.jpg)
 
  Let's start with the most important question: How do you delete notifications on Facebook?
 
@@ -72,7 +73,8 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-### How to Turn Off Facebook Notifications by Category ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+### How to Turn Off Facebook Notifications by Category
+![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -95,7 +97,8 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
-### How to Stop Facebook Notifications on Android ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+### How to Stop Facebook Notifications on Android
+![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -144,3 +147,39 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/the-art-of-eating-10-social-media-staples/"><u>The Art of Eating  10 Social Media Staples</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-free-online-video-editors-for-movie-creation/"><u>New Best Free Online Video Editors for Movie Creation</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-infinix-hot-30-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Infinix Hot 30 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispers-of-innovation-facebook-and-its-stealthy-smartwatch/"><u>Whispers of Innovation: Facebook and Its Stealthy Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-room-efficiency-with-these-10-sms-tactics/"><u>Unlock Room Efficiency with These 10 SMS Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-tools-for-social-media-embarrassment-extraction/"><u>7 Key Tools for Social Media Embarrassment Extraction</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-meizu-21-pro-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Meizu 21 Pro? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-blackout-facebook-whatsapp-in-a-daze/"><u>Digital Blackout: Facebook, WhatsApp in a Daze</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-valid-ban-on-trump-but-for-how-long/"><u>Digital Disruption: Valid Ban on Trump, but for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-safety-in-social-media-environments/"><u>User Safety in Social Media Environments</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-the-ultimate-tutorial-on-morphvox-for-enhancing-gaming-experience-through-vocal-alteration-for-2024/"><u>Updated The Ultimate Tutorial on Morphvox for Enhancing Gaming Experience Through Vocal Alteration for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-embark-on-digital-explorations-vr-tour-basics/"><u>2024 Approved  Embark on Digital Explorations  VR Tour Basics</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehending-fbctas-influence-on-usage/"><u>Comprehending FBCTA's Influence on Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/expand-your-viewership-horizon-on-youtube-for-2024/"><u>Expand Your Viewership Horizon on Youtube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-operation-issues-on-modern-windows-pcs/"><u>Resolving Operation Issues on Modern Windows PCs</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-recording-your-system-sounds-with-audacity/"><u>New 2024 Approved Recording Your System Sounds with Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-future-facebooks-stance-on-metaverse/"><u>Decoding the Future: Facebook's Stance on Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-unsolicited-group-tags/"><u>Block Unsolicited Group Tags</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-crafting-visual-narratives-with-premium-text-tools-in-ae/"><u>[Updated] 2024 Approved  Crafting Visual Narratives with Premium Text Tools in AE</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-behind-accepting-friend-requests-on-fb/"><u>Unveiling the Mystery Behind Accepting Friend Requests on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-exodus-analyzing-four-reasons-for-social-media-dwindle/"><u>The Unseen Exodus: Analyzing Four Reasons for Social Media Dwindle</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-dialogue-understanding-key-acronyms-and-phrases-in-online-communities/"><u>Decoding Digital Dialogue: Understanding Key Acronyms and Phrases in Online Communities</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-vivo-y78plus-t1-edition-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Vivo Y78+ (T1) Edition | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+</ul></div>

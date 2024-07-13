@@ -1,7 +1,7 @@
 ---
 title: "Retrospect: Significant Stories From Google"
-date: 2024-06-25T14:12:48.152Z
-updated: 2024-06-26T14:12:48.152Z
+date: 2024-07-12T10:00:47.662Z
+updated: 2024-07-13T10:00:47.662Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  But which stories took the cake in 2022? What were Google's top news moments this year? Let's take a look.
 
-## 1\. The $400 Million Location Tracking Settlement ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
+## 1\. The $400 Million Location Tracking Settlement
+![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
 
  Some people don't mind location tracking features, while others find them highly concerning. Either way, one should always know if or when a service is tracking their location.
 
@@ -27,7 +28,8 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  But things didn't stop there. Concerns soon arose in the US, which resulted in Google agreeing to pay a huge settlement of almost $400 million to 40 states for allegedly misleading users on location tracking. This settlement requires Google to be more forthcoming and transparent with users, including about its location tracking parameters, in 2023.
 
-## 2\. The UK Ads Revenue Lawsuit ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
+## 2\. The UK Ads Revenue Lawsuit
+![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
 
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
@@ -35,7 +37,8 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
-## 3\. The End of YouTube Originals ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
+## 3\. The End of YouTube Originals
+![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
 
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
 
@@ -43,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
-## 4\. The Violation of Sonos Patents ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
+## 4\. The Violation of Sonos Patents
+![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and [various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
@@ -51,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
-## 5\. A "Secret" Facebook Deal ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
+## 5\. A "Secret" Facebook Deal
+![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
  Google and [Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
@@ -59,13 +64,15 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
-## 6\. The FTC Pixel Lawsuit ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
+## 6\. The FTC Pixel Lawsuit
+![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
-## 7\. The $25B UK and Netherlands Lawsuits ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
+## 7\. The $25B UK and Netherlands Lawsuits
+![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
@@ -92,3 +99,44 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/2024-approved-cutting-edge-tools-convert-tiktok-to-clear-mp4-files/"><u>2024 Approved  Cutting-Edge Tools  Convert TikTok to Clear MP4 Files</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-ultimate-companion-for-your-gaming-setup-xbox-recorder-for-2024/"><u>The Ultimate Companion for Your Gaming Setup  Xbox Recorder for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-conclude-your-journey-with-online-communities-graciously/"><u>How to Conclude Your Journey with Online Communities Graciously</u></a></li>
+<li><a href="https://facebook.techidaily.com/scouring-cyberspace-advanced-tactics-for-finding-emerging-communities/"><u>Scouring Cyberspace: Advanced Tactics for Finding Emerging Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscover-the-social-network-guided-password-recovery-on-fb/"><u>Rediscover the Social Network - Guided Password Recovery on FB</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-vivo-v27-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Vivo V27 Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/peel-layers-of-personalities-with-messengers-quiz-mechanics/"><u>Peel Layers of Personalities with Messenger's Quiz Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewables-rise-facebook-commits-to-green-power/"><u>Renewables Rise: Facebook Commits to Green Power</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-seas-silent-storytelling-mastering-gopro-footage-in-deep-waters/"><u>2024 Approved  Sea's Silent Storytelling  Mastering GoPro Footage in Deep Waters</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-fb-after-phone-theft-heres-what-to-do/"><u>Reactivating FB After Phone Theft? Here's What to Do</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-hyperprospects-top-laptops-for-elite-video-editors-in-4k/"><u>[New] HyperProspects  Top Laptops for Elite Video Editors in 4K</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-beckons-as-meta-drops-tests-on-popular-platforms/"><u>The Future Beckons as Meta Drops Tests on Popular Platforms</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-social-media-power-up-grouping-multiple-photos-and-vids-for-instagram/"><u>[Updated] 2024 Approved  Social Media Power-Up  Grouping Multiple Photos & Vids for Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-shun-apples-in-app-tracking/"><u>Majority Shun Apple's In-App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/refining-online-discourse-the-pursuit-of-better-social-feed-engagement/"><u>Refining Online Discourse: The Pursuit of Better Social Feed Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-implementation-of-facebooks-mtfc-mechanism/"><u>Stepwise Implementation of Facebook's MTFC Mechanism</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-mastering-video-capture-with-obs-studios-features/"><u>2024 Approved  Mastering Video Capture with OBS Studio's Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-fights-for-users-with-legal-suit-against-india/"><u>Tech Giant Fights for Users with Legal Suit Against India</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-childs-digital-domain-on-facebook/"><u>Securing Your Child's Digital Domain on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-claim-your-own-piece-from-facebooks-massive-settlement/"><u>How to Claim Your Own Piece From Facebook's Massive Settlement</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-f5-5g-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted F5 5G Contacts  An Easy Method Explained.</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-apple-iphone-15-pro-max-by-drfone-ios/"><u>How to jailbreak iCloud locked Apple iPhone 15 Pro Max</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-battle-with-political-satire/"><u>Social Media's Battle with Political Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-smooth-fades-in-a-second/"><u>2024 Approved  Smooth Fades in a Second</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-tactic-purging-your-fb-search-logs/"><u>Privacy Tactic: Purging Your FB Search Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-curating-content-for-a-refined-social-media-experience/"><u>The Ultimate Guide to Curating Content for a Refined Social Media Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-leap-into-mobility-with-go-update/"><u>Portal’s Leap Into Mobility with Go Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpen-your-brands-online-image-top-reasons-for-a-business-profile-on-fb/"><u>Sharpen Your Brand's Online Image: Top Reasons for a Business Profile on FB</u></a></li>
+<li><a href="https://windows11.techidaily.com/7-compelling-reasons-to-maintain-your-love-for-win10/"><u>7 Compelling Reasons to Maintain Your Love for Win10</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-simplified-steps-for-photo-motion-blur-in-photoshop/"><u>[Updated] Simplified Steps for Photo Motion Blur in Photoshop</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-duo-enhances-wnba-viewership/"><u>Social Network Duo Enhances WNBA Viewership</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-spark-joy-with-these-14-playful-text-animations/"><u>2024 Approved  Spark Joy with These 14 Playful Text Animations</u></a></li>
+</ul></div>

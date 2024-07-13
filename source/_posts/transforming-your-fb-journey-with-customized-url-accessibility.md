@@ -1,7 +1,7 @@
 ---
 title: Transforming Your Fb Journey with Customized URL Accessibility
-date: 2024-06-25T14:23:43.932Z
-updated: 2024-06-26T14:23:43.932Z
+date: 2024-07-12T10:13:17.244Z
+updated: 2024-07-13T10:13:17.244Z
 tags:
   - facebook
 categories:
@@ -27,17 +27,20 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
  First, let's have a look at the Facebook shortcut options that you will find in the navigation bar.
 
-### Home ![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
+### Home
+![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
-### Friends ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
+### Friends
+![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
 
  The Friends shortcut is an icon with two people. This is where you can view all your Facebook friend requests and suggested friends to add. Facebook might also suggest importing your contacts. If you remove the tab, you'll get friend request notifications in the Notifications tab instead.
 
  There is a [difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
-### Profile ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
+### Profile
+![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
@@ -45,11 +48,13 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-### Menu ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
+### Menu
+![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
-### Marketplace ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
+### Marketplace
+![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
  The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
@@ -61,11 +66,13 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
  You can easily [leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
-### Watch ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
+### Watch
+![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
-### Gaming ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
+### Gaming
+![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
@@ -161,3 +168,50 @@ To disable and enable Facebook notification dots from the settings:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-vdieo-software.techidaily.com/create-a-stunning-slideshow-a-step-by-step-guide-for-2024/"><u>Create a Stunning Slideshow A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-stance-on-online-communities-negative-dominant/"><u>U.S. Stance on Online Communities: Negative Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-implicit-communication-on-fbc-platform/"><u>Unraveling Implicit Communication on FBC Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-setup-for-extended-messaging-networks/"><u>Quick Setup for Extended Messaging Networks</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-free-and-paid-online-video-editing-solutions-with-music-editing-capabilities/"><u>New In 2024, Free and Paid Online Video Editing Solutions with Music Editing Capabilities</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-poco-m6-pro-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Poco M6 Pro 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-expert-insights-mastering-your-game-recording-on-windows-10/"><u>[New] Expert Insights  Mastering Your Game Recording on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-list-before-unlinking-from-fb/"><u>The Essential List Before Unlinking From FB</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-discover-the-unbeatable-selection-of-cost-free-audio-editing-applications-for-windowsmac-updated-list-2023/"><u>Updated In 2024, Discover the Unbeatable Selection of Cost-Free Audio Editing Applications for Windows/Mac (Updated List, 2023)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-a-cleaner-facebook-view-trail/"><u>Navigating to a Cleaner Facebook View Trail</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-merge-music-and-graphics-in-ppt/"><u>2024 Approved  Merge Music and Graphics in PPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-memories-selective-visibility/"><u>Tailoring Your Facebook Memories: Selective Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-multilingual-publishing-features/"><u>Navigating Facebook's Multilingual Publishing Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-life-rewind-what-happens-after-you-unplug/"><u>Real Life Rewind: What Happens After You Unplug</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-could-facebooks-strategy-lead-to-selling-giphy/"><u>Rumors Swirl: Could Facebook's Strategy Lead to Selling Giphy?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme 11 Pro+ | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-2024-approved-easy-video-upload-on-tiktok-with-your-personal-macpc-device/"><u>[Updated] 2024 Approved  Easy Video Upload on TikTok with Your Personal MAC/PC Device</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-pro-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze Pro 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-comparative-costs-yt-vs-other-platforms/"><u>[Updated] Comparative Costs  YT vs Other Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-selective-slideshow-software-for-xrxsx-models-for-2024/"><u>[Updated] Selective Slideshow Software for Xr/XS/X Models for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-perspectives-on-facebooks-platform/"><u>Personalizing Perspectives on Facebook's Platform</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-speak-slide-and-convince-the-vo-powerpoint-pathway/"><u>[Updated] In 2024, Speak, Slide & Convince - The VO Powerpoint Pathway</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-selective-nature-of-social-network-news-feeds/"><u>The Selective Nature of Social Network News Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/ux-guile-in-the-digital-age-a-privacy-perspective/"><u>UX Guile in the Digital Age: A Privacy Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-less-connected-your-guide-to-leaving-facebook/"><u>The Path Less Connected: Your Guide to Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-happiness-without-facebooks-chains/"><u>Unlock Happiness Without Facebook's Chains</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-gathering-made-easy-using-your-facebook-portal-tv/"><u>Virtual Gathering Made Easy: Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-of-facebooks-newsfeed/"><u>The Hidden Dynamics of Facebook's Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-outage-alert-all-big-social-apps-down/"><u>Online Outage Alert: All Big Social Apps Down</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-craft-engaging-trailers-that-drive-channels-sales-for-2024/"><u>[Updated] How to Craft Engaging Trailers that Drive Channels' Sales for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-the-path-to-autoplay-configuring-youtube-content-for-uninterrupted-streaming/"><u>[Updated] The Path to Autoplay  Configuring Youtube Content for Uninterrupted Streaming</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-suspension-review-set-for-social-network/"><u>Trump Suspension Review Set for Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-gaining-viral-recognition/"><u>Strategies for Gaining Viral Recognition</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-premier-15-zero-price-screen-recording-software/"><u>[Updated] 2024 Approved  Premier 15 Zero-Price Screen Recording Software</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-essential-tips-building-an-instagram-money-machine/"><u>[Updated] 2024 Approved  Essential Tips  Building an Instagram Money Machine</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-youtube-integration-in-instagram-narratives-for-2024/"><u>[Updated] YouTube Integration in Instagram Narratives for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
+</ul></div>

@@ -1,0 +1,131 @@
+---
+title: "Cutting Off or Keeping Connected: Post-Death Facebook Management"
+date: 2024-07-12T11:02:28.865Z
+updated: 2024-07-13T11:02:28.865Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Cutting Off or Keeping Connected: Post-Death Facebook Management"
+excerpt: "This Article Describes Cutting Off or Keeping Connected: Post-Death Facebook Management"
+keywords: Death and Facebook,Managing FB After Death,Handle Posthumous Profiles,Respect Dead's Online Presence,Disconnecting Deceased Accounts,Post-Mortem Social Network Management,Inheritance of Digital Personas
+thumbnail: https://thmb.techidaily.com/c6867ae9c4f4e3df3c9379b15f4163ebd35319a50b7aab7a2fe4029be64b0298.jpg
+---
+
+## Cutting Off or Keeping Connected: Post-Death Facebook Management
+
+ In earlier days, people who passed away left their assets and memories behind. But now, in the world of social media, people also leave a Facebook account. Whether it's your grandma who passed away or a close friend, they are most likely to have an account on Facebook.
+
+ Anyone can take advantage of the content and account no longer in use. But what can be done to avoid it? Facebook allows its users to memorialize or remove a deceased person's Facebook account. You just need to follow a few simple steps.
+
+## How to Get a Facebook Account Memorialized
+
+ A memorialized Facebook profile becomes a platform for people to remember their loved ones. You can share their memories and talk about them. Once an account is memorialized, it gets “Remembering” in front of the name.
+
+ A memorialized account can be created by the designated legacy contact. However, if there’s no legacy contact, Facebook automatically memorializes the account of the person it knows has passed away. No one can log into that account, but legacy contacts can accept requests, add posts and manage privacy.
+
+To get a Facebook account memorialized, follow these steps:
+
+1. Open the [Facebook Account Memorialization Form](https://www.facebook.com/help/contact/234739086860192) from your mobile or desktop. You need to be logged in to Facebook to access it.  
+![Facebook account memorialization request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-account-memorialization-request-form.jpg)
+2. On top, you can find information related to memorialized accounts. Scroll down to enter the required information. In the**Who Passed Away** section, enter the profile URL of the deceased person.
+3. Next, toggle the tabs and enter the date in the**When Did They Pass Away** section.  
+![When did that person pass away](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/When-did-that-person-pass-away.jpg)
+4. Facebook requires proof that the request you are submitting is genuine. You need to attach Documentation of Death issued by an authentic source. Users can upload a PDF or image. Documents available in hard copy can be uploaded by taking a picture. You can also [convert these images into PDFs with the right software](https://www.makeuseof.com/windows-jpg-pdf-converters/) .
+5. Enter your email address, so Facebook can contact you. If the deceased user mentioned a legacy contact, they have the right to delete the account if needed. Otherwise, a memorialized account will stay on Facebook to be remembered.
+6. Tap**Send** .
+
+ Once the account is memorialized, Facebook notifies its legacy contact or the loved one who requested the report. The process takes some time, so you must remain patient.
+
+ If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use [valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
+
+## How to Get a Facebook Account Removed After the Person Dies
+
+![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
+
+ For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
+
+ Only a legacy contact can request Facebook to remove an account whose owner has passed away. When someone puts their account on**Delete After Death** , it automatically removes all personal data like posts, photos, and messages from Facebook. With this feature, your legacy contact does not have the right to maintain the account.
+
+ Facebook takes accounts of the deceased very seriously and ensures their wish to memorialize or delete the account is followed. This is why it is mandatory to provide Facebook with genuine documentation.
+
+ Here are the steps on how to get your deceased loved one’s account removed from Facebook:
+
+1. Open the [Special Request For Medically Incapacitated or Deceased Person's Account Form](https://www.facebook.com/help/contact/228813257197480) .  
+![Special request form for deceased persons account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Special-request-form-for-deceased-persons-account.jpg)
+2. In the**Full Name** section, enter your official credentials.
+3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
+4. After that, enter the deceased person’s name as written on their Facebook profile. It can differ from the name mentioned on their death certificate. This is why Facebook recommends using your actual name when creating a profile.
+5. Copy the URL from their Facebook profile and paste it under the**Link (URL) to the Person's Profile** section. To copy a URL on mobile, go to the deceased person's**Profile** , tap the three dots, and under**Profile Link** , select**Copy Profile Link** .
+
+1. Enter the email address that was used to create that account in the**Account's Email Address** section.  
+![Give deceased persons accounts email address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Give-complete-details-in-the-form.jpg)
+2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
+3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the [acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
+4. Choose an image or PDF depending on the document you were issued. Make sure they are authentic and come with a state seal for assurance.
+5. Under**When Did They Pass Away** , select the date of death.
+6. Press**Send** .
+
+ Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
+
+ If your account is to be deleted, the legacy contact will be able to [download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
+
+## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
+
+ When people pass away, their Facebook account is still left running. Users must appoint a legacy contact in their life. This contact has access to their content and posts.
+
+ As a legacy contact, you can get that person’s account memorialized. This means that the account stays there for people to remember the one who passed. You can post content from that account as well.
+
+ However, if the deceased wished not to remain on Facebook after death, their legacy contact can get the account removed. We discussed both methods to help you make a sound decision for the one who is no longer in your life.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/updated-remedying-pixelated-youtube-footage/"><u>[Updated] Remedying Pixelated YouTube Footage</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-transform-your-chronicles-free-extensions-and-mobile-apps-galore/"><u>[Updated] In 2024, Transform Your Chronicles  FREE Extensions & Mobile Apps Galore</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-memorable-virtual-biography-on-fb/"><u>Building a Memorable Virtual Biography on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/content-commerce-leveraging-metas-tools-for-profit-making-video-content/"><u>Content Commerce: Leveraging Meta's Tools for Profit-Making Video Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-premium-5-android-capture-and-screen-save-apps/"><u>[Updated] In 2024, Premium 5 Android Capture & Screen Save Apps</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-complete-process-of-logging-google-meet-chats/"><u>[New] The Complete Process of Logging Google Meet Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-noteworthy-and-authentic-online-self-image-on-fb/"><u>Building a Noteworthy and Authentic Online Self-Image on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-driven-connections-in-social-circles/"><u>Channel-Driven Connections in Social Circles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-the-rise-of-vidma-transforming-the-landscape-of-capture-technology/"><u>[Updated] 2024 Approved  The Rise of Vidma  Transforming the Landscape of Capture Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-boosts-lifes-true-value-without-social-apps/"><u>Beyond the Boosts: Life's True Value Without Social Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-your-social-spheres-historical-path/"><u>Charting Your Social Sphere's Historical Path</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-announces-her-stepping-down-from-fb/"><u>Carolyn Everson Announces Her Stepping Down From FB</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-transforming-tiktok-videos-with-effortless-text-enhancement-techniques/"><u>[Updated] In 2024, Transforming TikTok Videos with Effortless Text Enhancement Techniques</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-lava-blaze-pro-5g-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Lava Blaze Pro 5G FRP Without Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzz-box-the-top-20-must-visit-social-applications-and-websites/"><u>Buzz Box: The Top 20 Must-Visit Social Applications and Websites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/refined-retakes-how-to-crop-and-perfect-iphone-shots-for-2024/"><u>Refined Retakes  How to Crop and Perfect iPhone Shots for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/communication-controverny-whatsapp-legal-battle-with-indian-authorities/"><u>Communication Controverny: WhatsApp Legal Battle with Indian Authorities</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-conversation-culture-with-care/"><u>Cultivating Conversation Culture with Care</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-community-constructs-8-collaborative-networks/"><u>Cyber-Community Constructs: 8 Collaborative Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossing-friendship-divides-after-a-ban/"><u>Crossing Friendship Divides After a Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-an-individualized-facebook-emblem/"><u>Constructing an Individualized Facebook Emblem</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-brand-youre-proud-of-facebook-edition/"><u>Building a Brand You're Proud Of: Facebook Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-and-convey-who-you-are-an-in-depth-look-at-creating-a-profile-photo-with-an-avatar/"><u>Capture and Convey Who You Are: An In-Depth Look at Creating a Profile Photo with an Avatar</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-unleashing-your-macs-screen-sharing-potential/"><u>[New] 2024 Approved  Unleashing Your Mac's Screen Sharing Potential</u></a></li>
+<li><a href="https://facebook.techidaily.com/contemplating-the-impact-of-ditching-your-networked-life/"><u>Contemplating the Impact of Ditching Your Networked Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-purging-possible-consequences-for-social-media-protection/"><u>Data Purging: Possible Consequences for Social Media Protection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-in-depth-look-at-ipad-display-logging/"><u>[New] In 2024, In-Depth Look at iPad Display Logging</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-building-through-7-key-social-media-aspects/"><u>Community Building Through 7 Key Social Media Aspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybernetic-cautionary-tales-decode-these-9-indicators-of-a-social-snatch/"><u>Cybernetic Cautionary Tales: Decode These 9 Indicators of a Social Snatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-exploring-metas-latest-privacy-regulations/"><u>Comprehensively Exploring Meta’s Latest Privacy Regulations</u></a></li>
+</ul></div>

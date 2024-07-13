@@ -1,7 +1,7 @@
 ---
 title: Facebook Users at Risk? The Effect of Deleting Facial Recognition Data on Safety?
-date: 2024-06-25T14:13:27.456Z
-updated: 2024-06-26T14:13:27.456Z
+date: 2024-07-12T10:01:32.546Z
+updated: 2024-07-13T10:01:32.546Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
-## No Major Security Improvements Here ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+## No Major Security Improvements Here
+![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -80,3 +81,46 @@ thumbnail: https://thmb.techidaily.com/280632bcded78a124b04e053c7d047b36940366fb
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/securing-your-virtual-space-meta-vs-facebook/"><u>Securing Your Virtual Space: Meta Vs. Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-inside-track-on-calculating-your-youtube-impact-and-income/"><u>In 2024, Inside Track on Calculating Your YouTube Impact and Income</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-nightmares-8-disturbing-realities-explored/"><u>Social Network Nightmares: 8 Disturbing Realities Explored</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mastering-adobe-premiere-top-6-tricks-for-professional-grade-videos-for-2024/"><u>New Mastering Adobe Premiere Top 6 Tricks for Professional-Grade Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-purchasing-on-fb-unveiled-for-fridays/"><u>Live Purchasing on FB Unveiled for Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-uptrend-or-plateau/"><u>Facebook's Engagement: Uptrend or Plateau?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-user-loss-whats-the-real-tally/"><u>Facebook's User Loss: What's the Real Tally?</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-against-cyber-threats-with-effective-use-of-2fa-on-gmail-and-outlook/"><u>Safeguarding Against Cyber Threats with Effective Use of 2FA on Gmail & Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-focus-5-ways-to-unclutter-and-sharpen-your-image/"><u>Facebook Focus: 5 Ways to Unclutter and Sharpen Your Image</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-lava-blaze-2-5g-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Lava Blaze 2 5G Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-5-elite-apps-for-creating-gifs-from-tiktok-videos-quickly/"><u>In 2024, 5 Elite Apps for Creating GIFs From TikTok Videos Quickly</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-infinix-smart-8-hd-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on Infinix Smart 8 HD?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-illusion-to-immersion-deciphering-metaverse-and-vr-differences/"><u>From Illusion to Immersion: Deciphering Metaverse and VR Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-texting-facebook-rolls-out-groundbreought-features-for-apps-like-instagram-and-messenger/"><u>Revolutionize Texting: Facebook Rolls Out Groundbreought Features for Apps Like Instagram and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-timelines-your-facebook-newsfeed-reimagined/"><u>Tailored Timelines: Your Facebook Newsfeed Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-strategies-accelerating-facebook-user-shifts/"><u>Key Strategies: Accelerating Facebook User Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-non-facebook-message-services/"><u>Mastering Non-Facebook Message Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattering-illusions-decoding-key-findings-from-fb-papers/"><u>Shattering Illusions: Decoding Key Findings From FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-professionalism-blocking-negative-profiles-from-fb/"><u>Maintaining Professionalism: Blocking Negative Profiles From FB</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-oppo-k11-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Oppo K11 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-landscapes-overhauited-discovering-4-major-online-shifts/"><u>Social Landscapes Overhauited: Discovering 4 Major Online Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-forecast-of-social-media-turmoil-fb-edition/"><u>The Forecast of Social Media Turmoil: FB Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-format-text-in-messenger-bold-italics-and-more/"><u>How to Format Text in Messenger: Bold, Italics, and More</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-vivo-y100-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Vivo Y100 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-swapping-outdated-login-credentials-for-facebook/"><u>Securely Swapping Outdated Login Credentials for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-answer-to-the-audio-only-chat-space/"><u>Facebook's Answer to the Audio-Only Chat Space</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-androids-latest-advancements-for-immersive-video-viewing/"><u>[Updated] In 2024, Android's Latest Advancements for Immersive Video Viewing</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-science-of-space-how-layout-affects-professional-effectiveness/"><u>2024 Approved  The Science of Space  How Layout Affects Professional Effectiveness</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-efficiently-clear-updates-from-your-profile/"><u>How to Efficiently Clear Updates From Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-online-life-from-facebook-fraudsters/"><u>Safeguard Your Online Life From Facebook Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-unveiled-heres-how-you-can-protect-online-reputation/"><u>Secrets Unveiled? Here's How You Can Protect Online Reputation</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-unlocking-the-potential-of-slow-mo-in-your-daily-tiktok-creations/"><u>[New] Unlocking the Potential of Slow Mo in Your Daily TikTok Creations</u></a></li>
+<li><a href="https://facebook.techidaily.com/mystery-of-the-momentarily-missed-messages/"><u>Mystery of the Momentarily Missed Messages</u></a></li>
+</ul></div>

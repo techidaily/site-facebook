@@ -1,7 +1,7 @@
 ---
 title: How to Add and Remove Shortcuts on Facebook
-date: 2024-06-25T14:40:16.873Z
-updated: 2024-06-26T14:40:16.873Z
+date: 2024-07-12T10:31:59.756Z
+updated: 2024-07-13T10:31:59.756Z
 tags:
   - facebook
 categories:
@@ -27,17 +27,20 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  First, let's have a look at the Facebook shortcut options that you will find in the navigation bar.
 
-### Home ![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
+### Home
+![facebook-app-home](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-home.JPEG)
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
-### Friends ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
+### Friends
+![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
 
  The Friends shortcut is an icon with two people. This is where you can view all your Facebook friend requests and suggested friends to add. Facebook might also suggest importing your contacts. If you remove the tab, you'll get friend request notifications in the Notifications tab instead.
 
  There is a [difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
-### Profile ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
+### Profile
+![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
@@ -45,11 +48,13 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-### Menu ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
+### Menu
+![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
-### Marketplace ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
+### Marketplace
+![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
  The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
@@ -61,11 +66,13 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
  You can easily [leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
-### Watch ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
+### Watch
+![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
-### Gaming ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
+### Gaming
+![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
@@ -161,3 +168,54 @@ To disable and enable Facebook notification dots from the settings:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/erasing-facial-recognition-data-a-security-risk-for-social-platform-users/"><u>Erasing Facial Recognition Data – A Security Risk for Social Platform Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/illusion-of-empowerment-interfaces-and-your-choices/"><u>Illusion of Empowerment: Interfaces and Your Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/stopping-covid-19-fake-news-a-guide-for-social-networking-sites/"><u>Stopping COVID-19 Fake News: A Guide for Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-allowing-unnamed-comments-on-your-fb-group/"><u>Tips for Allowing Unnamed Comments on Your FB Group</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-2024-approved-google-translate-video-a-complete-guide-to-translate-video-with-google/"><u>Updated 2024 Approved Google Translate Video A Complete Guide To Translate Video With Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-platforms-and-user-emotional-responses/"><u>Social Platforms and User Emotional Responses</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-landscapes-reimagined-by-facebook/"><u>Networking Landscapes Reimagined by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/lack-of-faith-in-major-platforms-spikes-for-facebook/"><u>Lack of Faith in Major Platforms Spikes for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-link-your-social-accounts-on-xbox/"><u>How to Link Your Social Accounts on Xbox</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-eradicate-wows-fatal-issue-132-in-win-1011/"><u>Strategies to Eradicate WoW's Fatal Issue #132 in Win 10/11</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-trendsetting-visualizations-for-the-year-ahead/"><u>2024 Approved  Trendsetting Visualizations for the Year Ahead</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-6-hdmi-21-monitor-you-can-find-detailed-comparison-for-2024/"><u>Top 6 HDMI 2.1 Monitor You Can Find [Detailed Comparison] for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/switch-to-night-mode-your-facebook-guide/"><u>Switch to Night Mode: Your Facebook Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-exploring-social-boundaries-sign-up-for-a-facebook-profile/"><u>[Updated] 2024 Approved  Exploring Social Boundaries  Sign Up for a Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-says-it-isnt-dying-heres-why/"><u>Facebook Says It Isn't Dying: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-facebook-tags-efficiently/"><u>The Ultimate Guide to Removing Facebook Tags Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/entering-new-realms-how-metaverse-contrasts-with-vrs-six-features/"><u>Entering New Realms: How Metaverse Contrasts with VR's Six Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-fresh-content-massive-traction-secrets-to-a-thriving-insta-account/"><u>In 2024, Fresh Content, Massive Traction  Secrets to a Thriving Insta Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-the-timeline-enhance-your-online-social-experience/"><u>Tailoring the Timeline: Enhance Your Online Social Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/immersive-music-experience-spotify-and-facebook-synergy/"><u>Immersive Music Experience: Spotify and Facebook Synergy</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-against-facebook-gimmicks-list-of-14-typical-swindles/"><u>Guard Against Facebook Gimmicks: List of 14 Typical Swindles</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-privacy-how-to-avoid-facebooks-stalking/"><u>Reclaim Privacy: How to Avoid Facebook's Stalking</u></a></li>
+<li><a href="https://facebook.techidaily.com/methodical-ways-to-delete-your-facebook-alerts/"><u>Methodical Ways to Delete Your Facebook Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-a-facebook-group/"><u>How to Delete a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-verdict-yet-facebook-board-postpones-judgment/"><u>No Verdict Yet: Facebook Board Postpones Judgment</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-online-interactions-which-sites/"><u>Safe Online Interactions: Which Sites?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-behind-the-scenes-crafting-a-screenplay/"><u>2024 Approved  Behind the Scenes  Crafting a Screenplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/last-login-tips-what-to-consider-when-bidding-farewell-to-fb/"><u>Last Login Tips: What to Consider When Bidding Farewell to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-decline-social-networking-amid-abuse-outcry/"><u>Premier League Stars Decline Social Networking Amid Abuse Outcry</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faux-pas-navigating-identity-fraud/"><u>Facebook Faux Pas: Navigating Identity Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-use-of-facebook-in-event-scheduling/"><u>Evaluating the Use of Facebook in Event Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-stress-navigating-the-signals-9-warnings-of-account-breach/"><u>Social Security Stress: Navigating the Signals (9 Warnings) of Account Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-virtual-reunions-leveraging-your-facebook-portal-tv/"><u>Initiating Virtual Reunions: Leveraging Your Facebook Portal TV</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-soundcloud-to-mp3-essential-conversion-strategies/"><u>New From Soundcloud to MP3 Essential Conversion Strategies</u></a></li>
+<li><a href="https://win11.techidaily.com/overcoming-errors-with-windows-event-logger/"><u>Overcoming Errors with Windows Event Logger</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-top-tips-for-archiving-your-discovery-of-live-discord-broadcasts/"><u>2024 Approved  Top Tips for Archiving Your Discovery of Live Discord Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-fallout-consequences-of-an-online-lifestyle/"><u>Facebook Fallout: Consequences of an Online Lifestyle</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactivity-or-intrusion-cybersecurity-risks-on-fb-quizzes/"><u>Interactivity or Intrusion? Cybersecurity Risks on FB Quizzes</u></a></li>
+<li><a href="https://facebook.techidaily.com/natures-gift-to-facebook-entire-operations-on-renewables/"><u>Nature's Gift to Facebook: Entire Operations on Renewables</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-convert-facebook-to-mp4-hack-for-quick-access/"><u>[New] 2024 Approved  Convert Facebook to MP4 – Hack for Quick Access</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-10-excellent-web-based-screen-capture-solutions-for-2024/"><u>[New] 10 Excellent Web-Based Screen Capture Solutions for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-streamline-watching-facebook-videos-on-your-apple-tv-device/"><u>[New] Streamline  Watching Facebook Videos on Your Apple TV Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-explainer-leveraging-facebooks-transparency-toolkit/"><u>The Ultimate Explainer: Leveraging Facebook’s Transparency Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/polo-clubs-resist-social-platforming/"><u>Polo Clubs Resist Social Platforming</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-social-engagement-using-ripl/"><u>Navigating the World of Social Engagement Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-facebook-customizations-for-an-optimal-mobile-experience/"><u>Key Facebook Customizations for an Optimal Mobile Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-language-of-likes-and-shares-essential-smarts-for-social-media-users/"><u>The Language of Likes and Shares: Essential SMARTs for Social Media Users</u></a></li>
+</ul></div>

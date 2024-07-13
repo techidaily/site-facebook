@@ -1,7 +1,7 @@
 ---
 title: "Viral Truth: Social Platforms Halting COVID-19 Fabrications"
-date: 2024-06-25T14:13:57.173Z
-updated: 2024-06-26T14:13:57.173Z
+date: 2024-07-12T10:02:06.517Z
+updated: 2024-07-13T10:02:06.517Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,8 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
-## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
+## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
+![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
 
@@ -114,3 +115,48 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/effortless-newsfeed-transformation-the-facebook-way/"><u>Effortless Newsfeed Transformation: The Facebook Way</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-surpassing-the-ranks-essential-factors-uncovered/"><u>2024 Approved  Surpassing the Ranks  Essential Factors Uncovered</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-art-of-vocal-transformation-utilizing-morphvox-for-competitive-gaming-advantage/"><u>The Art of Vocal Transformation Utilizing Morphvox for Competitive Gaming Advantage</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-iphone-xs-max-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For iPhone XS Max</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-art-of-editing-crafting-your-youtube-story-with-precision/"><u>2024 Approved  The Art of Editing  Crafting Your YouTube Story with Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sanctions-rightly-suspended-trump-for-now/"><u>Social Media Sanctions: Rightly Suspended Trump for Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-phony-facebook-account-creation-schemes/"><u>Exploring Phony Facebook Account Creation Schemes</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/updated-top-10-best-and-fast-ways-to-turn-image-into-gif/"><u>Updated Top 10 Best and Fast Ways to Turn Image Into Gif</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-unpacking-the-dji-phantom-3-standard-features/"><u>In 2024, Unpacking the DJI Phantom 3 Standard Features</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-realme-narzo-60-pro-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Realme Narzo 60 Pro 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metas-identity-system/"><u>Navigating Meta's Identity System</u></a></li>
+<li><a href="https://facebook.techidaily.com/music-at-your-fingertips-spotifys-miniplayer-in-fb-app/"><u>Music at Your Fingertips: Spotify's Miniplayer in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-teamwork-with-social-media-facebooks-8-features/"><u>Navigating Teamwork with Social Media: Facebook's 8 Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-rules-for-discreet-facebook-and-instagram-interactions/"><u>New Rules for Discreet Facebook and Instagram Interactions</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-realme-gt-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Realme GT 5 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-seamless-spinning-and-stitching-an-android-videographers-handbook/"><u>2024 Approved  Seamless Spinning & Stitching  An Android Videographer's Handbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/count-of-friends-liking-you-online/"><u>Count of Friends Liking You Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-root-of-hostility-towards-virtual-community-spaces/"><u>Investigating the Root of Hostility Towards Virtual Community Spaces</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-iphone-voice-memo-recording-guide/"><u>[New] In 2024, IPhone Voice Memo Recording Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-authorities-step-up-to-protect-whatsapp-users-from-facebook-spying/"><u>German Authorities Step Up to Protect WhatsApp Users From Facebook Spying</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-high-quality-video-capture-for-tech-enthusiasts/"><u>[Updated] High-Quality Video Capture for Tech Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-the-layers-of-fb-message-phrases/"><u>Peeling Back the Layers of FB Message Phrases</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-becoming-an-online-mogul/"><u>Steps to Becoming an Online Mogul</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-administrative-errors-the-spark-for-amazon-litigation/"><u>Facebook's Administrative Errors: The Spark for Amazon Litigation?</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-14-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 14 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-european-strategy-the-potential-demise-of-facebook-and-instagram/"><u>Meta's European Strategy: The Potential Demise of Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-success-in-social-media-marketing-on-fb/"><u>Decoding #Success in Social Media Marketing on FB</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/online-video-resources-for-enhanced-learning-experiences/"><u>Online Video Resources for Enhanced Learning Experiences</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-oppo-reno-8t-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Oppo Reno 8T? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-2024-approved-optimizing-your-audacity-experience-with-lames-mp3-encoding-features/"><u>Updated 2024 Approved Optimizing Your Audacity Experience with Lames MP3 Encoding Features</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-analyzing-the-spectrum-of-hdr-with-asus-professional-screen/"><u>In 2024, Analyzing the Spectrum of HDR with ASUS Professional Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-neighborhoods-purpose-and-participants/"><u>Navigating Facebook Neighborhoods: Purpose & Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-my-chosen-fb-ad-campaigns/"><u>Insight Into My Chosen Fb Ad Campaigns</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-swift-and-secure-efficient-downloads-of-podcasts-onto-iphone/"><u>In 2024, Swift and Secure  Efficient Downloads of Podcasts Onto iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-connections-one-profile-at-a-time-facebooks-redefined-dating-approach/"><u>Building Connections, One Profile at a Time: Facebook's Redefined Dating Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-opportunities-5-facebook-strategies-for-careers/"><u>Maximizing Opportunities: 5 Facebook Strategies for Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-framework-understanding-its-governance-entity/"><u>Facebook's Framework: Understanding Its Governance Entity</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-xiaomi-frp-by-drfone-android/"><u>Full Guide to Bypass Xiaomi FRP</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-social-media-integration-for-amplified-youtube-shorts-reach/"><u>2024 Approved  Social Media Integration for Amplified YouTube Shorts Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-social-buttons-on-fb-nostalgia-feature/"><u>Cut Off Social Buttons on FB Nostalgia Feature</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-growth-in-the-grove-top-7-stardew-valley-addons/"><u>[Updated] 2024 Approved  Growth in the Grove  Top 7 Stardew Valley Addons</u></a></li>
+</ul></div>

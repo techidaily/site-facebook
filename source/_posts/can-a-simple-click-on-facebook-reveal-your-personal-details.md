@@ -1,0 +1,176 @@
+---
+title: Can a Simple Click on Facebook Reveal Your Personal Details?
+date: 2024-07-12T11:06:38.533Z
+updated: 2024-07-13T11:06:38.533Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Can a Simple Click on Facebook Reveal Your Personal Details?
+excerpt: This Article Describes Can a Simple Click on Facebook Reveal Your Personal Details?
+keywords: Personal Data Exposure,Facebook Privacy Risks,Online Identity Theft Prevention,Social Media Data Leakage,Facebook Security Measures,Privacy Settings Review for Facebook,Social Media Footprint and Privacy
+thumbnail: https://thmb.techidaily.com/58f32787f189e5c81c275c54898b5f9f19257cc09edc660acfbd429a0158f5b0.jpg
+---
+
+## Can a Simple Click on Facebook Reveal Your Personal Details?
+
+ Over 533 million Facebook users’ phone numbers and personal data were recently leaked online, published for free on a widely-used hacking forum.
+
+ Those affected Facebook users are spread across 106 countries and disclosed data includes phone numbers, full names, dates of birth, Facebook IDs, bios, and email addresses.
+
+ So what actually happened in this Facebook data leak? How can you find out if your Facebook account has been affected? And if so, what can you do about it?
+
+## Facebook Phone Number Leak: What Really Happened?
+
+ According to a Facebook spokesperson, the breach was not a result of a hack but the data was scraped because of a previously patched vulnerability.
+
+ Back in 2018, unknown entities [accessed around 50 million Facebook accounts](https://www.makeuseof.com/tag/facebook-hack-50-million-accounts/) by simply exploiting a vulnerability in the site's code. That same year, another bug was found to provide [third-party apps illegal access to photos](https://www.makeuseof.com/tag/facebook-bug-exposes-users-photos/) which they didn't have permission to view.
+
+ Alon Gal, the chief technology officer of the cybercrime intelligence firm [Hudson Rock](https://www.hudsonrock.com/) who actually [discovered the leaked data](https://twitter.com/UnderTheBreach/status/1378314424239460352) paints a gloomy picture where this data breach could lead to other potential threats. Gal says:
+
+> "A database of that size containing the private information such as phone numbers of a lot of Facebook's users would certainly lead to bad actors taking advantage of the data to perform social-engineering attacks \[or\] hacking attempts".
+
+## How to Find Out if Your Phone Number Was Leaked
+
+[](https://www.makeuseof.com/wp-content/uploads/2021/04/phone-and-data-leak.jpg)
+
+![phone and data leak](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/phone-and-data-leak.jpg)
+
+ If you are itching to find out whether your phone number was part of the breach, here are two ways to uncover the truth,
+
+### 1\. Enter Your Phone Number in the News Each Day Tool
+
+ A simple tool offered on the website, [The News Each Day](https://www.thenewseachday.com/private-facebook-phone-numbers-us) , lets anyone enter their phone number to find out if it was part of the breach.
+
+ To make the tool work, you should enter your phone number without any periods or hyphens. An international country code is also required at the beginning of the number.
+
+ However, most people are hesitant in handing over their phone numbers online. The fact that this website does not have an elaborate privacy policy and claims that it tracks all clicks through Google Analytics can also make some people uncomfortable.
+
+### 2\. Use the HaveIBeenPwned Tool
+
+ If you are hesitant to input your phone number on a website that is not widely known, then your best bet would be to access [HaveIBeenPwned](https://haveibeenpwned.com/) . The company recently updated its database to add this Facebook data breach.
+
+ Simply access the site and enter the email address that you use for your Facebook account. The tool will tell you if your account is part of the Facebook breach and what personal information was compromised, if any.
+
+ As an added bonus, the tool also tells you if your email address is part of any other data breaches listed in its database.
+
+## Can You Trust Sites With Your Phone Number?
+
+ When trying to identify data breaches, anyone claiming to be your friend can often be your enemy. Many websites claim to identify your phone numbers as part of the breach, but in reality, they are phishing sites looking to grab your sensitive data.
+
+ Be very cautious when inputting your phone numbers on random websites and do not disclose any information without doing thorough research on the tools and websites that you are going to use.
+
+## How to Keep Your Personal Data Protected
+
+![login](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/login-1.jpg)
+
+ By employing the following tactics, you can keep your personal data protected.
+
+### Change Your Passwords
+
+ Changing your passwords is the first logical thing to do if you suspect your phone number was part of the breach. Passwords should always be changed periodically to reduce the chances of attack.
+
+ The US National Institute of Standards and Technology (NIST) recommends using long passphrases that are easy to remember but difficult to guess. Strong passwords are at least eight characters in length and include a combination of uppercase and lowercase letters along with symbols.
+
+### Monitor Your Credit File
+
+ If your phone number was actually a part of the Facebook breach (or any data breach for that matter), then investing in a credit monitoring service is well worth the effort.
+
+ Not all data breaches lead to identity theft, but any victim of a data breach faces a lifelong risk. The best way to protect your identity is [to freeze your credit](https://www.makeuseof.com/how-do-i-freeze-my-credit/) and also add a free credit monitoring service.
+
+ A credit monitoring service doesn't only watch your credit reports but also alerts you when changes happen. As an example, if someone tries to open a bank account under your name, you will find out instantly as opposed to waiting for greater damage to ensue.
+
+### Enable Multi-Factor Authentication On Social Media Accounts
+
+![multiple devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/multiple-devices.jpg)
+
+ Multi-Factor Authentication (MFA) grants access to a user only after they have successfully presented two or more pieces of evidence. By providing an extra set of credentials instead of just one password, MFA offers an added layer of security and helps avoid data breaches.
+
+ An example would be online banking from your computer with MFA enabled. Once you enter your login credentials to the bank website, a one-time-password (OTP) code will be sent to another pre-authenticated device like your cell phone. To gain access, you would need to enter that code into the bank's website.
+
+ You can always use time-restricted OTPs from an MFA tool such as the Google Authenticator.
+
+### Get Fraud Identification From Your Mobile Provider
+
+ You could potentially become part of a cell phone fraud if your account or phone number was part of the breach.
+
+ Many cell phone providers offer fraud identification services. If you suspect that your phone number was part of the data breach, call your mobile provider's fraud department and they should be able to assist.
+
+### Avoid Using Same Email/ Password Combinations
+
+ People who use the same email address-password combination for multiple online accounts are at a higher risk.
+
+ Criminals can use the stolen login credentials from one website to log into another—allowing them access to your email, social media, or worst of all, online banking portal.
+
+ Related: [What Is a Data Breach and How Can You Protect Yourself?](https://www.makeuseof.com/tag/data-breach-protection/)
+
+## Facebook Mobile and Online Users: Stay Vigilant
+
+ The Facebook leak was not the first time that a massive data breach occurred. And it will certainly not be the last. While half a billion Facebook accounts and phone numbers were exposed, there is a lesson to be learned from all of this: we need to be more vigilant about our online accounts.
+
+ Data breaches can alter the life of an individual or business significantly and have huge implications. Fortunately, developing effective passwords, rotating them regularly, using separate passwords for different accounts, and enabling MFA are some of the many things we can do to protect our sensitive data.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-6-superior-apps-for-effortless-mac-video-grabbing-for-2024/"><u>[New] 6 Superior Apps for Effortless Mac Video Grabbing for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/top-tips-on-how-to-design-travel-slideshow-for-2024/"><u>Top Tips on How to Design Travel Slideshow for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-off-default-mass-tagging-feature/"><u>Cut Off Default Mass-Tagging Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-boundaries-for-better-social-media-practices/"><u>Building Boundaries for Better Social Media Practices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-5-must-have-video-editing-software-for-macos-sierra/"><u>Top 5 Must-Have Video Editing Software for macOS Sierra</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-reconsider-trump-page-ban-policy/"><u>CEO to Reconsider Trump Page Ban Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-virtual-divide-combining-your-social-accounts-on-xbox/"><u>Bridging the Virtual Divide: Combining Your Social Accounts on Xbox</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-10-tiktok-trends-in-video-responses/"><u>[Updated] In 2024, 10 TikTok Trends in Video Responses</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-breaking-news-afbs-secret-to-trending-content/"><u>[Updated] Breaking News  AFB's Secret to Trending Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-newsfeed-narrative-unveiling-fact-fiction-at-facebook/"><u>Beyond the Newsfeed Narrative: Unveiling Fact-Fiction at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-brands-presence-8-superior-reasons-to-opt-for-a-business-page/"><u>Boost Your Brand's Presence: 8 Superior Reasons to Opt for a Business Page</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-edge-40-neo-cant-play-mp4-video-files-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Motorola Edge 40 Neo can't play MP4 video files</u></a></li>
+<li><a href="https://facebook.techidaily.com/convergence-of-realms-defining-the-metaverse-nexus/"><u>Convergence of Realms: Defining the Metaverse Nexus</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-redefining-your-viewing-experience-youtube-playlist-shuffle/"><u>[Updated] In 2024, Redefining Your Viewing Experience  YouTube Playlist Shuffle</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-snappy-stories-how-to-record-snapchat-mobilely/"><u>[New] 2024 Approved  Snappy Stories - How to Record Snapchat Mobilely</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-digital-overload-minimize-suggested-feeds/"><u>Control Digital Overload: Minimize Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-positive-online-persona-on-social-media-sites/"><u>Crafting a Positive Online Persona on Social Media Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-fbctas-effect-on-consumers/"><u>Breaking Down the FBCTA's Effect on Consumers</u></a></li>
+<li><a href="https://facebook.techidaily.com/captivating-audiences-pages-and-group-polling-mastery/"><u>Captivating Audiences: Pages & Group Polling Mastery</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-can-we-unlock-our-oneplus-ace-2v-phone-screen-by-drfone-android/"><u>How Can We Unlock Our OnePlus Ace 2V Phone Screen?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-engaging-social-network-circle/"><u>Crafting an Engaging Social Network Circle</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-your-message-privacy-facebooks-latest-features-enable-secure-chat-and-call-communications/"><u>Boosting Your Message Privacy: Facebook's Latest Features Enable Secure Chat and Call Communications.</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-preserving-your-snapchat-moments-beyond-app/"><u>In 2024, Preserving Your SnapChat Moments Beyond App</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-friend-spotting-the-top-3-tagging-strategies-on-fb/"><u>Breaking Down Friend Spotting: The Top 3 Tagging Strategies on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-rights-to-your-social-media-photos/"><u>Clarifying Rights to Your Social Media Photos</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-taking-it-to-the-next-level-5-expert-approved-hacks-for-16x9-ratio-calculators/"><u>Updated Taking It to the Next Level 5 Expert-Approved Hacks for 16X9 Ratio Calculators</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-tips-for-selective-image-editing-in-photo-software-for-2024/"><u>Expert Tips for Selective Image Editing in Photo Software for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-back-the-trump-era-on-meta/"><u>Bringing Back the Trump Era on Meta</u></a></li>
+<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-kings-discovering-todays-most-trending-digital-places/"><u>Connectivity Kings: Discovering Today's Most Trending Digital Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-change-up-how-social-media-redefined-interactions-fourfold/"><u>Connectivity Change-Up: How Social Media Redefined Interactions Fourfold</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-eye-on-the-social-scene-top-tweets-of-2023/"><u>[New] Eye on the Social Scene  Top Tweets of 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-conversation-clarity-formatting-highlights/"><u>Crafting Conversation Clarity: Formatting Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/comedic-content-classification-by-facebook/"><u>Comedic Content Classification by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-reels-solve-the-tiktok-problem-for-facebook/"><u>Can Reels Solve the TikTok Problem for Facebook?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exclusive-list-of-the-top-10-digital-recording-apps/"><u>[Updated] Exclusive List of the Top 10 Digital Recording Apps</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-top-10-freely-accessible-tiktok-video-editing-tools-compatible-with-mac/"><u>2024 Approved  Top 10 Freely Accessible TikTok Video Editing Tools Compatible with Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprint-to-establishing-your-social-circle-on-fb/"><u>Blueprint to Establishing Your Social Circle on FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-from-youtube-to-instagram-sharing-video-content-with-ease/"><u>[New] 2024 Approved  From YouTube to Instagram  Sharing Video Content with Ease</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-hasty-thumbnail-crafting-for-fortnite-gameplay/"><u>[New] In 2024, Hasty Thumbnail Crafting for Fortnite Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/conserve-your-time-diminishing-fb-interactions/"><u>Conserve Your Time: Diminishing FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/comfort-in-conciseness-a-guide-for-comment-free-facebook-updates/"><u>Comfort in Conciseness: A Guide for Comment-Free Facebook Updates</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Building Bonds, Not Bruises: FB Banter Basics"
-date: 2024-06-25T13:56:13.549Z
-updated: 2024-06-26T13:56:13.549Z
+date: 2024-07-12T09:42:13.253Z
+updated: 2024-07-13T09:42:13.253Z
 tags:
   - facebook
 categories:
@@ -40,7 +40,8 @@ Close
 
  You should also note that you can only use the feature with friends, so the button will not appear next to the names of people you're not Facebook friends with.
 
-## How to Poke Someone on Facebook in 2024 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
+## How to Poke Someone on Facebook in 2024
+![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
 
@@ -84,3 +85,43 @@ To do this, follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/peel-layers-of-personalities-with-messengers-quiz-mechanics/"><u>Peel Layers of Personalities with Messenger's Quiz Mechanics</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-unleash-your-creativity-best-free-and-paid-lyric-video-makers-online/"><u>Updated In 2024, Unleash Your Creativity Best Free and Paid Lyric Video Makers Online</u></a></li>
+<li><a href="https://howto.techidaily.com/android-screen-stuck-general-tecno-spark-10-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Tecno Spark 10 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-image-sharing-the-future-of-fb-automatic-captions/"><u>Effortless Image Sharing: The Future of FB Automatic Captions</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-the-world-anywhere-facebooks-mobility-focused-portal/"><u>Experience the World Anywhere: Facebook's Mobility-Focused Portal</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-realme-gt-5-240w-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme GT 5 (240W) Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-duosync-advanced-auditory-coordination-toolkit-for-premiere-pro-professionals/"><u>Updated 2024 Approved DuoSync Advanced Auditory Coordination Toolkit for Premiere Pro Professionals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/quick-fixes-for-stopped-fb-live-broadcasts-for-2024/"><u>Quick Fixes for Stopped FB Live Broadcasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-multi-app-sign-ins-the-case-for-and-against-using-facebook-login/"><u>Navigating Multi-App Sign-Ins: The Case for & Against Using Facebook Login</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-avs-video-editor-is-only-available-on-windows-you-need-to-get-avs-video-editor-alternative-for-mac/"><u>New AVS Video Editor Is only Available on Windows, You Need to Get AVS Video Editor Alternative for Mac</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-premiere-pro-for-youtube-cutting/"><u>In 2024, Step-by-Step Guide  Premiere Pro for YouTube Cutting</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-conclude-your-journey-with-online-communities-graciously/"><u>How to Conclude Your Journey with Online Communities Graciously</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-edge-40-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Edge 40 without backup.</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-shun-apples-in-app-tracking/"><u>Majority Shun Apple's In-App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-leap-into-mobility-with-go-update/"><u>Portal’s Leap Into Mobility with Go Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/essential-directories-the-premier-10-sites-for-acquiring-montage-soundtracks-for-2024/"><u>Essential Directories The Premier 10 Sites for Acquiring Montage Soundtracks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbs-secret-communication-security/"><u>Exploring FB's Secret Communication Security</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/in-2024-top-rated-aiff-conversion-tools-a-comprehensive-review/"><u>In 2024, Top-Rated AIFF Conversion Tools A Comprehensive Review</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-combine-videos-effortlessly-best-alternatives-to-software-reviewed/"><u>In 2024, Combine Videos Effortlessly Best Alternatives to Software Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-social-labyrinth-of-facebook-inquiries/"><u>Navigating the Social Labyrinth of Facebook Inquiries</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/in-2024-10-best-free-gif-background-remover-for-pc-and-online/"><u>In 2024, 10 Best Free GIF Background Remover for PC and Online</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cheap-yet-good-quality-cameras-reviewed-here/"><u>2024 Approved  Cheap Yet Good Quality Cameras Reviewed Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-claim-your-own-piece-from-facebooks-massive-settlement/"><u>How to Claim Your Own Piece From Facebook's Massive Settlement</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/innovative-methods-screen-capturing-on-instagram-for-2024/"><u>Innovative Methods  Screen Capturing on Instagram for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-the-essentials-of-film-production-for-youtube-originals/"><u>In 2024, The Essentials of Film Production for YouTube Originals</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-group-what-it-does-and-how-it-works/"><u>FB Oversight Group: What It Does and How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-protocols-for-defeating-fb-account-intrusion/"><u>Emergency Protocols for Defeating FB Account Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/pivotal-platform-policies-strategically-managing-your-online-collectives-on-facebook/"><u>Pivotal Platform Policies: Strategically Managing Your Online Collectives on Facebook</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-motorola-moto-e13-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Motorola Moto E13 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-as-a-corporate-communication-tool-explained/"><u>Facebook as a Corporate Communication Tool Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-twitter-and-snapchat-key-players-in-jbs-vaccine-campaign/"><u>FB, Twitter & Snapchat: Key Players in JB's Vaccine Campaign</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Shielding Yourself From Facebook's Privacy Breach
-date: 2024-06-25T14:23:32.910Z
-updated: 2024-06-26T14:23:32.910Z
+date: 2024-07-12T10:13:04.745Z
+updated: 2024-07-13T10:13:04.745Z
 tags:
   - facebook
 categories:
@@ -109,7 +109,8 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-### uBlock Origin ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
+### uBlock Origin
+![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
@@ -204,3 +205,69 @@ Image Credit: Sabphoto/Shutterstock
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/avatars-and-spaces-crafting-the-perfect-facebook-profile-picture/"><u>Avatars and Spaces: Crafting the Perfect Facebook Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-undercurrents-why-users-are-leaving-fb/"><u>A Deep Dive Into the Undercurrents: Why Users Are Leaving FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-slash-fb-app-ratings-strip-down-to-one-star/"><u>Activists Slash FB App Ratings, Strip Down to One Star</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now!</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-top-free-avi-video-rotators-for-windows-mac-android-iphone-and-online-use/"><u>Updated In 2024, Top Free AVI Video Rotators for Windows, MAC, Android, iPhone, and Online Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-cutting-through-complexity-twitch-content-on-yousocial-media-giant/"><u>2024 Approved  Cutting Through Complexity  Twitch Content on YouSocial Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-rift-investment-by-users-seeking-hacked-data-recovery/"><u>$300 Rift Investment by Users Seeking Hacked Data Recovery</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-transform-your-memories-best-online-photo-and-video-collage-apps-for-2024/"><u>New Transform Your Memories Best Online Photo and Video Collage Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-exploring-verified-metas-and-blue-statuses/"><u>Beyond Likes: Exploring Verified Metas and Blue Statuses</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-time-your-shots-perfectly-tips-for-instagrams-slow-motion/"><u>[New] In 2024, Time Your Shots Perfectly  Tips for Instagram’s Slow Motion</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-journey-for-vanishing-from-facebooks-world/"><u>A Step-by-Step Journey for Vanishing From Facebook's World</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-vivo-y200e-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-your-online-posts-really-permanent/"><u>Are Your Online Posts Really Permanent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-cause-chaos-provoke-one-star-reviews-on-social-network/"><u>Activists Cause Chaos: Provoke One-Star Reviews on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-goggles-and-gloves-6-key-divergences-between-metaverse-and-vr/"><u>Beyond Goggles & Gloves: 6 Key Divergences Between Metaverse & VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151722546-be-part-of-the-future-facebooks-10000-metaverse-builders-wanted/"><u>Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-using-track-matte-and-tracking-in-adobe-after-effects-reviewing-all-possibilities/"><u>Updated Using Track Matte and Tracking in Adobe After Effects Reviewing All Possibilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-hype-towards-clarity-new-perspective-on-the-social-media-scandal/"><u>Beyond Hype, Towards Clarity: New Perspective on The Social Media Scandal</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-prime-video-picture-format-guide/"><u>New 2024 Approved Prime Video Picture Format Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/evaluating-video-performance-vlc-versus-mx-for-2024/"><u>Evaluating Video Performance  VLC Versus MX for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/audit-of-followers-on-fb/"><u>Audit of Followers on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-falsehoods-a-request-to-tech-giants-like-facebook-and-google/"><u>Banishing Falsehoods: A Request to Tech Giants Like Facebook and Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-maintains-independence-no-jump-into-metaverse-just-yet/"><u>Apple Maintains Independence - No Jump Into Metaverse Just Yet</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-best-10-apps-to-add-stickers-to-photos-for-iphone-and-android/"><u>[New] Best 10 Apps to Add Stickers to Photos for iPhone and Android</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-achieve-perfect-views-with-aspect-ratio-knowledge-on-youtube/"><u>[New] 2024 Approved  Achieve Perfect Views with Aspect Ratio Knowledge on YOUTUBE</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-coal-renewable-energy-fuels-all-of-fb/"><u>Beyond Coal: Renewable Energy Fuels All of FB</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-captivating-narratives-on-snapchat-a-treasury-of-over-a-hundred-ideas-for-stories/"><u>[Updated] Crafting Captivating Narratives on Snapchat  A Treasury of Over a Hundred Ideas for Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-digital-content-wizard-with-these-proven-techniques-for-facebook-video-creation/"><u>Become a Digital Content Wizard with These Proven Techniques for Facebook Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-the-true-face-of-metaverse/"><u>Beyond Likes and Shares: The True Face of Metaverse</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/bridging-cultures-through-turkish-and-korean-tongues/"><u>Bridging Cultures Through Turkish & Korean Tongues</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerating-friend-finding-in-messaging-platforms/"><u>Accelerating Friend-Finding in Messaging Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-breakdown-of-facebooks-user-assistance-features/"><u>A Breakdown of Facebook's User Assistance Features</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-cannot-preview-error-with-microsoft-office-outlook/"><u>Resolving 'Cannot Preview' Error with Microsoft Office Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-disconnect-key-steps-to-consider-for-your-fb-exit/"><u>Before You Disconnect: Key Steps to Consider for Your FB Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-secure-email-engagement-mastery-of-2fa-on-popular-mail-services-like-google-and-microsoft/"><u>Achieve Secure Email Engagement: Mastery of 2FA on Popular Mail Services Like Google and Microsoft</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fortnite-thumbnail-blitz-a-30-second-guide/"><u>[Updated] In 2024, Fortnite Thumbnail Blitz  A 30-Second Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153500304-zuckerbergs-litecoin-louie-innovative-pet-nomenclature/"><u>Zuckerberg's 'Litecoin Louie': Innovative Pet Nomenclature</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-secure-steps-to-regain-lost-fb-account-control/"><u>8 Secure Steps to Regain Lost FB Account Control</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-essential-software-for-recording-educational-experiences/"><u>2024 Approved  Essential Software for Recording Educational Experiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-pitfalls-in-social-media-spot-these-14-common-deceptions/"><u>Avoid Pitfalls in Social Media: Spot These 14 Common Deceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-spark-star-rating-anger-drop-facebooks-app-ratings/"><u>Activists Spark Star Rating Anger, Drop Facebook's App Ratings</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-earning-potential-unveiled-youtube-adsense-earning-per-thousand-video-observations/"><u>2024 Approved  Earning Potential Unveiled  YouTube AdSense Earning per Thousand Video Observations</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-monopoly-measures-the-drive-against-tech-goliaths/"><u>Anti-Monopoly Measures: The Drive Against Tech Goliaths</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-pre-fb-account-removal/"><u>A Comprehensive Guide to Pre-FB Account Removal</u></a></li>
+<li><a href="https://facebook.techidaily.com/archery-athletes-disengage-from-online-platforms/"><u>Archery Athletes Disengage From Online Platforms</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/aesthetic-assembly-android-and-ios-video-sets-for-insta-for-2024/"><u>Aesthetic Assembly  Android & iOS Video Sets for Insta for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/rpg-legacy-meets-innovation-written-by-time-for-2024/"><u>RPG Legacy Meets Innovation' Written by Time for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-assessment-for-(securityfacebookmailcom)-as-a-secure-mail-service/"><u>Authenticity Assessment for @<security@facebookmail.com> as a Secure Mail Service</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-guide-turning-insta-vids-to-mp3-tracks-for-2024/"><u>[New] Guide  Turning Insta Vids to MP3 Tracks for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-topping-content-youtubes-top-5-for-2024/"><u>Chart-Topping Content  YouTube's Top 5 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-social-media-content-calendar-tools-for-scheduling-posts/"><u>8 Social Media Content Calendar Tools for Scheduling Posts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-asus-rog-phone-7-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Asus ROG Phone 7 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-screens-re-evaluating-facebooks-user-count/"><u>Beyond Screens: Re-Evaluating Facebook’s User Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-commitment-no-plans-for-facebook-like-metaverse/"><u>Apple's Commitment: No Plans for Facebook-Like Metaverse</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-creation-with-no-cost-high-quality-banner-templates-for-2024/"><u>Streamline Creation with No-Cost, High-Quality Banner Templates for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-lava-blaze-curve-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Lava Blaze Curve 5G Fingerprint Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-journey-into-the-world-of-facebooks-emoji-communication/"><u>A Compreenasional Journey Into the World of Facebook's Emoji Communication</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-3d-animation-software-free-and-premium-options/"><u>New Top 3D Animation Software Free and Premium Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/adolescent-advice-alert-reconsidering-constant-instagram-engagement/"><u>Adolescent Advice Alert: Reconsidering Constant Instagram Engagement?</u></a></li>
+</ul></div>

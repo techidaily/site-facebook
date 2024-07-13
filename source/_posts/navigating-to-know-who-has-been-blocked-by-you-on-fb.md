@@ -1,7 +1,7 @@
 ---
 title: Navigating to Know Who Has Been Blocked by You on Fb
-date: 2024-06-25T14:29:03.812Z
-updated: 2024-06-26T14:29:03.812Z
+date: 2024-07-12T10:19:18.456Z
+updated: 2024-07-13T10:19:18.456Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/0770f30dd9bee193a5501427eba7dec20121fd86c
 
  That's where this guide comes in. In this article, we will show you how to view the list of people you have blocked on Facebook.
 
-## How to View Your Facebook Blocked List on Mobile ![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
+## How to View Your Facebook Blocked List on Mobile
+![screenshot of facebook menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-menu.jpg)
 
 ![screenshot of facebook settings page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-facebook-settings-page-on-mobile.jpg)
 
@@ -37,7 +38,8 @@ Close
 
  This will open a list of people you've blocked on Facebook. If you don't see anyone listed, it means you haven't blocked anyone.
 
-## How to View Your Blocked List on the Web ![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
+## How to View Your Blocked List on the Web
+![screenshot of Facebook blocked list](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/screenshot-of-Facebook-blocked-list.JPG)
 
  Viewing your blocked list on the web is a little different. Here's how to check it:
 
@@ -77,3 +79,43 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-garmins-action-camera-triumph-a-comprehensible-look-at-ultra-30/"><u>[New] Garmin's Action Camera Triumph - A Comprehensible Look at Ultra 30</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-power-structures-key-lessons-from-fb-files/"><u>Exposing Power Structures: Key Lessons From FB Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-negative-feelings-towards-virtual-world-connectors/"><u>Dissecting Negative Feelings Towards Virtual World Connectors</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-video-to-music-youtube-to-mp3-on-macos/"><u>In 2024, From Video to Music  YouTube to MP3 on MacOS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-infinix-note-30-5g-by-fonelab-android-recover-call-logs/"><u>How To  Restore Missing Call Logs from Infinix Note 30 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vigilance-identifying-and-correcting-breaches/"><u>Facebook Vigilance: Identifying & Correcting Breaches</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/mastering-zoom-segregation-techniques-quickstart/"><u>Mastering Zoom Segregation Techniques Quickstart</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-exits-the-rationale-behind-facebooks-stay/"><u>Beyond Exits: The Rationale Behind Facebook's Stay</u></a></li>
+<li><a href="https://facebook.techidaily.com/confronting-the-myth-why-facebook-is-still-here/"><u>Confronting the Myth: Why Facebook Is Still Here</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/busting-metaverse-myths-a-closer-look-at-social-giants/"><u>Busting Metaverse Myths - A Closer Look at Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-tweets-to-tabs-facebooks-new-approach-to-content-discussion/"><u>From Tweets to Tabs: Facebook's New Approach to Content Discussion</u></a></li>
+<li><a href="https://facebook.techidaily.com/express-your-preferred-social-platform/"><u>Express Your Preferred Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-picture-control-guide-mastering-privacy/"><u>Facebook Picture Control Guide: Mastering Privacy</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-art-of-audio-conversion-turning-text-into-engaging-mp3s-for-2024/"><u>New The Art of Audio Conversion Turning Text Into Engaging MP3s for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-bespoke-fb-representation/"><u>Designing a Bespoke FB Representation</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-free-online-video-orientation-changer-best-options-for-2024/"><u>Updated Free Online Video Orientation Changer Best Options for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-notifying-facebook-of-minors-online-presence/"><u>Guidelines for Notifying Facebook of Minors' Online Presence</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-minimalists-guide-to-aerial-imagery-with-dji-spark/"><u>[New] The Minimalist's Guide to Aerial Imagery with DJI Spark</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-byte-to-gb-a-days-long-film-storage-needs/"><u>[Updated] Byte-to-GB  A Day's Long Film Storage Needs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-creating-a-narrative-structure/"><u>[Updated] Creating a Narrative Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-clicks-to-consequences-understanding-online-responsibility/"><u>From Clicks to Consequences: Understanding Online Responsibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-social-media-campaign-the-new-covid-19-frontier/"><u>Biden's Social Media Campaign: The New COVID-19 Frontier</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-note-13-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi Note 13 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-facebook-video-extravaganza-the-most-advanced-fire-browser-tools-updated/"><u>In 2024, Facebook Video Extravaganza  The Most Advanced Fire-Browser Tools, Updated</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-exploring-russias-digital-gathering-place/"><u>Decoding VK: Exploring Russia's Digital Gathering Place</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-expert-video-editing-on-mac-the-power-of-adobe-premiere-pro/"><u>In 2024, Expert Video Editing on Mac The Power of Adobe Premiere Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-eclipsed-by-facebooks-customized-personalized-user-access-methods/"><u>Apple Eclipsed by Facebook's Customized, Personalized User Access Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolve-your-online-presence-move-beyond-fb/"><u>Evolve Your Online Presence, Move Beyond FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-expands-to-sound-based-social-interaction/"><u>Facebook Expands to Sound-Based Social Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/googles-biggest-news-moments-from-2022/"><u>Google's Biggest News Moments From 2022</u></a></li>
+</ul></div>

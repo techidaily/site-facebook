@@ -1,7 +1,7 @@
 ---
 title: "Virtual Voyage Blueprint: From Facebook to Meta Innovation"
-date: 2024-06-25T13:57:02.477Z
-updated: 2024-06-26T13:57:02.477Z
+date: 2024-07-12T09:43:07.951Z
+updated: 2024-07-13T09:43:07.951Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  Here, we'll take a look at the evolution of the American tech giant, from its humble beginnings in 2004 to its steps into the metaverse today.
 
-## 2004–2006: The Origin Story of Facebook ![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
+## 2004–2006: The Origin Story of Facebook
+![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
 
  Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
 
@@ -29,7 +30,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
 
-## 2007–2009: The Inception of the Facebook Like Button ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
+## 2007–2009: The Inception of the Facebook Like Button
+![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
 
  With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
 
@@ -37,7 +39,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
 
-## 2010–2012: Facebook Goes Public ![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
+## 2010–2012: Facebook Goes Public
+![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
 
  After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
 
@@ -45,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
-## 2013–2015: Facebook Enters New Territories ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
+## 2013–2015: Facebook Enters New Territories
+![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
 
  Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
 
@@ -55,7 +59,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know [how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
-## 2016–2018: Controversies and Scandals ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+## 2016–2018: Controversies and Scandals
+![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -67,7 +72,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
 
-## 2019–2021: Rebranding to Meta Backfires ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+## 2019–2021: Rebranding to Meta Backfires
+![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
@@ -79,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/2058f819a1d231ffe8fa3c91a4af4cfd3ee338d92
 
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
-## 2022 and Beyond: Layoffs, Chaos, and Recovery ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
+## 2022 and Beyond: Layoffs, Chaos, and Recovery
+![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
@@ -112,3 +119,52 @@ What comes next? Massive layoffs.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-to-locate-people-youve-shut-out-of-your-fb-life/"><u>How To Locate People You’ve Shut Out of Your FB Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-establishing-your-facebook-community-hub/"><u>Guide to Establishing Your Facebook Community Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-group-departure-with-tact/"><u>Navigating the Path to Group Departure with Tact</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-social-media-presence-incorporating-your-avatar-in-covers/"><u>Enhancing Your Social Media Presence: Incorporating Your Avatar in Covers</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-10-superior-text-conversion-tools-for-mac-enthusiasts/"><u>[New] 10 Superior Text Conversion Tools for Mac Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defiance-why-it-wont-go-dead/"><u>Facebook's Defiance: Why It Won't Go 'Dead'</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-discover-top-tier-ps3-games-on-your-pc-today/"><u>In 2024, Discover Top-Tier PS3 Games on Your PC Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-past-facebooks-lost-posts/"><u>Investigating the Past: Facebook's Lost Posts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-professionals-choice-top-10-afx-templates-for-free/"><u>2024 Approved  Professionals' Choice  Top 10 AFX Templates for FREE</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-tecno-camon-20-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Tecno Camon 20 Phone? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-infinix-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Infinix Phone that is Locked?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-social-data-downloading-every-post-like-share/"><u>Reclaiming Social Data: Downloading Every Post, Like, Share</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/unlock-free-images-for-your-business-a-beginners-guide-for-2024/"><u>Unlock Free Images for Your Business A Beginners Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/final-goodbye-to-the-social-networking-empire/"><u>Final Goodbye to the Social Networking Empire</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-best-ios-alternatives-to-play-timeless-psp-game-classics/"><u>The Best iOS Alternatives to Play Timeless PSP Game Classics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metamorphose-your-approach-with-meta-profile-center-guide/"><u>Metamorphose Your Approach with Meta Profile Center Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tackling-the-challenge-of-video-not-broadcasting-via-fb-messenger/"><u>2024 Approved  Tackling the Challenge of Video Not Broadcasting via FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-facebooks-direct-browser-access/"><u>Eliminate Facebook's Direct Browser Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-chapter-facebook-endorses-rust-language/"><u>New Chapter: Facebook Endorses Rust Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-will-soon-advise-teenagers-to-take-a-break-from-instagram/"><u>Facebook Will Soon Advise Teenagers to Take a Break From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-communication-platform-takes-stand-on-it-law-controversy/"><u>Digital Communication Platform Takes Stand on IT Law Controversy</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-to-dodge-typical-social-media-buying-pitfalls/"><u>Essential Tips to Dodge Typical Social Media Buying Pitfalls</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-fraudsters-on-facebook-the-list-of-top-14-scams/"><u>Expose Fraudsters on Facebook: The List of Top 14 Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-on-choosing-the-perfect-fb-profile-photo/"><u>Expert Tips on Choosing the Perfect Fb Profile Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-safety-in-the-realm-of-social-media-quizzes/"><u>Navigating Safety in the Realm of Social Media Quizzes</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/pushing-boundaries-incorporating-photography-into-audio-experiences-audiovisual-trends-2023/"><u>Pushing Boundaries Incorporating Photography Into Audio Experiences Audiovisual Trends 2023</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-snap-and-save-games-the-nvidia-way/"><u>In 2024, Snap & Save Games - The NVIDIA Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-times-facebook-missed-the-mark-on-privacy-and-trust/"><u>Five Times Facebook Missed the Mark on Privacy and Trust</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-skyrocket-views-on-youtube-in-minutes-2-strategies/"><u>2024 Approved  Skyrocket Views on YouTube in Minutes (2 Strategies)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-rekindle-on-fb-breaking-past-barriers/"><u>How to Rekindle on FB: Breaking Past Barriers</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-freedom-6-compelling-reasons-to-ditch-facebook/"><u>Embrace Freedom - 6 Compelling Reasons to Ditch Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-the-art-of-podcast-storytelling-expert-tips-plus-10plus-sample-scripts/"><u>[Updated] Unveiling the Art of Podcast Storytelling  Expert Tips + 10+ Sample Scripts</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-landslide-tech-giants-go-dark-for-days/"><u>Online Landslide: Tech Giants Go Dark for Days</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-make-your-instagram-content-explosive-a-guide-to-virality-for-2024/"><u>[Updated] Make Your Instagram Content Explosive  A Guide to Virality for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-morality-correct-to-ban-trump-but-not-permanently/"><u>Online Morality: Correct to Ban Trump but Not Permanently</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-seamless-fb-navigation-via-browser/"><u>Ending Seamless FB Navigation via Browser</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-on-reinstating-wiped-facebook-content/"><u>Expert Advice on Reinstating Wiped Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-two-factor-woes-in-facebook-wo-phones/"><u>Navigate Two-Factor Woes in Facebook W/O Phones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/top-20-moments-of-laughter-best-fb-jail-gems-for-a-sunny-outlook-for-2024/"><u>Top 20 Moments of Laughter  Best FB Jail Gems for a Sunny Outlook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-aesthetics-building-collage-content-online/"><u>Effortless Aesthetics: Building Collage Content Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/variations-in-windows-movie-maker-clones-for-2024/"><u>Variations in Windows Movie Maker Clones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-get-back-into-your-facebook-profile/"><u>How to Quickly Get Back Into Your Facebook Profile</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-detailed-guide-to-rotate-videos-in-blender-for-2024/"><u>Updated Detailed Guide to Rotate Videos in Blender for 2024</u></a></li>
+</ul></div>

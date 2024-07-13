@@ -1,7 +1,7 @@
 ---
 title: "Social Media: To Like or Not to Like?"
-date: 2024-06-25T13:50:18.969Z
-updated: 2024-06-26T13:50:18.969Z
+date: 2024-07-12T09:35:33.349Z
+updated: 2024-07-13T09:35:33.349Z
 tags:
   - facebook
 categories:
@@ -37,7 +37,8 @@ thumbnail: https://thmb.techidaily.com/740b68b56d6bbac7152f3eef9f605d6bffa61f711
 
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
-### Less Stress When Posting ![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
+### Less Stress When Posting
+![stressed woman with laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/stressed-woman-with-laptop.jpg)
 
  When you post on YouTube, regardless of the subject matter of your posts, you open yourself to criticism from others. Sometimes, that can cause so much stress and anxiety that you put off posting indefinitely.
 
@@ -45,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/740b68b56d6bbac7152f3eef9f605d6bffa61f711
 
  Sure, the dislikes will still be there in your analytics, but they won't be there for all to see. And, unless you go looking for them, they won't affect you. So that can make posting a much more stress-free experience.
 
-### It Helps Your Mental Health ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
+### It Helps Your Mental Health
+![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
 
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
@@ -63,7 +65,8 @@ What's more, it goes beyond affecting only the poster.
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
-### You Can't Discern Helpfulness ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
+### You Can't Discern Helpfulness
+![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
@@ -73,7 +76,8 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
-### You Can't Tell if It's Worth Seeing ![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
+### You Can't Tell if It's Worth Seeing
+![youtube open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/youtube-open-on-laptop.jpg)
 
  When the dislikes aren't visible, you can't gauge whether a video is worth your time.
 
@@ -134,3 +138,43 @@ What's more, it goes beyond affecting only the poster.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-users-guide-to-joining-and-interacting-in-facebook-groups/"><u>A User’s Guide to Joining and Interacting in Facebook Groups</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-worlds-finest-screen-recording-software-no-deadline/"><u>[Updated] World's Finest Screen Recording Software (No Deadline)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-spin-the-clock-back-inside-the-art-of-snapchat-flipping-for-2024/"><u>[New] Spin the Clock Back  Inside the Art of Snapchat Flipping for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-20-must-know-adobe-premiere-pro-shortcuts-for-editors/"><u>New 2024 Approved 20 Must-Know Adobe Premiere Pro Shortcuts for Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-tips-to-avoid-phishing-scams-on-facebook/"><u>8 Tips to Avoid Phishing Scams on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153995431-enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-no-cost-strategies-for-managing-fb-post-timing/"><u>5 No-Cost Strategies for Managing FB Post Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-reno-11-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo Reno 11 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-ancestral-social-ties-in-facebook-timeline/"><u>Accessing Ancestral Social Ties in Facebook Timeline</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-realme-c53-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Realme C53 online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-of-activating-and-using-sleep-mode-in-messenger-kids/"><u>A Detailed Walkthrough of Activating & Using Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-roadmap-to-safer-facebook-practices-for-your-teens/"><u>A Roadmap to Safer Facebook Practices for Your Teens</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-buzzwords-deconstructing-social-harms-reality/"><u>Beyond Buzzwords: Deconstructing Social Harm's Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-armistice-social-media-worldwide-standstill/"><u>App Armistice: Social Media Worldwide Standstill</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-at-facebook-exploring-the-policies-center/"><u>Behind-the-Scenes at Facebook: Exploring the Policies Center</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pixel-perfection-combining-computer-photos/"><u>[New] Pixel Perfection  Combining Computer Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/augment-reality-in-daily-conversations-via-messenger/"><u>Augment Reality in Daily Conversations via Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-blueprint-for-personal-transformation-renaming-you-on-facebook/"><u>A Blueprint for Personal Transformation: Renaming You on Facebook</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-from-trending-videos-to-topical-graphics-tiktok-to-gif-guide/"><u>[Updated] In 2024, From Trending Videos to Topical Graphics  TikTok-to-GIF Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enhancing-your-visual-mark-implementing-neon-edged-youtubes/"><u>[New] Enhancing Your Visual Mark  Implementing Neon-Edged YouTubes</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-top-rated-mp4-editor-for-windows-8-professional-results-made-easy/"><u>New Top-Rated MP4 Editor for Windows 8 Professional Results Made Easy</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-ordinary-to-outstanding-transforming-your-meetings-with-zoom-filters/"><u>2024 Approved  From Ordinary to Outstanding  Transforming Your Meetings with Zoom Filters</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-how-fbcta-alters-online-ecosystems/"><u>Assessing How FBCTA Alters Online Ecosystems</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-facebooks-true-user-losses/"><u>Beneath the Surface: Facebook’s True User Losses</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154032507-whats-your-platform-of-choice-lets-find-out/"><u>What's Your Platform of Choice? Let's Find Out!</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-messenger-encryption-in-fb/"><u>Assessing Messenger Encryption in FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-streamline-your-content-a-tutorial-for-instagram-video-sharing-for-2024/"><u>[Updated] Streamline Your Content  A Tutorial for Instagram Video Sharing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/annual-review-of-the-years-most-captivating-podcasts/"><u>Annual Review of the Year's Most Captivating Podcasts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-ultimate-livestream-replacements-for-a-streamers-dream/"><u>[New] 2024 Approved  The Ultimate Livestream Replacements for a Streamer's Dream</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-digital-universe-understanding-and-evaluating-facebooks-metaverse/"><u>A New Digital Universe: Understanding and Evaluating Facebook's Metaverse</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-to-document-your-nintendo-switch-adventures/"><u>How to Document Your Nintendo Switch Adventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-comments-on-forums-indelible-marks/"><u>Are Comments on Forums Indelible Marks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/acquire-your-facebook-stash-images-and-videos-guide/"><u>Acquire Your Facebook Stash: Images and Videos Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/after-the-big-shutdown-our-data-trail/"><u>After the Big Shutdown: Our Data Trail</u></a></li>
+</ul></div>

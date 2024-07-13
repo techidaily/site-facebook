@@ -1,7 +1,7 @@
 ---
 title: Facebook Is Tracking You! Here's How to Stop It
-date: 2024-06-25T13:45:25.284Z
-updated: 2024-06-26T13:45:25.284Z
+date: 2024-07-12T09:29:59.902Z
+updated: 2024-07-13T09:29:59.902Z
 tags:
   - facebook
 categories:
@@ -109,7 +109,8 @@ thumbnail: https://thmb.techidaily.com/0825c5cfd1c9f8c60055aa627e174f35756a5c00a
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
-### uBlock Origin ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
+### uBlock Origin
+![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
@@ -204,3 +205,58 @@ Image Credit: Sabphoto/Shutterstock
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-phishing-threats-and-your-defense-plan/"><u>Facebook's Phishing Threats & Your Defense Plan</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/decoding-silence-a-comprehensive-look-at-video-audio-separation-technology/"><u>Decoding Silence A Comprehensive Look at Video Audio Separation Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-updating-personal-graphics-on-facebook-platform/"><u>Swiftly Updating Personal Graphics on Facebook Platform</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-leveraging-tiktok-to-mirror-your-best-features/"><u>2024 Approved  Leveraging TikTok to Mirror Your Best Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/scheduling-success-uncover-the-best-5-free-facebook-timing-methods/"><u>Scheduling Success: Uncover the Best 5 Free Facebook Timing Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-verification-metas-gold-tier-badge/"><u>Invest in Verification: Metas Gold Tier Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-social-media-links-reviving-logged-out-faces/"><u>Resetting Social Media Links: Reviving Logged-Out Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-cancellation-of-a-social-network-clan/"><u>Navigating the Cancellation of a Social Network Clan</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-breakup-on-the-horizon-fb-and-giphys-future/"><u>Potential Breakup on the Horizon: FB & Giphy's Future?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-canvas-reborn-spotlight-on-top-6-in-digital-arts/"><u>[New] The Canvas Reborn  Spotlight on Top 6 in Digital Arts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-personalized-content-a-deep-dive/"><u>Facebook’s Personalized Content: A Deep Dive</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-usage-limits-of-facebooks-local-networks/"><u>The Essence and Usage Limits of Facebook's Local Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-part-ways-on-biometrics-the-why-behind-the-shift/"><u>Meta and FB Part Ways on Biometrics: The Why Behind the Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveil-social-connectivity-transfer-facebook-storages-to-leading-services/"><u>Unveil Social Connectivity: Transfer Facebook Storages to Leading Services</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-snapshits-pro-photography-edits-guide/"><u>[Updated] Mastering Snapshits  Pro Photography Edits Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-essential-guidelines-for-implementing-music-emojis-in-instagram/"><u>[Updated] 2024 Approved  Essential Guidelines for Implementing Music Emojis in Instagram</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Pause Life360 Location Sharing For Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-language-of-facebook-to-capture-attention/"><u>Mastering the Language of Facebook to Capture Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-strategy-behind-facebooks-news-to-just-feed-shift/"><u>Unpacking the Strategy Behind Facebook's News to Just Feed Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-strangers-from-seeing-your-facebook-4-settings-to-tweak/"><u>How to Stop Strangers From Seeing Your Facebook: 4 Settings to Tweak</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-power-of-luts-color-grading-made-easy-in-pro/"><u>2024 Approved  Exploring the Power of LUTs  Color Grading Made Easy in Pro</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-oppo-by-drfone-android/"><u>In 2024, How to Bypass FRP on Oppo?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-harmonyhub-pro-downloads-and-reviews/"><u>[New] In 2024, HarmonyHub Pro Downloads & Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-fun-without-fallout-online/"><u>Fostering Fun Without Fallout Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-detect-and-dodge-deceptive-social-media-schemes/"><u>How to Detect and Dodge Deceptive Social Media Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-rectify-non-loading-of-news-feed-items/"><u>Methods to Rectify Non-Loading of News Feed Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-feed-avoid-non-interesting-pages/"><u>Personalize Your Feed: Avoid Non-Interesting Pages</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Motorola Razr 40 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebooks-micro-video-revolution-insights-into-2023-landscape-for-2024/"><u>[Updated] Facebook's Micro-Video Revolution  Insights Into 2023 Landscape for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebooting-account-protection-with-an-updated-passcode/"><u>Rebooting Account Protection with an Updated Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-lives-utilizing-facebook-today-feature/"><u>Transforming Lives: Utilizing Facebook Today Feature</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-ranking-top-10-srt-modifications-for-pc-and-macos/"><u>[New] Ranking Top 10 SRT Modifications for PC & macOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-network-offers-better-anonymity-on-rift-2/"><u>Which Social Network Offers Better Anonymity on Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-playlist-partnership-fb-and-spotify-project-boombox/"><u>The Ultimate Playlist Partnership: FB & SPOTIFY Project Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-wisdom-of-silence-deciphering-instagrams-plea-to-unplug/"><u>The Wisdom of Silence: Deciphering Instagram's Plea to Unplug</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-most-immersive-iphone-vr-games-ever/"><u>The Most Immersive iPhone VR Games Ever</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-discovering-the-value-in-discords-nitro-details-and-access-options/"><u>[Updated] 2024 Approved  Discovering the Value in Discord's Nitro  Details & Access Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaming-on-steam-how-data-monitoring-powers-the-platform/"><u>Gaming on Steam: How Data Monitoring Powers the Platform</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/chart-your-course-to-adventure-the-comprehensive-guide-to-vr-tours-for-2024/"><u>Chart Your Course to Adventure  The Comprehensive Guide to VR Tours for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/founding-a-connected-group-in-the-facebook-realm/"><u>Founding a Connected Group in the Facebook Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/underappreciated-tech-news-top-4-must-know-stories-unveiled/"><u>Underappreciated Tech News - Top 4 Must-Know Stories Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-account-preventing-social-media-scams/"><u>Securing Your Account: Preventing Social Media Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-breathes-easier-entire-energy-sourced-from-nature/"><u>FB Breathes Easier: Entire Energy Sourced From Nature</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-audiences-in-fb-posts/"><u>Mastering the Art of Captivating Audiences in FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-dominance-a-chilling-reality/"><u>Meta's Dominance: A Chilling Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-alphabet-decoding-the-power-of-30-abbreviations/"><u>Influencer's Alphabet: Decoding the Power of 30 Abbreviations</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-time-and-privacy-why-ditch-facebook-now/"><u>Reclaiming Time and Privacy: Why Ditch Facebook Now</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/ace-your-content-game-on-instagram-with-these-6-powerful-apps/"><u>Ace Your Content Game on Instagram with These 6 Powerful Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-relationship-evolutions-in-fb/"><u>Understanding Relationship Evolutions in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-earning-how-instagram-is-boosting-creator-incomes/"><u>New Age of Earning: How Instagram Is Boosting Creator Incomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-online-discussions-with-fb-page-polls/"><u>Optimizing Online Discussions with FB Page Polls</u></a></li>
+</ul></div>

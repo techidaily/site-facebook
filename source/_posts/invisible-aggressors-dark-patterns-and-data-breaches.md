@@ -1,7 +1,7 @@
 ---
 title: "Invisible Aggressors: Dark Patterns and Data Breaches"
-date: 2024-06-25T14:19:42.421Z
-updated: 2024-06-26T14:19:42.421Z
+date: 2024-07-12T10:08:40.552Z
+updated: 2024-07-13T10:08:40.552Z
 tags:
   - facebook
 categories:
@@ -52,7 +52,8 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy
+![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -155,3 +156,45 @@ The site lists 12 types of dark patterns to watch out for:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/no-more-fb-notifications-the-complete-process/"><u>No More FB Notifications: The Complete Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-ambiguity-a-close-look-at-vague-storytelling/"><u>Social Media Ambiguity: A Close Look at Vague Storytelling</u></a></li>
+<li><a href="https://facebook.techidaily.com/picking-the-most-compatible-facebook-echo-device/"><u>Picking the Most Compatible Facebook Echo Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-history-of-your-facebook-friends/"><u>Retrieving History of Your Facebook Friends</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-maximizing-play-in-apex-legends-without-cross-platform-limitations/"><u>2024 Approved  Maximizing Play in Apex Legends Without Cross-Platform Limitations</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-in-should-you-utilize-meta-ai-on-social-networks/"><u>Weighing In: Should You Utilize Meta AI on Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-platform-launches-precision-moderation-aids/"><u>Social Networking Platform Launches Precision Moderation Aids</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-sharing-of-phone-numbers-on-fb-chat/"><u>Unintended Sharing of Phone Numbers on FB Chat?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-the-strategy-behind-instagrams-take-away-campaign/"><u>'Unfollowing': The Strategy Behind Instagram’s Take-Away Campaign</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-become-a-pro-at-networked-streams-with-vlc/"><u>2024 Approved  Become a Pro at Networked Streams with VLC</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-facebook-and-the-metaverse-connection/"><u>The Hidden Dynamics: Facebook and The Metaverse Connection</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-nubia-z50-ultra-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Nubia Z50 Ultra Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-smile-and-shine-enhance-photos-at-zero-cost-for-2024/"><u>[Updated] Smile & Shine  Enhance Photos at Zero Cost for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/proclaim-your-trustworthiness-with-meta-us/"><u>Proclaim Your Trustworthiness with Meta US</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-skype-call-chronicles-20plus-strategies-for-savvy-windowsmac-users/"><u>2024 Approved  Skype Call Chronicles  20+ Strategies for Savvy Windows/Mac Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-pages-vs-unames-key-insights-and-tips/"><u>Understanding FB Pages vs UNAMES: Key Insights & Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/president-challenges-social-media-policies-in-courtroom-fights/"><u>President Challenges Social Media Policies in Courtroom Fights</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-breaches-in-social-media-worldwide/"><u>Security Breaches in Social Media Worldwide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/google-meet-a-self-teached-path-for-hosts-and-attendees-for-2024/"><u>Google Meet  A Self-Teached Path for Hosts & Attendees for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-leverage-facebook-in-your-professional-life/"><u>Strategies to Leverage Facebook in Your Professional Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-you-dont-see-can-hurt-your-online-presence-evasion-techniques/"><u>What You Don't See Can Hurt Your Online Presence - Evasion Techniques</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-creative-openings-just-a-click-away/"><u>[Updated] 2024 Approved  Creative Openings, Just a Click Away</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-turn-artistry-professionally-crafted-valorant-game-imagery-for-2024/"><u>[New] Quick-Turn Artistry  Professionally Crafted Valorant Game Imagery for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-communication-via-facebooks-symbol-language/"><u>The Art of Communication via Facebook's Symbol Language</u></a></li>
+<li><a href="https://facebook.techidaily.com/root-access-granted-what-does-this-mean-for-oculus-go-users/"><u>Root Access Granted: What Does This Mean for Oculus Go Users?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultimate-destinations-for-pursuing-freelance-work/"><u>Ultimate Destinations for Pursuing Freelance Work</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-tecno-pop-8-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Tecno Pop 8 Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-vs-online-communities-the-shift-explained/"><u>Social Networks Vs. Online Communities: The Shift Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-seal-of-approval-is-it-worth-it/"><u>Meta's Seal of Approval - Is It Worth It?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-facecam-masterclass-secrets-for-stunning-videos-for-2024/"><u>[Updated] Facecam Masterclass  Secrets for Stunning Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/quantifying-reset-actions-facebook-users-oculus-purchases-explored/"><u>Quantifying Reset Actions - Facebook User's Oculus Purchases Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shunned-the-triple-list-of-no-facebook-nations/"><u>Social Media Shunned: The Triple List of No-Facebook Nations</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-top-picks-for-tiktok-conversion-tools-mp4-edition/"><u>[New] In 2024, Top Picks for TikTok Conversion Tools  MP4 Edition</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/do-you-find-choosing-a-good-lut-to-color-correct-your-media-files-difficult-discover-some-of-the-best-professional-luts-from-3d-lut-creator-to-download-for-/"><u>Do You Find Choosing a Good LUT to Color-Correct Your Media Files Difficult? Discover some of the Best Professional LUTs From 3D LUT Creator to Download for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthen-your-security-end-to-end-encrypted-messaging-on-facebooks-social-network/"><u>Strengthen Your Security: End-to-End Encrypted Messaging on Facebook’s Social Network.</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-15-best-vloggers-that-you-should-follow-for-travel/"><u>2024 Approved 15 Best Vloggers That You Should Follow for Travel</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-private-facebook-exploration-guide/"><u>Unveiling Secrets: Private Facebook Exploration Guide</u></a></li>
+</ul></div>

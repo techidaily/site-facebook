@@ -1,7 +1,7 @@
 ---
 title: "Government Vs. Gigacompanies: The Fight for Competitive Equality"
-date: 2024-06-25T13:50:04.482Z
-updated: 2024-06-26T13:50:04.482Z
+date: 2024-07-12T09:35:17.597Z
+updated: 2024-07-13T09:35:17.597Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
-## Big Tech Companies Use Data for Profit ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
+## Big Tech Companies Use Data for Profit
+![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
@@ -45,7 +46,8 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-## Big Tech Fails to Catch Misleading Ads ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
+## Big Tech Fails to Catch Misleading Ads
+![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -53,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
-## Big Tech Limits the Market Access of Smaller Companies ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
+## Big Tech Limits the Market Access of Smaller Companies
+![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
@@ -71,7 +74,8 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
 
  Furthermore, there are ways that you can [help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
-## Big Tech Can Impact Government Decisions and Operations ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
+## Big Tech Can Impact Government Decisions and Operations
+![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
 
@@ -81,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
-## Big Tech Companies Have Incredible Influence ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
+## Big Tech Companies Have Incredible Influence
+![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -124,3 +129,46 @@ thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unleashing-the-power-of-subtitles-discover-the-top-8-efficient-convertors-to-srt-on-windowsmacosx/"><u>Unleashing the Power of Subtitles - Discover The Top 8 Efficient Convertors to SRT on Windows/MacOSX</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-covered-dont-spill-essential-online-non-disclosures/"><u>Stay Covered, Don't Spill: Essential Online Non-Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-grip-on-online-community-interaction/"><u>Social Media's Grip On Online Community Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-in-the-virtual-realm-8-methods-to-connect/"><u>Social Synergy in the Virtual Realm: 8 Methods to Connect</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-to-a-frozen-profile/"><u>Unlocking the Secrets to a Frozen Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-success-sheryls-story-at-facebook/"><u>The Path to Success: Sheryl's Story at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-telegram-amidst-facebook-shutdown/"><u>The Rise of Telegram Amidst Facebook Shutdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-switching-approach-for-disconnected-facebook-accounts/"><u>Agile Switching Approach for Disconnected Facebook Accounts</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-filmmaking-in-90-seconds-a-filmora-approach-to-tiktok-reacts/"><u>[Updated] 2024 Approved  Filmmaking in 90 Seconds  A Filmora Approach to TikTok Reacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-visibility-with-instagram-reels-and-facebook-stickers/"><u>Unlocking Brand Visibility with Instagram Reels & Facebook Stickers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dynamics-of-facebooks-acceptance-criteria/"><u>The Dynamics of Facebook’s Acceptance Criteria</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hand-tracking-deciphered-a-users-guide/"><u>In 2024, Hand Tracking Deciphered  A User's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-virtual-world-why-it-calls-for-attention/"><u>The Facebook Virtual World - Why It Calls for Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-behind-facebooks-renaming-decision/"><u>The Significance Behind Facebook's Renaming Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-unlocking-seamless-communication-with-top-tier-free-and-paid-zoom-applications/"><u>[New] In 2024, Unlocking Seamless Communication with Top-Tier Free & Paid Zoom Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-synergy-hide-your-fb-networking/"><u>Subtle Synergy: Hide Your FB Networking</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/futuristic-vr-tech-for-remote-pilots-for-2024/"><u>Futuristic VR Tech for Remote Pilots for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-comprehending-drone-systems-mechanics-and-applications-explained/"><u>2024 Approved  Comprehending Drone Systems  Mechanics and Applications Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-mastodon-really/"><u>What Is Mastodon Really?</u></a></li>
+<li><a href="https://facebook.techidaily.com/second-life-and-its-position-in-the-emerging-metaverse-market/"><u>Second Life and Its Position in The Emerging Metaverse Market</u></a></li>
+<li><a href="https://games-able.techidaily.com/seating-strategy-for-gamers/"><u>Seating Strategy for Gamers</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mending-saving-functionality-for-display-settings-on-windows/"><u>Mending Saving Functionality for Display Settings on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinstating-security-code-from-facebook-account/"><u>Reinstating Security Code From Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/suing-big-three-trump-accuses-silencing-of-public-voices/"><u>Suing Big Three: Trump Accuses Silencing of Public Voices</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-cryptocurrencys-steadfastness-stablecoins/"><u>A Closer Look at Cryptocurrency's Steadfastness: Stablecoins</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/brilliant-visuals-uncover-the-magic-in-these-7-grades-for-2024/"><u>Brilliant Visuals  Uncover the Magic in These 7 Grades for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-how-fbcta-may-alter-your-web-trails/"><u>Understanding How FBCTA May Alter Your Web Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-notification-nullification-from-fb/"><u>Total Notification Nullification From FB</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/top-trio-of-drone-and-camera-gadgets-to-pick-from/"><u>Top Trio of Drone & Camera Gadgets to Pick From</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-tracer-first-entry-into-facebook-world/"><u>Timeline Tracer: First Entry Into Facebook World</u></a></li>
+</ul></div>

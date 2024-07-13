@@ -1,7 +1,7 @@
 ---
 title: 8 Things to Do Before Deleting Your Facebook Account
-date: 2024-06-25T14:31:21.853Z
-updated: 2024-06-26T14:31:21.853Z
+date: 2024-07-12T10:21:54.456Z
+updated: 2024-07-13T10:21:54.456Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd65
 
  Regardless of the reason, you must perform these eight things before deleting your Facebook account. Let's dive into these factors so that you know what to do.
 
-## 1\. Inform Your Close Contacts About Your Decision ![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
+## 1\. Inform Your Close Contacts About Your Decision
+![Focused man using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Man-using-a-laptop.jpg)
 
  You might think of ending your journey on Facebook, but it doesn't mean leaving your friends uninformed about the decision. Start by informing your close contacts that you are deleting your Facebook account.
 
@@ -35,7 +36,8 @@ thumbnail: https://thmb.techidaily.com/90c049846794e5aed031591412d4826aac7c7bd65
 
  Facebook does not have an in-built feature to save videos; however, Android phones support [Facebook video downloaders](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) that enable you to save your videos to your phone’s gallery. You can [download Facebook videos on your PC](https://www.makeuseof.com/tag/download-private-facebook-videos/) as well.
 
-## 3\. Decide What to Do With Messenger ![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
+## 3\. Decide What to Do With Messenger
+![Facebook and Messenger icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-and-Messenger-icons.jpg)
 
  Initially, Facebook had an integrated messaging and chat system, but that’s not the case anymore. Messenger is a separate app that allows you to call and message people.
 
@@ -71,7 +73,8 @@ Close
 
  Once you have talked to someone and promoted them as an admin of your group, they will manage the group, even after you’re gone.
 
-## 6\. Wind Up Any Professional Business ![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
+## 6\. Wind Up Any Professional Business
+![Facebook ads on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-ads-on-laptop.jpg)
 
  Facebook has become a hub of professional businesses where everyone can thrive equally. We understand that leaving all that can be difficult if you are among those people. What will happen to your customers? Can you survive without your business?
 
@@ -87,7 +90,8 @@ Close
 
  Facebook allows users to [download a copy of their entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) and obtain everything they might not have after becoming an ex-Facebook user. Also, it is beneficial to maintain security and keep proof if something goes wrong.
 
-## 8\. Organize and Save Your Facebook Memories ![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
+## 8\. Organize and Save Your Facebook Memories
+![Girl with lots of memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Girl-with-lots-of-memories.jpg)
 
  After downloading, take time to review your data and arrange it into different folders. You can also label them with the names of events, people, and places.
 
@@ -124,3 +128,57 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-mastering-fbs-look-back-feature-edit-tutorial/"><u>In 2024, Mastering FB's Look Back Feature  Edit Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-get-excited-about-facebooks-metaverse/"><u>6 Reasons to Get Excited About Facebook's Metaverse</u></a></li>
+<li><a href="https://article-tips.techidaily.com/seamless-switch-exchanging-playlists-across-streaming-platforms-for-2024/"><u>Seamless Switch  Exchanging Playlists Across Streaming Platforms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-choosing-a-great-fb-pic/"><u>A Step-by-Step Guide to Choosing a Great Fb Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-digital-wellness-utilize-facebooks-break-timer/"><u>Achieving Digital Wellness: Utilize Facebook’s Break Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-social-networks-unpacked/"><u>Alternative Social Networks Unpacked</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-7-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 7 when Phone is Broken?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-faux-friend-requests-6-key-strategies/"><u>Avoid Faux Friend Requests – 6 Key Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensible-guide-to-messenger-kids-sleep-mode-usage/"><u>A Comprehensible Guide to Messenger Kids' Sleep Mode Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-innovative-uses-of-facebook-in-modern-project-coordination/"><u>8 Innovative Uses of Facebook in Modern Project Coordination</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-decides-its-path-no-mimicking-of-facebooks-metaverse/"><u>Apple Decides Its Path, No Mimicking of Facebook's Metaverse</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-from-photos-to-films-easy-video-creation-with-ezvid-on-mac-os/"><u>New In 2024, From Photos to Films Easy Video Creation with Ezvid on Mac OS</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-leveraging-free-streaming-services-for-unlimited-listening-pleasures/"><u>Updated In 2024, Leveraging Free Streaming Services for Unlimited Listening Pleasures</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-overuse-set-limits-using-facebooks-daily-timer/"><u>Avoid Overuse: Set Limits Using Facebook’s Daily Timer</u></a></li>
+<li><a href="https://facebook.techidaily.com/artificial-intelligence-drawing-stylistic-meanings-from-photos/"><u>Artificial Intelligence Drawing Stylistic Meanings From Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-in-connectivity-personalizing-your-online-world/"><u>A New Chapter in Connectivity: Personalizing Your Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153483748-unlock-cross-service-integration-move-your-fb-stories-swiftly/"><u>Unlock Cross-Service Integration: Move Your FB Stories Swiftly</u></a></li>
+<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-boosting-roi-in-fb-ads-through-animation-techniques/"><u>In 2024, Boosting ROI in FB Ads Through Animation Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-identifying-compromised-accounts-on-facebook/"><u>Alert! Identifying Compromised Accounts on Facebook</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-samsung-galaxy-xcover-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-chronicle-of-creation-weaving-time-lapse-animations-via-movie-maker/"><u>In 2024, The Chronicle of Creation  Weaving Time-Lapse Animations via Movie Maker</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-6-free-youtube-outros-for-aspiring-filmmakers/"><u>[Updated] In 2024, 6 FREE YouTube Outros for Aspiring Filmmakers</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-smart-social-networking-balancing-favorites-and-blocks-on-facebook/"><u>A Guide to Smart Social Networking: Balancing Favorites & Blocks on Facebook</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11f-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Oppo Reno 11F 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-10-creative-ar-teaching-examples-to-tell-you-what-is-ar-in-teaching/"><u>New 10 Creative AR Teaching Examples to Tell You What Is AR in Teaching</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-defensive-claims-against-10k-facebook-group-leaders/"><u>Amazon’s Defensive Claims Against 10K Facebook Group Leaders</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-preserving-your-digital-self-narrative-on-facebook/"><u>A Guide to Preserving Your Digital Self-Narrative on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-portal-for-home-use/"><u>Best Facebook Portal for Home Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/2023s-pivotal-shift-from-forums-to-social-hubs/"><u>2023'S Pivotal Shift From Forums to Social Hubs</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/top-budget-friendly-mac-audio-converter-tool-for-2024/"><u>Top Budget-Friendly Mac Audio Converter Tool for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/addressing-security-token-issues-in-the-faceboook-login-procedure/"><u>Addressing Security Token Issues in the Faceboook Login Procedure</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/critically-acclaimed-audio-repository-top-10-music-capture-apps-for-2024/"><u>Critically Acclaimed Audio Repository Top 10 Music Capture Apps for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-art-of-connection-thriving-amidst-algorithm-updates/"><u>[New] 2024 Approved  The Art of Connection  Thriving Amidst Algorithm Updates</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-budget-savvy-gopro-upgrades-for-starters/"><u>[New] 2024 Approved  Budget Savvy GoPro Upgrades for Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-practical-approach-to-ending-a-fb-assembly/"><u>A Practical Approach to Ending a Fb Assembly</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-telegrams-sudden-spurt-amidst-social-media-crisis/"><u>Analyzing Telegram’s Sudden Spurt Amidst Social Media Crisis</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/use-kapwing-meme-maker-for-2024/"><u>Use Kapwing Meme Maker for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplify-voices-not-alone-the-power-of-fb-clubs/"><u>Amplify Voices, Not Alone: The Power of FB Clubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-legal-strategy-targeting-fb-group-managers/"><u>Amazon's Legal Strategy Targeting FB Group Managers</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-name-switch-from-news-to-just-feed/"><u>A Closer Look at Facebook's Name Switch: From News to Just Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153888326-decision-on-trump-ban-by-facebook-oversight-expected-soon/"><u>Decision on Trump-Ban by Facebook Oversight Expected Soon.</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ingenious-ways-to-turn-social-media-into-cash/"><u>5 Ingenious Ways to Turn Social Media Into Cash</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151967218-the-tech-titans-meet-zucks-pet-the-crypto-goat/"><u>The Tech Titans Meet: Zuck's Pet, the Crypto-Goat.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-infinix-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Infinix? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/44-attorneys-general-ask-facebook-to-ditch-instagram-for-children/"><u>44 Attorneys General Ask Facebook to Ditch Instagram for Children</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-photo-privacy/"><u>Best Practices for FB Photo Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comparative-look-at-the-fall-of-online-communities-vs-social-networks/"><u>A Comparative Look at the Fall of Online Communities Vs. Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-defying-the-persistence-of-anti-vax-content-on-fb/"><u>Ban-Defying: The Persistence of Anti-Vax Content on FB</u></a></li>
+</ul></div>

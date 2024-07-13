@@ -1,7 +1,7 @@
 ---
 title: "Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint"
-date: 2024-06-25T14:28:46.241Z
-updated: 2024-06-26T14:28:46.241Z
+date: 2024-07-12T10:18:58.673Z
+updated: 2024-07-13T10:18:58.673Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 
 **FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the [Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
 
-## 1. Security and Login ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
+## 1. Security and Login
+![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 * To tighten your security even further, you can add [two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any [unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-## 2. Privacy ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+## 2. Privacy
+![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -46,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
-## 3. Profile and Tagging ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+## 3. Profile and Tagging
+![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
@@ -56,7 +59,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-## 4. Public Posts ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+## 4. Public Posts
+![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
@@ -65,7 +69,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-## 5. Blocking ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+## 5. Blocking
+![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
@@ -74,7 +79,8 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-## 6\. Quick Tips ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+## 6\. Quick Tips
+![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -103,3 +109,51 @@ thumbnail: https://thmb.techidaily.com/9abfa493c09f599241cf74fbf150ee16ae0981c66
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/balancing-personal-preferences-and-group-presence/"><u>Balancing Personal Preferences and Group Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-this-years-most-notable-tech-disasters/"><u>Analyzing This Year's Most Notable Tech Disasters</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixed-gfx-on-windows-os-user-interface-up-and-running/"><u>Fixed GFX on Windows OS - User Interface Up & Running</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-vs-social-media-how-facebook-custom-subscriptions-take-the-lead/"><u>Apple Vs. Social Media: How Facebook Custom Subscriptions Take the Lead</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-growing-challenge-to-big-tech-the-new-antitrust-reality/"><u>America's Growing Challenge to Big Tech: The New Antitrust Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153008473-hashed-hay-a-novel-animal-pet-naming-trend/"><u>'Hashed Hay': A Novel Animal Pet Naming Trend.</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-your-accounts-protection-password-on-facebook/"><u>Altering Your Account's Protection Password on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-facebook-failed-its-users/"><u>5 Times Facebook Failed Its Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/beats-and-bonds-what-might-be-coming-from-fb-and-spotifys-boombox/"><u>Beats and Bonds: What Might Be Coming From FB and SPOTIFY’s Boombox?</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-samsung-galaxy-a05s-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Samsung Galaxy A05s? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovation-unveiled-the-complete-moto-z2-review/"><u>In 2024, Innovation Unveiled  The Complete Moto Z2 Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-vax-discourse-defiantly-exists-in-facebook-corridors/"><u>Anti-Vax Discourse Defiantly Exists in Facebook Corridors</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-secret-chats-on-facebook-safe/"><u>Are Secret Chats on Facebook Safe?</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-post-schedule-ideas/"><u>Best Facebook Post Schedule Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-tech-companies-reading-your-mental-dialogues/"><u>Are Tech Companies Reading Your Mental Dialogues?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-leveraging-built-in-recorders-on-mate-1020-and-p2010-series-to-screen-capture/"><u>[Updated] Leveraging Built-In Recorders on Mate 10/20 & P20/10 Series to Screen Capture</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-updating-your-social-face/"><u>A Detailed Walkthrough for Updating Your Social Face</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-image-inspired-style-evolution-via-facebooks-ai/"><u>A New Era: Image-Inspired Style Evolution via Facebook's AI</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-data-from-iphone-se-2020-using-stellar-data-recovery-for-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Data from iPhone SE (2020) using Stellar Data Recovery for iPhone? | Stellar</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-triple-your-traffic-techniques-against-bots/"><u>2024 Approved  Triple Your Traffic  Techniques Against Bots</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-pioneering-facebook-platforms-for-team-driven-projects/"><u>8 Pioneering Facebook Platforms for Team-Driven Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153977821-secure-communication-grows-facebook-rolls-out-encrypted-chat-for-messenger-and-dms/"><u>Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unlocking-potential-expert-insights-into-hashtag-usage-on-facebook/"><u>[Updated] 2024 Approved  Unlocking Potential  Expert Insights Into Hashtag Usage on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-essential-steps-to-escape-sophisticated-scams/"><u>3 Essential Steps to Escape Sophisticated Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-for-trump-on-meta-platforms/"><u>A New Chapter for Trump on Meta Platforms</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-ceased-shorts-missing-on-youtube-screen/"><u>2024 Approved  Ceased  Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-new-personality-on-fb-editing-name-and-handle/"><u>Become a New Personality on FB: Editing Name and Handle</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-seamless-video-recording-on-facebook-with-top-5-tools-for-2024/"><u>[New] Seamless Video Recording on Facebook with Top 5 Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-alert-detect-and-deter-uninvited-social-media-access/"><u>Be Alert: Detect and Deter Uninvited Social Media Access</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024-approved-color-harmony-in-powerdirector-tips-and-tricks-for-a-polished-look/"><u>2024 Approved Color Harmony in PowerDirector Tips and Tricks for a Polished Look</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-nokia-c300-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Nokia C300 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-facetune-photos-app-complete-review-and-guide-2024/"><u>[Updated] Facetune Photos App Complete Review and Guide 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/behavioral-transformation-with-isbms-state-of-the-art-cbt-techniques/"><u>Behavioral Transformation with ISBM's State-of-the-Art CBT Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/annual-2022-in-depth-analysis-of-popular-podcasts/"><u>Annual 2022: In-Depth Analysis of Popular Podcasts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-elevated-practices-to-record-computer-display-with-tv-broadcasts/"><u>[Updated] 2024 Approved  Elevated Practices to Record Computer Display with TV Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/adopt-dark-scheme-change-facebook-theme/"><u>Adopt Dark Scheme: Change Facebook Theme</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-deciphering-social-media-icons-and-their-connotations-in-fb/"><u>A Guide to Deciphering Social Media Icons and Their Connotations in FB</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hilarity-in-a-click-meme-creation/"><u>In 2024, Hilarity in a Click (Meme Creation)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-optimized-obs-operations-on-android-platforms/"><u>[Updated] Optimized OBS Operations on Android Platforms</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-change-netflix-playback-speed-for-2024/"><u>How to Change Netflix Playback Speed for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-acoustic-bridge-to-captivating-trailers/"><u>In 2024, The Acoustic Bridge to Captivating Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-headlines-examining-metaverse-ownership-claims/"><u>Beyond Headlines: Examining Metaverse Ownership Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-scandals-evaluating-facebook-papers-objectively/"><u>Beyond Surface Scandals: Evaluating Facebook Papers Objectively</u></a></li>
+</ul></div>

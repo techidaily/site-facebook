@@ -1,7 +1,7 @@
 ---
 title: "Through a Screen: Analyzing Modern Life's Negative Effects"
-date: 2024-06-25T14:40:35.007Z
-updated: 2024-06-26T14:40:35.007Z
+date: 2024-07-12T10:32:20.857Z
+updated: 2024-07-13T10:32:20.857Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-## 2\. Cyberbullying ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+## 2\. Cyberbullying
+![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -55,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-## 4\. Unrealistic Expectations ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+## 4\. Unrealistic Expectations
+![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -91,7 +93,8 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-## 7\. General Addiction ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+## 7\. General Addiction
+![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -124,3 +127,43 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-emails-mastery-of-2fa-on-gmail-outlook-and-similar-providers/"><u>Safeguarding Your Emails: Mastery of 2FA on Gmail, Outlook & Similar Providers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-vimeo-videos-on-instagram-a-complete-guide-for-2024/"><u>[New] Vimeo Videos on Instagram  A Complete Guide for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/strategic-approaches-to-share-ppt-powerfully-in-google-meet-for-2024/"><u>Strategic Approaches to Share PPT Powerfully in Google Meet for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-suggested-feeds/"><u>Navigating Facebook's Suggested Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/money-magic-on-facebook-and-instagram-top-5-methods/"><u>Money Magic on Facebook & Instagram: Top 5 Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-steps-leading-from-forums-to-social-groups/"><u>The 6 Steps Leading From Forums To Social Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaceful-disconnect-ending-social-media-ties/"><u>Peaceful Disconnect: Ending Social Media Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-suspension-from-facebook-tested-in-jan/"><u>Trump's Suspension From Facebook Tested in Jan</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/fficiently-upload-and-render-youtube-videos-with-precision-for-2024/"><u>[New] Efficiently Upload and Render YouTube Videos with Precision for 2024</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-photo-collage-using-iphoto/"><u>Updated How to Make a Photo Collage Using iPhoto?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unveiling-the-secrets-of-automatic-transcription-in-google-docs/"><u>[Updated] Unveiling the Secrets of Automatic Transcription in Google Docs</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-path-to-influence/"><u>Mastering Social Media: Path to Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealth-mode-for-your-social-media-pics/"><u>Stealth Mode for Your Social Media Pics</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-essential-symbols-in-social-networking-movement-magic/"><u>In 2024, Essential Symbols in Social Networking  Movement Magic</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-online-presence-by-adjusting-facebooks-birthdate/"><u>Streamlining Your Online Presence by Adjusting Facebook's Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-banishing-your-faux-pas-fb-business-page/"><u>Step-by-Step Guide to Banishing Your Faux Pas - FB Business Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-vs-perception-how-we-view-facebooks-userbase/"><u>Reality Vs. Perception: How We View Facebook's Userbase</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upsetting-effect-of-ios-145-on-facebook-ads/"><u>The Upsetting Effect of iOS 14.5 on Facebook Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/sick-of-politics-3-powerful-ways-to-clean-up-facebook/"><u>Sick of Politics? 3 Powerful Ways to Clean Up Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-a-spectrum-of-excellence-top-5-tvs-for-grading-mastery/"><u>In 2024, A Spectrum of Excellence  Top 5 TVs for Grading Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-investment-oculus-quest-trend-post-account-breaches/"><u>The $300 Investment: Oculus Quest Trend Post-Account Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/mobile-mastery-fastest-android-compact-apps/"><u>Mobile Mastery: Fastest Android Compact Apps</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tenfold-techniques-for-transforming-text-spaces/"><u>Tenfold Techniques for Transforming Text Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-in-process-facebooks-governing-body-on-trump/"><u>Pause in Process: Facebook's Governing Body on Trump</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instagram-fcpxs-guide-to-vertical-video-editing-for-2024/"><u>[Updated] Mastering Instagram  FCPX's Guide to Vertical Video Editing for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-break-free-the-chuckles-the-most-hilarious-facebook-detainment-stories/"><u>[New] In 2024, Break Free the Chuckles  The Most Hilarious Facebook Detainment Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-stress-relief-with-facebooks-timed-breaks/"><u>Unlocking Stress Relief with Facebook's Timed Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-transform-communication-top-free-mac-text-to-speech-software-rankings/"><u>2024 Approved  Transform Communication  Top Free Mac Text-to-Speech Software Rankings</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-fb-presence-with-the-right-choice-of-photo/"><u>Transform Your FB Presence with the Right Choice of Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-site-shifts-paradigms-the-story-of-facebook/"><u>Social Networking Site Shifts Paradigms – The Story of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-integration-in-facebook-a-step-by-step-guide/"><u>Spotify Integration in Facebook: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/reverse-video-function-whats-happening-on-instagram-in-2024/"><u>Reverse Video Function  What's Happening on Instagram, In 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-ipad-or-iphone-15-plus-stuck-on-activation-lock-by-drfone-ios/"><u>In 2024, How to Fix iPad or iPhone 15 Plus Stuck On Activation Lock?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Safeguarding Kids' Digital Footprint: Update on Messenger Kids"
-date: 2024-06-25T13:58:28.705Z
-updated: 2024-06-26T13:58:28.705Z
+date: 2024-07-12T09:44:44.991Z
+updated: 2024-07-13T09:44:44.991Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,8 @@ Close
 
 **Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture
+![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -87,7 +88,8 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -99,7 +101,8 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -157,3 +160,49 @@ Follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/master-the-art-of-snapchats-boomerangs/"><u>Master the Art of Snapchat's Boomerangs</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-privacy-download-process-for-fb-photos-and-videos/"><u>Maximizing Privacy: Download Process for FB Photos & Videos</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-do-you-want-to-know-how-to-edit-a-time-lapse-video-on-iphone-interesting-ideas-and-some-tips-and-pointers-for-shooting-a-professional-time-lapse-vid/"><u>Updated Do You Want to Know How to Edit a Time Lapse Video on iPhone, Interesting Ideas, and some Tips and Pointers for Shooting a Professional Time Lapse Video? Find Out Everything in This Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflecting-on-2022s-biggest-tech-gaffes/"><u>Reflecting on 2022'S Biggest Tech Gaffes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-foreground-emphasis-tips-for-logitech-video-recordings/"><u>[Updated] Foreground Emphasis  Tips for Logitech Video Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetize-masterfully-unveiling-5-innovative-earning-ideas-on-ig-and-fb/"><u>Monetize Masterfully: Unveiling 5 Innovative Earning Ideas on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-securityfbcom/"><u>Evaluating Trust in Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-friends-access-to-online-presence/"><u>Limiting Friends' Access to Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-tips-and-tricks-mastering-voiceover-on-tiktok/"><u>[Updated] In 2024, Tips and Tricks  Mastering Voiceover on TikTok</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-charting-the-course-with-youtubes-top-makeup-influencers/"><u>[Updated] Charting the Course with YouTube's Top Makeup Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-audiences-profoundly-the-5-social-platforms-leading-biz/"><u>Engaging Audiences Profoundly: The 5 Social Platforms Leading Biz</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-essential-list-7-leading-generators-for-nft-artworks/"><u>2024 Approved  The Essential List  7 Leading Generators for NFT Artworks</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/escaping-tiktoks-silent-screens-methods-to-unshadowban/"><u>Escaping TikTok's Silent Screens  Methods to Unshadowban</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-elite-hd-video-capture-software-listings/"><u>[Updated] Elite HD Video Capture Software Listings</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-ezvid-for-mac-the-ultimate-slideshow-and-video-making-solution/"><u>In 2024, Ezvid for Mac The Ultimate Slideshow and Video Making Solution</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-to-play-spotify-without-leaving/"><u>Navigating Social Media to Play Spotify Without Leaving</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-video-game-intro-creators-for-pc-and-mac/"><u>Updated 2024 Approved Top Video Game Intro Creators for PC and Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripple-effects-how-stablecoins-revolutionize-crypto/"><u>Ripple Effects: How Stablecoins Revolutionize Crypto</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-tutorials-on-how-to-transfer-photos-from-apple-iphone-12-mini-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>5 Tutorials on How to Transfer Photos From Apple iPhone 12 mini to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-beauty-breakdown-mastering-makeup-and-hauls-online-for-2024/"><u>[New] Beauty Breakdown  Mastering Makeup and Hauls Online for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-harnessing-online-revenue-multiplatform-studio-use/"><u>[Updated] In 2024, Harnessing Online Revenue  Multiplatform Studio Use</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-top-10-animated-photo-makers-easy-and-effortless-for-2024/"><u>Updated Top 10 Animated Photo Makers Easy and Effortless for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/minimizing-visibility-of-post-endorsements/"><u>Minimizing Visibility of Post Endorsements</u></a></li>
+<li><a href="https://facebook.techidaily.com/if-all-social-platforms-closed-down-tomorrow-would-your-life-be-better-or-worse-poll/"><u>If All Social Platforms Closed Down Tomorrow, Would Your Life Be Better or Worse? [Poll]</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-social-media-crafting-pages-and-group-polls/"><u>Interactive Social Media: Crafting Pages & Group Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-effortless-methods-to-document-console-gaming/"><u>[New] 2024 Approved  Effortless Methods to Document Console Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/reflections-on-a-life-with-less-social-media/"><u>Reflections on a Life with Less Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-video-editing-essentials-how-to-crop-videos-using-avidemux-for-2024/"><u>Updated Video Editing Essentials How to Crop Videos Using Avidemux for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-secretly-developing-a-smartwatch-what-we-know-so-far/"><u>Facebook Is Secretly Developing a Smartwatch: What We Know So Far</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-8-plus-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>Apple iPhone 8 Plus Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alert-sidestep-these-three-risky-applications/"><u>Privacy Alert: Sidestep These Three Risky Applications</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-base-to-pro-gopro-hero5-blacks-clash-with-hero4-silver/"><u>[Updated] From Base to Pro  GoPro Hero5 Black's Clash with Hero4 Silver</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+</ul></div>

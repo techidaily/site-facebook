@@ -1,7 +1,7 @@
 ---
 title: "The Price of Proximity: Evaluating Online Platform Pitfalls"
-date: 2024-06-25T14:06:45.691Z
-updated: 2024-06-26T14:06:45.691Z
+date: 2024-07-12T09:53:58.502Z
+updated: 2024-07-13T09:53:58.502Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/75f2f8c580c180a2b2853a51a56b59840e62a47f8
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-## 2\. Cyberbullying ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+## 2\. Cyberbullying
+![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -55,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/75f2f8c580c180a2b2853a51a56b59840e62a47f8
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-## 4\. Unrealistic Expectations ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+## 4\. Unrealistic Expectations
+![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -91,7 +93,8 @@ thumbnail: https://thmb.techidaily.com/75f2f8c580c180a2b2853a51a56b59840e62a47f8
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-## 7\. General Addiction ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+## 7\. General Addiction
+![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -124,3 +127,46 @@ thumbnail: https://thmb.techidaily.com/75f2f8c580c180a2b2853a51a56b59840e62a47f8
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-your-instagram-account-from-facebook-procedure/"><u>How to Disconnect Your Instagram Account From Facebook Procedure</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/leading-video-call-applications-for-conference-success/"><u>Leading Video Call Applications for Conference Success</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-scouting-for-professional-recordings-of-wolves-howling-sessions/"><u>In 2024, Scouting for Professional Recordings of Wolves Howling Sessions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-but-impactful-which-social-platform-leads-for-short-video-content-in-2024/"><u>Brief but Impactful  Which Social Platform Leads for Short Video Content, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chief-marketer-departs/"><u>Facebook's Chief Marketer Departs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-harness-10-tools-to-grab-youtube-images-online/"><u>[New] In 2024, Harness 10 Tools to Grab YouTube Images Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-audiences-profoundly-the-5-social-platforms-leading-biz/"><u>Engaging Audiences Profoundly: The 5 Social Platforms Leading Biz</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-comprehensive-selection-of-top-10-free-srt-changers/"><u>2024 Approved  The Comprehensive Selection of Top 10 FREE SRT Changers</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-20-free-after-effects-logo-reveal-templates-you-will-want-to-know/"><u>New 20 Free After Effects Logo Reveal Templates You Will Want to Know</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/optimal-storage-expansion-for-sony-a7c-for-2024/"><u>Optimal Storage Expansion for Sony A7C for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-solo-serenades-simplified-free-online-mp3-scaler-for-uninterrupted-karaoke-delight/"><u>Updated 2024 Approved Solo Serenades Simplified Free Online MP3 Scaler for Uninterrupted Karaoke Delight.</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profiles-security-essential-secrets-of-fb-protection/"><u>Elevate Your Profile's Security: Essential Secrets of FB Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resuscitate-a-non-responsive-facebook-profile/"><u>How to Resuscitate a Non-Responsive Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-your-need-to-connect-all-apps-through-facebook-login/"><u>Assessing Your Need to Connect All Apps Through Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-cryptocurrencys-steadfastness-stablecoins/"><u>A Closer Look at Cryptocurrency's Steadfastness: Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivation-day-what-happens-next/"><u>Deactivation Day: What Happens Next?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-international-expats-what-are-the-trade-offs/"><u>Facebook’s Role in International Expats – What Are the Trade-Offs?</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-unlimited-video-merging-7-best-watermark-free-solutions-for-2024/"><u>Updated Unlimited Video Merging 7 Best Watermark-Free Solutions for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-mobile-media-mastery-best-mp4-to-mp3-converter-apps/"><u>New 2024 Approved Mobile Media Mastery Best MP4 to MP3 Converter Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodge-facebooks-data-mining-safety-tips-revealed/"><u>Dodge Facebook's Data Mining: Safety Tips Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-back-the-buzz-tactics-to-reactivate-a-dormant-facebook-account/"><u>Bring Back the Buzz: Tactics to Reactivate a Dormant Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-underlying-themes-in-fb-chatter/"><u>Decoding Underlying Themes in FB Chatter</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/streamlined-iphones-how-to-grab-your-favorite-podcasts/"><u>Streamlined iPhones  How to Grab Your Favorite Podcasts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-masterclass-review-galaxy-s8-with-its-4k-features/"><u>In 2024, Masterclass Review  Galaxy S8 with Its 4K Features</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-igtvs-potential-5-ways-to-surge-follower-count/"><u>[Updated] Unlocking IGTV's Potential  5 Ways to Surge Follower Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-securityfbcom/"><u>Evaluating Trust in Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-enhanced-privacy-hub-for-safer-browsing/"><u>Decoding Facebook’s Enhanced Privacy Hub for Safer Browsing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144841416-facebooks-vision-for-virtual-reality-the-call-for-10k-developers/"><u>Facebook's Vision for Virtual Reality: The Call for 10K Developers.</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-switching-approach-for-disconnected-facebook-accounts/"><u>Agile Switching Approach for Disconnected Facebook Accounts</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-optimize-your-communication-scheduling-and-planning-with-ease-google-for-2024/"><u>[New] Optimize Your Communication  Scheduling & Planning with Ease (Google) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-closure-coming-for-instagram-in-the-last-month/"><u>Chat Closure Coming for Instagram in the Last Month</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-you-turn-off-facebooks-in-app-browser-how-it-works/"><u>Can You Turn Off Facebook's In-App Browser? How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-why-facebook-changed-its-user-interface-terminology/"><u>Breaking Down Why Facebook Changed Its User Interface Terminology</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-secretly-developing-a-smartwatch-what-we-know-so-far/"><u>Facebook Is Secretly Developing a Smartwatch: What We Know So Far</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-eyes-on-us-an-industry-insight/"><u>Digital Eyes on Us: An Industry Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-connections-advanced-tips-for-facebook-post-impact/"><u>Fostering Connections: Advanced Tips for Facebook Post Impact</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Beyond Gaming: The True Scope of the Metaverse"
-date: 2024-06-25T13:49:39.122Z
-updated: 2024-06-26T13:49:39.122Z
+date: 2024-07-12T09:34:49.117Z
+updated: 2024-07-13T09:34:49.117Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept
+![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -47,7 +48,8 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse
+![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -69,7 +71,8 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors
+![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -80,7 +83,8 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet
+![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -105,3 +109,49 @@ Yet.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/the-roadmap-to-successful-online-job-promotions/"><u>The Roadmap to Successful Online Job Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/quiet-your-screen-instagram-live-wo-audiovideo/"><u>Quiet Your Screen: Instagram Live W/O Audio/Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-your-privacy-intact-on-facebook-albums/"><u>How to Keep Your Privacy Intact on Facebook Albums</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-more-clicks-on-fb-with-these-5-free-timetable-strategies/"><u>Get More Clicks on FB with These 5 Free Timetable Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-multiple-group-platforms-for-increased-impact/"><u>Leveraging Multiple Group Platforms for Increased Impact</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-t2-pro-5g-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo T2 Pro 5G</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-ogg-conversion-made-easy-lessons-from-the-pros/"><u>New OGG Conversion Made Easy Lessons From the Pros</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-techniques-for-dynamic-link-management-on-fb/"><u>Innovative Techniques for Dynamic Link Management on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-likes-more-life-the-reality-in-instagrams-call-to-slow-down/"><u>'Less Likes, More Life': The Reality in Instagram's Call to Slow Down</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/1720600653166-android-data-recovery-software-to-recover-lost-photos-videos/"><u>Android Data Recovery Software to Recover Lost Photos, Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-for-gone-posts-a-guide-to-old-fb-content/"><u>Sifting for Gone Posts: A Guide to Old FB Content</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-mastering-siri-voice-commands-for-dynamic-and-efficient-tiktok-videos/"><u>In 2024, Mastering Siri Voice Commands for Dynamic and Efficient TikTok Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-recording-steps-for-youtube-audio-extraction/"><u>[Updated] Essential Recording Steps for YouTube Audio Extraction</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-free-your-movies-how-to-convert-dvds-to-digital-video-formats/"><u>2024 Approved Free Your Movies How to Convert DVDs to Digital Video Formats</u></a></li>
+<li><a href="https://facebook.techidaily.com/photodna-explained-a-tool-for-digital-forensics/"><u>PhotoDNA Explained: A Tool for Digital Forensics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/realigning-your-facebook-profile-with-current-preferences/"><u>Realigning Your Facebook Profile with Current Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/lifelog-legends-who-holds-the-crown-the-gilded-meta-or-silver-ticked-twitters/"><u>Lifelog Legends: Who Holds the Crown, The Gilded Meta or Silver-Ticked Twitters?</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-intersections-in-your-xbox-experience/"><u>Navigating Social Intersections in Your Xbox Experience</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-future-of-focused-viewing-techniques-to-suppress-audio-interference-from-videos-in-your-desktop-environment-and-online-sources-for-2024/"><u>Updated The Future of Focused Viewing Techniques to Suppress Audio Interference From Videos in Your Desktop Environment and Online Sources for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streaming-and-screenshotting-like-a-pro-essential-mac-techniques/"><u>[New] In 2024, Streaming and Screenshotting Like a Pro  Essential Mac Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-security-check-scan-for-unauthorized-account-use/"><u>Social Security Check: Scan for Unauthorized Account Use</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-instalment-insight-getting-vrecord-running/"><u>[Updated] Instalment Insight  Getting VRecord Running</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-choice-in-content-consumption-muting-social-media/"><u>Personal Choice in Content Consumption: Muting Social Media</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-perfectly-positioned-cards-youtube-embedding-techniques/"><u>[Updated] Perfectly Positioned Cards  YouTube Embedding Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-androids-best-top-8-gratuitous-capture-tools-for-2024/"><u>[New] Android's Best  Top 8 Gratuitous Capture Tools for 2024</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-realme-narzo-n55-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-final-cut-pro-x-2024-mastering-audio-and-video-syncing-techniques/"><u>Updated Final Cut Pro X 2024 Mastering Audio and Video Syncing Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-workspace-revolution-discovering-facebooks-8-strategies/"><u>The Digital Workspace Revolution: Discovering Facebook's 8 Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-inquiry-the-role-of-facebook-in-shaping-it/"><u>Metaverse Inquiry: The Role of Facebook in Shaping It</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-outstanding-book-trailer-samples-for-2024/"><u>[Updated] Outstanding Book Trailer Samples for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/photo-uploads-digital-ownership-questions/"><u>Photo Uploads: Digital Ownership Questions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-professional-screen-snapshot-tool-windows-10/"><u>In 2024, Professional Screen Snapshot Tool, Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-minefield-of-facebooks-privacy-settings/"><u>Navigating the Minefield of Facebook's Privacy Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-business-page-discontinuation-on-facebook/"><u>Navigating Through Business Page Discontinuation on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-usb-c-revolution-in-monitors-hp-envy-27s-journey/"><u>[Updated] USB-C Revolution in Monitors  HP Envy 27'S Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-your-time-on-social-media-fbs-reels/"><u>Limiting Your Time on Social Media - FB's Reels</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/premium-picks-for-pros-top-10-webcams-in-win-11-for-2024/"><u>Premium Picks for Pros  Top 10 Webcams in Win 11 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-connectivity-fbs-six-metaverse-marvels/"><u>Reimagining Connectivity: FB’s Six Metaverse Marvels</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-someone-else-impersonating-you-on-social-media/"><u>Is Someone Else Impersonating You on Social Media?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Facebook's Reel Response to TikTok's Growth Spurt
-date: 2024-06-25T14:08:58.411Z
-updated: 2024-06-26T14:08:58.411Z
+date: 2024-07-12T09:56:27.626Z
+updated: 2024-07-13T09:56:27.626Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
-## How TikTok Is Hurting Facebook ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+## How TikTok Is Hurting Facebook
+![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
@@ -47,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-## How Facebook Plans to Regain Momentum ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+## How Facebook Plans to Regain Momentum
+![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
 
@@ -79,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-### Monetization Issues ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+### Monetization Issues
+![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
@@ -108,3 +111,45 @@ thumbnail: https://thmb.techidaily.com/0be5a94dd3d4589909d5a9db46fde9f5e7dc17aa8
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-optimal-social-media-imagery/"><u>Unveiling Secrets to Optimal Social Media Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-listen-to-spotify-on-a-miniplayer-in-the-facebook-app/"><u>You Can Now Listen to Spotify on a Miniplayer in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-analyze-youtube-data-efficiently-with-social-blade-tools/"><u>[Updated] In 2024, Analyze YouTube Data Efficiently with Social Blade Tools</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-nubia-red-magic-8s-proplus-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Nubia Red Magic 8S Pro+ Phone Forgot Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-freely-on-facebooks-data-management/"><u>Who Spoke Freely on Facebook’s Data Management?</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-benefits-cutting-ties-with-facebook-for-a-better-life/"><u>Top 6 Benefits: Cutting Ties with Facebook for a Better Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-explores-advertising-avenues-with-new-features/"><u>Social Media Explores Advertising Avenues with New Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/atest-on-youtube-ad-income-guidelines-for-2024/"><u>The Latest on YouTube Ad Income Guidelines for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novice-to-pro-expert-tips-for-spotifys-advertisers/"><u>2024 Approved  From Novice to Pro  Expert Tips for Spotify's Advertisers</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-facebook-mobile-app-settings-worth-trying/"><u>10 Facebook Mobile App Settings Worth Trying</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-shrink-your-videos-10-free-online-compressors-with-no-installation/"><u>Updated Shrink Your Videos 10 Free Online Compressors with No Installation</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-side-effects-uncover-the-top-10-reasons-for-parting-with-facebook/"><u>Social Networks' Side Effects? Uncover the Top 10 Reasons for Parting with Facebook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unleashing-the-power-of-cross-platform-video-playback-software/"><u>In 2024, Unleashing the Power of Cross-Platform Video Playback Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-integration-for-instagrams-2fa-code-delivery/"><u>WhatsApp Integration for Instagram's 2FA Code Delivery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-filmmakers-companion-quickly-convert-any-avi-file-into-a-trendy-gif-using-filmora/"><u>[New] Filmmakers' Companion  Quickly Convert Any AVI File Into a Trendy GIF Using Filmora</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-to-the-9-signs-of-unauthorized-account-access/"><u>Alert to the 9 Signs of Unauthorized Account Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-online-presence-effective-follow-and-unfollow-techniques-on-facebook/"><u>Tailoring Your Online Presence: Effective Follow & Unfollow Techniques on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-indian-government-against-new-it-rules-that-threaten-users-privacy/"><u>WhatsApp Sues Indian Government Against New IT Rules That Threaten Users' Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-still-use-facebook/"><u>6 Reasons to Still Use Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformative-tides-what-being-a-metamate-means/"><u>Transformative Tides: What Being a Metamate Means</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-intuitive-method-setting-up-snapchat-on-a-mac/"><u>[New] In 2024, Intuitive Method  Setting up Snapchat on a Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/attorneys-general-demand-remove-kids-from-facebooks-instagram/"><u>Attorneys General Demand: Remove Kids From Facebook's Instagram</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-selection-of-cost-free-high-quality-video-editors/"><u>The Ultimate Selection of Cost-Free, High-Quality Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-users-creating-several-personal-profiles-in-a-facebook-snapshot/"><u>The Case for Users Creating Several Personal Profiles in a Facebook Snapshot</u></a></li>
+<li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-apple-iphone-8-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your Apple iPhone 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-behaviors-in-online-network-invitations/"><u>Understanding Social Behaviors in Online Network Invitations</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revive-faded-iphone-hdri-select-4-effective-methods-in-premiere-pro/"><u>Revive Faded iPhone HDRI  Select 4 Effective Methods in Premiere Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-titles-vs-displayed-usernames-clarity-for-users/"><u>Profile Titles vs Displayed Usernames: Clarity for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/textual-transformation-in-chats-focus-and-style-techniques/"><u>Textual Transformation in Chats: Focus & Style Techniques</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-hall-of-fame-movie-scenarios/"><u>In 2024, Hall of Fame Movie Scenarios</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthed-tech-moments-youve-overlooked-top-4-must-know/"><u>Unearthed Tech Moments You've Overlooked - Top 4 Must-Know!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-x-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone X</u></a></li>
+<li><a href="https://games-able.techidaily.com/diy-repair-the-ultimate-xbox-joystick-guide-for-gamers/"><u>DIY Repair - The Ultimate Xbox Joystick Guide for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-facebooks-diminishing-social-circle/"><u>A Closer Look at Facebook's Diminishing Social Circle</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-reducing-noise-amplitude-gently-using-lumafusion/"><u>[New] Reducing Noise Amplitude Gently Using Lumafusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-access-after-deleting-your-facebook-login/"><u>Restoring Access After Deleting Your Facebook Login</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
+</ul></div>

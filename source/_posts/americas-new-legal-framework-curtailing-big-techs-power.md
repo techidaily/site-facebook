@@ -1,7 +1,7 @@
 ---
 title: "America's New Legal Framework: Curtailing Big Tech's Power"
-date: 2024-06-25T14:02:26.468Z
-updated: 2024-06-26T14:02:26.468Z
+date: 2024-07-12T09:49:12.140Z
+updated: 2024-07-13T09:49:12.140Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,8 @@ thumbnail: https://thmb.techidaily.com/73077bb518e58764d0d667c24acb26e31ce2706df
 
  More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act
+![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -79,7 +80,8 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021
+![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -116,3 +118,60 @@ Finally, we come to the economic backing to make it all happen.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-audiocapture-studio-download-test-and-discussion/"><u>[New] 2024 Approved  AudioCapture Studio  Download, Test & Discussion</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-apple-iphone-15-fix-now-drfone-by-drfone-virtual-ios/"><u>3uTools Virtual Location Not Working On Apple iPhone 15? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-iphone-se-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the iPhone SE iCloud Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-strategies-accelerating-facebook-user-shifts/"><u>Key Strategies: Accelerating Facebook User Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/live-purchasing-on-fb-unveiled-for-fridays/"><u>Live Purchasing on FB Unveiled for Fridays</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-motorola-razr-40-ultra-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Motorola Razr 40 Ultra to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-against-cyber-threats-with-effective-use-of-2fa-on-gmail-and-outlook/"><u>Safeguarding Against Cyber Threats with Effective Use of 2FA on Gmail & Outlook</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-extract-high-quality-audio-from-videos-expert-conversion-tips-for-2024/"><u>Updated Extract High-Quality Audio From Videos Expert Conversion Tips for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-14-ultra-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi 14 Ultra Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-enjoy-whole-audio-on-twitch-addressing-muted-segments-now/"><u>[Updated] 2024 Approved  Enjoy Whole Audio on Twitch  Addressing Muted Segments Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-non-facebook-message-services/"><u>Mastering Non-Facebook Message Services</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-samsung-galaxy-z-fold-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-valid-ban-on-trump-but-for-how-long/"><u>Digital Disruption: Valid Ban on Trump, but for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-uptrend-or-plateau/"><u>Facebook's Engagement: Uptrend or Plateau?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-analyzing-youtube-adrevenue-average-payments-by-thousands-of-views-for-2024/"><u>[New] Analyzing Youtube AdRevenue  Average Payments by Thousands of Views for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-unleash-your-creativity-best-free-online-glitch-effect-tools-for-2024/"><u>Updated Unleash Your Creativity Best Free Online Glitch Effect Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-answer-to-the-audio-only-chat-space/"><u>Facebook's Answer to the Audio-Only Chat Space</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-prospects-and-pitfalls-of-the-latest-in-photography-by-samsung-2023/"><u>In 2024, Prospects & Pitfalls of the Latest in Photography by Samsung, 2023</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-free-and-frugal-mac-mp3-optimizer-app-for-2024/"><u>Updated Free & Frugal Mac MP3 Optimizer App for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-surging-brand-visibility-through-creative-tiktok-content/"><u>[Updated] In 2024, Surging Brand Visibility Through Creative TikTok Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-immediate-access-to-your-videos-thumbnails-online/"><u>[Updated] Immediate Access to Your Videos' Thumbnails Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-illusion-to-immersion-deciphering-metaverse-and-vr-differences/"><u>From Illusion to Immersion: Deciphering Metaverse and VR Differences</u></a></li>
+<li><a href="https://windows11.techidaily.com/quick-sniping-techniques-alternatives-to-windows-snipping-capability/"><u>Quick Sniping Techniques: Alternatives to Windows' Snipping Capability</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-efficiently-clear-updates-from-your-profile/"><u>How to Efficiently Clear Updates From Your Profile</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-tecno-spark-go-2024-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Tecno Spark Go (2024) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-a-stress-free-fb-deletion/"><u>Essential Steps for a Stress-Free FB Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-texting-facebook-rolls-out-groundbreought-features-for-apps-like-instagram-and-messenger/"><u>Revolutionize Texting: Facebook Rolls Out Groundbreought Features for Apps Like Instagram and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-perfecting-the-art-of-ppt-video-creation/"><u>[Updated] 2024 Approved  Perfecting the Art of PPT Video Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-perfect-soundtrack-for-your-podcast-journey-top-9-level-9-portable-microphones-for-2024/"><u>Updated Perfect Soundtrack for Your Podcast Journey Top 9 Level 9 Portable Microphones for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-best-facebook-practices-videographers-dilemrante/"><u>[New] Best Facebook Practices  Videographer's Dilemrante</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-video-setup-made-simple-your-step-by-step-logitech-guide/"><u>2024 Approved  Video Setup Made Simple  Your Step-by-Step Logitech Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/focusing-on-fine-details-a-minecraft-journey-for-2024/"><u>Focusing on Fine Details  A Minecraft Journey for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-professionalism-blocking-negative-profiles-from-fb/"><u>Maintaining Professionalism: Blocking Negative Profiles From FB</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/online-services-for-youtube-subtitles-download/"><u>Free Online Services for YouTube Subtitles Download</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-liven-up-thumbnails-enchanted-settings/"><u>2024 Approved  Liven Up Thumbnails  Enchanted Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/enveloped-in-shadows-hide-your-facebook-pics/"><u>Enveloped in Shadows: Hide Your Facebook Pics</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-7-phone-number-locators-to-track-apple-iphone-13-pro-location-drfone-by-drfone-virtual-ios/"><u>Top 7 Phone Number Locators To Track Apple iPhone 13 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-format-text-in-messenger-bold-italics-and-more/"><u>How to Format Text in Messenger: Bold, Italics, and More</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-ways-to-make-sure-your-recording-slideshow-in-powerpoint-is-not-wrong/"><u>Updated 2024 Approved Ways to Make Sure Your Recording Slideshow in Powerpoint Is Not Wrong</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-focus-5-ways-to-unclutter-and-sharpen-your-image/"><u>Facebook Focus: 5 Ways to Unclutter and Sharpen Your Image</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-from-conference-call-to-online-showcase-google-meet-on-youtube/"><u>[New] From Conference Call to Online Showcase  Google Meet on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-user-loss-whats-the-real-tally/"><u>Facebook's User Loss: What's the Real Tally?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-blackout-facebook-whatsapp-in-a-daze/"><u>Digital Blackout: Facebook, WhatsApp in a Daze</u></a></li>
+<li><a href="https://facebook.techidaily.com/mystery-of-the-momentarily-missed-messages/"><u>Mystery of the Momentarily Missed Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-online-life-from-facebook-fraudsters/"><u>Safeguard Your Online Life From Facebook Fraudsters</u></a></li>
+</ul></div>

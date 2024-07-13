@@ -1,7 +1,7 @@
 ---
 title: "Meta Unleashed: 3 Reasons to Worry"
-date: 2024-06-25T14:08:14.165Z
-updated: 2024-06-26T14:08:14.165Z
+date: 2024-07-12T09:55:36.983Z
+updated: 2024-07-13T09:55:36.983Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
-## 1\. An Entrapping Social Media Monopoly ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## 1\. An Entrapping Social Media Monopoly
+![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  According to [Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
@@ -37,7 +38,8 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-## 2\. Meta Wields Too Much Power ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+## 2\. Meta Wields Too Much Power
+![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
@@ -47,7 +49,8 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-## 3\. A Privacy Dilemma ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+## 3\. A Privacy Dilemma
+![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -108,3 +111,46 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-crafting-captivating-tiktok-reacts-filmmakers-guide-with-filmora-pro-for-2024/"><u>[New] Crafting Captivating TikTok Reacts  Filmmaker’s Guide with Filmora Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-storm-nears-a-prediction-for-facebooks-headlines/"><u>The Storm Nears: A Prediction for Facebook's Headlines</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-recording-real-time-action-in-overwatch/"><u>2024 Approved  Recording Real-Time Action in Overwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-integrated-facebook-exploration/"><u>Steering Clear of Integrated Facebook Exploration</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-samsung-galaxy-m14-4g-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Samsung Galaxy M14 4G Face Lock?</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-illuminating-video-editing-software-top-choices-for-2024/"><u>Updated Illuminating Video Editing Software Top Choices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unboxing-facebook-and-instagrams-latest-ad-ventures/"><u>Unboxing Facebook & Instagram's Latest Ad Ventures</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-most-effective-10-sound-recorders-for-spotify-fans-for-2024/"><u>[Updated] The Most Effective 10 Sound Recorders for Spotify Fans for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-at-the-office-strategies-for-success/"><u>Social Media at the Office: Strategies for Success</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-clearing-up-that-persistent-green-tint-in-youtube-videos-on-mac/"><u>[Updated] In 2024, Clearing Up that Persistent Green Tint in YouTube Videos on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-news-feed-unraveling-facebooks-truths-and-myths/"><u>Beyond the News Feed: Unraveling Facebook's Truths and Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-flatness-in-your-online-life-with-3d-photos/"><u>Avoiding Flatness in Your Online Life with 3D Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-an-enhanced-fb-imagery/"><u>Strategic Timing for an Enhanced Fb Imagery</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-out-the-real-story-behind-user-figures-on-fb/"><u>Chill Out! The Real Story Behind User Figures on FB</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-ps4-game-capture-via-obs-studio/"><u>[Updated] In 2024, Mastering PS4 Game Capture via OBS Studio</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-elevating-skype-discussions-through-smart-zoom-practices-for-2024/"><u>[New] Elevating Skype Discussions Through Smart Zoom Practices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-a-future-metaverse-architect-join-facebooks-quest/"><u>Are You a Future Metaverse Architect? Join Facebook's Quest.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-line-between-laughter-and-rude-gestures/"><u>The Fine Line Between Laughter and Rude Gestures</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-fight-on-facebooks-defiant-message-against-exiting/"><u>'Stay, Fight On': Facebook's Defiant Message Against Exiting</u></a></li>
+<li><a href="https://facebook.techidaily.com/taming-your-facebook-memories-privacy-controls/"><u>Taming Your Facebook Memories: Privacy Controls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discover-the-9-hottest-sites-for-3d-graffiti-font-download/"><u>2024 Approved  Discover the 9 Hottest Sites for 3D Graffiti Font Download</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-engaging-audiennas-a-captivate-presentation-guide-for-2024/"><u>[Updated] Engaging Audiennas  A Captivate Presentation Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-influence-through-content-creation/"><u>Building Influence Through Content Creation</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-edge-your-way-to-success-instagrams-finest-border-applications/"><u>2024 Approved  Edge Your Way to Success  Instagram's Finest Border Applications</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-enhancing-click-through-rates-with-three-distinct-writing-models-for-ads/"><u>In 2024, Enhancing Click-Through Rates with Three Distinct Writing Models for Ads</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-snicker-secrets-of-virtual-realms-making-funny-memes/"><u>[New] In 2024, Snicker Secrets of Virtual Realms  Making Funny Memes</u></a></li>
+<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-the-best-free-neon-text-generators-for-instant-results/"><u>New In 2024, The Best Free Neon Text Generators for Instant Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-elite-fraudsters-web-networks/"><u>Avoiding the Elite Fraudsters' Web Networks</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/your-cheat-sheet-for-auditing-friends-vibrant-livestrances-for-2024/"><u>Your Cheat Sheet for Auditing Friends’ Vibrant Livestrances for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-record-ps4-with-obs-full-guide/"><u>[Updated] Record PS4 with OBS Full Guide</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-optimizing-your-podcast-a-comprehensive-look-at-mp3-conversion-methods/"><u>In 2024, Optimizing Your Podcast A Comprehensive Look at MP3 Conversion Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/wind-sun-and-social-media-fbs-energy-makeover/"><u>Wind, Sun, and Social Media: FB's Energy Makeover</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-crafting-a-simple-subscription-web-address-for-yt/"><u>In 2024, Crafting a Simple Subscription Web Address for YT</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mystery-behind-excluded-social-media-content/"><u>The Mystery Behind Excluded Social Media Content</u></a></li>
+</ul></div>

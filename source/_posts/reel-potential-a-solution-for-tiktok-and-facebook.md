@@ -1,7 +1,7 @@
 ---
 title: "Reel Potential: A Solution for TikTok and Facebook?"
-date: 2024-06-25T14:31:51.815Z
-updated: 2024-06-26T14:31:51.815Z
+date: 2024-07-12T10:22:28.234Z
+updated: 2024-07-13T10:22:28.234Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
-## How TikTok Is Hurting Facebook ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+## How TikTok Is Hurting Facebook
+![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
@@ -47,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-## How Facebook Plans to Regain Momentum ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+## How Facebook Plans to Regain Momentum
+![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
 
@@ -79,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-### Monetization Issues ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+### Monetization Issues
+![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
@@ -108,3 +111,55 @@ thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/prime-image-hoarders-destination-list-for-2024/"><u>Prime Image Hoarders' Destination List for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/rumors-swirl-could-facebooks-strategy-lead-to-selling-giphy/"><u>Rumors Swirl: Could Facebook's Strategy Lead to Selling Giphy?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-less-connected-your-guide-to-leaving-facebook/"><u>The Path Less Connected: Your Guide to Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-multilingual-publishing-features/"><u>Navigating Facebook's Multilingual Publishing Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-selective-nature-of-social-network-news-feeds/"><u>The Selective Nature of Social Network News Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/moment-of-no-internet-facebook-and-co-outage/"><u>Moment of No Internet: Facebook and Co. Outage</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-simplified-steps-for-saving-gotomeeting-sessions/"><u>[Updated] In 2024, Simplified Steps for Saving GoToMeeting Sessions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-from-phone-screen-to-home-screen-enabling-fb-video-viewing-on-appletv-for-2024/"><u>[New] From Phone-Screen to Home Screen  Enabling FB Video Viewing on AppleTV for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-unliking-on-websites/"><u>The Impact of Unliking on Websites</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/crafting-captivating-igtv-cover-photos-thumbnails/"><u>Crafting Captivating IGTV Cover Photos (Thumbnails)</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-how-to-add-audio-to-avi-for-2024/"><u>New How to Add Audio to AVI for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dynamics-of-facebooks-newsfeed/"><u>The Hidden Dynamics of Facebook's Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/improve-your-digital-life-essential-settings-in-fb-app-for-mobile/"><u>Improve Your Digital Life: Essential Settings in FB App for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-life-rewind-what-happens-after-you-unplug/"><u>Real Life Rewind: What Happens After You Unplug</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-gaining-viral-recognition/"><u>Strategies for Gaining Viral Recognition</u></a></li>
+<li><a href="https://facebook.techidaily.com/legal-battle-trump-vs-social-media-over-free-expression/"><u>Legal Battle: Trump Vs. Social Media Over Free Expression</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/essential-tips-for-instagram-photos-with-custom-watermarks/"><u>Essential Tips for Instagram Photos with Custom Watermarks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-precision-planning-of-collaborative-slack-plus-filmora-meetings/"><u>2024 Approved  Precision Planning of Collaborative Slack + Filmora Meetings</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-suspension-review-set-for-social-network/"><u>Trump Suspension Review Set for Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-setup-for-extended-messaging-networks/"><u>Quick Setup for Extended Messaging Networks</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/the-ultimate-list-5-free-online-tone-generators-for-quick-results-for-2024/"><u>The Ultimate List 5 Free Online Tone Generators for Quick Results for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/secrets-to-successful-vocal-sessions-for-video-content/"><u>Secrets to Successful Vocal Sessions for Video Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/meet-your-new-reality-discovering-six-compelling-aspects-of-fbs-metaverse/"><u>Meet Your New Reality: Discovering Six Compelling Aspects of FB's Metaverse</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/mastering-video-editing-replacing-audio-tracks-a-comprehensive-guide-part-1-for-2024/"><u>Mastering Video Editing Replacing Audio Tracks - A Comprehensive Guide (Part 1) for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-seeking-out-wolves-haunting-howls-in-audio-form/"><u>Updated In 2024, Seeking Out Wolves Haunting Howls in Audio Form</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-expert-tips-for-obs-and-facebook-integration-for-2024/"><u>[Updated] Expert Tips for OBS and Facebook Integration for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustaining-your-social-circle-with-these-6-reasons-to-stay-on-facebook/"><u>Sustaining Your Social Circle with These 6 Reasons to Stay on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-a-cleaner-facebook-view-trail/"><u>Navigating to a Cleaner Facebook View Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-data-analysis-with-8-crowdflower-features/"><u>Master the Art of Data Analysis with 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/infuse-text-with-tune-utilizing-soundemojis-in-chats/"><u>Infuse Text with Tune: Utilizing Soundemojis in Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-identity-of-the-whistleblowing-source/"><u>Uncovering the Identity of the Whistleblowing Source</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-breakthrough-tactics-for-optimal-iptv-screening/"><u>[Updated] Breakthrough Tactics for Optimal IPTV Screening</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/engage-viewers-anytime-from-phone-stream-youtube-with-less-than-a-thousand/"><u>Engage Viewers Anytime, From Phone  Stream Youtube with Less Than a Thousand</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-assesses-president-trumps-status/"><u>Social Network Assesses President Trump's Status</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-in-depth-insights-perfecting-the-craft-of-screen-recording-on-macbooks/"><u>[New] In 2024, In-Depth Insights  Perfecting the Craft of Screen Recording on MacBooks</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-leveraging-likeability-strategies-for-going-viral-on-facebook/"><u>[Updated] 2024 Approved  Leveraging Likeability  Strategies for Going Viral on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-memories-selective-visibility/"><u>Tailoring Your Facebook Memories: Selective Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-happiness-without-facebooks-chains/"><u>Unlock Happiness Without Facebook's Chains</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-iphone-7-plusipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on iPhone 7 Plus/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-perspectives-on-facebooks-platform/"><u>Personalizing Perspectives on Facebook's Platform</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-9-zero-price-programs-to-take-your-videos-from-average-to-amazing-for-2024/"><u>[Updated] 9 Zero Price Programs to Take Your Videos From Average to Amazing for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-pro-video-illumination-top-strategies-for-immaculate-cinematography/"><u>[Updated] Pro Video Illumination  Top Strategies for Immaculate Cinematography</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-revises-privacy-terms-what-you-should-know/"><u>Meta Revises Privacy Terms: What You Should Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-list-before-unlinking-from-fb/"><u>The Essential List Before Unlinking From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-outage-alert-all-big-social-apps-down/"><u>Online Outage Alert: All Big Social Apps Down</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-realme-gt-5-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Realme GT 5? | Dr.fone</u></a></li>
+</ul></div>

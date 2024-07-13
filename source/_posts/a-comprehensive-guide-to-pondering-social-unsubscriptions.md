@@ -1,7 +1,7 @@
 ---
 title: A Comprehensive Guide to Pondering Social Unsubscriptions
-date: 2024-06-25T14:39:54.231Z
-updated: 2024-06-26T14:39:54.231Z
+date: 2024-07-12T10:31:34.205Z
+updated: 2024-07-13T10:31:34.205Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/7e038d9e1eb98894fb3abf6a7f282bd0c46245669
 
  Here's what you need to consider before deleting your social media accounts.
 
-## 1\. Deactivate First ![Deactivating Facebook Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-facebook-account-settings-page-1.JPEG)
+## 1\. Deactivate First
+![Deactivating Facebook Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-facebook-account-settings-page-1.JPEG)
 
 ![Deactivating TikTok Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-tiktok-account-settings-page-1.JPEG)
 
@@ -37,7 +38,8 @@ Close
 
  When deactivating, remember that some platforms will permanently delete your account after a specific time period. For example, you can only stay deactivated for 30 days on X (Twitter) before your account gets deleted.
 
-## 2\. Delete the App ![Long-Pressing on Facebook App to Bring Up Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/long-press-to-bring-up-options-for-facebook-app.JPEG)
+## 2\. Delete the App
+![Long-Pressing on Facebook App to Bring Up Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/long-press-to-bring-up-options-for-facebook-app.JPEG)
 
 ![Deleting Facebook App Confirmation Pop-Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/delete-facebook-app-confirmation-pop-up.JPEG)
 
@@ -47,7 +49,8 @@ Close
 
  There's also no limit as to how many times you can uninstall and reinstall an app should you keep changing your mind. Whereas with deactivation, there's a waiting period on some platforms before you can deactivate again if you have back-and-forth contemplations.
 
-## 3\. Stop Doomscrolling ![Screen Time Setting on TikTok](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screen-time-setting-on-tiktok.JPEG)
+## 3\. Stop Doomscrolling
+![Screen Time Setting on TikTok](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screen-time-setting-on-tiktok.JPEG)
 
 ![Time Spent Setting on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/time-spent-setting-on-instagram-1.JPEG)
 
@@ -61,7 +64,8 @@ Close
 
  Once you've developed a healthier relationship with social media, you might not feel the need to delete your accounts anymore.
 
-## 4\. Consider Your Career ![Person Using Laptop and Taking Notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/person-using-laptop-and-taking-notes.jpg)
+## 4\. Consider Your Career
+![Person Using Laptop and Taking Notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/person-using-laptop-and-taking-notes.jpg)
 
  Even if deleting your social media accounts is a good decision for your personal life, consider whether it's a smart move for your professional life.
 
@@ -69,7 +73,8 @@ Close
 
  Social media can also be a major networking tool. LinkedIn is probably the first to come to mind, but don't discount the likes of Instagram or TikTok, especially if you have a bit of a following. A brand might reach out with a good opportunity.
 
-## 5\. Take Accountability ![Woman Using Phone in the Dark Outside](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/woman-using-phone-dark.jpg)
+## 5\. Take Accountability
+![Woman Using Phone in the Dark Outside](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/woman-using-phone-dark.jpg)
 
  For a lot of people, deleting their social media accounts is a way of bidding goodbye to a time when they were problematic. We're all constantly learning what is and isn't acceptable, so it's only natural to want to part with your old self.
 
@@ -77,13 +82,15 @@ Close
 
  Our advice is to own up to what you've said instead by admitting you were wrong, apologizing, and demonstrating that you've learned and improved. If people are aware of your problematic posts, and you delete your account upon getting called out, it will only give the impression that you have no intention of truly taking accountability.
 
-## 6\. Make a Final Post ![Draft for Farewell Post About Deleting Social Media Accounts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/farewell-draft-for-deleting-social-media-account.JPEG)
+## 6\. Make a Final Post
+![Draft for Farewell Post About Deleting Social Media Accounts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/farewell-draft-for-deleting-social-media-account.JPEG)
 
  If you're still dead set on deleting your accounts, compose a final post to inform your mutuals that you'll be leaving. You can use the same draft on all your social media accounts, depending on how many characters are allowed per post.
 
  Posting this will ensure that no one worries over your sudden disappearance, and it will also give you a sense of closure. However, only post once you're certain that you want to delete the account. You might feel a little embarrassed if you announce your departure only to come back a few days later.
 
-## 7\. Download Your Data ![Download Your Data Option on Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-download-data-option.JPEG)
+## 7\. Download Your Data
+![Download Your Data Option on Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-download-data-option.JPEG)
 
 ![Download Data Option on TikTok App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/tiktok-download-data-option.JPEG)
 
@@ -95,7 +102,8 @@ Close
 
  If you're not sure how to do it, see our guides on [how to download your TikTok data](https://www.makeuseof.com/how-to-download-your-tiktok-data/) ,[how to download your Twitter data](https://www.makeuseof.com/how-to-download-your-twitter-data/) , and [how to download all your Instagram photos](https://www.makeuseof.com/tag/download-save-instagram-photos/) .
 
-## 8\. Make a Contact List ![Spreadsheet on Black an grey Laptop on wooden desk with womans hands typing. around desk is a black notebook, coffee on saucer and sunglasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/spreadsheet-on-laptop-1.jpg)
+## 8\. Make a Contact List
+![Spreadsheet on Black an grey Laptop on wooden desk with womans hands typing. around desk is a black notebook, coffee on saucer and sunglasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/spreadsheet-on-laptop-1.jpg)
 
  Some people are only connected through social media, and when your account is gone, you won't have a means of contacting them anymore.
 
@@ -103,7 +111,8 @@ Close
 
  But should there be someone you'd like to keep in touch with, having their contact details ensures you won't have to spend hours trying to find them after your account is gone.
 
-## 9\. Update Your Login Information on Sites That Use Social Login ![Sign Up Options for Canva on Desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/canva-sign-up-options-page-on-desktop.jpeg)
+## 9\. Update Your Login Information on Sites That Use Social Login
+![Sign Up Options for Canva on Desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/canva-sign-up-options-page-on-desktop.jpeg)
 
  The social login feature (part of Social Sign-On Technology) allows users to log in to other apps or sites with one social media account. This makes it easier to remember your username and password. The problem with this feature is that it's not foolproof.
 
@@ -111,7 +120,8 @@ Close
 
  Take note of all the sites and apps where you used the social login feature, and change it to something else that you still have access to.
 
-## 10\. Prepare for FOMO ![Sad Person Scrolling on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/sad-person-using-phone.jpg)
+## 10\. Prepare for FOMO
+![Sad Person Scrolling on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/sad-person-using-phone.jpg)
 
  The FOMO will be real, especially if you've succumbed to the grips of short-form content like Reels and TikToks.
 
@@ -119,7 +129,8 @@ Close
 
  If you're deleting your accounts in preparation for a fresh start with new accounts, you might still miss the old ones. Your recommendations will be entirely different once starting over since it'll take a while for the algorithm to learn what you're interested in. This change can be frustrating, and you might still experience FOMO.
 
-## 11\. You Will Be Disconnected ![Man With Hand Covering Face Against Yellow Background With the Words Disconnected Projected](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/man-against-yellow-background-with-words.jpg)
+## 11\. You Will Be Disconnected
+![Man With Hand Covering Face Against Yellow Background With the Words Disconnected Projected](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/man-against-yellow-background-with-words.jpg)
 
  Disconnecting from the chaos of society isn't necessarily a bad thing. But, how much disconnection is healthy?
 
@@ -158,3 +169,47 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-did-sheryl-sandberg-influence-facebook/"><u>How Did Sheryl Sandberg Influence Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vigilance-identifying-and-correcting-breaches/"><u>Facebook Vigilance: Identifying & Correcting Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-why-some-posts-vanish-from-fb-timelines/"><u>In-Depth: Why Some Posts Vanish From Fb Timelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-bespoke-fb-representation/"><u>Designing a Bespoke FB Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-facebooks-dark-mode/"><u>Mastering the Art of Facebook’s Dark Mode</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-iphone-photo-apps-for-slide-shows-xr-to-x/"><u>2024 Approved  Ideal iPhone Photo Apps for Slide Shows (XR to X)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-new-moderation-tools-to-manage-your-groups/"><u>How to Use Facebook's New Moderation Tools to Manage Your Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/confronting-the-myth-why-facebook-is-still-here/"><u>Confronting the Myth: Why Facebook Is Still Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-power-structures-key-lessons-from-fb-files/"><u>Exposing Power Structures: Key Lessons From FB Files</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/make-an-impact-on-linkedin-the-right-aspect-ratio-for-your-videos/"><u>Make an Impact on LinkedIn The Right Aspect Ratio for Your Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Honor X50? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-grants-extension-exploring-reasons-behind-encryption-push-to-23/"><u>Meta Grants Extension: Exploring Reasons Behind Encryption Push to '23</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-method-to-archive-webcam-discussions/"><u>[Updated] Method to Archive Webcam Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterclass-transforming-your-social-media-moniker-on-fb/"><u>Masterclass: Transforming Your Social Media Moniker on FB</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-cartoonize-yourself-with-these-16-amazing-mobile-apps/"><u>New Cartoonize Yourself with These 16 Amazing Mobile Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-negative-feelings-towards-virtual-world-connectors/"><u>Dissecting Negative Feelings Towards Virtual World Connectors</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boost-your-channels-traffic-and-value-with-innovative-hashtags/"><u>Boost Your Channels' Traffic & Value with Innovative Hashtags</u></a></li>
+<li><a href="https://facebook.techidaily.com/mark-zuckerberg-reveals-he-has-a-goat-named-bitcoin/"><u>Mark Zuckerberg Reveals He Has a Goat Named Bitcoin</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-set-to-sever-ties-with-giphy-soon/"><u>Is Facebook Set to Sever Ties with Giphy Soon?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-vivo-v29e-by-drfone-android/"><u>Universal Unlock Pattern for Vivo V29e</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-streamlined-list-6-efficient-mac-screen-recording-solutions/"><u>[New] In 2024, Streamlined List  6 Efficient Mac Screen Recording Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/googles-biggest-news-moments-from-2022/"><u>Google's Biggest News Moments From 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-social-media-battlefield-tiktoks-top-10-twitters/"><u>2024 Approved  The Social Media Battlefield  TikTok's Top 10 Twitters</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-essential-8-strategies-for-digital-sound-recording-for-2024/"><u>[New] Essential 8 Strategies for Digital Sound Recording for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-exploring-russias-digital-gathering-place/"><u>Decoding VK: Exploring Russia's Digital Gathering Place</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-clicks-to-consequences-understanding-online-responsibility/"><u>From Clicks to Consequences: Understanding Online Responsibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/express-your-preferred-social-platform/"><u>Express Your Preferred Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-picture-control-guide-mastering-privacy/"><u>Facebook Picture Control Guide: Mastering Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-tweets-to-tabs-facebooks-new-approach-to-content-discussion/"><u>From Tweets to Tabs: Facebook's New Approach to Content Discussion</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolve-your-online-presence-move-beyond-fb/"><u>Evolve Your Online Presence, Move Beyond FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/lasting-connections-or-closing-facebook-heres-what-you-should-do-first/"><u>Lasting Connections or Closing Facebook? Here's What You Should Do First</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-notifying-facebook-of-minors-online-presence/"><u>Guidelines for Notifying Facebook of Minors' Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detente-a-look-at-life-without-social-media/"><u>Digital Détente: A Look at Life without Social Media</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-pro-with-kinemaster-essentials-techniques-and-top-digital-counterparts/"><u>In 2024, From Novice to Pro with KineMaster  Essentials, Techniques & Top Digital Counterparts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-video-sharing-secrets-examining-igtv-and-youtube-in-depth/"><u>[New] Unveiling Video Sharing Secrets  Examining IGTV & YouTube in Depth</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-banner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners/"><u>[Updated] In 2024, Banner Bliss  Get a Peek at Our Library of 50 Free YouTube Banners</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-expands-to-sound-based-social-interaction/"><u>Facebook Expands to Sound-Based Social Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-a-less-distracted-digital-world-by-reducing-fb-reels/"><u>Navigating a Less Distracted Digital World by Reducing FB Reels</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: 7 Ways Social Media Brings People Together
-date: 2024-06-25T13:44:13.562Z
-updated: 2024-06-26T13:44:13.562Z
+date: 2024-07-12T09:28:38.308Z
+updated: 2024-07-13T09:28:38.308Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/33139754522d3393b0a998cc016bffa1b55254150
 
 Here are the ways that social media brings people together...
 
-## 1\. Keeping in Touch With Friends and Family ![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
+## 1\. Keeping in Touch With Friends and Family
+![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
 
  Many people around the world experience loneliness. It may be because you are newly single, widowed, have moved away from family and friends for work—or you may just be shy and uncomfortable with in-person interaction.
 
@@ -29,7 +30,8 @@ Here are the ways that social media brings people together...
 
  It's a great way to reconnect with people you have lost touch with and keep in contact with your loved ones. Check out our guide on [stopping strangers from seeing your Facebook](https://www.makeuseof.com/how-to-prevent-strangers-viewing-facebook-profile/) if you want to up your privacy settings.
 
-## 2\. Maintaining Long-Distance Relationships ![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
+## 2\. Maintaining Long-Distance Relationships
+![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
 
  Sometimes, life keeps couples physically apart from one another. But through social media, you and your partner can stay connected without needing to constantly chat.
 
@@ -45,7 +47,8 @@ To use Facebook Messenger's video call feature:
 
  If you're looking for different messaging apps to try, consider checking out the [best all-in-one messaging platforms to simplify your communications](https://www.makeuseof.com/best-all-in-one-messaging-platforms/) .
 
-## 3\. Sharing Pictures With Your Family and Friends ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
+## 3\. Sharing Pictures With Your Family and Friends
+![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
 
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
@@ -61,7 +64,8 @@ To use Facebook Messenger's video call feature:
 
  If you are feeling lonely, joining a Facebook group is a perfect way to meet people who share the same interests as you.
 
-### How to Join Groups on Facebook ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
+### How to Join Groups on Facebook
+![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
 
 To join a group on Facebook, follow these steps:
 
@@ -76,7 +80,8 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
-## 5\. Joining Social Media Movements ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
+## 5\. Joining Social Media Movements
+![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
 
  Social media has brought many of us closer together. One of the major ways people are uniting is via social media movements like the "Me Too" movement against sexual harassment and assault, which is one of the many [Twitter hashtags that have shaped history](https://www.makeuseof.com/twitter-hashtags-that-shaped-history/) .
 
@@ -84,13 +89,15 @@ Then, wait for your request to be approved and start connecting!
 
  The birthplace of many social media movements is on Twitter. People use hashtags such as #metoo to unite all the posts in one place and tell their stories. Hashtags have brought attention to many injustices in the world and have also bonded people together in times of tragedy.
 
-## 6\. Meeting New People ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
+## 6\. Meeting New People
+![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
 
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great [social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
 
-## 7\. Helping People Reunite With Others and Items ![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
+## 7\. Helping People Reunite With Others and Items
+![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
 
  In addition to raising awareness for important global issues, social media is also powerful in potentially dangerous situations. For example, some people have used Facebook and Twitter to share details of missing people or pets—which has allowed others to inform the original poster if they see or know something.
 
@@ -119,3 +126,47 @@ Then, wait for your request to be approved and start connecting!
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-charting-a-course-to-your-signature-sphere/"><u>[Updated] 2024 Approved  Charting a Course to Your Signature Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-facebooks-day-on-day-tool/"><u>Unveiling the Secrets to Facebook's Day-on-Day Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-age-of-nba-fandom-with-fb-and-twt-partnership/"><u>The New Age of NBA Fandom with FB and Twt Partnership</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-scoop-inside-the-latest-facebook-data-revelations/"><u>The Scoop: Inside the Latest Facebook Data Revelations</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/post-update-nozzle-necessity-neglected/"><u>Post-Update, Nozzle Necessity Neglected</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ight-on-10-high-speed-growth-titles-to-inspire-you-for-2024/"><u>Spotlight on 10 High-Speed Growth Titles to Inspire You for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-russian-alternative-to-facebook-a-guide-to-vk/"><u>The Russian Alternative to Facebook: A Guide to VK</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-facebook-business-pages-vs-personal-profiles-in-brand-strategy/"><u>The Power of Facebook Business Pages vs Personal Profiles in Brand Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-chats-anticipating-facebooks-e2ee-move/"><u>Securing Chats: Anticipating Facebook's E2EE Move</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-digital-savvy-guide-opting-between-software-and-no-software-for-vimeo/"><u>[New] In 2024, Digital Savvy Guide  Opting Between Software & No-Software for Vimeo</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-previous-social-interactions-in-fb/"><u>Revisiting Previous Social Interactions in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-talk-shifts-third-gen-oculus-quest-on-pause/"><u>Tech Talk Shifts: Third-Gen Oculus Quest on Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-activating-two-factor-authentication-in-fb/"><u>Step-by-Step: Activating Two-Factor Authentication in FB</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-lock-apps-on-oppo-k11-5g-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Oppo K11 5G to Protect Your Individual Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-control-prevent-facebooks-oversee-usage/"><u>Take Control: Prevent Facebook’s Oversee Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactics-to-rejuvenate-non-loading-fb-news-feed-items/"><u>Tactics to Rejuvenate Non-Loading FB News Feed Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-lost-fb-data-swift-measures-you-must-take/"><u>Recovering Lost FB Data: Swift Measures You Must Take</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-free-top-10-best-online-video-editors-no-watermark-for-2024/"><u>Updated FREE Top 10 Best Online Video Editors No Watermark for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-expert-tips-top-8-verified-video-marketing-strategies/"><u>[Updated] 2024 Approved  Expert Tips  Top 8 Verified Video Marketing Strategies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-epicurean-education-recipe-film-making/"><u>[Updated] In 2024, Epicurean Education  Recipe Film-Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-lately-watched-fb-content/"><u>Uncovering Lately Watched FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-monitoring-app-and-website-interactions-on-fb/"><u>The Essential Guide to Monitoring App & Website Interactions on FB</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-button-symphony-locating-the-percussive-elements-in-gaming-for-2024/"><u>The Button Symphony Locating the Percussive Elements in Gaming for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-wave-of-social-media-facebooks-ray-ban-stories-explained-and-costed/"><u>New Wave of Social Media: Facebook's Ray-Ban Stories Explained & Costed</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-stuck-on-downloading-of-nokia-130-music-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Nokia 130 Music? 7 Ways to Resolve | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattered-in-silence-post-fb-information/"><u>Shattered in Silence: Post-FB Information</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-unrivaled-7-best-virtual-meetings-security-centric-ranking/"><u>[Updated] Unrivaled 7 Best Virtual Meetings  Security-Centric Ranking</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-auditory-cuts-and-segments-convenient-methods-to-divide-your-music-files/"><u>New 2024 Approved Auditory Cuts and Segments Convenient Methods to Divide Your Music Files</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/illuminating-windows-10-after-fall-shadows/"><u>Illuminating Windows 10 After Fall Shadows</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-login-sessions-across-diverse-facebook-pages/"><u>Quick Login Sessions Across Diverse Facebook Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-speech-within-online-communities/"><u>Subtle Speech Within Online Communities</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ryan-kajis-riches-the-tale-of-youtubes-youngest-mogul/"><u>Ryan Kaji’s Riches  The Tale of YouTube's Youngest Mogul</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-no-experience-needed-top-free-video-editing-software/"><u>New 2024 Approved No Experience Needed Top Free Video Editing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-suggested-people-on-social-media-hub/"><u>Unfriend Suggested People on Social Media Hub</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-tricks-for-seamless-ipad-video-capture-experience/"><u>Top Tricks for Seamless iPad Video Capture Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-impact-study-in-us-detrimental-over-beneficial/"><u>Social Media's Impact Study in US: Detrimental Over Beneficial</u></a></li>
+</ul></div>

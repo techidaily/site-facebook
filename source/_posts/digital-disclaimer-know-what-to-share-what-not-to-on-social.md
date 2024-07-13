@@ -1,7 +1,7 @@
 ---
 title: "Digital Disclaimer: Know What to Share, What Not to on Social"
-date: 2024-06-25T13:57:29.477Z
-updated: 2024-06-26T13:57:29.477Z
+date: 2024-07-12T09:43:38.353Z
+updated: 2024-07-13T09:43:38.353Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
-## 1\. Travel Plans ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
+## 1\. Travel Plans
+![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
 
  Think twice before bragging about your amazing upcoming vacation or posting pictures while on a trip. You never know who could see this information and use it for nefarious purposes. For example, if someone knows where you live and has malicious intent, knowing that you'll be thousands of miles away for two weeks is an open invitation to rob your home.
 
@@ -75,7 +76,8 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
  Another effect worth considering is that these posts highlight a major [negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
 
-## 7\. Personal Advice ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
+## 7\. Personal Advice
+![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -83,7 +85,8 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
 
  It's best to stay quiet on all of this because if you give advice that ends up harming someone, they could potentially pursue legal action against you.
 
-## 8\. Scammy Giveaways and Contests ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
+## 8\. Scammy Giveaways and Contests
+![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
@@ -128,3 +131,55 @@ thumbnail: https://thmb.techidaily.com/657c6ed7c4c5009fda7b9debb5d0440f9ba124b99
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/unlocking-social-sharing-transferring-facebook-storages-easily/"><u>Unlocking Social Sharing: Transferring Facebook Storages Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-journey-to-crafting-a-notable-professional-profile-on-facebook/"><u>The Journey to Crafting a Notable Professional Profile on Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-techniques-live-streaming-games-via-obs-for-2024/"><u>Top Techniques  Live-Streaming Games via OBS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-process-of-selecting-users-for-certain-fb-ads/"><u>The Process of Selecting Users for Certain FB Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-for-effective-facebook-refund-applications/"><u>Expert Advice for Effective Facebook Refund Applications</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-poco-x5-by-drfone-android/"><u>In 2024, How to Bypass FRP on Poco X5?</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-repercussions-of-facial-recognition-erasure-on-safety/"><u>Examining the Repercussions of Facial Recognition Erasure on Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145974820-goats-and-cryptos-zuckerbergs-unique-choice-for-a-pet/"><u>Goats and Cryptos? Zuckerberg’s Unique Choice for a Pet</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-plea-to-facebook-and-google-strengthen-your-fight-against-fake-ads/"><u>A Plea to Facebook and Google: Strengthen Your Fight Against Fake Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-novel-network-nodes-a-guide-to-modern-fb-groups/"><u>Unveiling Novel Network Nodes: A Guide to Modern FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaverse-and-virtual-reality-highlighting-6-pivotal-contrasts/"><u>Decoding Metaverse and Virtual Reality: Highlighting 6 Pivotal Contrasts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breathe-life-into-images-step-by-step-text-editing-guide/"><u>Breathe Life Into Images  Step-by-Step Text Editing Guide</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-want-to-add-an-exciting-countdown-timer-to-your-wedding-product-launch-or-any-other-video-using-after-effects-or-an-alternative-tool-this-/"><u>New 2024 Approved Want to Add an Exciting Countdown Timer to Your Wedding, Product Launch or Any Other Video Using After Effects or an Alternative Tool? This Article Will Help You Learn All About After Effects Countdown and the Procedure</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unraveling-the-mechanics-auto-play-yourtube-videos-on-fb-platform/"><u>[New] 2024 Approved  Unraveling the Mechanics  Auto-Play YourTube Videos on FB Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/businesses-ready-for-a-social-revolution-facebooks-newsfeed-evolution/"><u>Businesses Ready for a Social Revolution: Facebook's Newsfeed Evolution</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-tagging-made-easy-with-these-high-impact-instagram-hashtags/"><u>[Updated] 2024 Approved  Tagging Made Easy with These High-Impact Instagram Hashtags</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-era-for-social-listening-at-facebook/"><u>Unveiling a New Era for Social Listening at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/blurring-lines-will-facebook-steer-towards-physical-marketplaces/"><u>Blurring Lines: Will Facebook Steer Towards Physical Marketplaces?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-streamlining-meetings-with-snap-camera-on-teams/"><u>[New] 2024 Approved  Streamlining Meetings with Snap Camera on Teams</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-getting-started-with-tiktok-a-macpc-guide/"><u>[New] 2024 Approved  Getting Started with TikTok  A Mac/PC Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/conquer-fb-surveillance-using-the-off-fb-toolset/"><u>Conquer FB Surveillance Using the Off-FB Toolset</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-meticulous-route-through-metas-social-stewardship-nexus/"><u>The Meticulous Route Through Meta's Social Stewardship Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-wisely-six-benefits-of-ditching-facebook/"><u>Disconnect Wisely - Six Benefits of Ditching Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dial-down-the-intensity-of-targeted-advertisement-screens/"><u>Dial Down the Intensity of Targeted Advertisement Screens</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/vertical-video-editing-made-easy-top-ios-and-android-apps-for-2024/"><u>Vertical Video Editing Made Easy Top iOS and Android Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-strategies-outsmarting-high-tech-hustlers/"><u>Evasion Strategies: Outsmarting High-Tech Hustlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/confirming-the-authenticity-of-(securityfacebookmailcom)-as-fbs-safety-mail/"><u>Confirming the Authenticity of @<security@facebookmail.com> as FB's Safety Mail</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-hearts-online-facebooks-pioneering-dating-innovations/"><u>Connecting Hearts Online: Facebook’s Pioneering Dating Innovations</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-streamlining-audiobook-creation-the-ultimate-guide-to-authorship-in-the-digital-age/"><u>New In 2024, Streamlining Audiobook Creation The Ultimate Guide to Authorship in the Digital Age</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-enigma-of-unlisted-deciphering-hidden-youtube-footage/"><u>2024 Approved  The Enigma of 'Unlisted'  Deciphering Hidden YouTube Footage</u></a></li>
+<li><a href="https://facebook.techidaily.com/yearly-summary-the-hottest-podcasts-reviewed-and-rated/"><u>Yearly Summary: The Hottest Podcasts Reviewed & Rated</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-stance-on-networking-harmful-impact/"><u>America's Stance on Networking: Harmful Impact</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-unlocking-the-power-of-speech-recognition-technology-for-2024/"><u>New Unlocking the Power of Speech Recognition Technology for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-hidden-why-facebook-and-instagram-monitor-us-for-app-access/"><u>What's Hidden: Why Facebook & Instagram Monitor Us for App Access?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-complete-archive-of-your-facebook-journey/"><u>A Complete Archive of Your Facebook Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719144159770-oversight-body-poised-to-issue-ruling-against-trumps-fb-prohibition/"><u>Oversight Body Poised to Issue Ruling Against Trump's FB Prohibition</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-enters-metas-verification-era/"><u>US Enters Meta's Verification Era</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-of-shadowing-online-profiles/"><u>The Hidden Risks of Shadowing Online Profiles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/practical-advice-for-documenting-online-conferencing-sessions/"><u>Practical Advice for Documenting Online Conferencing Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-2004-present-adaptations-and-growth/"><u>Facebook's Journey: 2004-Present Adaptations and Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/unique-mobile-app-linkage-how-facebook-surpasses-apple-payments-system/"><u>Unique Mobile App Linkage: How Facebook Surpasses Apple Payments System</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-in-standstill-heres-how-to-get-it-moving-again/"><u>Facebook in Standstill? Here’s How to Get It Moving Again</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/smartphones-ultimate-guide-to-image-editing-and-annotation-for-2024/"><u>Smartphones' Ultimate Guide to Image Editing & Annotation for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expedited-transition-tactics-for-facebook-user-accounts/"><u>Expedited Transition Tactics for Facebook User Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-discreet-content-filtering-by-fb/"><u>Deciphering the Discreet Content Filtering by Fb</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unveiling-the-best-non-obs-streaming-tools-for-video-creators-for-2024/"><u>[New] Unveiling the Best Non-OBS Streaming Tools for Video Creators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-based-resetting-facebooks-response-to-user-data-breaches/"><u>Tech-Based Resetting - Facebook's Response to User Data Breaches</u></a></li>
+</ul></div>

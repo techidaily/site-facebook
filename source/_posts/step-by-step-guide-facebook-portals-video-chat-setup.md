@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Facebook Portals' Video Chat Setup"
-date: 2024-06-25T14:31:57.861Z
-updated: 2024-06-26T14:31:57.861Z
+date: 2024-07-12T10:22:35.061Z
+updated: 2024-07-13T10:22:35.061Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/bdbc1bb211547c18c849de30d5eb74ca5d67d9e0f
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV
+![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -85,7 +86,8 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi
+![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -104,7 +106,8 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know
+![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -137,3 +140,54 @@ Your Portal TV has two clips.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/updating-email-and-phone-for-facebook-security/"><u>Updating Email & Phone for Facebook Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-craft-share-worthy-content-the-facebook-way/"><u>Tips to Craft Share-Worthy Content: The Facebook Way</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-vivo-y78plus-t1-edition-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Vivo Y78+ (T1) Edition Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaking-up-tech-monopolies-why-governments-step-in/"><u>Shaking Up Tech Monopolies: Why Governments Step In</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-to-like-or-not-to-like/"><u>Social Media: To Like or Not to Like?</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-account-with-instagrams-whatsapp-code-alerts/"><u>Secure Your Account with Instagram's WhatsApp Code Alerts</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-fixing-the-full-screen-freeze-in-obs/"><u>In 2024, Fixing the Full-Screen Freeze in OBS</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/bulk-delete-chats-a-guide-for-discord-users/"><u>Bulk Delete Chats  A Guide for Discord Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-elevates-social-media-to-the-nft-sphere/"><u>Meta Drops Elevates Social Media to the NFT Sphere</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-file-download-voice-track-analysis-for-2024/"><u>[Updated] File Download  Voice Track Analysis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-untold-story-users-countdown/"><u>Facebook’s Untold Story: Users Countdown</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/content-kings-and-queens-highest-subscribers-crowned/"><u>Content Kings & Queens  Highest Subscribers Crowned</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-thank-you-access-comprehensive-paidfree-templates/"><u>In 2024, Thank You! Access  Comprehensive Paid/Free Templates</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-love-dissecting-facebooks-enhanced-dating-features/"><u>Innovative Love: Dissecting Facebook's Enhanced Dating Features</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-realme-note-50-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Realme Note 50 FRP Bypass Instantly</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-nokia-g22-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Nokia G22</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-unlocking-your-potential-with-these-top-10-affordable-web-conferencing-services/"><u>2024 Approved  Unlocking Your Potential with These Top 10 Affordable Web Conferencing Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-virtual-space-with-your-facebook-portal-tv/"><u>Navigating the Virtual Space with Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/government-vs-gigacompanies-the-fight-for-competitive-equality/"><u>Government Vs. Gigacompanies: The Fight for Competitive Equality</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-motorola-edge-2023-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Motorola Edge 2023</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-gionee-by-drfone-android/"><u>Full Guide to Unlock Your Gionee</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-lost-facebook-activity-pieces-by-piece/"><u>Reclaim Your Lost Facebook Activity Pieces by Piece</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-data-handlers-to-drivers-of-innovation-facebook-employees/"><u>From Data Handlers to Drivers of Innovation - Facebook Employees</u></a></li>
+<li><a href="https://facebook.techidaily.com/monetizing-mastery-top-5-strategies-for-igfb-success/"><u>Monetizing Mastery: Top 5 Strategies for IG/FB Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-navigate-effortlessly-how-to-clear-your-browsers-youtube-cache/"><u>[New] In 2024, Navigate Effortlessly  How to Clear Your Browser's YouTube Cache</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-fake-ids-on-social-networking-sites/"><u>Navigating Through Fake IDs on Social Networking Sites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-wistia-user-introduction-size-format-duration/"><u>[Updated] Wistia User Introduction  Size, Format, Duration</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-nokia-c300-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Nokia C300 For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/restricting-access-to-in-app-internet-via-facebook/"><u>Restricting Access to In-App Internet via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/full-ban-on-facebook-delivery-of-notifications/"><u>Full Ban on Facebook Delivery of Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-sues-over-alleged-breach-in-new-it-laws/"><u>WhatsApp Sues Over Alleged Breach in New IT Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaviews-and-screenscapes-distinguishing-metaverse-from-vrs-six-aspects/"><u>Metaviews & Screenscapes: Distinguishing Metaverse From VR's Six Aspects</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best iSpoofer Alternative to Try On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-divisive-stars-the-leading-six/"><u>Tech's Divisive Stars: The Leading Six</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-connecting-discovering-group-and-profile-links-on-fb/"><u>The Art of Connecting: Discovering Group & Profile Links on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevalence-of-online-fraudulent-activities/"><u>Prevalence of Online Fraudulent Activities</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-personal-data-leakage-from-facebook-group-happened/"><u>Has Personal Data Leakage From Facebook Group Happened?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-transitioned-to-pure-renewable-power-source/"><u>FB Transitioned to Pure Renewable Power Source</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disconnect-remove-spotify-from-your-facebook-profile/"><u>How To Disconnect: Remove Spotify From Your Facebook Profile</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-professional-approach-to-convert-webp-images-to-jpeg/"><u>[New] Professional Approach to Convert WebP Images to JPEG</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-roll-out-sponsored-content-in-feeds/"><u>Social Networks Roll Out Sponsored Content in Feeds</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-the-top-12-audio-converters-for-seamless-file-conversion/"><u>Updated In 2024, The Top 12 Audio Converters for Seamless File Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-social-networks-for-effective-hiring/"><u>Utilizing Social Networks for Effective Hiring</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-mastering-the-art-of-continuous-snapstreak-success/"><u>[Updated] In 2024, Mastering the Art of Continuous Snapstreak Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/fact-checking-faces-busting-10-popular-facebook-myths/"><u>Fact-Checking Faces: Busting 10 Popular Facebook Myths</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-leveraging-youtubes-algorithm-a-comprehensive-guide-to-seo/"><u>In 2024, Leveraging YouTube's Algorithm  A Comprehensive Guide to SEO</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-premium-membership-uncovered-your-complete-guide/"><u>[Updated] 2024 Approved  Premium Membership Uncovered  Your Complete Guide</u></a></li>
+</ul></div>

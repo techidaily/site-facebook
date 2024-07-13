@@ -1,7 +1,7 @@
 ---
 title: Safeguarding Against Online Frauds in Social Networks
-date: 2024-06-25T14:13:41.562Z
-updated: 2024-06-26T14:13:41.562Z
+date: 2024-07-12T10:01:48.707Z
+updated: 2024-07-13T10:01:48.707Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,8 @@ thumbnail: https://thmb.techidaily.com/178e67f42d6ae355b4752027c9ad22197720cab14
 
  Once a scammer gets some clues, they work quickly. Automatic software lets them check hundreds of passwords per minute until something works. To stay safe, you need to guard your information.
 
-## 1\. Remove Personal Details From Your Facebook Profile ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
+## 1\. Remove Personal Details From Your Facebook Profile
+![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
 
@@ -57,7 +58,8 @@ Close
 
  You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
 
-## 2\. Manage Your Facebook Privacy Settings ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
+## 2\. Manage Your Facebook Privacy Settings
+![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
 
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
 
@@ -65,13 +67,15 @@ Close
 
 It’s a good idea to do a privacy check on a regular basis.
 
-## 3\. Remove Access to Facebook From Suspicious Apps ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
+## 3\. Remove Access to Facebook From Suspicious Apps
+![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
-## 4\. Don’t Click Strange URLs on Facebook ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
+## 4\. Don’t Click Strange URLs on Facebook
+![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
@@ -87,7 +91,8 @@ Close
 
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of [reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
-## 5\. Know the Signs of a Facebook Scam ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
+## 5\. Know the Signs of a Facebook Scam
+![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
 
  Screenshot by Natalie Stewart, no attribution required.
 
@@ -99,7 +104,8 @@ Close
 
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
-## 6\. Don’t Reply to Trivia Facebook Posts ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
+## 6\. Don’t Reply to Trivia Facebook Posts
+![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
 
  Facebook is full of public posts asking users to reply with trivia. They often ask for nostalgic things, such as your first car or favorite teacher. These posts seem like fun, but they are dangerous.
 
@@ -109,7 +115,8 @@ Close
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
-## 7\. Only Add People You Know to Your Facebook Account ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
+## 7\. Only Add People You Know to Your Facebook Account
+![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
 
  Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
 
@@ -117,7 +124,8 @@ Close
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
-## 8\. Use a Strong Password for Your Facebook Account ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
+## 8\. Use a Strong Password for Your Facebook Account
+![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
  Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
 
@@ -146,3 +154,55 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/social-media-meets-live-audience-with-facebooks-update/"><u>Social Media Meets Live Audience with Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-phase-pushing-oculus-quest-launch-to-later-date/"><u>Next Phase: Pushing Oculus Quest Launch to Later Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-is-helping-creators-make-money-through-reels/"><u>How Meta Is Helping Creators Make Money Through Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-branded-content-instagrams-and-facebooks-new-focus/"><u>The Rise of Branded Content: Instagram's & Facebook's New Focus</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-clash-between-technology-titans-and-antitrust-edicts/"><u>The Clash Between Technology Titans and Antitrust Edicts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-celebrating-the-greats-anime-opens-of-all-time/"><u>2024 Approved  Celebrating the Greats  Anime Opens of All Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-footprint-for-maximum-shares-on-fb/"><u>Optimize Your Social Media Footprint for Maximum Shares on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-augmenting-creativity-with-the-best-ai-for-podcast-names/"><u>In 2024, Augmenting Creativity with the Best AI for Podcast Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/enrich-networking-on-facebooks-messenger-service/"><u>Enrich Networking on Facebook's Messenger Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/headset-sales-surge-post-hacking-incidents-total-300-average/"><u>Headset Sales Surge Post-Hacking Incidents, Total $300 Average</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-mindful-like-and-share-strategies-for-advertisers/"><u>Navigating Social Media: Mindful Like & Share Strategies for Advertisers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-post-security-how-to-manage-who-sees-your-fb-content/"><u>Elevate Post Security: How to Manage Who Sees Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-vagueness-in-blogging-a-signal-seekers-guide/"><u>Exploring Vagueness in Blogging - A Signal Seeker's Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-excel-2007-files-on-mac-complete-guide-by-stellar-guide/"><u>How to Recover Deleted Excel 2007 Files on Mac Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/eight-paths-how-netizens-bond-across-cyberspace/"><u>Eight Paths: How Netizens Bond Across Cyberspace</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-essence-of-facebooks-structure/"><u>Decoding The Essence of Facebook's Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-battle-of-platforms-can-facebooks-reels-outmaneuver-tiktok/"><u>The Battle of Platforms: Can Facebook’s Reels Outmaneuver TikTok?</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-tools-for-superior-collaborative-endeavors-on-facebook/"><u>Integrating Social Tools for Superior Collaborative Endeavors on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-silent-voice-of-facebook/"><u>Identifying the Silent Voice of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-new-horizons-using-spotify-features-in-facebook-app/"><u>Explore New Horizons: Using Spotify Features in Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-announces-its-new-company-identity-as-meta/"><u>Facebook Announces Its New Company Identity as Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/convenient-techniques-for-eliminating-facebook-updates/"><u>Convenient Techniques for Eliminating Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-flatness-in-your-online-life-with-3d-photos/"><u>Avoiding Flatness in Your Online Life with 3D Photos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-14-pro-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone 14 Pro without Password?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-news-feed-unraveling-facebooks-truths-and-myths/"><u>Beyond the News Feed: Unraveling Facebook's Truths and Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/chill-out-the-real-story-behind-user-figures-on-fb/"><u>Chill Out! The Real Story Behind User Figures on FB</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-top-rated-ipad-video-editors-for-expert-reviews-for-2024/"><u>New Top-Rated iPad Video Editors for Expert Reviews for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-a-future-metaverse-architect-join-facebooks-quest/"><u>Are You a Future Metaverse Architect? Join Facebook's Quest.</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-the-elite-fraudsters-web-networks/"><u>Avoiding the Elite Fraudsters' Web Networks</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-essential-10-boosters-for-multi-device-use/"><u>In 2024, Essential 10 Boosters for Multi-Device Use</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/virtual-voyage-youtubes-premier-10-vr-video-experience/"><u>Virtual Voyage  YouTube's Premier 10-VR Video Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-profile-naming-and-username-systems/"><u>Demystifying Profile Naming and Username Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-your-facebook-watch-history-and-why-you-should/"><u>How to Delete Your Facebook Watch History (and Why You Should)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-effects-of-pausing-on-facebook/"><u>The Effects of Pausing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-influence-through-content-creation/"><u>Building Influence Through Content Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-for-regaining-facebook-account-control/"><u>Methods for Regaining Facebook Account Control</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-authoritative-resource-streamlining-screencasts-on-the-go-with-mobizen/"><u>In 2024, Authoritative Resource  Streamlining Screencasts on the Go With Mobizen</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
+<li><a href="https://facebook.techidaily.com/wind-sun-and-social-media-fbs-energy-makeover/"><u>Wind, Sun, and Social Media: FB's Energy Makeover</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-home-to-on-the-move-portal-go-innovation/"><u>From Home to On-the-Move: Portal Go Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-revenue-streams-instagrams-new-perks-for-artists/"><u>Expanding Revenue Streams: Instagram's New Perks for Artists</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://extra-support.techidaily.com/inverted-footage-whats-behind-instagrams-peculiarity-in-2024/"><u>Inverted Footage  What's Behind Instagram's Peculiarity, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-intern-to-innovator-the-metamate-movement/"><u>From Intern to Innovator: The Metamate Movement</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-online-networks-for-workplace-success/"><u>Mastering Online Networks for Workplace Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-introduces-enhanced-auditory-services/"><u>Social Media Giant Introduces Enhanced Auditory Services</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-pros-recommendation-top-10-apps-for-high-quality-vimeo-downloads/"><u>[New] 2024 Approved  Pro's Recommendation  Top 10 Apps for High-Quality Vimeo Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinstating-trumps-social-media-footprint/"><u>Reinstating Trump's Social Media Footprint</u></a></li>
+</ul></div>

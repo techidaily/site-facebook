@@ -1,7 +1,7 @@
 ---
 title: Will Removing Facial Identification Risk Facebook Users' Security?
-date: 2024-06-25T14:24:46.303Z
-updated: 2024-06-26T14:24:46.303Z
+date: 2024-07-12T10:14:27.619Z
+updated: 2024-07-13T10:14:27.619Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
-## No Major Security Improvements Here ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+## No Major Security Improvements Here
+![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -80,3 +81,43 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-creation-software.techidaily.com/new-rip-and-digitize-a-step-by-step-guide-to-converting-dvds-to-digital-files/"><u>New Rip and Digitize A Step-by-Step Guide to Converting DVDs to Digital Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-warnings-metas-media-conquest/"><u>Three Warnings: Meta's Media Conquest</u></a></li>
+<li><a href="https://facebook.techidaily.com/wait-and-see-facebook-board-halts-decision-process/"><u>Wait and See: Facebook Board Halts Decision Process</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harmonymix-pro-mac-and-windows-version/"><u>In 2024, HarmonyMix Pro Mac & Windows Version</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-a-glimpse-into-future-facebook-ad-tactics-for-24/"><u>2024 Approved  A Glimpse Into Future-Facebook Ad Tactics for '24</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-mysteries-of-metas-data-policy-overhaul/"><u>Unlocking the Mysteries of Meta’s Data Policy Overhaul</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-plugging-into-precision-the-guide-to-free-plugins-for-autotuning-audio-with-audacity-for-2024/"><u>New Plugging Into Precision The Guide to Free Plugins for AutoTuning Audio with Audacity for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-essence-of-dji-inspire-2-distilled-for-2024/"><u>The Essence of DJI Inspire 2 Distilled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-music-selection-spotify-miniplayer-on-fb/"><u>Seamless Music Selection - Spotify Miniplayer on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-facebook-for-app-logins/"><u>Weighing the Advantages and Disadvantages of Facebook for App Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-webs-benefits-the-top-7-societal-upsurges/"><u>Social Web’s Benefits: The Top 7 Societal Upsurges</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-eyes-the-case-for-deleting-your-facebook-watch-history/"><u>Unseen Eyes: The Case for Deleting Your Facebook Watch History</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-oppo-a59-5g-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Oppo A59 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-insta-top-gadgets-for-success/"><u>Mastering the Art of Insta  Top Gadgets for Success</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-filmmaking-fundamentals-for-engaging-facebook-groups/"><u>2024 Approved  Filmmaking Fundamentals for Engaging Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-facebooks-feed-algorithm/"><u>The Mechanics of Facebook's Feed Algorithm</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unzipping-for-srt-methods-and-tips-for-2024/"><u>Unzipping for SRT  Methods and Tips for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/7-exciting-additions-on-the-horizon-for-windows-11s-moment-22h2/"><u>7 Exciting Additions on the Horizon for Windows 11'S Moment #22H2</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-unleashing-win11s-potential-with-zoom-conferencing/"><u>[New] In 2024, Unleashing Win11's Potential with Zoom Conferencing</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-sever-instagram-connection-with-facebook/"><u>Steps to Sever Instagram Connection with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-strategies-and-successes-at-facebook/"><u>Sheryl’s Strategies and Successes at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-group-discussions-with-channels-integration/"><u>Simplifying Group Discussions with Channels Integration</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-motorola-edge-40-neo-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Motorola Edge 40 Neo Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/easy-methods-for-archiving-digital-meeting-recordings/"><u>Easy Methods for Archiving Digital Meeting Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-playing-spotify-on-facebook/"><u>The Ultimate Guide to Playing Spotify on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-switch-off-crossplay-for-personalized-apex-legends-experience/"><u>[New] Switch Off Crossplay for Personalized Apex Legends Experience</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-best-method-to-split-the-video-into-parts-online/"><u>Updated In 2024, Best Method to Split the Video Into Parts Online</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-get-paid-on-youtube-from-adsense-to-your-bank-account-for-2024/"><u>How To Get Paid on YouTube - From AdSense to Your Bank Account for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-whistleblowers-guide-to-understanding-facebook-data/"><u>The Whistleblower's Guide to Understanding Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-skyrocket-likes-and-share-ratio-in-fb-groups/"><u>Tips to Skyrocket Likes and Share Ratio in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-vk-understanding-russias-alternative-facebook/"><u>The Rise of VK: Understanding Russia’s Alternative Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-against-facebooks-online-activity-log/"><u>The Case Against Facebook's Online Activity Log</u></a></li>
+</ul></div>

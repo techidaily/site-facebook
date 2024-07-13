@@ -1,7 +1,7 @@
 ---
 title: Investigating This Year's Most Puzzling Tech Failures
-date: 2024-06-25T14:32:50.244Z
-updated: 2024-06-26T14:32:50.244Z
+date: 2024-07-12T10:23:34.673Z
+updated: 2024-07-13T10:23:34.673Z
 tags:
   - facebook
 categories:
@@ -17,7 +17,8 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
  The tech industry changes every year, with new inventions and ideas coming to the fore in an attempt to change our lives forever. While many of these products and services make the grade, others don't. These are the biggest tech fails of 2022.
 
-## 1\. Google Stadia ![A screenshot of the Google Stadia platform](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-stadia.jpg)
+## 1\. Google Stadia
+![A screenshot of the Google Stadia platform](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-stadia.jpg)
 
  It was the most highly anticipated launch of 2019;[Google Stadia](https://stadia.google.com/) was set to revolutionize gaming by giving players access to games anytime, anywhere, with no downloads or installs necessary. But it quickly became apparent that the results did not match the hype. By December 2022, Google Stadia had become one of the biggest tech flops of recent times, and certainly 2022.
 
@@ -27,7 +28,8 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
  Overall, Google Stadia's launch greatly disappointed gamers and tech enthusiasts. Despite its lofty ambitions, the service failed to live up to expectations and ultimately flopped in 2022.
 
-## 2\. Elon Musk's Twitter Takeover ![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
+## 2\. Elon Musk's Twitter Takeover
+![elon musk at conference](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/elon-musk-pic.jpg)
 
  Image Credit: Heisenberg Media/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Elon%5FMusk%5F-%5FThe%5FSummit%5F2013.jpg)
 
@@ -39,7 +41,8 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
 
-## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
+## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
+![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when [Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
-## 4\. Meta ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
+## 4\. Meta
+![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on [Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
@@ -67,7 +71,8 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
-## 5\. Amazon Alexa ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
+## 5\. Amazon Alexa
+![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
@@ -100,3 +105,50 @@ thumbnail: https://thmb.techidaily.com/6669b51a644a6e6a471c5e95129c578aa098ea11f
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/a-simple-method-for-clearing-facebook-dings/"><u>A Simple Method for Clearing Facebook Dings</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-connotations-of-social-media-icons-in-facebook-chats/"><u>Unveiling the Connotations of Social Media Icons in Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-evolution-understanding-the-role-of-news-on-facebook/"><u>Engaging Evolution: Understanding the Role of News on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-power-should-give-us-anxiety/"><u>Why Meta's Power Should Give Us Anxiety</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-into-digital-distaste-for-global-community-sites/"><u>Digging Into Digital Distaste for Global Community Sites</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-fb-video-quick-subtitle-and-caption-creation-guide/"><u>Mastering FB Video  Quick Subtitle & Caption Creation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-leveraging-technology-tips-for-screenrec-utilization/"><u>In 2024, Leveraging Technology  Tips for ScreenRec Utilization</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-crafting-time-lapses-on-a-canon/"><u>[New] Step-by-Step  Crafting Time-Lapses on a Canon</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-is-expecting-more-bad-headlines-to-come/"><u>Why Facebook Is Expecting More Bad Headlines to Come</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-through-the-digital-landscape/"><u>Charting a Course Through the Digital Landscape</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/samsungs-photo-manipulation-software-a-review/"><u>Samsung's Photo Manipulation Software  A Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-social-supremacy-is-a-nightmare/"><u>Why Meta's Social Supremacy Is a Nightmare</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-to-unveil-ruling-on-prohibition-against-trump/"><u>FB Oversight to Unveil Ruling on Prohibition Against Trump.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-the-new-frontier-of-fbs-live-purchasing/"><u>Friday: The New Frontier of FB’s Live Purchasing</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-download-with-discretion-in-social-media/"><u>Digital Footprints: Download with Discretion in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metas-new-privacy-standards-and-impact/"><u>Dissecting Meta's New Privacy Standards and Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-non-playing-vids-quick-fixes-for-facebook-issues/"><u>Halt Non-Playing Vids: Quick Fixes for Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-opportunities-in-facebooks-725-million-deal/"><u>Exploring Opportunities in Facebook’s $725 Million Deal</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-vk-russias-social-media-giant/"><u>A Peek Into VK: Russia's Social Media Giant</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-sites-for-secure-and-quick-download-of-youtube-ringtones/"><u>2024 Approved  Exclusive Sites for Secure & Quick Download of YouTube Ringtones</u></a></li>
+<li><a href="https://facebook.techidaily.com/visionaries-earning-vistas-creators-journey-with-metrics-and-money-through-reels/"><u>Visionaries Earning Vistas: Creators' Journey with Metrics & Money Through Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discontent-one-star-reviews-rising-for-fb-app-ratings/"><u>Digital Discontent: One-Star Reviews Rising for FB App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-facebook-with-this-simple-reset-guide/"><u>Unlock Facebook With This Simple Reset Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-purpose-of-renaming-news-feed-on-facebook/"><u>What Is the Purpose of Renaming 'News Feed' On Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-thread-feature-to-cease-in-dec/"><u>Instagram's Thread Feature to Cease in Dec</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-operations-a-guide-through-the-transparency-center/"><u>Unraveling Facebook's Operations: A Guide Through the Transparency Center</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-find-the-perfect-soundtrack-on-these-top-20-youtube-harmony-hubs/"><u>[New] In 2024, Find the Perfect Soundtrack on These Top 20 YouTube Harmony Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustlers-defending-your-digital-self/"><u>High-Tech Hustlers: Defending Your Digital Self</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-clearing-faceprint-database-affect-security-measures-for-fb-users/"><u>Does Clearing Faceprint Database Affect Security Measures for FB Users?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-simplifying-the-art-of-mac-screen-recording-a-keyboard-gurus-insight/"><u>[New] 2024 Approved  Simplifying the Art of Mac Screen Recording  A Keyboard Guru's Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructing-a-unique-avatar-for-social-media/"><u>Constructing a Unique Avatar for Social Media</u></a></li>
+<li><a href="https://driver-install.techidaily.com/masterclass-total-overhaul-of-gpu-drivers/"><u>Masterclass: Total Overhaul of GPU Drivers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-x-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone X without Losing Any Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-capturing-movie-scenes-as-single-image-snapshots-windows-10/"><u>2024 Approved  Capturing Movie Scenes as Single Image Snapshots (Windows 10)</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+</ul></div>

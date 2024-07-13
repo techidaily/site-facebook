@@ -1,7 +1,7 @@
 ---
 title: Enhancing Online Peace with Limited Facebook Friends
-date: 2024-06-25T14:45:43.290Z
-updated: 2024-06-26T14:45:43.290Z
+date: 2024-07-12T10:38:08.878Z
+updated: 2024-07-13T10:38:08.878Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/919428e7eabfca4b711aa4a4cd51f4e93cb7908e2
 
  Limiting people on Facebook is super easy. Here are some tips for prohibiting people from contacting you on Facebook.
 
-### 1\. Put Privacy on Your Posts ![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
+### 1\. Put Privacy on Your Posts
+![Post on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Post-on-Facebook.jpg)
 
 ![Facebook post audience](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-post-audience.jpg)
 
@@ -41,7 +42,8 @@ Close
 
  If you have a business and are trying to get customers through Facebook, we recommend [creating a page](https://www.makeuseof.com/tag/how-to-create-a-facebook-business-page/) , as it’s more effective than adding anonymous contacts to the list.
 
-### 2\. Limit People Who Can Search You ![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
+### 2\. Limit People Who Can Search You
+![Audience and visibility](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Audience-and-visibility.jpg)
 
 ![How people find and contact you](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/How-people-find-and-contact-you.jpg)
 
@@ -79,7 +81,8 @@ Close
 
  Users can find out they have been blocked from sending messages or making calls. To avoid that, try restricting the account instead. That way, they won’t know they have been restricted, and their messages will not reach you anymore.
 
-### 5\. Unfriend or Block a Facebook Account ![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
+### 5\. Unfriend or Block a Facebook Account
+![Unfriend on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Unfriend-on-Facebook.jpg)
 
 ![Facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-profile-settings.jpg)
 
@@ -124,3 +127,42 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/podcast-platform-grows-on-facebooks-auditory-upgrade/"><u>Podcast Platform Grows on Facebook’s Auditory Upgrade</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-charting-the-course-of-youtube-success-through-social-blade-analysis/"><u>In 2024, Charting the Course of YouTube Success Through Social Blade Analysis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-compelling-channel-names-simplified-for-2024/"><u>Creating Compelling Channel Names Simplified for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-and-streaming-giants-team-up-for-project-boombox/"><u>Social and Streaming Giants Team Up for Project Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-guide-to-sever-ties-in-fb-group/"><u>Stepwise Guide to Sever Ties in FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/reeling-in-profits-creators-guide-to-earnings-with-reels-and-marketplace-metrics/"><u>Reeling In Profits: Creators' Guide to Earnings with Reels and Marketplace Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-300-dilemrancy-hacked-users-quest-headset-purchase-trend/"><u>The $300 Dilemrancy: Hacked Users' Quest Headset Purchase Trend</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-strategies-for-enhancing-facebook-timelines/"><u>Personalization Strategies for Enhancing Facebook Timelines</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-using-inshot-for-laptoppc-and-other-video-editing-alternatives/"><u>[New] Using Inshot for Laptop/PC and Other Video Editing Alternatives</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-realme-c67-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On Realme C67 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-designing-fb-social-gatherings/"><u>Simplifying the Process of Designing FB Social Gatherings</u></a></li>
+<li><a href="https://video-capture.techidaily.com/quick-screen-grabs-for-win-11-users-for-2024/"><u>Quick Screen Grabs for Win 11 Users for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-barrier-against-browsing-boundaries-metas-image-regulation/"><u>The Barrier Against Browsing Boundaries: Meta's Image Regulation</u></a></li>
+<li><a href="https://facebook.techidaily.com/sculpting-social-media-exposure-the-art-of-facebooks-privacy-lists/"><u>Sculpting Social Media Exposure: The Art of Facebook's Privacy Lists</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-profiles-a-shift-to-secular-discourse-only/"><u>Transforming Profiles: A Shift to Secular Discourse Only</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-facebook-privacy-tips-7-ways-to-enhance-security/"><u>Top Facebook Privacy Tips: 7 Ways to Enhance Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-strategy-for-securing-your-fb-images/"><u>The Complete Strategy for Securing Your FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-steering-group-at-facebook/"><u>Today’s Steering Group at Facebook</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-quick-and-simple-access-high-res-youtube-images-for-free-here/"><u>[New] Quick & Simple  Access High-Res YouTube Images for Free Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/password-woes-easily-reinstate-your-facebook-sign-in/"><u>Password Woes? Easily Reinstate Your Facebook Sign-In</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-content-streaming-through-page-management/"><u>Tailored Content Streaming Through Page Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-professional-linux-sound-capture-a-rundown-of-top-software-for-studio-quality-audio/"><u>New In 2024, Professional Linux Sound Capture A Rundown of Top Software for Studio-Quality Audio</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-screen-capturing-mastery-top-techniques-for-filmmakers/"><u>[New] 2024 Approved  Screen Capturing Mastery  Top Techniques for Filmmakers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-cognitive-conclave-2024-selective-guide-to-top-trivia-channels/"><u>[Updated] Cognitive Conclave 2024  Selective Guide to Top Trivia Channels</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-guide-deleting-items-from-your-youtubeumbers-list/"><u>In 2024, Guide  Deleting Items From Your YouTube'umbers List</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-friend-paths-with-effective-fb-tags-learn-3-strategies/"><u>Paving Friend Paths with Effective FB Tags – Learn 3 Strategies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/from-screenshots-to-art-the-8-best-photo-collage-tools/"><u>From Screenshots to Art  The 8 Best Photo Collage Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-purchase-power-from-online-predators-at-facebook-marketplace/"><u>Protecting Your Purchase Power From Online Predators at Facebook Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-fact-check-busting-top-10-facebook-myths/"><u>Social Network Fact Check: Busting Top 10 Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-teenage-digital-footprint-navigating-facebook-settings/"><u>Securing Teenage Digital Footprint: Navigating Facebook Settings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-experts-pick-essential-plugins-to-elevate-your-ae-projects/"><u>[Updated] Expert's Pick  Essential Plugins to Elevate Your AE Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-planner-softwares-a-guide-to-scheduling-success/"><u>Top Planner Softwares: A Guide to Scheduling Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intricacies-behind-facebooks-policy-to-support-multi-profiles-per-user-account/"><u>The Intricacies Behind Facebook's Policy to Support Multi-Profiles per User Account</u></a></li>
+</ul></div>

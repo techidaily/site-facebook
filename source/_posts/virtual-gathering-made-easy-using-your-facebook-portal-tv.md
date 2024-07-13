@@ -1,7 +1,7 @@
 ---
 title: "Virtual Gathering Made Easy: Using Your Facebook Portal TV"
-date: 2024-06-25T13:47:43.568Z
-updated: 2024-06-26T13:47:43.568Z
+date: 2024-07-12T09:32:37.945Z
+updated: 2024-07-13T09:32:37.945Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,8 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 
  The Portal TV offers additional services to you based on your subscription category.
 
-## How to Make Video Calls on the Facebook Portal TV ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
+## How to Make Video Calls on the Facebook Portal TV
+![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
@@ -85,7 +86,8 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-### Selecting Your Language and Connecting to Wi-Fi ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+### Selecting Your Language and Connecting to Wi-Fi
+![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -104,7 +106,8 @@ Your Portal TV has two clips.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
-## Facebook Portal Voice Commands You Need to Know ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
+## Facebook Portal Voice Commands You Need to Know
+![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
@@ -137,3 +140,50 @@ Your Portal TV has two clips.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-infinix-note-30-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Infinix Note 30 using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-vax-discourse-defiantly-exists-in-facebook-corridors/"><u>Anti-Vax Discourse Defiantly Exists in Facebook Corridors</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-apple-iphone-14-pro-max-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on Apple iPhone 14 Pro Max and iPad Securely</u></a></li>
+<li><a href="https://facebook.techidaily.com/anonymous-contribution-techniques-to-groups/"><u>Anonymous Contribution Techniques to Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-busting-10-common-facebook-myths/"><u>Behind the Scenes: Busting 10 Common Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-accusations-focus-heat-on-facebook-group-administration/"><u>Amazon Accusations Focus Heat on Facebook Group Administration</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-new-personality-on-fb-editing-name-and-handle/"><u>Become a New Personality on FB: Editing Name and Handle</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151882486-navigate-new-ways-transporting-fb-stories-and-notebooks-effortlessly/"><u>Navigate New Ways: Transporting FB Stories & Notebooks Effortlessly</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-vivo-x100-pro-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Vivo X100 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-are-you-working-on-editing-a-video-and-youd-like-to-add-text-to-it-learn-the-various-ways-that-you-can-add-text-to-a-video/"><u>In 2024, Are You Working on Editing a Video and Youd Like to Add Text to It? Learn the Various Ways that You Can Add Text to a Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-networks-delving-into-the-digital-reality-of-fbs-metaverse/"><u>Beyond Social Networks: Delving Into the Digital Reality of FB's Metaverse</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/combining-images-for-an-engaging-picture-panorama-for-2024/"><u>Combining Images for an Engaging Picture Panorama for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/beats-and-bonds-what-might-be-coming-from-fb-and-spotifys-boombox/"><u>Beats and Bonds: What Might Be Coming From FB and SPOTIFY’s Boombox?</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-facebook-post-schedule-ideas/"><u>Best Facebook Post Schedule Ideas</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-figures-understanding-facebooks-real-impact/"><u>Beyond Figures: Understanding Facebook’s Real Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-access-to-different-accounts-on-facebook/"><u>Accelerated Access to Different Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-a-savvy-shopper-top-9-security-measures-for-facebook-sales/"><u>Be a Savvy Shopper: Top 9 Security Measures for Facebook Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/archiving-antics-concealing-status-updates-and-stories/"><u>Archiving Antics: Concealing Status Updates and Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-pioneering-facebook-platforms-for-team-driven-projects/"><u>8 Pioneering Facebook Platforms for Team-Driven Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-facebook-failed-its-users/"><u>5 Times Facebook Failed Its Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-messenger-no-social-media-required/"><u>Alternatives to Messenger: No Social Media Required</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-monetization-mastery-unleashing-earnings-from-your-online-content-for-2024/"><u>[Updated] Monetization Mastery  Unleashing Earnings From Your Online Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-approach-to-creating-engaging-facebook-events/"><u>A Comprehensive Approach to Creating Engaging Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/basketball-clubs-refuse-social-media-access/"><u>Basketball Clubs Refuse Social Media Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-portions-from-facebooks-725m-settlement-windfall/"><u>Accessing Portions From Facebook’s 725M Settlement Windfall</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-surface-scandals-evaluating-facebook-papers-objectively/"><u>Beyond Surface Scandals: Evaluating Facebook Papers Objectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-negative-effects-of-social-media-on-people-and-users/"><u>7 Negative Effects of Social Media on People and Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-reasons-you-should-be-worried-about-the-facebook-metaverse/"><u>3 Reasons You Should Be Worried About the Facebook Metaverse</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-spark-go-2024frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Spark Go (2024)FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-decoding-the-future-impact-of-facebooks-metaverse/"><u>Beyond Social Media: Decoding the Future Impact of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/5m-investment-in-journalists-focused-venture-by-global-social-media-leader/"><u>$5M Investment in Journalists-Focused Venture by Global Social Media Leader</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-unleash-your-creativity-top-4k-video-editing-software-for-2024/"><u>New Unleash Your Creativity Top 4K Video Editing Software for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exceptional-book-video-examples/"><u>In 2024, Exceptional Book Video Examples</u></a></li>
+<li><a href="https://facebook.techidaily.com/acknowledging-whole-groups-with-a-single-facebook-update/"><u>Acknowledging Whole Groups with a Single Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/activate-the-fortress-facebooks-personal-safety-toolkit/"><u>Activate the Fortress: Facebook's Personal Safety Toolkit</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-key-points-to-consider-when-navigating-tiktok-web-on-macos-for-2024/"><u>[Updated] Key Points to Consider When Navigating TikTok Web on macOS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-digital-detox-diary-my-journey-beyond-the-feeds/"><u>A Digital Detox Diary: My Journey Beyond the Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/behavioral-transformation-with-isbms-state-of-the-art-cbt-techniques/"><u>Behavioral Transformation with ISBM's State-of-the-Art CBT Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-essential-calendar-tools-to-plan-your-feeds/"><u>8 Essential Calendar Tools to Plan Your Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-system-for-invisible-message-pictures-on-messenger/"><u>Alert System for Invisible Message Pictures on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-reasons-why-a-facebook-page-is-better-than-a-personal-profile-for-branding/"><u>8 Reasons Why a Facebook Page Is Better Than a Personal Profile for Branding</u></a></li>
+</ul></div>

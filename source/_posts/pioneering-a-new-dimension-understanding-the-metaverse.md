@@ -1,7 +1,7 @@
 ---
 title: "Pioneering a New Dimension: Understanding the Metaverse"
-date: 2024-06-25T14:06:31.425Z
-updated: 2024-06-26T14:06:31.425Z
+date: 2024-07-12T09:53:43.665Z
+updated: 2024-07-13T09:53:43.665Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/ebbfd91fc57bf5ea9818d4e87d8cfd35544a71921
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept
+![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -47,7 +48,8 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse
+![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -69,7 +71,8 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors
+![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -80,7 +83,8 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet
+![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -105,3 +109,44 @@ Yet.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/what-is-unfollow-and-follow-on-facebook-and-when-to-use-it/"><u>What Is Unfollow and Follow on Facebook? (And When to Use It)</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-lively-interactions-preventing-comments-on-your-page/"><u>Stop Lively Interactions: Preventing Comments on Your Page</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-vivo-v29e-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unleash-your-youtube-channels-full-potential-with-profitable-trailers/"><u>2024 Approved  Unleash Your YouTube Channels' Full Potential with Profitable Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/suing-for-privacy-whatsapp-vs-indian-government-regulations/"><u>Suing for Privacy: WhatsApp vs Indian Government Regulations</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-iphone-13-pro-data-from-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 13 Pro Data From iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/profitable-tricks-for-monetizing-your-ig-and-fb-presence/"><u>Profitable Tricks for Monetizing Your IG & FB Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-sound-of-social-networking-project-boombox-by-fb-and-spotify/"><u>The Sound of Social Networking: Project Boombox by FB & SPOTIFY</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-triple-threat-of-metas-social-supremacy/"><u>The Triple Threat of Meta's Social Supremacy</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tactics-to-quiet-down-distractions-during-google-meets-for-2024/"><u>[New] Tactics to Quiet Down Distractions During Google Meets for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-the-verdict-fall-soon-facebooks-governance-on-trump-ban/"><u>Will the Verdict Fall Soon? Facebook's Governance on Trump Ban</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-best-video-combining-tools-easy-alternatives/"><u>New Best Video Combining Tools Easy Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/withholding-uninvited-network-suggestions-in-fb/"><u>Withholding Uninvited Network Suggestions in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-pathways-to-invest-in-facebooks-settlement-fund/"><u>Unveiling Pathways to Invest in Facebook's Settlement Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-tutorial-to-design-unique-youtube-thumbnails-for-2024/"><u>Step-by-Step Tutorial to Design Unique YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-mastering-itunes-video-capture-techniques/"><u>[Updated] 2024 Approved  Mastering iTunes Video Capture Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-enhance-accessibility-with-top-free-text-conversion-software-for-macs/"><u>In 2024, Enhance Accessibility with Top Free Text Conversion Software for Macs</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-flash-video-insights-guide/"><u>[New] In 2024, Flash Video Insights Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/image-full-screen-webpage/"><u>Image Full-Screen Webpage</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-itel-s23-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Itel S23 Device</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-backpedaling-through-imagery-an-insiders-guide-to-finding-originals-in-instagram/"><u>[New] In 2024, Backpedaling Through Imagery  An Insider's Guide to Finding Originals in Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-how-to-use-friendly-feedback-tools/"><u>Unlocking Secrets: How to Use Friendly Feedback Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-veil-of-virtual-vaults-downloading-fb-hidden-videos/"><u>Unveiling the Veil of Virtual Vaults: Downloading FB Hidden Videos</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-breaking-down-the-animation-process-a-movie-maker-approach/"><u>2024 Approved  Breaking Down the Animation Process  A Movie Maker Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-share-of-facebooks-massive-725m-settlement-fund/"><u>Seize Share of Facebook's Massive $725M Settlement Fund</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-role-in-effective-event-coordination/"><u>Unveiling Facebook's Role in Effective Event Coordination</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-live-streaming-software-vs-hardware-which-is-better/"><u>[Updated] Live Streaming Software Vs Hardware  Which Is Better</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-the-steps-to-extract-fb-media-securely/"><u>Unravel the Steps to Extract Fb Media Securely</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-securing-your-online-discussions/"><u>2024 Approved  Securing Your Online Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-tension-with-social-media-networks/"><u>Unraveling the Tension with Social Media Networks</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-2-ways-to-monitor-apple-iphone-7-activity-drfone-by-drfone-virtual-ios/"><u>In 2024, 2 Ways to Monitor Apple iPhone 7 Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-into-meta-facebooks-strategic-rebranding-move/"><u>Transforming Into Meta: Facebook's Strategic Rebranding Move</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
+</ul></div>

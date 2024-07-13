@@ -1,7 +1,7 @@
 ---
 title: "Bridging Communities: The 7 Positive Power of Social Sites"
-date: 2024-06-25T13:58:52.065Z
-updated: 2024-06-26T13:58:52.065Z
+date: 2024-07-12T09:45:11.916Z
+updated: 2024-07-13T09:45:11.916Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-## 1\. Social Media Makes It Easier to Make Friends ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
+## 1\. Social Media Makes It Easier to Make Friends
+![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -31,7 +32,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media can help you make and keep friends.**
 
-## 2\. Social Media Fosters Empathy ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
+## 2\. Social Media Fosters Empathy
+![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media can act as a kind of group therapy session.**
 
-## 3\. Social Media Allows for Speedy Communication ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
+## 3\. Social Media Allows for Speedy Communication
+![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
@@ -57,7 +60,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  **Social media allows you to live a life unhindered by small talk.**
 
-## 4\. Social Media Makes the World Seem Smaller ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
+## 4\. Social Media Makes the World Seem Smaller
+![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -69,7 +73,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
 **Social media has made the world a much smaller place.**
 
-## 5\. Social Media Helps You Build Relationships ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
+## 5\. Social Media Helps You Build Relationships
+![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
@@ -81,7 +86,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  **Social media can help foster friendships and more besides.**
 
-## 6\. Social Media Helps News Travel Faster ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+## 6\. Social Media Helps News Travel Faster
+![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -95,7 +101,8 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-## 7\. Social Media Helps You Find Common Ground ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
+## 7\. Social Media Helps You Find Common Ground
+![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -128,3 +135,67 @@ thumbnail: https://thmb.techidaily.com/0791bf71ffcd0caa089c5eb4acb0659b94a163050
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/beyond-rumor-and-fiction-understanding-the-true-essence-of-fb-papers/"><u>Beyond Rumor and Fiction: Understanding the True Essence of FB Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-facebooks-watch-history-for-a-clean-start/"><u>Banish Facebook's Watch History for a Clean Start</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151253987-unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/actions-to-take-when-facing-a-frozen-facebook-account/"><u>Actions to Take When Facing a Frozen Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-swipe-to-the-future-understanding-facebooks-new-dating-landscape/"><u>A Swipe to the Future: Understanding Facebook's New Dating Landscape</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-grab-speech-file-and-review/"><u>[New] Grab Speech File & Review</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-preserving-past-a-guide-to-digitally-archiving-faded-prints/"><u>[Updated] Preserving Past  A Guide to Digitally Archiving Faded Prints</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-your-news-source-what-does-fb-want-to-know/"><u>A Closer Look at Your News Source: What Does FB Want to Know?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/navigating-the-world-of-facebook-analytics-for-2024/"><u>Navigating the World of Facebook Analytics for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-plan-to-transform-your-online-biography/"><u>A Step-by-Step Plan to Transform Your Online Biography</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-platforms-catering-to-the-elderly-social-scene/"><u>Best Platforms Catering to the Elderly Social Scene</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-stealthy-spectator-of-online-tales/"><u>In 2024, Stealthy Spectator of Online Tales</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-pushing-boundaries-top-15-revolutionary-songs-in-rock/"><u>Updated In 2024, Pushing Boundaries Top 15 Revolutionary Songs in Rock</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-next-level-vfx-gear-for-the-eco-savvy/"><u>[New] In 2024, Next-Level VFX Gear for the Eco-Savvy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>[New] In 2024, Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/insight-dji-paper-bird-goggles-functionality-for-2024/"><u>Insight  DJI Paper Bird Goggles Functionality for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-consequences-before-you-unfollow-everyone/"><u>Assessing Consequences Before You Unfollow Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-fb-push-notifications-in-a-flash/"><u>Banishing FB Push Notifications in a Flash</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerate-success-leveraging-critical-business-metrics/"><u>Accelerate Success: Leveraging Critical Business Metrics</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-ideal-screen-recorder-software-for-google-meet-participants/"><u>[New] In 2024, Ideal Screen Recorder Software for Google Meet Participants</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-shield-understanding-secure-fb/"><u>Behind the Shield: Understanding Secure FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-innovative-apps-to-enhance-social-media-dispatch-timing/"><u>5 Innovative Apps to Enhance Social Media Dispatch Timing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-breakdown-of-vivacuts-new-tools-and-features-for-2024/"><u>Step-by-Step Breakdown of VivaCut's New Tools and Features for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-ideal-planning-platforms-for-content-release-management/"><u>7 Ideal Planning Platforms for Content Release Management</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-tecno-spark-go-2023-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Tecno Spark Go (2023) Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-authenticity-of-security-email-at-facebookmailcom-for-fb-safety/"><u>Analyzing the Authenticity of Security Email at facebookmail.com for FB Safety</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-new-waters-personalbusiness-youtube-channels-made-mobile-ready/"><u>[New] 2024 Approved  Navigating New Waters  Personal/Business YouTube Channels Made Mobile-Ready</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153547452-commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs.</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/exploring-best-4k-video-converter-apps-for-mp3-output/"><u>Exploring Best 4K Video Converter Apps for MP3 Output</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/assemble-an-impactful-visual-saga-with-montage-skills/"><u>Assemble an Impactful Visual Saga with Montage Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-boost-engagement-through-a-facebook-circle/"><u>6 Ways to Boost Engagement Through a Facebook Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-novices-guide-to-changing-fb-photo/"><u>A Novice's Guide to Changing FB Photo</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-the-ultimate-guide-to-creating-stop-motion-videos-for-instagram/"><u>New In 2024, The Ultimate Guide to Creating Stop Motion Videos for Instagram</u></a></li>
+<li><a href="https://driver-install.techidaily.com/realign-usb-uart-mismatches/"><u>Realign USB-UART Mismatches</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-polishing-up-your-past-looking-back-in-style/"><u>[New] In 2024, Polishing Up Your Past  Looking Back in Style</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-crafting-audio-magic-a-windows-10-sound-journey/"><u>2024 Approved  Crafting Audio Magic  A Windows 10 Sound Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-managing-connected-websites-and-apps-on-fb/"><u>Best Practices in Managing Connected Websites & Apps on FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-optimal-recorders-top-10-tools-for-webinars/"><u>[Updated] Optimal Recorders  Top 10 Tools for Webinars</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-vivo-s17t-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Vivo S17t via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-unlocking-the-secrets-to-effective-screen-capturing-with-apeaksoft/"><u>[Updated] In 2024, Unlocking the Secrets to Effective Screen Capturing with Apeaksoft</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-persuasive-arguments-for-keeping-facebook-in-your-life/"><u>6 Persuasive Arguments for Keeping Facebook in Your Life</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-a-lost-oneplus-ace-2-for-free-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track a Lost OnePlus Ace 2 for Free? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-top-social-planners-for-timely-posting/"><u>7 Top Social Planners for Timely Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-claims-in-court-against-10000-fb-groups-admin/"><u>Amazon Claims in Court Against 10,000 FB Groups Admin</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-oneplus-11-5g-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for OnePlus 11 5G Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-things-to-know-about-metas-new-privacy-policy/"><u>4 Things to Know About Meta's New Privacy Policy</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-privacy-disabling-windows-trackers/"><u>Unlock Privacy: Disabling Windows Trackers</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-fb-leveraging-different-messengers/"><u>Alternatives to FB: Leveraging Different Messengers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-networking-galore-places-for-youtube-affiliate-marketing/"><u>In 2024, Networking Galore  Places for YouTube Affiliate Marketing</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-vivo-s17t-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Vivo S17t Location | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/battle-against-facebooks-covert-watchers/"><u>Battle Against Facebook’s Covert Watchers</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-did-facebook-expose-our-groups-numbers/"><u>Alert! Did Facebook Expose Our Group's Numbers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-application-alternatives-quick-android-plays/"><u>Agile Application Alternatives: Quick Android Plays</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-useful-ways-to-discover-new-facebook-groups/"><u>4 Useful Ways to Discover New Facebook Groups</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-artisans-guide-to-professional-level-vr-captures-for-2024/"><u>The Artisan's Guide to Professional-Level VR Captures for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-vivo-s18-pro-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Vivo S18 Pro?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tips-for-gaining-attention-via-snapchat-star/"><u>In 2024, Tips for Gaining Attention via Snapchat Star</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/from-zero-to-hero-mastering-xml-files-in-fcpx/"><u>From Zero to Hero Mastering XML Files in FCPX</u></a></li>
+</ul></div>

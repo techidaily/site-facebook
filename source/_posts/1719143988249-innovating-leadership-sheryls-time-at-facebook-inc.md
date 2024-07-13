@@ -1,7 +1,7 @@
 ---
 title: "Innovating Leadership: Sheryl’s Time at Facebook Inc."
-date: 2024-06-25T14:50:35.031Z
-updated: 2024-06-26T14:50:35.031Z
+date: 2024-07-12T10:43:37.185Z
+updated: 2024-07-13T10:43:37.185Z
 tags:
   - facebook
 categories:
@@ -31,7 +31,8 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
-## A Brief History of Sheryl Sandberg's Role at Facebook ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
+## A Brief History of Sheryl Sandberg's Role at Facebook
+![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
 
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
@@ -55,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
-## Why Sheryl Sandberg Is Leaving Meta ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## Why Sheryl Sandberg Is Leaving Meta
+![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
@@ -86,3 +88,60 @@ thumbnail: https://thmb.techidaily.com/4526e24333ba977c51600360964ccfdbc4ba0f9b4
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pull-the-right-strings-increasing-likes-on-unboxed-tiktoks/"><u>2024 Approved  Pull the Right Strings  Increasing Likes on Unboxed TikToks</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-oppo-find-n3-easily-by-drfone-android/"><u>How To Unlock a Oppo Find N3 Easily?</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-did-facebook-expose-our-groups-numbers/"><u>Alert! Did Facebook Expose Our Group's Numbers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-million-donation-boosts-worldwide-covid-19-fight/"><u>$5 Million Donation Boosts Worldwide COVID-19 Fight</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimal-websites-to-increase-youtube-views/"><u>In 2024, Optimal Websites to Increase YouTube Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-alert-disarm-these-14-common-social-media-swindles/"><u>Be Alert! Disarm These 14 Common Social Media Swindles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-boost-your-images-advanced-online-photoshop-cropping-tips/"><u>In 2024, Boost Your Images  Advanced Online Photoshop Cropping Tips</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-xiaomi-redmi-k70e-frp-by-drfone-android/"><u>The Updated Method to Bypass Xiaomi Redmi K70E FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arena-verified-metas-vs-blue-ticked-titans-of-twittersphere/"><u>Authenticity Arena: Verified Metas Vs. Blue Ticked Titans of Twittersphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-cost-benefit-of-meta-verified-users/"><u>Analyzing the Cost-Benefit of Meta Verified Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-social-media-the-rise-and-reality-of-facebooks-metaverse/"><u>Beyond Social Media: The Rise and Reality of Facebook’s Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-consequences-before-you-unfollow-everyone/"><u>Assessing Consequences Before You Unfollow Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-fake-accounts-tips-for-safer-social-networking/"><u>Avoid Fake Accounts: Tips for Safer Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-revival-of-second-life-as-a-metaverse-contributor/"><u>Assessing the Revival of Second Life as a Metaverse Contributor</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticating-fbs-safety-mail-service-securityfb-verification/"><u>Authenticating FB's Safety Mail Service: Security@fb Verification</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/call-recorder-iphone-captures-all-calls-for-2024/"><u>Call Recorder  IPhone Captures All Calls for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-group-engagement-through-efficient-channels/"><u>Amplifying Group Engagement Through Efficient Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-high-status-with-meta-purchase/"><u>Advance to High-Status with Meta Purchase</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free-in-2024/"><u>Unleash Creativity  Unlimited Samples of 50 YouTube Banners for Free, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-your-little-ones-online-presence-in-messenger/"><u>Adjusting Your Little One’s Online Presence in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/auto-caption-generation-boost-engagement-in-your-fb-gallery/"><u>Auto-Caption Generation: Boost Engagement in Your FB Gallery</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-vivo-y78plus-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Vivo Y78+</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-reasoning-why-multiple-profiles-are-accepted-under-a-single-account-id/"><u>Analyzing the Reasoning: Why Multiple Profiles Are Accepted Under a Single Account ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-image-alt-text/"><u>Best Practices for Facebook Image Alt-Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/augmented-reality-meets-text-messaging-on-fb-messenger/"><u>Augmented Reality Meets Text Messaging on FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-claims-in-court-against-10000-fb-groups-admin/"><u>Amazon Claims in Court Against 10,000 FB Groups Admin</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-your-companion-guide-top-10-audio-transcription-software-for-all-budgets/"><u>In 2024, Your Companion Guide Top 10 Audio-Transcription Software For All Budgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/ai-supremacy-on-the-horizon-metas-initiative/"><u>AI Supremacy on the Horizon - Meta's Initiative</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-recorder-royalty-best-premium-recording-software-on-pc-and-macos-free/"><u>[New] 2024 Approved  Recorder Royalty  Best Premium Recording Software on PC & MacOS FREE</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-leverage-the-power-of-live-streaming-strategies-for-facebook-dominance-for-2024/"><u>[New] Leverage the Power of Live Streaming  Strategies for Facebook Dominance for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151405205-facebooks-judicial-committee-prepares-to-rule-on-trump-exclusion/"><u>Facebook's Judicial Committee Prepares to Rule on Trump Exclusion.</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/cutting-edge-recording-win-11s-superior-camcorders-for-2024/"><u>Cutting-Edge Recording  Win 11'S Superior Camcorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-privacy-and-usefulness-facebook-apps-and-webs/"><u>Balancing Privacy and Usefulness: Facebook Apps & Webs</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151756035-social-security-boosted-facebooks-messenger-and-instagram-now-offering-encrypted-chats/"><u>Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153450268-cryptocurrency-and-sheep-zuckerbergs-surprising-pet-name/"><u>Cryptocurrency and Sheep? Zuckerberg’s Surprising Pet Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-useful-ways-to-discover-new-facebook-groups/"><u>4 Useful Ways to Discover New Facebook Groups</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-in-depth-review-of-splitcam-leading-camera-tech/"><u>In 2024, In-Depth Review of SplitCam  Leading Camera Tech?</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-methods-for-reacquiring-facebook-log-in-access/"><u>Alternative Methods for Reacquiring Facebook Log In Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-hidden-dangers-of-social-media-quizzes/"><u>Assessing the Hidden Dangers of Social Media Quizzes</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamline-your-videos-top-10-youtube-to-webm-converters-for-2024/"><u>Streamline Your Videos  Top 10 YouTube-to-WebM Converters for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-create-a-live-stream-on-youtube-with-the-best-webcams/"><u>In 2024, How to Create a Live Stream on YouTube With the Best Webcams</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-capturing-ps4-a-comprehensive-review-of-recording-options/"><u>[Updated] 2024 Approved  Capturing PS4  A Comprehensive Review of Recording Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjust-facebook-friend-views-privacy-control/"><u>Adjust Facebook Friend Views Privacy Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-and-facebook-charting-two-unrelated-futures/"><u>Apple and Facebook: Charting Two Unrelated Futures</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2023s-leading-vr-game-development-tools/"><u>2023'S Leading VR Game Development Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/agile-application-alternatives-quick-android-plays/"><u>Agile Application Alternatives: Quick Android Plays</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-platforms-catering-to-the-elderly-social-scene/"><u>Best Platforms Catering to the Elderly Social Scene</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-marketing-traps-on-facebook-simple-steps-to-follow/"><u>Avoiding Marketing Traps on Facebook: Simple Steps to Follow</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-unknown-users-on-your-computer-and-mailbox/"><u>Alert! Unknown Users on Your Computer and Mailbox</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-blending-iphone-videos-a-simple-guide/"><u>2024 Approved  Blending iPhone Videos  A Simple Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/randing-edge-design-strategies-for-game-changing-banners-for-2024/"><u>The Branding Edge  Design Strategies for Game-Changing Banners for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-facebook-games-a-camouflaged-threat-to-our-security/"><u>Are Facebook Games a Camouflaged Threat to Our Security?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-apple-iphone-12-is-off-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track You When Your Apple iPhone 12 is off? | Dr.fone</u></a></li>
+</ul></div>

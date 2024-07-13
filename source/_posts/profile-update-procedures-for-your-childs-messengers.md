@@ -1,7 +1,7 @@
 ---
 title: Profile Update Procedures for Your Child’s Messengers
-date: 2024-06-25T14:29:05.831Z
-updated: 2024-06-26T14:29:05.831Z
+date: 2024-07-12T10:19:20.788Z
+updated: 2024-07-13T10:19:20.788Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,8 @@ Close
 
 **Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture
+![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -87,7 +88,8 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -99,7 +101,8 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -157,3 +160,41 @@ Follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/command-control-over-comments-a-guide-for-social-media-users/"><u>Command Control Over Comments: A Guide for Social Media Users</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-uncovering-the-truth-about-vn-video-editor-pro-a-worthy-alternative-for-2024/"><u>Updated Uncovering the Truth About VN Video Editor Pro A Worthy Alternative for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Oppo A78? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-a-fragment-of-facebooks-725m-settlement-dollars/"><u>Accessing a Fragment of Facebook's 725M Settlement Dollars</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-claim-your-own-piece-from-facebooks-massive-settlement/"><u>How to Claim Your Own Piece From Facebook's Massive Settlement</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-prime-net-selections-personalized-alarm-rhythm-files/"><u>[New] Prime Net Selections  Personalized Alarm Rhythm Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-twitter-and-snapchat-key-players-in-jbs-vaccine-campaign/"><u>FB, Twitter & Snapchat: Key Players in JB's Vaccine Campaign</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-ignite-dreams-the-best-movies-to-energize-your-soul/"><u>[Updated] Ignite Dreams  The Best Movies to Energize Your Soul</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-innovative-approaches-to-keeping-your-snaps-connected-for-2024/"><u>[New] Innovative Approaches to Keeping Your Snaps Connected for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-deleted-and-found-again-streaming-yts-forgotten-videos-for-2024/"><u>[New] Deleted and Found Again  Streaming YT’s Forgotten Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-protocols-for-defeating-fb-account-intrusion/"><u>Emergency Protocols for Defeating FB Account Intrusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discourse-decoded-learn-the-top-30-abbreviations-in-social-media/"><u>Digital Discourse Decoded: Learn the Top 30 Abbreviations in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-hidden-online-connections-on-fb/"><u>Discovering Hidden Online Connections on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbs-secret-communication-security/"><u>Exploring FB's Secret Communication Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-as-a-corporate-communication-tool-explained/"><u>Facebook as a Corporate Communication Tool Explained</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-virtual-victory-the-leading-ladies-of-gaming/"><u>[New] Virtual Victory  The Leading Ladies of Gaming</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-the-best-free-web-integrated-daw-software-ranked-your-guide-for-2024/"><u>New The Best Free, Web-Integrated DAW Software Ranked - Your Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-tracking-you-heres-how-to-stop-it/"><u>Facebook Is Tracking You! Here's How to Stop It</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-preferred-destinations-for-zero-price-guitar-backdrop-images-and-song-selections/"><u>New Preferred Destinations for Zero-Price Guitar Backdrop Images and Song Selections</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-the-world-anywhere-facebooks-mobility-focused-portal/"><u>Experience the World Anywhere: Facebook's Mobility-Focused Portal</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/2024-approved-unlock-the-power-of-mp3-conversion-why-you-need-to-read-this-article/"><u>2024 Approved Unlock the Power of Mp3 Conversion Why You Need to Read This Article</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-respectful-exit-strategies-in-digital-spaces/"><u>Cultivating Respectful Exit Strategies in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-podcasts-2022-our-critical-and-creative-reviews/"><u>Best Podcasts 2022 - Our Critical and Creative Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-group-what-it-does-and-how-it-works/"><u>FB Oversight Group: What It Does and How It Works</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-experience-strategies-for-a-personalized-fb-space/"><u>Elevate Your Experience: Strategies for a Personalized FB Space</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-epochs-epic-journey-best-free-mmo-games-roundup-for-2024/"><u>[New] Epoch's Epic Journey  Best Free MMO Games Roundup for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-which-facebook-device-benefits-you-most/"><u>Deciphering Which Facebook Device Benefits You Most</u></a></li>
+<li><a href="https://techidaily.com/things-you-dont-know-about-oppo-a59-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Oppo A59 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-headlines-the-most-important-unspoken-tech-news/"><u>Beyond the Headlines: The Most Important Unspoken Tech News</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-friend-in-disguise-ending-fb-ties/"><u>A Friend in Disguise: Ending FB Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-image-sharing-the-future-of-fb-automatic-captions/"><u>Effortless Image Sharing: The Future of FB Automatic Captions</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/proedit-wizardry-harmonious-pc-video-and-sound-symphony/"><u>ProEdit Wizardry  Harmonious PC Video & Sound Symphony</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y17s-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y17s Phone without Google Account?</u></a></li>
+</ul></div>

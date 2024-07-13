@@ -1,0 +1,185 @@
+---
+title: "Confront the Click: Strategies for Quitting Facebook"
+date: 2024-07-12T11:08:55.961Z
+updated: 2024-07-13T11:08:55.961Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Confront the Click: Strategies for Quitting Facebook"
+excerpt: "This Article Describes Confront the Click: Strategies for Quitting Facebook"
+keywords: Quit Facebook Tactics,Leave Social Media Habits,Ditching Facebook Strategy,Exiting Facebook Routine,Breakup with FB Apps,Stop Facebook Usage,Ending FB Addiction
+thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca356425cc09b3b80d75840cf25d77.jpg
+---
+
+## Confront the Click: Strategies for Quitting Facebook
+
+ When we talk about breaks, most people confuse it with the conventional art of taking breaks from work or family, but some people also need to take a break from social media, at least for a while.
+
+ How can something designed for entertainment become frustrating? Believe it or not, apps like Facebook can be pretty addictive, which leads to people feeling unwanted burdens and stress. You could also just find that the platform has become tiresome.
+
+ The only solution is to take a break and leave Facebook for a while. Here is a guide to everything you need to know about taking a break from Facebook.
+
+## Temporarily Deactivating Your Facebook Account: How It Works
+
+ Deactivating a Facebook account means that it becomes inactive and unavailable for use. As opposed to deleting your account, deactivation is temporary so can be used to take a break from the platform.
+
+ During the deactivation process, Facebook requests an estimated time for when you wish to come back. Choose the time you have in mind, or leave it to manual reactivation. There is no limit to how often you deactivate and activate your Facebook account. Similarly, you can also keep it deactivated for as long as you wish. Your account won’t be re-activated unless you do it yourself.
+
+ Facebook also gives users the option to log out instead of complete deactivation, but you will receive email notifications, and people can find and tag you in Facebook content. This is not a recommended practice, especially for those wanting a break from Facebook. Users who plan to take a permanent break by account deletion can log back within 30 days to stop the process.
+
+ In addition, the following things happen when you deactivate your Facebook account...
+
+### No Visibility
+
+ Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
+
+ Once your account has been deactivated, the platform does not let others [tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+
+### No Notifications
+
+ If you deactivate your Facebook account, you won’t be receiving Facebook notifications anymore.
+
+ You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
+
+### Adjusted Messages and Comments
+
+ After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
+
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can [deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+
+## How to Deactivate Your Facebook Account
+
+ Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
+
+### Via Mobile
+
+ If you are using a mobile, follow this method to deactivate your Facebook account.
+
+![Go to Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Go-to-Settings-and-Privacy.JPG)
+
+![Personal and account information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-and-account-information.JPG)
+
+![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
+
+![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
+
+![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
+
+Close
+
+1. Open Facebook on your mobile browser.
+2. Tap**Menu** on the bottom right of the screen to open a list of features and settings offered by Facebook.
+3. Go to**Settings & Privacy** and then choose**Settings** .
+4. From**Account** , go to**Personal and account information** .
+5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
+
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between [deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+2. Tap**Continue to Account Deactivation** .
+3. Re-enter your Facebook password and press**Continue** .
+4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
+5. Facebook will ask you to take a break by logging out or deciding to deactivate. Scroll down to see the deactivation menu.
+6. Under**Reactivating Your Account** , choose the time when you wish to come back.
+7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
+8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
+
+**Download:** Facebook for [iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+
+### Via Desktop
+
+ To deactivate Facebook using a browser, open [Facebook](https://www.facebook.com/) and log in to your account.
+
+1. After logging in, you will be directed to your Facebook Home page.
+2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
+3. Click**Settings & Privacy** to open a new menu and select**Settings** .  
+![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
+4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
+![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
+5. Scroll down to**Deactivation and Deletion** and press**View** .
+
+1. In this section, you can deactivate or delete your account. Select the**Deactivate Account** option, and tap**Continue to Account Deactivation** .  
+![Deactivation and deletion of Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account-desktop.jpg)
+2. Enter your password and tap**Continue** .
+3. Choose a reason why you want to deactivate your account. Facebook also offers the option to**Transfer Your Information** and**Reason for Leaving** .  
+![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
+4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
+5. Select**Deactivate** , and you’ll be logged out of Facebook.  
+![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
+
+ You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
+
+## How to Reactivate Your Facebook Account
+
+ After a while, you might feel relaxed enough to resume your activities on Facebook. Users who deactivate their Facebook account have the option to reactivate it.
+
+ You will get all your data and messages back on Facebook. Reactivating your Facebook account is quite simple. It will automatically reactivate at the given time you select while deactivating your account.
+
+ You can also log back in whenever you feel like it. Accounts that have been put for permanent deletion can be restored as well if the person logs in before the period is over.
+
+## Give Your Mind a Break by Deactivating Facebook
+
+ Your experience on Facebook can be a bit too engaging and time-consuming. You might need to take a break from your intense browsing sessions and just relax.
+
+ Deactivating your Facebook account is a great way to avoid distracting notifications. You can deactivate your Facebook account from your mobile and desktop.
+
+ There is no limit to how many times you deactivate your account. Simply set your desired account reactivation time, or come back whenever you want.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/chasing-success-fb-commits-5m-to-challenge-substacks-journalist-community/"><u>Chasing Success: FB Commits $5M to Challenge Substack’s Journalist Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-past-youtube-videos-evaporate/"><u>Can Past YouTube Videos Evaporate?</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-productivity-and-peace-using-facebooks-reminder-feature/"><u>Boost Productivity and Peace Using Facebook’s Reminder Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-instagrams-influence/"><u>Breaking Free From Instagram's Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-tips-to-enhance-security-with-2fa-in-popular-e-mail-services/"><u>Comprehensive Tips to Enhance Security with 2FA in Popular E-Mail Services</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-mastering-keywords-the-best-7-no-cost-youtube-taggers/"><u>[New] Mastering Keywords  The Best 7 No-Cost Youtube Taggers</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivitys-catch-understanding-social-media-risks/"><u>Connectivity's Catch: Understanding Social Media Risks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/innovative-screenshot-and-video-tools-top-8-smartphone-essentials/"><u>Innovative Screenshot & Video Tools – Top 8 Smartphone Essentials</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-on-apple-iphone-6-plus-by-drfone-ios/"><u>How To Remove the Two Factor Authentication On Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-t2-pro-5g-by-fonelab-android-recover-data/"><u>How to recover lost data from T2 Pro 5G?</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-digital-footsteps-an-in-depth-look-at-every-fb-move-youve-made/"><u>Charting Digital Footsteps: An In-Depth Look at Every FB Move You've Made</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-content-for-success-across-diverse-fb-groups/"><u>Crafting Content for Success Across Diverse FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprinting-your-social-strategy-with-effective-group-formation-fb/"><u>Blueprinting Your Social Strategy with Effective Group Formation (FB)</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-best-10-mind-blowing-video-collage-maker-for-pc/"><u>New Best 10 Mind-Blowing Video Collage Maker for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-fb-profile-a-guide-to-designing-with-your-avatar/"><u>Crafting Your FB Profile: A Guide to Designing With Your Avatar</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-in-depth-guide-to-installing-microsofts-movie-maker/"><u>[Updated] In-Depth Guide to Installing Microsoft's Movie Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-engaging-fb-polls-for-pages-and-groups/"><u>Building Engaging FB Polls for Pages & Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/censorship-dispute-trumps-lawsuit-against-major-platforms/"><u>Censorship Dispute: Trump's Lawsuit Against Major Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-path-for-artists-to-monetize-their-songs-via-fb/"><u>Charting a Path for Artists to Monetize Their Songs via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-methods-for-cultivating-collaborative-communities-fb/"><u>Constructive Methods for Cultivating Collaborative Communities (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-free-halt-facebooks-invasion-tactics/"><u>Break Free: Halt Facebook’s Invasion Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-embrace-new-ad-formats-on-fb-and-instagram/"><u>Brands Embrace New Ad Formats on FB & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-the-social-cord-unlinking-insta-and-fb/"><u>Cutting the Social Cord: Unlinking Insta & FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossover-creation-facebooks-new-joint-venture-with-spotify/"><u>Crossover Creation: Facebook's New Joint Venture with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/constructive-habits-for-reducing-online-social-engagement/"><u>Constructive Habits for Reducing Online Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-distances-leveraging-your-facebook-portal-tvs-capabilities/"><u>Bridging Distances: Leveraging Your Facebook Portal TV's Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gadgets-smartphone-and-tv-linkup/"><u>Bridging Gadgets - Smartphone and TV Linkup</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-guide-to-monitoring-your-digital-activity-on-fb/"><u>Comprehensive Guide to Monitoring Your Digital Activity on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/clandestine-companions-on-facebook/"><u>Clandestine Companions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-beats-with-likes-whats-spinning-in-boombox/"><u>Blending Beats with Likes: What's Spinning in Boombox?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-exclusive-selection-of-fastest-screen-capture-apps-for-2024/"><u>[Updated] Exclusive Selection of Fastest Screen Capture Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-new-contact-suggestions-in-fb/"><u>Blocking New Contact Suggestions in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-we-trust-our-devices-not-to-use-us-for-profits/"><u>Can We Trust Our Devices Not to Use Us for Profits?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-marketers-best-friend-20-words-that-work-wonders/"><u>[Updated] The Marketer's Best Friend - 20 Words That Work Wonders</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/free-and-paid-gaming-intro-makers-for-windows-and-mac-a-comprehensive-list/"><u>Free and Paid Gaming Intro Makers for Windows and Mac A Comprehensive List</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-unforgettable-fb-life-story/"><u>Crafting Unforgettable FB Life Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-trend-300-oculus-purchases-breached-accounts/"><u>Cybersecurity Trend: $300 Oculus Purchases, Breached Accounts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-blueprint-for-big-screens-the-art-of-filmmaking/"><u>[New] Blueprint for Big Screens  The Art of Filmmaking</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Beware the Web: Discerning Social Media Pitfalls"
-date: 2024-06-25T14:39:05.864Z
-updated: 2024-06-26T14:39:05.864Z
+date: 2024-07-12T10:30:40.363Z
+updated: 2024-07-13T10:30:40.363Z
 tags:
   - facebook
 categories:
@@ -35,7 +35,8 @@ thumbnail: https://thmb.techidaily.com/ad574335e648a7deda4261a3d60c02e5050876ad9
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
-## 2\. Cyberbullying ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
+## 2\. Cyberbullying
+![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
@@ -55,7 +56,8 @@ thumbnail: https://thmb.techidaily.com/ad574335e648a7deda4261a3d60c02e5050876ad9
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-## 4\. Unrealistic Expectations ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+## 4\. Unrealistic Expectations
+![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -91,7 +93,8 @@ thumbnail: https://thmb.techidaily.com/ad574335e648a7deda4261a3d60c02e5050876ad9
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-## 7\. General Addiction ![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
+## 7\. General Addiction
+![Couple hugging while looking at their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/social-media-addiction-excessive-compulsive.jpg)
 
  Social media can be more addictive than cigarettes and alcohol. It has a powerful draw for many people that leads to them checking it all the time without even thinking about it.
 
@@ -124,3 +127,46 @@ thumbnail: https://thmb.techidaily.com/ad574335e648a7deda4261a3d60c02e5050876ad9
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-nightmare-all-social-media-downed/"><u>Networking Nightmare: All Social Media Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-transform-the-chatbot-landscape-entirely/"><u>Can MetaAI Transform the Chatbot Landscape Entirely?</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-milestone-facebook-messengers-security-enhancement/"><u>E2EE Milestone: Facebook Messenger's Security Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-of-emoji-and-icon-usage-on-facebook-messenger/"><u>In-Depth Analysis of Emoji & Icon Usage on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/postponement-of-whatsapps-new-privacy-agreement-deadline/"><u>Postponement of WhatsApp's New Privacy Agreement Deadline</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-comparing-mp4-recorders-the-latest-edition/"><u>[New] 2024 Approved  Comparing MP4 Recorders - The Latest Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-technological-progress-spotlight-on-the-top-4-underserved-stories/"><u>Overlooked Technological Progress: Spotlight on the Top 4 Underserved Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinpointing-exact-time-i-joined-facebook/"><u>Pinpointing Exact Time I Joined Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-metas-verified-validity/"><u>Navigating Through Meta's Verified Validity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instamixer-uniting-android-and-ios-photo-sessions/"><u>[New] 2024 Approved  InstaMixer  Uniting Android & iOS Photo Sessions</u></a></li>
+<li><a href="https://facebook.techidaily.com/profitable-tricks-for-monetizing-your-ig-and-fb-presence/"><u>Profitable Tricks for Monetizing Your IG & FB Presence</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-becoming-a-youtube-guru-essential-production-know-how/"><u>[New] Becoming a YouTube Guru  Essential Production Know-How</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-identity-new-space-modify-your-fb-profile-url/"><u>New Identity, New Space: Modify Your FB Profile URL</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-read-this-guide-to-learn-how-to-split-large-videos-in-windows-live-movie-maker-for-sharing-on-youtube-some-other-video-editing-tips-are-also-provided-fo/"><u>New Read This Guide to Learn How to Split Large Videos in Windows Live Movie Maker for Sharing on YouTube. Some Other Video Editing Tips Are Also Provided for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-networks-into-our-daily-shopping-experience/"><u>Bringing Social Networks Into Our Daily Shopping Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-measures-the-case-of-the-expensive-tech-upgrade/"><u>Social Media Security Measures: The Case of the Expensive Tech Upgrade</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/4-ways-to-transfer-music-from-apple-iphone-11-pro-to-ipod-touch-drfone-by-drfone-transfer-from-ios/"><u>4 Ways to Transfer Music from Apple iPhone 11 Pro to iPod touch | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-job-announcements/"><u>Best Practices for FB Job Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/seize-share-of-facebooks-massive-725m-settlement-fund/"><u>Seize Share of Facebook's Massive $725M Settlement Fund</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-preserving-every-moment-of-your-switch-gaming/"><u>[Updated] 2024 Approved  Preserving Every Moment of Your Switch Gaming</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-s24-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy S24 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-from-screens-to-gifs-the-art-of-converting-vimeo-footage-for-2024/"><u>[Updated] From Screens to Gifs  The Art of Converting Vimeo Footage for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-gathering-on-whatsapp-hit-by-germanys-order/"><u>Facebook's Data Gathering on WhatsApp Hit by Germany's Order</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-time-for-social-media-impact/"><u>Leveraging Time for Social Media Impact</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-difference-between-srgb-and-rgb/"><u>The Difference Between Srgb & Rgb</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-policy-insight-hub-a-step-towards-greater-clarity/"><u>Facebook's Policy Insight Hub: A Step Towards Greater Clarity</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-art-of-gesture-tracking/"><u>In 2024, Mastering the Art of Gesture Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-our-networked-world-with-six-key-advantages-of-facebook/"><u>Navigating Our Networked World with Six Key Advantages of Facebook</u></a></li>
+</ul></div>

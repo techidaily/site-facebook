@@ -1,7 +1,7 @@
 ---
 title: "Unfolding Digital Horizons: What Is the Metaverse?"
-date: 2024-06-25T14:46:22.595Z
-updated: 2024-06-26T14:46:22.595Z
+date: 2024-07-12T10:38:52.658Z
+updated: 2024-07-13T10:38:52.658Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/bd9bfd190306deb90b91d858667c2c41b78982227
 
 So, what is the metaverse?
 
-## Etymology and Origin of the Term "Metaverse" and Its Concept ![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
+## Etymology and Origin of the Term "Metaverse" and Its Concept
+![Laptop displaying matrix like characters](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Laptop-with-matrix-like-characters.jpg)
 
  The word “metaverse” was created by putting together the Greek prefix “meta,” which means beyond, and the stem “verse,” a backformation from the word “universe.” The term first appeared in Snow Crash, a science fiction novel by Neal Stephenson, in 1992.
 
@@ -47,7 +48,8 @@ Yet.
 
  Read More:[The Metaverse Won't be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
 
-### Internet vs. Metaverse ![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
+### Internet vs. Metaverse
+![Woman using AR](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Woman-using-AR.jpg)
 
  From the beginning of the article, we’ve said that the term refers to a hypothetical future version of the internet. But, just as Zuckerberg suggests, we should think of it as the successor to mobile internet.
 
@@ -69,7 +71,8 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
-### The Metaverse Precursors ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
+### The Metaverse Precursors
+![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
  From the moment the internet became what we know it to be today, there have been attempts at creating this “virtual world” for which the metaverse is famous. Some of the most remarkable attempts are:
 
@@ -80,7 +83,8 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
-## The Metaverse Is the Future of the Internet ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
+## The Metaverse Is the Future of the Internet
+![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
  Science fiction writers can produce ideas that can seem far-fetched. Even so, it’s undeniable that they have predicted great advancements in technology long before they happened.
 
@@ -105,3 +109,42 @@ Yet.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/community-strengthened-by-7-social-innovations/"><u>Community Strengthened by 7 Social Innovations</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-top-30-anime-inspired-videos-reshaping-online-culture/"><u>[New] Top 30 Anime-Inspired Videos Reshaping Online Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-targeted-fb-ad-sightings/"><u>Explanation for Targeted FB Ad Sightings?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/ideal-iphoneandroid-faceshaping-software-for-2024/"><u>Ideal iPhone/Android Faceshaping Software for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-ultimate-list-of-popular-booktok-picks-for-your-reading-spree/"><u>2024 Approved  The Ultimate List of Popular BookTok Picks for Your Reading Spree</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-itop-reviewed-leading-pc-screen-recorders-face-off-for-2024/"><u>[New] ITop Reviewed  Leading PC Screen Recorders Face Off for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-transformed-by-sheryl-sandbergs-leadership/"><u>Facebook Transformed by Sheryl Sandberg’s Leadership</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-mastering-audio-visual-integration-how-to-add-audio-to-video-using-premiere-pro/"><u>Updated 2024 Approved Mastering Audio-Visual Integration How to Add Audio to Video Using Premiere Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-privacy-with-a-new-phrase/"><u>Enhancing Your Facebook Privacy with a New Phrase</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-after-death-managing-family-members-profiles/"><u>Digital Footprint After Death: Managing Family Members' Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-shadowing-on-your-profile/"><u>Demystifying the Shadowing on Your Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-loses-ground-to-tiktoks-surging-userbase/"><u>Facebook Loses Ground to TikTok's Surging Userbase</u></a></li>
+<li><a href="https://facebook.techidaily.com/ever-wondered-about-your-favorite-app-down-heres-why/"><u>Ever Wondered About Your Favorite App Down? Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrypting-the-secrets-of-social-media-invisibility/"><u>Decrypting the Secrets of Social Media Invisibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-potential-reasons-behind-facebooks-new-name/"><u>Exploring Potential Reasons Behind Facebook's New Name</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-8-best-wedding-videos-on-youtube-and-vimeo/"><u>2024 Approved  8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-under-scrutiny-new-anti-monopoly-laws-explained/"><u>Big Tech Under Scrutiny: New Anti-Monopoly Laws Explained</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-assessing-the-dominance-of-splitcam-recording/"><u>2024 Approved  Assessing the Dominance of SplitCam Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-networking-identity-codes-fb-vs-unames/"><u>Deciphering Social Networking Identity Codes: FB vs UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-methods-to-simplify-and-purge-your-feed/"><u>5 Methods to Simplify and Purge Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-blog-anonymity-persist/"><u>Does Blog Anonymity Persist?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/apple-iphone-12-mini-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 12 mini Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-brother-business-profit-from-peering/"><u>Big Brother Business: Profit From Peering</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-8-types-of-explainer-videos-with-best-examples-for-2024/"><u>Updated 8 Types of Explainer Videos with Best Examples for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/breeze-and-boost-rapid-android-app-surges/"><u>Breeze and Boost: Rapid Android App Surges</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-the-course-of-my-virtual-journey-starts-with-facebook/"><u>Charting the Course of My Virtual Journey Starts with Facebook</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/2024-approved-the-top-free-wmv-video-assembly-software/"><u>2024 Approved The Top Free WMV Video Assembly Software</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unveiling-facebooks-micro-video-blueprint/"><u>[New] 2024 Approved  Unveiling Facebook's Micro-Video Blueprint</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-honor-100-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Honor 100 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-interactive-online-communities-on-facebook/"><u>Building Interactive Online Communities on Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-vivo-y100i-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Vivo Y100i?</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-marketing-stands-tall-with-a-facebook-company-page-8-core-advantages/"><u>Why Marketing Stands Tall with a Facebook Company Page - 8 Core Advantages</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-behind-the-scenes-with-lexis-audio-editor-expert-reviews-and-practical-walkthroughs/"><u>New In 2024, Behind the Scenes with Lexis Audio Editor Expert Reviews and Practical Walkthroughs</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Pocketing Profits From People's Pages
-date: 2024-06-25T13:53:53.025Z
-updated: 2024-06-26T13:53:53.025Z
+date: 2024-07-12T09:39:34.535Z
+updated: 2024-07-13T09:39:34.535Z
 tags:
   - facebook
 categories:
@@ -19,7 +19,8 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
 
  Most social media networks make money through advertising to you. There are other methods, like raising finance through investment or premium membership schemes. We're going to look at all the ways that social media companies make money.
 
-## 1\. Venture Capital ![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
+## 1\. Venture Capital
+![plant growing from glass full of money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/plant-growing-from-glass-full-of-money.jpg)
 
  Venture capital is a form of private financing and it's how a lot of social media companies get their start.
 
@@ -27,7 +28,8 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
-## 2\. Advertising ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
+## 2\. Advertising
+![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
 
  The biggest way that social networks make money is through advertising. There's a reason why the sites are designed to be addicting. The more you look, the more advertising you're exposed to.
 
@@ -39,7 +41,8 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
-## 3\. User Data ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
+## 3\. User Data
+![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
@@ -51,7 +54,8 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
-## 4\. Premium Memberships ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
+## 4\. Premium Memberships
+![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
 
@@ -61,7 +65,8 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
-## 5\. Transaction Fees and Virtual Products ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
+## 5\. Transaction Fees and Virtual Products
+![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
@@ -100,3 +105,37 @@ thumbnail: https://thmb.techidaily.com/c40243a18120050792e9b2a35c08e8c187a7242ae
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/facebooks-resilience-unveiling-its-longevity-strategy/"><u>Facebook's Resilience: Unveiling Its Longevity Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-barriers-sharing-content-seamlessly-on-fb-groups/"><u>Breaking Barriers: Sharing Content Seamlessly on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-personal-brand-on-social-media/"><u>Elevating Personal Brand on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-hidden-messages-from-social-media-archives/"><u>Dissecting the Hidden Messages From Social Media Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-commanding-circle/"><u>Facebook's Commanding Circle</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-next-big-thing-10-games-that-inspire-gta-v-for-2024/"><u>[New] Next Big Thing  10 Games That Inspire GTA V for 2024</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>New 2024 Approved How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-blacked-out-interface-for-facebook-use/"><u>Enabling Blacked-Out Interface for Facebook Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-spot-sharing-on-facebook-chatrooms/"><u>Effortless Spot Sharing on Facebook Chatrooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disclaimer-know-what-to-share-what-not-to-on-social/"><u>Digital Disclaimer: Know What to Share, What Not to on Social</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/noise-free-video-chats-with-skype/"><u>Noise-Free Video Chats with Skype</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-spotify-interface-tips-for-maximum-convenience/"><u>Facebook-Spotify Interface Tips for Maximum Convenience</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-security-101-why-avoid-mystery-friends/"><u>Social Network Security 101: Why Avoid Mystery Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-coalition-evaluating-the-leading-20-social-networks/"><u>Connectivity Coalition: Evaluating the Leading 20 Social Networks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-dynamic-duo-enhancing-fb-live-with-monitor-sharing-capabilities/"><u>[Updated] Dynamic Duo  Enhancing Fb Live with Monitor Sharing Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/chatting-with-flair-the-power-of-textual-variation/"><u>Chatting with Flair: The Power of Textual Variation</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-13-mini-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 13 mini</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-revolutionizes-oversight-capabilities-for-communities/"><u>Facebook Revolutionizes Oversight Capabilities for Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-visual-images-into-stylistic-textual-reproduction-with-ai/"><u>Converting Visual Images Into Stylistic Textual Reproduction with AI</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-understanding-your-place-in-youtube-earnings/"><u>2024 Approved  Understanding Your Place in YouTube Earnings</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-a-poll-on-facebook-in-pages-groups-and-stories/"><u>How to Create a Poll on Facebook (in Pages, Groups, and Stories)</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-iphone-8-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass iPhone 8 Activation Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-job-prospects-with-these-6-facebook-tactics/"><u>Boost Your Job Prospects with These 6 Facebook Tactics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-master-your-media-display-with-these-12-videophones-for-2024/"><u>[Updated] Master Your Media Display with These 12 Videophones for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-messenger-kids-inbuilt-sleep-mode/"><u>Unlocking Potential with Messenger Kids' Inbuilt Sleep Mode</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boost-creativity-with-free-unique-slideshow-templates-for-inspiration-for-2024/"><u>Boost Creativity with Free, Unique Slideshow Templates for Inspiration for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/the-efficient-hosts-guide-to-online-meeting-planning-for-2024/"><u>The Efficient Host's Guide to Online Meeting Planning for 2024</u></a></li>
+</ul></div>

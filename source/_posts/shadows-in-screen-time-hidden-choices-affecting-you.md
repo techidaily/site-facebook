@@ -1,7 +1,7 @@
 ---
 title: "Shadows in Screen Time: Hidden Choices Affecting You"
-date: 2024-06-25T14:01:57.432Z
-updated: 2024-06-26T14:01:57.432Z
+date: 2024-07-12T09:48:39.631Z
+updated: 2024-07-13T09:48:39.631Z
 tags:
   - facebook
 categories:
@@ -52,7 +52,8 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy
+![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -155,3 +156,71 @@ The site lists 12 types of dark patterns to watch out for:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-sharecast-mobilepc-video-extractor/"><u>[Updated] In 2024, Sharecast  Mobile/PC Video Extractor</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-with-ai-assisted-photo-posting-to-facebook/"><u>Unleash Creativity with AI-Assisted Photo Posting to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-lite-android-apps-that-are-faster-than-the-full-versions/"><u>10 Lite Android Apps That Are Faster Than the Full Versions</u></a></li>
+<li><a href="https://facebook.techidaily.com/prompt-your-way-to-enlightened-social-media-posts-at-facebook/"><u>Prompt Your Way to Enlightened Social Media Posts at Facebook</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-narratives-in-motion-transforming-thoughts-into-words/"><u>In 2024, Narratives in Motion  Transforming Thoughts Into Words</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-calm-cursor-3-pathways-to-mellow-watching-videos-on-youtube-57-chars/"><u>[New] Calm Cursor  3 Pathways to Mellow Watching Videos on YouTube (57 Chars)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-enhancing-your-iphone-experience-voice-memo-techniques/"><u>[Updated] In 2024, Enhancing Your iPhone Experience  Voice Memo Techniques</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-video-flexibility-unleashed-5-powerful-online-methods-to-edit-videos-on-vimeo-for-2024/"><u>[Updated] Video Flexibility Unleashed  5 Powerful Online Methods to Edit Videos on Vimeo for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-infinix-smart-8-hd-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Infinix Smart 8 HD Quickly | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-begins-six-transformative-aspects-of-fbs-metaverse/"><u>A New Era Begins: Six Transformative Aspects of FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-identities-profiles-vs-screen-names/"><u>Navigating Virtual Identities: Profiles Vs Screen Names</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-worker-to-wizard-facebooks-metamate-saga/"><u>From Worker to Wizard: Facebook's Metamate Saga</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/celestial-vision-high-definition-touch-screens/"><u>Celestial Vision  High Definition Touch Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-i-sight-these-certain-online-promotions/"><u>Why Do I Sight These Certain Online Promotions?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-reno-11-5g-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo Reno 11 5G to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/step-into-the-future-of-video-creation-with-animated-subscribe-buttons-in-filmora/"><u>Step Into the Future of Video Creation with Animated Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-channel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks/"><u>[New] In 2024, Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-keeping-fb-images-confidential/"><u>Protecting Privacy: Keeping FB Images Confidential</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealthy-seduction-of-user-data-through-interfaces/"><u>The Stealthy Seduction of User Data Through Interfaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-publicize-positions-online-facebook/"><u>How to Publicize Positions Online - Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-high-point-of-facebook-is-it-there-yet/"><u>The High Point of Facebook – Is It There Yet?</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-use-of-facebooks-shield-against-threats/"><u>Mastering the Use of Facebook’s Shield Against Threats</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-in-class-real-time-broadcast-systems/"><u>[Updated] Best-in-Class Real-Time Broadcast Systems</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-explore-our-curated-top-12-click-based-pc-titles-for-2024/"><u>[New] Explore Our Curated Top 12 Click-Based PC Titles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-cracks-down-on-facebooks-data-collection-from-whatsapp-userbase/"><u>Germany Cracks Down on Facebook's Data Collection From WhatsApp Userbase</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mastering-ram-management-in-minecraft/"><u>2024 Approved  Mastering RAM Management in Minecraft</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-14-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone 14 Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-friend-inquiry-utilizing-messengers-polls/"><u>Mastering Friend Inquiry: Utilizing Messenger's Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-on-social-networking-recognize-these-14-tricks-fast/"><u>Stay Safe on Social Networking: Recognize These 14 Tricks Fast</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-initiative-vs-tiktoks-trending-score/"><u>Facebook’s Reel Initiative vs TikTok's Trending Score</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-americas-fresh-approach-to-technology-monopoly/"><u>Understanding America's Fresh Approach to Technology Monopoly</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-new-safeguard-code-for-fb/"><u>Implementing a New Safeguard Code for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-network-for-high-quality-work-clients/"><u>Leveraging Facebook's Network for High-Quality Work Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindfulness-in-motion-understanding-instagrams-break-initiative/"><u>Mindfulness in Motion: Understanding Instagram’s Break Initiative</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-step-by-step-snapchats-video-reversal-technique-for-2024/"><u>[Updated] Step-by-Step  Snapchat's Video Reversal Technique for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-infinix-note-30-vip-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-needed-is-(securityfacebookmailcom)-a-safe-fb-email/"><u>Validation Needed: Is @<security@facebookmail.com> a Safe FB Email?</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-facebook-updates-on-the-cheap-a-guide-to-5-techniques/"><u>Organizing Facebook Updates on the Cheap: A Guide to 5 Techniques</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/smooth-path-to-crafting-unique-video-shorts-thumbnail-credits-for-2024/"><u>Smooth Path to Crafting Unique Video Shorts Thumbnail Credits for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-of-the-charts-which-platform-do-you-love/"><u>Top of the Charts: Which Platform Do You Love?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-social-connectivity-invite-on-facebook-messenger/"><u>Unleashing Social Connectivity: Invite on Facebook Messenger</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-understanding-the-algorithm-maximizing-earning-potential-on-youtube/"><u>[New] Understanding the Algorithm  Maximizing Earning Potential on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-success-crafting-impactful-page-polls/"><u>Social Media Success: Crafting Impactful Page Polls</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-best-basic-video-editors/"><u>New 2024 Approved Best Basic Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/golf-guilds-prohibit-online-engagement/"><u>Golf Guilds Prohibit Online Engagement</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/faster-vimeo-viewing-experiences/"><u>Faster Vimeo Viewing Experiences</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-entry-level-cameras-reviewed-for-newbies-2024-edition/"><u>Top Entry-Level Cameras Reviewed for Newbies - 2024 Edition</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-make-a-youtube-intro-with-best-youtube-intro-makers/"><u>[New] 2024 Approved  How to Make a YouTube Intro With Best YouTube Intro Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-significant-shifts-in-metas-privacy-rules/"><u>What Are the Significant Shifts in Meta's Privacy Rules?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-glimpse-into-the-machinery-of-facebooks-policy-framework/"><u>A Glimpse Into the Machinery of Facebook's Policy Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-essential-tips-for-using-instagrams-sound-emojis/"><u>[New] Essential Tips for Using Instagram's Sound Emojis</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-maximize-offline-viewing-8-best-youtube-downloaders/"><u>2024 Approved  Maximize Offline Viewing  8 Best YouTube Downloaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-algorithms-to-anecdotes-gathering-opinions-on-news-delivery/"><u>From Algorithms to Anecdotes: Gathering Opinions on News Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-excluding-users-from-your-fb-business-page/"><u>Steps for Excluding Users From Your FB Business Page</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-convert-youtubes-audios-to-mp3-safely-step-by-step-guide/"><u>[Updated] How To Convert YouTube's Audios to MP3 Safely - Step-by-Step Guide</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-video-production-on-mac-tips-and-tricks-for-2024/"><u>New Video Production on Mac Tips and Tricks for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-ultimate-list-the-top-10-thrilling-action-packed-games/"><u>[New] 2024 Approved  Ultimate List  The Top 10 Thrilling Action-Packed Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-into-savings-how-websites-bank-on-relationships/"><u>Socializing Into Savings: How Websites Bank on Relationships</u></a></li>
+</ul></div>

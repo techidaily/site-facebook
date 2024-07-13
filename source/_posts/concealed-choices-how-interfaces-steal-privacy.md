@@ -1,7 +1,7 @@
 ---
 title: "Concealed Choices: How Interfaces Steal Privacy"
-date: 2024-06-25T13:51:29.811Z
-updated: 2024-06-26T13:51:29.811Z
+date: 2024-07-12T09:36:52.994Z
+updated: 2024-07-13T09:36:52.994Z
 tags:
   - facebook
 categories:
@@ -52,7 +52,8 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
-## How Companies Trick You Into Giving Up Your Privacy ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
+## How Companies Trick You Into Giving Up Your Privacy
+![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -155,3 +156,56 @@ The site lists 12 types of dark patterns to watch out for:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/expertise-in-evading-high-level-social-frauds/"><u>Expertise in Evading High-Level Social Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/eyes-wide-open-preparing-for-bad-news-on-fb/"><u>Eyes Wide Open: Preparing for Bad News on FB</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/bridging-app-dimensions-with-youtube-shorts/"><u>Bridging App Dimensions with YouTube Shorts</u></a></li>
+<li><a href="https://facebook.techidaily.com/insta-collage-creation-tips-for-engaging-online-portfolits/"><u>Insta-Collage Creation: Tips for Engaging Online Portfolits</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-unsolicited-friend-recommendations-on-fb/"><u>Halt Unsolicited Friend Recommendations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-3-concerns-the-facebook-metaverses-potential-risks/"><u>Top 3 Concerns: The Facebook Metaverse's Potential Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-enhanced-privacy-settings-on-facebooks-redesigned-interface/"><u>Unlocking Enhanced Privacy Settings on Facebook’s Redesigned Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-nuggets-unveiling-this-years-prime-social-media-gems/"><u>Network Nuggets: Unveiling This Year's Prime Social Media Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-a-double-edged-sword/"><u>Facebook's Impact: A Double-Edged Sword</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-brand-evolution-how-to-change-your-facebook-username/"><u>Personal Brand Evolution: How to Change Your Facebook Username</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-behind-catchy-posts-for-higher-fb-engagement/"><u>The Science Behind Catchy Posts for Higher FB Engagement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-behind-closed-doors-of-youtube-a-discovery-manual-for-2024/"><u>[New] Behind Closed Doors of YouTube  A Discovery Manual for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facts-facebooks-impending-name-switch/"><u>Dissecting Facts: Facebook’s Impending Name Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/20-minutes-to-master-vrecorder-instalment-for-2024/"><u>20 Minutes To Master VRecorder Instalment for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-smoothly-quitting-facebook-groups/"><u>Guide to Smoothly Quitting Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-customizable-url-pairings-on-facebook/"><u>Enhancing Interaction with Customizable URL Pairings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-cyber-world-elude-this-trio-of-intruders/"><u>Guard Your Cyber World: Elude This Trio of Intruders</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-transform-your-online-nickname-on-facebook-effectively/"><u>How to Transform Your Online Nickname on Facebook Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-photo-selection/"><u>The Ultimate Guide to FB Photo Selection</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-retro-video-on-demand-top-vhs-streaming-apps-for-mobile/"><u>Updated 2024 Approved Retro Video on Demand Top VHS Streaming Apps for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reduce-targeted-ads-on-social-media/"><u>How to Reduce Targeted Ads on Social Media</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-the-finest-tools-for-digital-snapping/"><u>[New] 2024 Approved  The Finest Tools for Digital Snapping</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-can-you-achieve-with-the-facebook-help-system/"><u>What Can You Achieve with the Facebook Help System?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-storylines-with-google-trends-analysis-techniques-for-2024/"><u>Finding Storylines with Google Trends Analysis Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-tailoring-your-online-persona-with-a-new-background-photo/"><u>In 2024, Tailoring Your Online Persona with a New Background Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-deceptive-deals-avoidance-strategies-in-social-media-swap-sites/"><u>Unmasking Deceptive Deals: Avoidance Strategies in Social Media Swap Sites</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-note-30-pro-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Infinix Note 30 Pro to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-factors-pre-deletion-reflections-for-a-social-media-break/"><u>Essential Factors: Pre-Deletion Reflections for a Social Media Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-communicate-without-relying-on-fb-messenger/"><u>How to Communicate Without Relying on FB Messenger</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-vhs-inspired-video-editing-simplified-techniques-for-fcp/"><u>New In 2024, VHS-Inspired Video Editing Simplified Techniques for FCP</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-unstoppable-rise-over-forum-culture/"><u>Social Media's Unstoppable Rise Over Forum Culture</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-personalities-sparking-tech-disputes/"><u>Leading Personalities Sparking Tech Disputes</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-most-contentious-innovators/"><u>Tech's Most Contentious Innovators</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 To Other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-future-of-advertising-with-reel-and-sticker-trials/"><u>Exploring the Future of Advertising with Reel & Sticker Trials</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneous-insights-10-lightweight-android-helpers/"><u>Instantaneous Insights: 10 Lightweight Android Helpers</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-tweet-and-snap-campaign-as-pillars-of-jbs-plan/"><u>FB, Tweet, and Snap Campaign as Pillars of JB's Plan</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-honor-90-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Honor 90 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-engagement-hide-your-affection-online/"><u>Unseen Engagement: Hide Your Affection Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/freeing-up-from-facebooks-pervasive-tracking/"><u>Freeing Up From Facebook's Pervasive Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-dwindling-threads-by-year-end-decision/"><u>Instagram's Dwindling Threads by Year-End Decision</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-tutorial-to-bypass-your-xiaomi-mix-fold-3-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Xiaomi Mix Fold 3 Face Lock?</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-explained-delving-into-russias-digital-space/"><u>VK Explained: Delving Into Russia's Digital Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-facebook-disablement-mysteries/"><u>Untangling Facebook Disablement Mysteries</u></a></li>
+<li><a href="https://facebook.techidaily.com/facing-fact-what-does-facebooks-new-data-tell-us/"><u>Facing Fact: What Does Facebook’s New Data Tell Us?</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-unexpected-boom-following-fb-shutdown-hours/"><u>Telegram's Unexpected Boom Following FB Shutdown Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencer-impact-covid-misinformation-spread/"><u>Influencer Impact: Covid Misinformation Spread</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-tech-captures-word-meanings-from-photo-images/"><u>New Tech Captures Word Meanings From Photo Images</u></a></li>
+</ul></div>

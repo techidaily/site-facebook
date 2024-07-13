@@ -1,7 +1,7 @@
 ---
 title: "Tweaking Children's Data: A Parent's Guide to Messenger Kids"
-date: 2024-06-25T13:56:59.433Z
-updated: 2024-06-26T13:56:59.433Z
+date: 2024-07-12T09:43:04.440Z
+updated: 2024-07-13T09:43:04.440Z
 tags:
   - facebook
 categories:
@@ -75,7 +75,8 @@ Close
 
 **Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
-### How to Change Your Kid's Profile Picture ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+### How to Change Your Kid's Profile Picture
+![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -87,7 +88,8 @@ To change your child's profile image:
 2. Choose the picture you want to use as a profile photo. Make changes in the editing menu (if needed).
 3. Tap on the**Checkmark** to update the profile picture.
 
-### How to Change Name and Date of Birth ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
+### How to Change Name and Date of Birth
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
 
@@ -99,7 +101,8 @@ Close
 2. Similarly, to change the date of birth, tap on the current DOB to open a calendar. Choose the new date. You can also remove it entirely by selecting**Clear date of birth** .
 3. Select**Save** after making the desired changes.
 
-### How to Change Pronouns ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
+### How to Change Pronouns
+![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
@@ -157,3 +160,56 @@ Follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/reset-your-digital-boundaries-post-facebook-account-hack/"><u>Reset Your Digital Boundaries Post-Facebook Account Hack</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-perfecting-pitched-lines-writing-natural-conversations/"><u>In 2024, Perfecting Pitched Lines  Writing Natural Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-picture-strategies-for-social-success/"><u>Profile Picture Strategies for Social Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-privacy-industry-overview/"><u>In Pursuit of Privacy: Industry Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-friend-recommendations-unannounced/"><u>Prevent Friend Recommendations Unannounced</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-playback-techniques-in-social-media-apps/"><u>Spotify Playback Techniques in Social Media Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-hidden-organizational-diagram/"><u>Discovering Facebook's Hidden Organizational Diagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-social-id-check-unveiling-on-fb/"><u>Meta's Social ID Check - Unveiling on FB</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-navigating-the-world-of-spotifys-advertising-landscape-for-2024/"><u>[New] Navigating the World of Spotify's Advertising Landscape for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-expert-insights-into-tunefabs-recording-capabilities/"><u>[New] Expert Insights Into Tunefab's Recording Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-visual-voyage-for-more-engagement-on-social-platforms/"><u>The Visual Voyage for More Engagement on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-24-hour-cyber-sabbath-for-big-tech/"><u>The 24-Hour Cyber Sabbath for Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-surge-in-telegram-users-during-facebook-shutdown/"><u>Unveiling the Surge in Telegram Users During Facebook Shutdown</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-top-rated-video-contrast-editors/"><u>In 2024, Top-Rated Video Contrast Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/share-the-load-collective-effort-in-an-online-community/"><u>Share the Load: Collective Effort in an Online Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pioneering-project-how-spotify-and-facebook-are-building-boombox/"><u>The Pioneering Project: How Spotify and Facebook Are Building Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-sheryls-contributions-to-facebook/"><u>Behind the Scenes: Sheryl's Contributions to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-messaging-innovations-roll-out-on-fb-messenger-and-instagram/"><u>New Messaging Innovations Roll Out on FB Messenger & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-dimension-of-connection-the-metaverse-explained/"><u>A New Dimension of Connection: The Metaverse Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-how-to-become-an-instagram-influencer-a-complete-guide/"><u>In 2024, How to Become an Instagram Influencer  A Complete Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/virtual-worlds-in-action-essential-360-shooting-advice-top-9/"><u>Virtual Worlds in Action  Essential 360 Shooting Advice (Top 9)</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-virtual-afterlife-of-family-members-on-social-media-platforms/"><u>Securing Virtual Afterlife of Family Members on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-hurdles-in-your-social-network/"><u>Dismantling Hurdles in Your Social Network</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/in-2024-starting-off-with-strains-the-beginners-handbook-to-selecting-the-ideal-hip-hop-accompaniment/"><u>In 2024, Starting Off with Strains The Beginners Handbook to Selecting the Ideal Hip-Hop Accompaniment.</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsider-your-approach-to-facebooks-link-record/"><u>Reconsider Your Approach to Facebook's Link Record</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-learning-the-art-of-soundshaping-in-audacity-for-2024/"><u>[Updated] Learning the Art of Soundshaping in Audacity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-away-smoothly-how-to-gradually-reduce-facebook-presence/"><u>Stepping Away Smoothly: How to Gradually Reduce Facebook Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/slash-the-impact-of-selective-advertising-on-web-platforms/"><u>Slash the Impact of Selective Advertising on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/verdict-on-holding-facebook-oversight-on-trump-ban/"><u>Verdict on Holding: Facebook Oversight on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-followers-into-lifelong-profitable-clients/"><u>Transforming Facebook Followers Into Lifelong Profitable Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/activist-attack-one-star-campaign-against-digital-app-store-ratings/"><u>Activist Attack: One Star Campaign Against Digital App Store Ratings</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-cutting-edge-video-meeting-techniques-on-slack-plus-filmora/"><u>2024 Approved  Cutting-Edge Video Meeting Techniques on Slack + Filmora</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unfortunately-contacts-has-stopped-error-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Unfortunately, Contacts Has Stopped Error on Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-schedule-strategic-planning-of-limited-facebook-time/"><u>Creating a Schedule: Strategic Planning of Limited Facebook Time</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-learn-money-tricks-top-13-beginner-friendly-income-strategies-on-reddit/"><u>In 2024, Learn Money Tricks  Top 13 Beginner-Friendly Income Strategies on Reddit</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/innovative-ways-to-record-and-preserve-streaming-sounds-online/"><u>Innovative Ways to Record and Preserve Streaming Sounds Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adds-a-new-penalty-for-misinformation-sharers/"><u>Facebook Adds a New Penalty for Misinformation Sharers</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/including-all-even-the-hidden-faces-of-your-group/"><u>Including All, Even the Hidden Faces of Your Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-challenges-big-tech-on-free-speech-grounds/"><u>Trump Challenges Big Tech on Free Speech Grounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-struggle-for-users-and-profits-amidst-the-tiktok-wave/"><u>Facebook’s Struggle for Users and Profits Amidst the TikTok Wave</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-group-dynamics-in-social-media-giants/"><u>Exploring the Group Dynamics in Social Media Giants</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fast-forward-your-twitch-experience-for-2024/"><u>Fast-Forward Your Twitch Experience for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
+</ul></div>

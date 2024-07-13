@@ -1,7 +1,7 @@
 ---
 title: "Lock Your Likes: Making Photo Sharing on Facebook Private"
-date: 2024-06-25T14:17:24.795Z
-updated: 2024-06-26T14:17:24.795Z
+date: 2024-07-12T10:06:02.356Z
+updated: 2024-07-13T10:06:02.356Z
 tags:
   - facebook
 categories:
@@ -180,3 +180,40 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/comedic-content-facebooks-new-framework/"><u>Comedic Content: Facebook's New Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-anime-aesthetics-top-20-visual-elements-on-tiktok-for-2024/"><u>[Updated] Anime Aesthetics  Top 20 Visual Elements on TikTok for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-protocol-revitalizing-a-stagnant-fb-group/"><u>The Popularity Protocol: Revitalizing a Stagnant FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/carolyn-everson-ends-tenure-at-facebook/"><u>Carolyn Everson Ends Tenure at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-erasing-your-fb-watch-history/"><u>Understanding & Erasing Your FB Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessibility-guide-for-facebook-neighborhood-memberships/"><u>Accessibility Guide for Facebook Neighborhood Memberships</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-11-social-network-snags-and-how-to-tackle-them/"><u>Top 11 Social Network Snags and How to Tackle Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebooks-hidden-insights-a-complete-history-log/"><u>Unlocking Facebook's Hidden Insights: A Complete History Log</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-oneplus-12r-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For OnePlus 12R</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-chucklecraft-sign-up-now-and-laugh-later/"><u>[Updated] 2024 Approved  ChuckleCraft  Sign Up Now & Laugh Later</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-free-tools-for-efficient-screen-recording-on-windows-os-for-2024/"><u>[Updated] Free Tools for Efficient Screen Recording on Windows OS for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-xiaomi-14-ultra-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-coding-shaped-by-facebook-and-rust-alliance/"><u>The Future of Coding, Shaped by Facebook & Rust Alliance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-top-10-fb-video-grabber-add-ons-perfect-for-firefox-users-for-2024/"><u>[Updated] Top 10 FB Video Grabber Add-Ons - Perfect for FireFox Users for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-woes-facebook-and-friends-unavailable-today/"><u>Web Woes: Facebook & Friends Unavailable Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-your-online-footprint-update-your-date-of-birth-fb/"><u>Transition Your Online Footprint: Update Your Date of Birth (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-scale-of-facebooks-user-exodus/"><u>The Real Scale of Facebook's User Exodus</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-presence-through-consistency/"><u>Amplifying Presence Through Consistency</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-crafting-dynamic-musical-journeys-with-crossfading-for-2024/"><u>[New] Crafting Dynamic Musical Journeys with Crossfading for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-from-visual-to-audible-harness-the-power-of-audio-extraction-tools-for-videos-on-cross-platform-systems-windows-macos-and-mobile-devices-new-ins/"><u>New In 2024, From Visual to Audible Harness the Power of Audio Extraction Tools for Videos on Cross-Platform Systems (Windows, macOS & Mobile Devices - New Insights 2023)</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-avoiding-deceptive-fb-links/"><u>Best Practices for Avoiding Deceptive FB Links</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-audio-enhancement-for-videos-without-breaking-the-bank-exploring-three-free-approaches/"><u>New Audio Enhancement for Videos Without Breaking the Bank Exploring Three Free Approaches</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-honor-x9a-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Honor X9a | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-superior-chromebook-video-saver/"><u>[Updated] In 2024, Superior ChromeBook Video Saver</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-to-informed-facebook-usage-via-its-transparency-hub/"><u>The Path to Informed Facebook Usage via Its Transparency Hub</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-ultimate-guide-how-to-live-stream-on-facebook-in-2024/"><u>New Ultimate Guide How to Live Stream on Facebook, In 2024</u></a></li>
+</ul></div>

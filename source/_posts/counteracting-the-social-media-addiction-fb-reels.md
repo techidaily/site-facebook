@@ -1,7 +1,7 @@
 ---
 title: "Counteracting the Social Media Addiction: FB Reels"
-date: 2024-06-25T14:01:01.883Z
-updated: 2024-06-26T14:01:01.883Z
+date: 2024-07-12T09:47:36.671Z
+updated: 2024-07-13T09:47:36.671Z
 tags:
   - facebook
 categories:
@@ -23,13 +23,15 @@ thumbnail: https://thmb.techidaily.com/c572e526911ff13873cfea2690ee252e9ff11a89c
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
-### 1\. Use Facebook Web ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
+### 1\. Use Facebook Web
+![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
  If you're not a Reels fan and want to hide them, your best bet is to use Facebook's web version instead of the app. Reels won't appear in your News Feed or Story on the Facebook website.
 
  Facebook may eventually push Reels to the website, but for now, you're safe. And even if it did, the web interface is usually better for ignoring posts you don't want to see.
 
-### 2\. Hide the Video Icon From Your Navigation Bar ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+### 2\. Hide the Video Icon From Your Navigation Bar
+![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -55,7 +57,8 @@ Close
 
 ###
 
-### 4\. Hide Content You Don't Like ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+### 4\. Hide Content You Don't Like
+![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -106,3 +109,44 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-6-best-audio-converter-software-to-pick/"><u>Updated The 6 Best Audio Converter Software to Pick</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-roi-of-hashtag-campaigns-within-facebook-advertising/"><u>Analyzing the ROI of HashTag Campaigns Within Facebook Advertising</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-youtube-cash-growth-forecasts-at-no-cost/"><u>[Updated] YouTube Cash Growth Forecasts at No Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150747284-facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to share/fake gps on Uber for Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unleashing-potential-vr-innovations-for-fun-and-games-for-2024/"><u>Unleashing Potential  VR Innovations for Fun & Games for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/anti-censorship-action-trump-versus-major-online-companies/"><u>Anti-Censorship Action: Trump Versus Major Online Companies</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-learn-the-art-of-video-to-animation-stepwise-guide-for-efficient-gif-creation/"><u>[Updated] Learn The Art Of Video to Animation  Stepwise Guide for Efficient Gif Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-transform-the-chatbot-landscape-entirely/"><u>Can MetaAI Transform the Chatbot Landscape Entirely?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-gathering-on-whatsapp-hit-by-germanys-order/"><u>Facebook's Data Gathering on WhatsApp Hit by Germany's Order</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-sage-of-symbolism-the-essential-guide-to-fb-emojis-and-icons/"><u>Becoming a Sage of Symbolism: The Essential Guide to FB Emojis and Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-insights-into-russias-social-media-world/"><u>Decoding VK: Insights Into Russia's Social Media World</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-fb-job-announcements/"><u>Best Practices for FB Job Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-of-emoji-and-icon-usage-on-facebook-messenger/"><u>In-Depth Analysis of Emoji & Icon Usage on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-public-discontent-with-social-media-giants/"><u>Unraveling Public Discontent with Social Media Giants</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-transforming-windows-photos-viewer-with-creative-filter-settings-and-soundscape/"><u>In 2024, Transforming Windows Photos Viewer with Creative Filter Settings & Soundscape</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-13-mini-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 13 mini Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-networks-into-our-daily-shopping-experience/"><u>Bringing Social Networks Into Our Daily Shopping Experience</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-takes-2022-skating-spectaculars/"><u>2024 Approved  Top Takes - 2022 Skating Spectaculars</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-policy-insight-hub-a-step-towards-greater-clarity/"><u>Facebook's Policy Insight Hub: A Step Towards Greater Clarity</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-samsung-galaxy-a14-4g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Samsung Galaxy A14 4G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-elevate-viewer-response-crafting-engaging-ig-story-qandas/"><u>[Updated] 2024 Approved  Elevate Viewer Response  Crafting Engaging IG Story Q&As</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-most-user-friendly-video-editing-apps-for-2024/"><u>New The Most User-Friendly Video Editing Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-your-online-profile-a-guide-to-deletion/"><u>Banishing Your Online Profile: A Guide to Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-unveils-its-covert-strategy-for-free-services/"><u>WhatsApp Unveils Its Covert Strategy for Free Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/consumer-watch-a-new-economic-paradigm/"><u>Consumer Watch: A New Economic Paradigm</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-milestone-facebook-messengers-security-enhancement/"><u>E2EE Milestone: Facebook Messenger's Security Enhancement</u></a></li>
+</ul></div>

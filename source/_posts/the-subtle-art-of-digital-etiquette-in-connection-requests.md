@@ -1,7 +1,7 @@
 ---
 title: The Subtle Art of Digital Etiquette in Connection Requests
-date: 2024-06-25T14:39:41.634Z
-updated: 2024-06-26T14:39:41.634Z
+date: 2024-07-12T10:31:20.621Z
+updated: 2024-07-13T10:31:20.621Z
 tags:
   - facebook
 categories:
@@ -45,7 +45,8 @@ thumbnail: https://thmb.techidaily.com/e7f1cad7a399e71169efcdbd386bd0d5b12f456c3
 
  To cancel a friend request, go back to their profile, click that same button, which now reads**Cancel Request** . You can also remove a friend via your Friends list.
 
-## How to Find Out Whether Someone Denied Your Facebook Friend Request ![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
+## How to Find Out Whether Someone Denied Your Facebook Friend Request
+![Cancel Facebook Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/cancel-facebook-friend-request.jpg)
 
  To find out whether someone actively denied your friend request, search for their profile on Facebook, and check the friendship status next to their profile image and name. If it says**Cancel request** , they have yet to respond to your request. Should you see the**Add friend** option, you probably didn't successfully send a friend request or they denied you more than a year ago.
 
@@ -196,3 +197,37 @@ Follow our guidelines above to avoid this from happening again.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-itel-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Itel</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-possible-intrusion-in-your-email-and-computer-system/"><u>Alert! Possible Intrusion in Your Email & Computer System</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152998849-flip-the-script-on-sharing-seamless-transfer-of-fb-content-available/"><u>Flip the Script on Sharing: Seamless Transfer of FB Content Available</u></a></li>
+<li><a href="https://facebook.techidaily.com/alleged-shutdown-due-to-ethical-commerce-representation/"><u>Alleged Shutdown Due to Ethical Commerce Representation</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-youtube-video-aspect-ratios-the-pros-and-cons-of-each-option-for-2024/"><u>New YouTube Video Aspect Ratios The Pros and Cons of Each Option for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154492525-when-will-the-gavel-fall-anticipating-facebooks-judgment-on-trump/"><u>When Will the Gavel Fall? Anticipating Facebook's Judgment on Trump.</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-accuses-10000-group-leaders-of-misconduct-on-social-media/"><u>Amazon Accuses 10,000 Group Leaders of Misconduct on Social Media</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-mastering-sound-manipulation-the-application-of-clownfish-voice-modification-tools-on-discord-fortnite-and-skype/"><u>In 2024, Mastering Sound Manipulation The Application of Clownfish Voice Modification Tools on Discord, Fortnite, and Skype</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-unseen-by-facebooks-monitoring-tech/"><u>Be Unseen by Facebook's Monitoring Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-for-hidden-chat-photos-messenger-screen-shot-triggers/"><u>Alert for Hidden Chat Photos: Messenger Screen Shot Triggers</u></a></li>
+<li><a href="https://facebook.techidaily.com/advice-addressing-kids-presence-on-social-networks/"><u>Advice: Addressing Kids' Presence on Social Networks</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-for-free-how-to-convert-twitter-videos-to-gifs/"><u>2024 Approved  For Free! How to Convert Twitter Videos to GIFS?</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-positive-effects-social-media-is-having-on-society/"><u>7 Positive Effects Social Media Is Having on Society</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/samsung-galaxy-f34-5g-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Samsung Galaxy F34 5G Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/adapting-to-the-rise-of-crypto-on-platforms/"><u>Adapting to the Rise of Crypto on Platforms</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-the-genesis-of-apples-m1-an-insight/"><u>[Updated] The Genesis of Apple's M1  An Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-era-of-facebook-covers-how-to-infuse-your-persona-into-your-online-space-using-an-avatar/"><u>A New Era of Facebook Covers: How to Infuse Your Persona Into Your Online Space Using an Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-facebook-features-emphasizing-stories-with-reels-and-rooms/"><u>Anticipated Facebook Features: Emphasizing Stories with Reels & Rooms</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153057153-impending-ruling-trumps-ban-under-scrutiny-at-fb-oversight-panel/"><u>Impending Ruling: Trump's Ban Under Scrutiny at FB Oversight Panel</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oppo-a2-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Oppo A2</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-opinion-social-media-harm-overrides-good/"><u>America's Opinion: Social Media Harm Overrides Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-high-ranking-investment-for-badge/"><u>Achieve High Ranking: Investment for Badge</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/top-10-trending-tweets-capturing-momentum/"><u>Top 10 Trending Tweets Capturing Momentum</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreayers-blueprint-to-fb-image-security/"><u>A Compreayer's Blueprint to Fb Image Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-deal-on-rifts-data-recovery-post-facebook-hack/"><u>$300 Deal on Rifts: Data Recovery Post-Facebook Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-life-hacks-to-break-your-screen-addiction-habit/"><u>8 Life Hacks to Break Your Screen Addiction Habit</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-facebooks-permanent-suggestive-feeds/"><u>Analyzing Facebook’s Permanent Suggestive Feeds</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-qanda-strategy-for-attracting-audio-lovers/"><u>[New] Innovative Q&A Strategy for Attracting Audio Lovers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-new-age-of-income-generation-for-youtube-visionaries-for-2024/"><u>The New Age of Income Generation for YouTube Visionaries for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/affordable-content-scheduling-top-5-tricks-for-facebook-timing/"><u>Affordable Content Scheduling: Top 5 Tricks for Facebook Timing</u></a></li>
+</ul></div>

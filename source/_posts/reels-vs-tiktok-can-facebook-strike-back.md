@@ -1,7 +1,7 @@
 ---
 title: "Reels vs TikTok: Can Facebook Strike Back?"
-date: 2024-06-25T14:36:46.779Z
-updated: 2024-06-26T14:36:46.779Z
+date: 2024-07-12T10:28:02.063Z
+updated: 2024-07-13T10:28:02.063Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
-## How TikTok Is Hurting Facebook ![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
+## How TikTok Is Hurting Facebook
+![TikTok Logo on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Tiktok-logo.jpg)
 
  Soon after its launch in 2016, TikTok took the social entertainment space by storm. It was primarily built for lip-syncing and dancing videos but now hosts short-form videos from several genres, including pranks, jokes, stunts, tricks, cooking, and entertainment.
 
@@ -47,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
-## How Facebook Plans to Regain Momentum ![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
+## How Facebook Plans to Regain Momentum
+![binoculars with the facebook logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy.jpg)
 
  For the past few years, the social media landscape has shifted towards short-form video content, a space dominated by TikTok. It has become more popular, particularly among the younger demographics, because of the shorter users’ attention spans and the repetitive consumption of video content.
 
@@ -79,7 +81,8 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-### Monetization Issues ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
+### Monetization Issues
+![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
@@ -108,3 +111,50 @@ thumbnail: https://thmb.techidaily.com/314203aa70ce1cd280de1b8caed9dd68a2d3fe23b
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/avoid-the-algos-tweaking-your-twitter-experience/"><u>Avoid the Algos: Tweaking Your Twitter Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-fb-push-notifications-and-messages-easily/"><u>Banish FB Push Notifications and Messages Easily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/become-a-certified-user-meta-verification-us-style/"><u>Become a Certified User: Meta Verification, US Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-game-changing-ways-to-make-money-on-social-media/"><u>5 Game-Changing Ways to Make Money on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-second-chance-trump-on-meta-platforms/"><u>A Second Chance: Trump on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
+<li><a href="https://facebook.techidaily.com/beneath-the-surface-unseen-content-on-fb/"><u>Beneath the Surface: Unseen Content on Fb</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-honor-v-purse-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Honor V Purse Screen | Dr.fone</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-free-3gp-video-rotation-software-top-picks/"><u>New In 2024, Free 3GP Video Rotation Software Top Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-fun-and-safe-combinations-on-facebook-real/"><u>Are Fun and Safe Combinations on Facebook Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-augmented-reality-the-true-metaverse-story/"><u>Beyond Augmented Reality: The True Metaverse Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-my-phone-numbers-circulating-in-facebook-groups/"><u>Are My Phone Numbers Circulating in Facebook Groups?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-guide-saving-twitter-videos-on-your-mobile-device/"><u>Direct Guide  Saving Twitter Videos on Your Mobile Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-challenge-to-facebook-group-administrators/"><u>Amazon's Challenge to Facebook Group Administrators</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-ways-to-use-facebook-for-career-growth/"><u>6 Ways to Use Facebook for Career Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-ready-to-embrace-metamorphosis-with-meta-ai-sites/"><u>Are You Ready to Embrace Metamorphosis with Meta AI Sites?</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/essential-solutions-to-resolve-windows-update-error-0x800f080a/"><u>Essential Solutions to Resolve Windows Update Error 0X800F080A</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-fb-avatar-inclusion-in-whatsapp-discussions/"><u>A Guide to FB Avatar Inclusion in WhatsApp Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-metas-enhanced-user-privacy-measures/"><u>A Deep Dive Into Meta’s Enhanced User Privacy Measures</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-constructing-a-custom-youtube-subscription-url/"><u>2024 Approved  Constructing a Custom YouTube Subscription URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-a-brand-ambassador-online/"><u>Becoming a Brand Ambassador Online</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-key-drone-upgrades-and-supplies/"><u>[New] The Ultimate Guide  Key Drone Upgrades & Supplies</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-iphone-users-rising-in-opposition/"><u>App Tracking: IPhone Users Rising in Opposition</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-five-thoughts-on-discord-create-accounts-how-to-questions/"><u>In 2024, Five Thoughts on Discord Create Accounts How-To Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-sensationalism-a-realistic-assessment-of-fb-dossiers/"><u>Beyond Sensationalism: A Realistic Assessment of FB Dossiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-most-recent-videos-on-fb/"><u>Accessing Most Recent Videos on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-bold-bet-on-content-facebooks-5m-venture-to-challenge-substacks-writer-community/"><u>A Bold Bet on Content: Facebook's $5M Venture to Challenge Substack’s Writer Community</u></a></li>
+<li><a href="https://techidaily.com/sign-uot-file-online-with-digisigner-by-ldigisigner-sign-a-word-sign-a-word/"><u>Sign .uot file Online with DigiSigner</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-tips-to-engage-your-facebook-group-members/"><u>8 Tips to Engage Your Facebook Group Members</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/affordable-laptop-friendly-software-for-dvd-viewing/"><u>Affordable, Laptop-Friendly Software for DVD Viewing</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-15-plus-to-other-iphone-13-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 15 Plus to other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-fading-into-silence-the-subtle-approach-in-fl-studio-for-2024/"><u>[New] Fading Into Silence  The Subtle Approach in FL Studio for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-closed-curtains-facebooks-real-losses/"><u>Behind Closed Curtains: Facebook’s Real Losses</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-detailed-walkthrough-for-renaming-yourself-on-facebook/"><u>A Detailed Walkthrough for Renaming Yourself on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152659864-zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-effortlessly-enhance-your-tiktok-aesthetic-guide-inside/"><u>In 2024, Effortlessly Enhance Your TikTok Aesthetic  Guide Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154148882-reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer!</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/accelerate-your-sluggish-vids-to-speedy-shots-on-android-for-2024/"><u>Accelerate Your Sluggish Vids to Speedy Shots on Android for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy A05s | Dr.fone</u></a></li>
+</ul></div>

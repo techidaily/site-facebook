@@ -1,7 +1,7 @@
 ---
 title: Discovering Facebook's Hidden Organizational Diagram
-date: 2024-06-25T14:06:04.675Z
-updated: 2024-06-26T14:06:04.675Z
+date: 2024-07-12T09:53:14.516Z
+updated: 2024-07-13T09:53:14.516Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,8 @@ thumbnail: https://thmb.techidaily.com/a929b0d993c705dcd1293af7219e5e597567df393
 
  It's a modular e-learning platform. It has separate sections for walk-in learners and certification-oriented learners. The following are the two separate modules of Facebook Blueprint:
 
-### 1\. Programs ![An image showing the Facebook Blueprint Programs portal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Programs-Page.jpg)
+### 1\. Programs
+![An image showing the Facebook Blueprint Programs portal](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Programs-Page.jpg)
 
 [Facebook](https://www.facebook.com/business/learn/digital-skills-programs)
 
@@ -50,7 +51,8 @@ thumbnail: https://thmb.techidaily.com/a929b0d993c705dcd1293af7219e5e597567df393
 5. For brands & agencies.
 6. For small businesses.
 
-### 2\. Certification ![A visual showing Facebook Blueprint Certification page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Certification-Page.jpg)
+### 2\. Certification
+![A visual showing Facebook Blueprint Certification page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Blueprint-Certification-Page.jpg)
 
 [Facebook](https://www.facebook.com/business/learn/certification)
 
@@ -160,3 +162,78 @@ thumbnail: https://thmb.techidaily.com/a929b0d993c705dcd1293af7219e5e597567df393
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unwind-twitch-feeds-immediately/"><u>[Updated] In 2024, Unwind Twitch Feeds Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-fb-profile-android-step-by-step-guide/"><u>Deleting FB Profile: Android Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-for-professional-success-5-ways/"><u>Navigating Social Media for Professional Success - #5 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-end-of-your-facebook-era-key-steps/"><u>Navigating the End of Your Facebook Era: Key Steps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-benefits-and-reasons-of-multiple-profiles-on-one-facebook-account/"><u>Insight Into the Benefits and Reasons of Multiple Profiles on One Facebook Account</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-an-ultimate-guide-to-edit-a-music-video-aspect-ratio-and-first-cut/"><u>In 2024, An Ultimate Guide to Edit a Music Video Aspect Ratio and First Cut</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-digital-giant-understanding-vk-in-russia/"><u>Decoding the Digital Giant: Understanding VK in Russia</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-cyber-spaces-permit-negative-feedback/"><u>Should Cyber Spaces Permit Negative Feedback?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-poco-x6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Poco X6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-liking-a-guide-for-the-discreet-user/"><u>Strategic Liking: A Guide for the Discreet User</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-break-alert-a-day-timer-guide/"><u>Mastering Facebook's Break Alert: A Day-Timer Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/photoquarter-analysis-for-2024/"><u>PhotoQuarter Analysis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reclaim-your-cash-the-fb-reimbursement-route/"><u>How to Reclaim Your Cash: The FB Reimbursement Route</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-a-closer-look-at-facebook-files/"><u>Debunking Myths: A Closer Look at Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-calls-for-halt-to-facebooks-whatsapp-data-harvesting/"><u>Germany Calls for Halt to Facebook's WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-fake-profiles-on-facebook/"><u>How to Spot Fake Profiles on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-the-latest-privacy-tools-in-facebooks-comprehensively-redesigned-hub/"><u>Leverage the Latest Privacy Tools in Facebook’s Comprehensively Redesigned Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-update-procedures-for-your-childs-messengers/"><u>Profile Update Procedures for Your Child’s Messengers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c55-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Realme C55 Phone with Broken Screen</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-discover-the-power-of-sonic-content-for-insta-stories/"><u>[New] In 2024, Discover the Power of Sonic Content for Insta Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/selecting-the-superior-cloud-storage-hub-for-2024/"><u>Selecting the Superior Cloud Storage Hub for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/transforming-your-twitter-feed-adding-custom-thumbnails-to-videos/"><u>Transforming Your Twitter Feed  Adding Custom Thumbnails to Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-tutorials-to-excel-at-google-meet-free-edition-for-2024/"><u>[New] Step-by-Step Tutorials to Excel at Google Meet (Free Edition) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-exit-from-facebook-groups-a-step-by-step-guide/"><u>Navigating Exit From Facebook Groups: A Step-by-Step Guide</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-maximizing-game-capture-with-bandicam-essentials-for-the-year-2023/"><u>In 2024, Maximizing Game Capture with Bandicam - Essentials for the Year 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-elements-for-fascinating-vlog-dialogues/"><u>[Updated] In 2024, Essential Elements for Fascinating Vlog Dialogues</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-vivo-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Vivo Phone? Unlock It Now</u></a></li>
+<li><a href="https://windows11.techidaily.com/cutting-edge-techniques-for-launching-programs-in-windows/"><u>Cutting-Edge Techniques for Launching Programs in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-connectivity-facebook-unveils-new-subscription-link-methods/"><u>Innovating Connectivity: Facebook Unveils New Subscription Link Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-buzzfeed-gurus-flashing-with-snapchat/"><u>[Updated] BuzzFeed Gurus Flashing with Snapchat</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-honor-100-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Honor 100 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instagram-storytelling-mastery-crafting-a-dynamic-marketing-plan/"><u>[Updated] Instagram Storytelling Mastery  Crafting a Dynamic Marketing Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-personal-branding-on-social-media-with-fb/"><u>Optimizing Your Personal Branding on Social Media with FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719580959940-17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like A Native</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-perspective-without-facebook-features/"><u>Gaining Perspective Without Facebook Features</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-decreasing-bitrate-in-high-quality-obs/"><u>2024 Approved  Decreasing Bitrate in High-Quality OBS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-engage-enthusiastically-earn-enticingly-the-entrepreneurial-editors-handbook/"><u>[New] 2024 Approved  Engage Enthusiastically, Earn Enticingly  The Entrepreneurial Editor’s Handbook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-uncharted-visual-narrative-evaluation-and-parallel-proposals/"><u>[New] 2024 Approved  Uncharted Visual Narrative Evaluation & Parallel Proposals</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-the-modern-producers-choice-ranking-the-best-8-music-production-software-for-macwindows/"><u>In 2024, The Modern Producers Choice Ranking the Best 8 Music Production Software for Mac/Windows</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-best-of-breed-top-9-microphones-recorders-online-for-2024/"><u>[New] Best of Breed  Top 9 Microphones Recorders Online for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-guide-to-the-top-156-characte-ubuntu-capture-apps/"><u>[Updated] In 2024, Ultimate Guide to the Top 156-Characte Ubuntu Capture Apps</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-step-by-step-strategies-for-sizzling-tiktok-videos-via-mac-editing/"><u>In 2024, Step-by-Step Strategies for Sizzling TikTok Videos via Mac Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-safe-browsing-facebooks-privacy-and-security-blueprint/"><u>Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-beyond-obs-the-best-streaming-software-for-video-creators/"><u>[Updated] Beyond OBS  The Best Streaming Software for Video Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-best-trailer-making-tools-for-filmmakers-mac-and-windows-compatible/"><u>New In 2024, Best Trailer Making Tools for Filmmakers (Mac and Windows Compatible)</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-know-who-has-been-blocked-by-you-on-fb/"><u>Navigating to Know Who Has Been Blocked by You on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlled-consumption-navigate-without-fb-reels/"><u>Controlled Consumption: Navigate without Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/sleuthing-in-the-social-web-unveiling-phony-accounts/"><u>Sleuthing in the Social Web: Unveiling Phony Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefined-6-revolutionary-reasons-to-experience-its-metaverse/"><u>Facebook Redefined: 6 Revolutionary Reasons to Experience Its Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-of-execution-on-trump-ban-in-progress/"><u>Stay of Execution on Trump Ban in Progress</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-effortless-extraction-of-twitter-jokes-3-ways-for-2024/"><u>[Updated] Effortless Extraction of Twitter Jokes  3 Ways for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-society-one-like-at-a-time/"><u>Strengthening Society One Like at a Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-facebook-2fa-post-phone-loss/"><u>Bypassing Facebook 2FA Post-Phone Loss</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-ultimate-steps-for-transforming-your-ppts-into-video-magic/"><u>In 2024, Ultimate Steps for Transforming Your PPTs Into Video Magic</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-vivo-y78plus-t1-edition-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Vivo Y78+ (T1) Edition to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripls-tips-for-making-viral-social-media-content/"><u>Ripl's Tips for Making Viral Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-expansion-a-future-headline/"><u>Cryptocurrency's Expansion: A Future Headline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-sets-new-agenda-5-million-to-engage-journalists-in-direct-confrontation-with-substack/"><u>FB Sets New Agenda: $5 Million to Engage Journalists in Direct Confrontation with Substack</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-duplicate-your-instagram-posts/"><u>In 2024, How to Duplicate Your Instagram Posts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-streamline-your-content-a-tutorial-for-instagram-video-sharing/"><u>2024 Approved  Streamline Your Content  A Tutorial for Instagram Video Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-social-media-identity-on-facebook/"><u>Customizing Social Media Identity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-mastering-time-10-outstanding-youtube-channels-on-history/"><u>In 2024, Mastering Time  10 Outstanding YouTube Channels on History</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-reel-of-excellence-ice-artistry-in-22-summary/"><u>[New] Reel of Excellence - Ice Artistry in '22 Summary</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+</ul></div>

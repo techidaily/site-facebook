@@ -1,0 +1,154 @@
+---
+title: "Cementing Value in the Flux: The Role of Stablecoins in Crypto"
+date: 2024-07-12T11:00:57.306Z
+updated: 2024-07-13T11:00:57.306Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Cementing Value in the Flux: The Role of Stablecoins in Crypto"
+excerpt: "This Article Describes Cementing Value in the Flux: The Role of Stablecoins in Crypto"
+keywords: Stablecoins Impact,Cryptocurrency Value Stability,Stablecoin Regulation Trends,Crypto Stability Solutions,Digital Asset Fluctuation Management,Investment Strategies for Stablecoins,Blockchain Currencies Value Preservation
+thumbnail: https://thmb.techidaily.com/9c54005e696cd2ed7b70760eb63ef402583a5567abcd354a24f074d4d0059be5.jpg
+---
+
+## Cementing Value in the Flux: The Role of Stablecoins in Crypto
+
+ Cryptocurrencies. You know the gist, right? Buy low, sell high, get rich, or hodl because numbers go up. Right? Some cryptocurrencies are known for their price volatility, but some coins, known as "stablecoins," are actually designed to maintain a consistent value over time.
+
+ Where's the fun in that? What's the point? Where's the profit? Read on to find out what a stablecoin is and why you might want to use one.
+
+## What Are Stablecoins?
+
+ This may surprise you, but cryptocurrencies were conceived to be used as currencies. Right now, people speculate on their notoriously volatile prices more than they use these digital assets to buy and sell goods and services, but it's not supposed to be that way.
+
+ Related:[What Is Bitcoin, How Is it Worth So Much, and How Can You Spend it?](https://www.makeuseof.com/tag/what-is-bitcoin-how-can-you-spend-it/)
+
+ There are a couple of reasons for this, but one of the biggest is that most cryptocurrencies aren't "backed" by any organization or "pegged" to any consistent value. Most cryptocurrencies are worth whatever the market is willing to pay, thus the volatility.
+
+ Many long-term crypto advocates believe that these prices will stabilize with greater adoption and regular use. In the meantime, many people want to use cryptocurrencies like regular money without all of that price volatility.
+
+That's where stablecoins come in.
+
+ Stablecoins are blockchain-based digital currencies just like Bitcoin or Ethereum, but they are designed to maintain a consistent price over time, usually by being pegged to the value of another currency or being backed by a trusted agency.
+
+## How Do Stablecoins Work?
+
+ Volatility aside, there are a number of great use cases for cryptocurrencies. These include greater transaction transparency, security, and the potential privacy of users.
+
+ Related:[What Is a Blockchain and How Does it Work?](https://www.makeuseof.com/what-is-a-blockchain-and-how-does-it-work/)
+
+ Stablecoins try to maintain these benefits and bring benefits of their own, which we'll get into in a moment. However, stablecoins do this without bringing along all of the price volatility that makes other cryptocurrencies difficult and intimidating to use in regular transactions.
+
+![Tether logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/Tether_full_logo_dm.png)
+
+Image Credit: Tether
+
+ Two of the most popular stablecoins are USD Coin (USDC) and Tether (USDT), which are pegged to the U.S. dollar. The dollar is significantly more stable than a cryptocurrency like Bitcoin or Ether. However, you should note that neither of these coins is backed by the United States government like the dollar.
+
+ Other stablecoins, such as PAX Gold (PAXG) and Tether Gold (XAUT), are backed by gold for similar stability reasons.
+
+ However, national currencies can and do have volatility issues of their own. In Turkey, Iran, Venezuela, and other countries experiencing political unrest, citizens have adopted Bitcoin for its comparative stability as the price of their country's issued currency fell. So, the value of a stablecoin is only as stable as whatever it is pegged to.
+
+ Facebook's proposed Diem stablecoin (formerly Libra) would get around this issue in part by being backed by a basket of reserve currencies from around the world. If one or even a few of these assets experienced price instability, it would be checked by the stability of the other assets. That would allow Diem to maintain a more stable price than any individual asset backing the coin.
+
+### CBDCs Are a Subset of Stablecoins
+
+ When a government launches its own stablecoin, this class of stablecoin is called a "central bank digital currency" or "CBDC" for short. Right now, China is the only country with a CBDC, though India, the United Kingdom, the United States, and other countries have publicly considered the idea.
+
+ While CBDCs would work similarly to existing cryptocurrencies for users, they would pose additional opportunities and obstacles for governments. We'll return to the idea of CBDCs in a moment.
+
+## More Stablecoin Examples and Use Cases
+
+ The benefits of using a stable coin often depend on the coin as well as who issues it. There are several stablecoins already out there, including those that have already been discussed in this article. However, some proposed stablecoins could offer even more utility in the future.
+
+### CBDCs Could Help Governments Regulate and Issue Currency
+
+ Stablecoins, specifically CBDCs, have a huge draw for governments for many reasons, including giving the central bank more direct control over the currency. CBDCs could also reduce or eliminate the need for the government to print and maintain physical money.
+
+ While China uses its CBDC as a surveillance tool, U.S. Fed Chair Jerome Powell has said that the private nature of cryptocurrencies is a reason for the U.S. not to build a CBDC.
+
+### Stablecoins Could Provide Financial Infrastructure to the Unbanked
+
+![usd coin logo smartphone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/usd-coin-logo-smartphone-screen.jpg)
+
+ On the other end of the spectrum, giving individuals more control over their money is a stated goal of cryptocurrencies in general and Diem specifically. Cryptocurrencies, including stablecoins, reduce a lot of barriers to entry for conventional banking.
+
+ People without easy access to physical banks or who don't trust banking institutions could access secure financial services through stablecoins. Stablecoins other than CBDCs can be used by individuals as a store of value when their own local currency was in flux, as discussed above, or by people who live in areas where multiple currencies are used.
+
+### Stablecoins Improve Online Transactions
+
+ Cryptocurrencies are naturally suited to online transactions in terms of their digital infrastructure. Their decentralized nature and ease of use also make them ideal for people conducting international transactions. Cryptocurrency transactions are also faster, more reliable, and potentially less expensive than conventional bank transactions.
+
+ However, the price volatility of most cryptocurrencies makes them difficult for vendors to accept. That is, without transferring currency back and forth from cryptocurrencies to conventional currencies. This method works but eliminates much of the utility of accepting cryptocurrency payments in the first place.
+
+ Stablecoins can allow vendors to accept payments in cryptocurrency for international online transactions without the need to account for price volatility or the hassle of transferring funds from one currency to another.
+
+## Is a Stablecoin the Coin for You?
+
+ If you like the sound of digital currencies but don't like the sound of the price volatility of coins like Bitcoin and Ethereum, stablecoins might be right for you. While solutions like Facebook's Diem and CBDCs still exist on paper for most readers, coins like USDC and Tether are available and traded on most exchanges.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/content-distribution-prowess-sharing-instagram-reels-to-facebook-stories/"><u>Content Distribution Prowess: Sharing Instagram Reels to Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-personalized-digital-id/"><u>Creating a Personalized Digital ID</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-6-budget-friendly-youtube-outro-makers-for-2024/"><u>[New] Top 6 Budget-Friendly YouTube Outro Makers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultural-catalysts-social-medias-four-transformative-influences/"><u>Cultural Catalysts: Social Media's Four Transformative Influences</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-digital-identity-with-facebook-feed-personalization-techniques/"><u>Crafting Digital Identity with Facebook Feed Personalization Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-chatting-integrating-facebooks-sounds-in-messages/"><u>Cutting-Edge Chatting: Integrating Facebook’s Sounds in Messages</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-8-best-cartoon-sound-effects-you-can-download/"><u>New 2024 Approved 8 Best Cartoon Sound Effects You Can Download</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revealing-the-top-notch-free-srt-translators-for-your-needs/"><u>2024 Approved  Revealing the Top-Notch FREE SRT Translators for Your Needs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-make-youtube-animated-subscribe-button-easily-in-filmora/"><u>[Updated] In 2024, How to Make YouTube Animated Subscribe Button Easily in Filmora</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-strangers-find-my-phone-number-via-facebook/"><u>Can Strangers Find My Phone Number via Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-dates-on-facebooks-nostalgic-moments/"><u>Blocking Dates on Facebook's Nostalgic Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-realm-of-digital-presence/"><u>Customizing Your Realm of Digital Presence</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-top-5-best-video-to-ppt-converters/"><u>In 2024, Top 5 Best Video to PPT Converters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-flipping-through-frames-instagrams-video-reversal-wizardry/"><u>[New] 2024 Approved  Flipping Through Frames  Instagram's Video Reversal Wizardry</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-better-connections-the-channel-advantage-in-fb-groups/"><u>Building Better Connections: The Channel Advantage in FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-gap-image-descriptions-on-social-networking-sites/"><u>Bridging the Gap: Image Descriptions on Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/curating-personalized-reflections-on-facebook/"><u>Curating Personalized Reflections on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/conceal-your-social-profile-from-curious-strangers/"><u>Conceal Your Social Profile From Curious Strangers</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-crisis-key-platforms-down-for-maintenayer/"><u>Connectivity Crisis: Key Platforms Down for Maintenayer</u></a></li>
+<li><a href="https://facebook.techidaily.com/clubhouse-rivals-facebook-introduces-new-listening-tools/"><u>Clubhouse Rivals: Facebook Introduces New Listening Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-executive-leadership-of-facebook/"><u>Current Executive Leadership of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-quality-images-and-videos-in-fb-app/"><u>Boosting Quality Images & Videos in FB App</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-realme-narzo-60-5g-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Realme Narzo 60 5G</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-first-film-crews-guide-to-gopro-add-ons/"><u>[Updated] First Film Crew's Guide to GoPro Add-Ons</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-collaborative-spaces-via-facebook-networks/"><u>Creating Collaborative Spaces via Facebook Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-shareholders-of-facebook/"><u>Current Shareholders of Facebook</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unified-imagery-the-ultimate-blend-strategy/"><u>[New] Unified Imagery  The Ultimate Blend Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypass-facebooks-tracking-utilizing-off-fb-tool/"><u>Bypass Facebook's Tracking - Utilizing Off-FB Tool</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-elevate-your-content-20-exceptional-tiktok-captions-for-success-for-2024/"><u>[Updated] Elevate Your Content  20 Exceptional TikTok Captions for Success for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-blueprint-for-creating-stellar-tiktok-promotional-content-for-2024/"><u>The Blueprint for Creating Stellar TikTok Promotional Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-profile-information-emailphone-switch/"><u>Customizing Profile Information: Email/Phone Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-social-network-groups-fbs-hub-vs-linkedins-professional-circle/"><u>Comparing Social Network Groups: FB's Hub Vs. LinkedIn's Professional Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/how-to-use-luts-in-photoshop-cc/"><u>How to Use LUTs in PhotoShop CC</u></a></li>
+<li><a href="https://facebook.techidaily.com/control-and-customize-facebook-feed-reimagined/"><u>Control & Customize – Facebook FEED Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivate-connections-to-reach-digital-stardom/"><u>Cultivate Connections to Reach Digital Stardom</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-the-right-networking-realm-casual-vs-career-communities/"><u>Choosing the Right Networking Realm: Casual Vs. Career Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/bitcoin-named-as-zucks-unconventional-goat-companion/"><u>Bitcoin Named as Zuck's Unconventional Goat Companion.</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-new-social-persona-changing-name-on-facebook-platform/"><u>Crafting a New Social Persona: Changing Name on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-free-from-random-facebook-lockout/"><u>Breaking Free From Random Facebook Lockout</u></a></li>
+<li><a href="https://facebook.techidaily.com/closing-a-chapter-on-social-media-deleting-or-memorializing-late-friends/"><u>Closing a Chapter on Social Media: Deleting or Memorializing Late Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-effective-bilingualmultilingual-social-media-messages/"><u>Crafting Effective Bilingual/Multilingual Social Media Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-deletion-protocols-for-social-media-clans/"><u>Comprehensive Deletion Protocols for Social Media Clans</u></a></li>
+</ul></div>

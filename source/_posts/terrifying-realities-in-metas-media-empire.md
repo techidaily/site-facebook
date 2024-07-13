@@ -1,7 +1,7 @@
 ---
 title: Terrifying Realities in Meta’s Media Empire
-date: 2024-06-25T13:57:14.651Z
-updated: 2024-06-26T13:57:14.651Z
+date: 2024-07-12T09:43:22.340Z
+updated: 2024-07-13T09:43:22.340Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
-## 1\. An Entrapping Social Media Monopoly ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
+## 1\. An Entrapping Social Media Monopoly
+![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
  According to [Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
@@ -37,7 +38,8 @@ thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f
 
  Because Meta has dominated social media so exhaustively, we are stuck in a vicious cycle every time the company messes up. First, we get outraged. Then we become disappointed that there's nothing we can do about it. And finally, we resign to the fact that we really have nowhere else to go. It's a complete entrapment. Meta's monopoly is so exhaustive that we are literally left with no other option.
 
-## 2\. Meta Wields Too Much Power ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
+## 2\. Meta Wields Too Much Power
+![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
@@ -47,7 +49,8 @@ thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
-## 3\. A Privacy Dilemma ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
+## 3\. A Privacy Dilemma
+![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
@@ -108,3 +111,48 @@ Close
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/elevating-exchanges-a-comprehensive-guide-to-facebooks-latest-moderation-advancements/"><u>Elevating Exchanges: A Comprehensive Guide to Facebook's Latest Moderation Advancements</u></a></li>
+<li><a href="https://facebook.techidaily.com/connective-convergence-unveiling-the-top-20-social-network-sites/"><u>Connective Convergence: Unveiling the Top 20 Social Network Sites</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/a-step-by-step-guide-to-utilizing-bandicams-capture-feature/"><u>A Step-by-Step Guide to Utilizing Bandicam's Capture Feature</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-moments-in-music-hot-20-rap-songs-dominating-tiktok/"><u>2024 Approved  Moments in Music  Hot 20 Rap Songs Dominating TikTok</u></a></li>
+<li><a href="https://change-location.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-fb-photos/"><u>Controlling Who Sees Your Fb Photos</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-convert-videos-into-high-quality-audio-the-10-best-tools-at-your-fingertips-free/"><u>New Convert Videos Into High-Quality Audio - The 10 Best Tools at Your Fingertips (Free)</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-user-engagement-with-auto-generated-imagery-titles/"><u>Enhancing User Engagement with Auto-Generated Imagery Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-digital-presence-sharing-hd-media-mobilely/"><u>Elevate Your Digital Presence: Sharing HD Media Mobilely</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-fb-content-scheduling-top-5-low-cost-techniques/"><u>Effective FB Content Scheduling: Top 5 Low-Cost Techniques</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-on-iphone-13-proipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock on iPhone 13 Pro/iPad/iPod</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-proactive-ways-to-record-breathtaking-live-sports-games/"><u>In 2024, Proactive Ways to Record Breathtaking Live Sports Games</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-bargain-ballbusters-learn-free-football-broadcast-techniques/"><u>In 2024, Bargain Ballbusters  Learn Free Football Broadcast Techniques</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-a-novices-guide-to-making-unforgettable-snaps-on-snapchat-for-2024/"><u>[Updated] A Novice's Guide to Making Unforgettable Snaps on Snapchat for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-time-saving-tips-how-to-speed-up-video-playback-in-quicktime-player/"><u>Updated Time-Saving Tips How to Speed Up Video Playback in QuickTime Player</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-intruder-steps-for-detection-and-restoration/"><u>Facebook Intruder? Steps for Detection & Restoration</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-online-reputation-the-best-free-tools-for-social-management/"><u>Boost Your Online Reputation - The Best FREE Tools for Social Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-responsibility-in-the-battle-against-online-fraudsters/"><u>Big Tech's Responsibility in the Battle Against Online Fraudsters</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-trustworthy-youtube-to-mp4-file-extraction-processes/"><u>In 2024, Trustworthy YouTube to MP4 File Extraction Processes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-looms-legacy-unveiling-the-art-of-capturing-life/"><u>[Updated] In 2024, Loom's Legacy  Unveiling the Art of Capturing Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-interactive-features-are-they-game-changers/"><u>Facebook’s Interactive Features: Are They Game Changers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-who-you-want-to-be-on-social-media-with-facebook/"><u>Becoming Who You Want to Be on Social Media with Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-pros-playbook-elevating-your-facebook-lives-to-new-heights/"><u>[Updated] In 2024, The Pro's Playbook  Elevating Your Facebook Lives to New Heights</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exploring-beyond-vlc-a-modern-streamers-guide/"><u>Exploring Beyond VLC  A Modern Streamer's Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-updated-navigation-and-tabs-concept/"><u>Decoding Facebook’s Updated Navigation and Tabs Concept</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-moderation-panel-decisions/"><u>Dissecting Facebook’s Moderation Panel Decisions</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-of-year-update-instagrams-chat-curtain-call/"><u>End-of-Year Update: Instagram's Chat Curtain Call</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-second-chance-for-llife-amidst-emerging-metaverse-innovations/"><u>A Second Chance for LLife Amidst Emerging Metaverse Innovations?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-pulse-of-popularity-this-weeks-top-twitters-for-2024/"><u>[New] Pulse of Popularity  This Week's Top Twitters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-content-allowed-on-facebook/"><u>Deciphering Content Allowed on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-not-working-here-are-the-potential-ways-to-fix-it/"><u>Facebook Not Working? Here Are the Potential Ways to Fix It</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-designing-facebook-background-artwork/"><u>Best Practices in Designing Facebook Background Artwork</u></a></li>
+<li><a href="https://facebook.techidaily.com/harmonizing-social-media-and-melodies-the-promise-of-boomboxs-future/"><u>Harmonizing Social Media and Melodies: The Promise of Boombox's Future</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-infinix-hot-40-pro-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-users-at-risk-the-effect-of-deleting-facial-recognition-data-on-safety/"><u>Facebook Users at Risk? The Effect of Deleting Facial Recognition Data on Safety?</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-nokia-g42-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Nokia G42 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-rid-of-embarrassing-posts-from-social-media-the-8-best-online-tools/"><u>How to Get Rid of Embarrassing Posts From Social Media: The 8 Best Online Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-profile-picture-selection/"><u>Best Practices for Facebook Profile Picture Selection</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-realme-narzo-60-5g-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Realme Narzo 60 5G Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trump-claims-infringement-on-speech-by-tech-giants/"><u>Donald Trump Claims Infringement on Speech by Tech Giants</u></a></li>
+</ul></div>

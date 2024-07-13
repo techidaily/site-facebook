@@ -1,7 +1,7 @@
 ---
 title: Analyzing the Shift in Tech Monopoly Controls
-date: 2024-06-25T14:04:10.166Z
-updated: 2024-06-26T14:04:10.166Z
+date: 2024-07-12T09:51:08.065Z
+updated: 2024-07-13T09:51:08.065Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,8 @@ thumbnail: https://thmb.techidaily.com/6b81d20b1d6e26d0457009bbfe739603019d02e6b
 
  More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
-### 1\. The American Choice and Innovation Online Act ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+### 1\. The American Choice and Innovation Online Act
+![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -79,7 +80,8 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
-### 5\. The Merger Filing Fee Modernization Act of 2021 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
+### 5\. The Merger Filing Fee Modernization Act of 2021
+![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -116,3 +118,45 @@ Finally, we come to the economic backing to make it all happen.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-who-spoke-on-60-minutes-about-facebook/"><u>Behind the Scenes: Who Spoke on 60 Minutes About Facebook?</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-elevate-your-video-content-a-guide-to-creating-3d-effects-on-windows/"><u>New 2024 Approved Elevate Your Video Content A Guide to Creating 3D Effects on Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-decipher-youtubes-mysteries-with-advanced-insights-from-social-blade/"><u>[New] In 2024, Decipher YouTube's Mysteries with Advanced Insights From Social Blade</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-direct-be-quick-understanding-3-tagging-techniques-for-fb-friends/"><u>Be Direct, Be Quick: Understanding 3 Tagging Techniques for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-crafting-profile-pics-that-resonate/"><u>A Guide to Crafting Profile Pics That Resonate</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-addressing-young-users-on-facebook/"><u>Best Practices: Addressing Young Users on Facebook</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-navigate-the-world-of-online-file-management-the-five-leading-mp3-taggers-unveiled/"><u>Updated In 2024, Navigate the World of Online File Management The Five Leading MP3 Taggers Unveiled</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elite-writes-on-10-free-video-transcript-extractors-for-2024/"><u>Elite' Writes on 10 Free Video Transcript Extractors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-critical-review-of-this-years-tech-flaws/"><u>A Critical Review of This Year's Tech Flaws</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-revolutionary-methods-for-locating-fresh-social-groups/"><u>4 Revolutionary Methods for Locating Fresh Social Groups</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enhancing-video-discoverability-with-effective-titles-and-tags/"><u>[New] 2024 Approved  Enhancing Video Discoverability with Effective Titles & Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-block-8-things-to-assess-before-leaving-fb/"><u>Before You Block: 8 Things to Assess Before Leaving FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-how-and-why-telegram-skyroited-after-facebook-crash/"><u>Analyzing How and Why Telegram Skyroited After Facebook Crash</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-sources-of-anxiety-from-metas-ascendancy/"><u>3 Sources of Anxiety From Meta’s Ascendancy</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-you-apart-from-friends-on-fb-truths-unveiled/"><u>Are You Apart From Friends on FB? Truths Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-anarchy-multiple-social-platforms-offline/"><u>App Anarchy: Multiple Social Platforms OFFLINE</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-signs-your-social-media-accounts-have-been-hacked/"><u>9 Signs Your Social Media Accounts Have Been Hacked</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-online-reviews-ever-forgotten/"><u>Are Online Reviews Ever Forgotten?</u></a></li>
+<li><a href="https://facebook.techidaily.com/archiving-acrobatics-expertise-in-concealing-social-media-posts/"><u>Archiving Acrobatics: Expertise in Concealing Social Media Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-bickering-to-create-calmness-on-fb/"><u>Banishing Bickering to Create Calmness on FB</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximizing-your-social-reach-with-dual-display-facebook-streaming/"><u>[New] In 2024, Maximizing Your Social Reach with Dual Display Facebook Streaming</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-strategic-planning-of-podcast-drop-times/"><u>[New] Strategic Planning of Podcast Drop Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/accusation-facebook-forbids-authentic-ads/"><u>Accusation: Facebook Forbids Authentic Ads</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-6-popular-animated-emoji-video-effects/"><u>In 2024, 6 Popular Animated Emoji Video Effects</u></a></li>
+<li><a href="https://windows11.techidaily.com/starting-windows-terminal-with-quake-effects/"><u>Starting Windows Terminal with Quake Effects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-realme-v30-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Realme V30? Try These Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-web-spaces-for-aging-population-interaction/"><u>Best Web Spaces for Aging Population Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-clean-conversations-utilizing-facebooks-groups-moderation-innovations/"><u>A Guide to Clean Conversations: Utilizing Facebook's Groups Moderation Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-alternative-vision-not-embracing-metaverse-now/"><u>Apple’s Alternative Vision: Not Embracing Metaverse Now</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/passfab-iphone-6s-plus-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>PassFab iPhone 6s Plus Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/adapting-to-change-the-6-continuous-uses-of-facebook/"><u>Adapting to Change: The 6 Continuous Uses of Facebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/kindred-android-companions-for-nintendoenasportable-gaming/"><u>Kindred Android Companions for Nintendo'enasportable Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-validating-online-personas/"><u>Beyond Likes and Shares: Validating Online Personas</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-critical-look-at-facebook-and-googles-efforts-to-quash-scam-ads/"><u>A Critical Look at Facebook and Google's Efforts to Quash Scam Ads</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-top-budget-friendly-video-editors/"><u>Updated 2024 Approved Top Budget-Friendly Video Editors</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-unraveling-sharex-professional-perspectives-and-picks/"><u>[New] In 2024, Unraveling ShareX  Professional Perspectives & Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-promoting-vacancies-through-fb/"><u>Best Practices in Promoting Vacancies Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-the-popularity-paradox-in-social-media/"><u>A Closer Look at the Popularity Paradox in Social Media</u></a></li>
+</ul></div>

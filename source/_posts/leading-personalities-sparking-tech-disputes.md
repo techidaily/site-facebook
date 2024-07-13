@@ -1,7 +1,7 @@
 ---
 title: Leading Personalities Sparking Tech Disputes
-date: 2024-06-25T14:10:10.473Z
-updated: 2024-06-26T14:10:10.473Z
+date: 2024-07-12T09:57:48.677Z
+updated: 2024-07-13T09:57:48.677Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-## 1\. Jack Dorsey ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+## 1\. Jack Dorsey
+![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
-## 2\. Elizabeth Holmes ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+## 2\. Elizabeth Holmes
+![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
 
@@ -45,7 +47,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-## 3\. Julian Assange ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+## 3\. Julian Assange
+![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
 
@@ -61,7 +64,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
-## 4\. Susan Wojcicki ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+## 4\. Susan Wojcicki
+![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
 
 **Best known for:** CEO of YouTube
 
@@ -75,7 +79,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
-## 5\. Bill Gates ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+## 5\. Bill Gates
+![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -89,7 +94,8 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
 
  Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
 
-## 6\. Mark Zuckerberg ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+## 6\. Mark Zuckerberg
+![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
 **Best known for:** Co-founder of Facebook
 
@@ -134,3 +140,55 @@ thumbnail: https://thmb.techidaily.com/ccdf50131a6b9e5675eea00d8176eeb8be6c7d559
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sony-a6400-the-unseen-movie-problem/"><u>2024 Approved  Sony A6400  The Unseen Movie Problem</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-conquer-the-clutter-learn-bg-erasure-in-figma-designs/"><u>2024 Approved  Conquer the Clutter  Learn BG Erasure in Figma Designs</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-capturing-life-in-hd-top-webcam-recorder-reviews/"><u>[New] In 2024, Capturing Life in HD - Top WebCam Recorder Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154126491-broaden-your-reach-upload-fb-material-to-popular-app-platforms-now/"><u>Broaden Your Reach: Upload Fb Material to Popular App Platforms Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-beyond-facebook-the-future-outlook/"><u>Data Beyond Facebook: The Future Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalizing-on-our-daily-movements/"><u>Capitalizing on Our Daily Movements</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-judges-announce-date-for-ruling-on-trump-ban/"><u>Facebook Judges Announce Date for Ruling on Trump Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-publicize-positions-online-facebook/"><u>How to Publicize Positions Online - Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-essential-points-in-facebook-papers/"><u>Breaking Down the Essential Points in Facebook Papers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-12t-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 12T Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-worker-to-wizard-facebooks-metamate-saga/"><u>From Worker to Wizard: Facebook's Metamate Saga</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-between-facebook-and-linkedin-the-group-perspective/"><u>Deciding Between Facebook and LinkedIn: The Group Perspective</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-perfect-loop-technique-for-all-your-youtube-favorites-for-2024/"><u>The Perfect Loop Technique for All Your YouTube Favorites for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/golf-guilds-prohibit-online-engagement/"><u>Golf Guilds Prohibit Online Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-initiative-vs-tiktoks-trending-score/"><u>Facebook’s Reel Initiative vs TikTok's Trending Score</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-honor-magic-6-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Honor Magic 6?</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-digital-suggestions-a-tweet-insta-facebook-guide/"><u>Disable Digital Suggestions: A Tweet-Insta-Facebook Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-10-firefox-screen-recorders-and-add-ons/"><u>[Updated] In 2024, Top 10 Firefox Screen Recorders and Add-Ons</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-fifas-best-players-trendy-videos-on-youtube-for-2024/"><u>[Updated] FIFA's Best Players  Trendy Videos on YouTube for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-iphone-cheat-sheet-for-insta-downloads/"><u>[New] The Ultimate iPhone Cheat Sheet for Insta Downloads</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-best-and-most-popular-android-apps-on-google-play/"><u>New In 2024, Best and Most Popular Android Apps on Google Play</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y56-5g-not-connecting-to-wi-fi-12-quick-ways-to-fix-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y56 5G Not Connecting to Wi-Fi? 12 Quick Ways to Fix | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-clear-up-your-zoom-audio-flawlessly/"><u>In 2024, Clear Up Your Zoom Audio Flawlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-a-sanctuary-from-politics/"><u>Facebook: A Sanctuary From Politics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ultimate-list-of-youtube-entrance-software/"><u>[New] In 2024, Ultimate List of YouTube Entrance Software</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-the-ultimate-guide-to-instagram-aspect-ratios-get-the-most-out-of-your-videos/"><u>New The Ultimate Guide to Instagram Aspect Ratios Get the Most Out of Your Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-the-practicality-and-privacy-implications-of-social-app-sign-ins-via-facebook/"><u>Diving Deep Into the Practicality & Privacy Implications of Social App Sign-Ins via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-peak-wnbas-online-strategy-via-social/"><u>Connectivity Peak: WNBA's Online Strategy via Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-district-arrangements/"><u>Exploring Facebook's New District Arrangements</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-make-a-lasting-impression-top-trailer-creation-tools-for-2024/"><u>Updated Make a Lasting Impression Top Trailer Creation Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-new-safeguard-code-for-fb/"><u>Implementing a New Safeguard Code for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-random-friends-notifications-on-social-media/"><u>Ban Random Friends Notifications on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150816650-fb-oversight-to-unveil-ruling-on-prohibition-against-trump/"><u>FB Oversight to Unveil Ruling on Prohibition Against Trump</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-asus-rog-phone-7-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Asus ROG Phone 7 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151874818-communication-breakdown-here-are-your-first-timer-room-tips/"><u>Communication Breakdown? Here Are Your First-Timer Room Tips!</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1717726039043-updated-2024-approved-how-to-upload-videos-to-youtube-a-step-by-step-guide/"><u>[Updated] 2024 Approved  How To Upload Videos to YouTube  A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-is-augmented-reality-conferencing-the-future-of-workplace-collaboratio/"><u>In 2024, Is Augmented Reality Conferencing the Future of Workplace Collaboratio</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-laughter-lab-virtually/"><u>[New] Laughter Lab Virtually</u></a></li>
+<li><a href="https://facebook.techidaily.com/distilling-key-events-that-defined-googles-2022/"><u>Distilling Key Events That Defined Google's 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-not-seen-status-on-chat-platforms/"><u>Decoding 'Not Seen' Status on Chat Platforms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/complete-guide-to-morphvox-voice-changer-find-the-best-way/"><u>Complete Guide to MorphVOX Voice Changer  Find the Best Way</u></a></li>
+<li><a href="https://fox-info.techidaily.com/periscope-pro-the-in-depth-usage-guidebook/"><u>Periscope Pro  The In-Depth Usage Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-cracks-down-on-facebooks-data-collection-from-whatsapp-userbase/"><u>Germany Cracks Down on Facebook's Data Collection From WhatsApp Userbase</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-algorithms-to-anecdotes-gathering-opinions-on-news-delivery/"><u>From Algorithms to Anecdotes: Gathering Opinions on News Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/engineering-your-social-media-iconography/"><u>Engineering Your Social Media Iconography</u></a></li>
+</ul></div>

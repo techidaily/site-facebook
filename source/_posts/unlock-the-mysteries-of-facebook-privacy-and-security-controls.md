@@ -1,7 +1,7 @@
 ---
 title: Unlock the Mysteries of Facebook Privacy & Security Controls
-date: 2024-06-25T14:01:34.056Z
-updated: 2024-06-26T14:01:34.056Z
+date: 2024-07-12T09:48:12.643Z
+updated: 2024-07-13T09:48:12.643Z
 tags:
   - facebook
 categories:
@@ -23,7 +23,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 
 **FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the [Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
 
-## 1. Security and Login ![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
+## 1. Security and Login
+![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
 
  Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 * To tighten your security even further, you can add [two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
 * Be made aware of any [unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
 
-## 2. Privacy ![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+## 2. Privacy
+![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
 
  Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
 
@@ -46,7 +48,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
-## 3. Profile and Tagging ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+## 3. Profile and Tagging
+![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
@@ -56,7 +59,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
-## 4. Public Posts ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+## 4. Public Posts
+![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
@@ -65,7 +69,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
-## 5. Blocking ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+## 5. Blocking
+![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
@@ -74,7 +79,8 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
-## 6\. Quick Tips ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+## 6\. Quick Tips
+![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
@@ -103,3 +109,58 @@ thumbnail: https://thmb.techidaily.com/a0528aada037fb1ed089f58b7830637011a25b39b
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/affordable-tactics-for-perfectly-timed-social-media-posts-on-fb/"><u>Affordable Tactics for Perfectly Timed Social Media Posts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-spots-to-traverse-for-freelance-employment/"><u>Best Spots to Traverse for Freelance Employment</u></a></li>
+<li><a href="https://facebook.techidaily.com/baffling-befrienders-hide-your-list-precision/"><u>Baffling Befrienders: Hide Your List Precision</u></a></li>
+<li><a href="https://facebook.techidaily.com/activating-your-digital-guard-facebooks-privacy-toolkit/"><u>Activating Your Digital Guard: Facebook's Privacy Toolkit</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/rise-in-the-rankings-essential-seo-for-video-creators/"><u>Rise in the Rankings  Essential SEO for Video Creators</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-mastering-the-art-of-crafting-engaging-youtube-screen-closures/"><u>2024 Approved  Mastering the Art of Crafting Engaging YouTube Screen Closures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-instagrams-latest-trends-reels-and-stories-for-2024/"><u>[New] Mastering Instagram's Latest Trends  Reels and Stories for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-hd-media-mastery-in-fb-mobile/"><u>A Step-by-Step Approach: HD Media Mastery in Fb Mobile</u></a></li>
+<li><a href="https://change-location.techidaily.com/additional-tips-about-sinnoh-stone-for-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-streamline-your-videos-10-best-flv-to-youtube-convertors-for-2024/"><u>[Updated] Streamline Your Videos  10 Best FLV to YouTube Convertors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-social-media-giants-forgot-about-users/"><u>5 Times Social Media Giants Forgot About Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/averted-adultery-on-airwaves-metas-online-image-intervention/"><u>Averted Adultery on Airwaves: Meta’s Online Image Intervention</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-macbooks-eye-catches-learn-webcam-recording/"><u>[Updated] In 2024, MacBook's Eye Catches  Learn Webcam Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/archery-associations-escape-social-spotlight/"><u>Archery Associations Escape Social Spotlight</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>[New] The Art of iPhone Photos  Arrangement Strategies and iCloud Coordination</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-record-and-share-moments-instantly-using-vlcs-webcam-recorder-for-2024/"><u>[New] Record & Share Moments Instantly Using VLC's Webcam Recorder for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-extracting-exclusive-facebook-videos/"><u>Best Practices for Extracting Exclusive Facebook Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-look-back-at-googles-major-news-of-2022/"><u>A Look Back at Google’s Major News of 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-push-notifications-predicting-your-choices-truth-or-chance/"><u>Are Push Notifications Predicting Your Choices? Truth or Chance?</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-simulation-comparing-metaverse-and-virtual-realitys-6-traits/"><u>Beyond Simulation: Comparing Metaverse and Virtual Reality's 6 Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-networks-grasping-the-essence-of-facebooks-virtual-world/"><u>Beyond Networks: Grasping the Essence of Facebook’s Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-simple-tips-to-protect-your-privacy-on-facebook/"><u>7 Simple Tips to Protect Your Privacy on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-private-chats-in-fb-secure/"><u>Are Private Chats in FB Secure?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/crafting-captivating-reels-syncing-audio-to-images/"><u>Crafting Captivating Reels  Syncing Audio to Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-picks-calendar-software-for-scheduled-social-shares/"><u>8 Top Picks: Calendar Software for Scheduled Social Shares</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-compelling-reasons-to-stay-active-on-facebook/"><u>6 Compelling Reasons to Stay Active on Facebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-from-novice-to-pro-the-essentials-in-zooming-for-youtube-broadcasts/"><u>[Updated] From Novice to Pro  The Essentials in Zooming for YouTube Broadcasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-dynamics-of-home-security-manycam-vs-single-camera-tech/"><u>[Updated] The Dynamics of Home Security  ManyCam Vs. Single-Camera Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/eat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[New] Beat Buzzers  Up-and-Coming Background Scores For YT Shorts</u></a></li>
+<li><a href="https://facebook.techidaily.com/audio-revolution-facebook-enhances-user-interaction/"><u>Audio Revolution: Facebook Enhances User Interaction</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-scaling-your-channel-a-guide-to-increased-viewership-and-followers/"><u>[Updated] Scaling Your Channel  A Guide to Increased Viewership and Followers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-best-android-and-ios-apps-for-monitoring-big-day-timers/"><u>2024 Approved  Unveiling the Best Android & iOS Apps for Monitoring Big Day Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-to-free-yourself-from-social-media-slavery/"><u>6 Reasons to Free Yourself From Social Media Slavery</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-essential-steps-to-record-and-archive-google-voice-calls/"><u>[Updated] In 2024, Essential Steps to Record and Archive Google Voice Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/advanced-methods-to-examine-hidden-feeds/"><u>Advanced Methods to Examine Hidden Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/activate-fb-two-factor-authentication-guide/"><u>Activate FB Two-Factor Authentication Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-understanding-facebooks-metaverse-vision/"><u>Beyond Likes and Shares: Understanding Facebook’s Metaverse Vision</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-mastering-windows-animation-the-best-9-software-for-high-quality-gif-capture/"><u>2024 Approved  Mastering Windows Animation  The Best 9 Software for High-Quality GIF Capture</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/2024-approved-splice-video-editor-on-mac-download-guide-and-best-alternative/"><u>2024 Approved Splice Video Editor on Mac Download Guide and Best Alternative</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-on-transforming-youtube-videos-into-mp3-using-safe-procedures/"><u>Guide on Transforming YouTube Videos Into MP3 Using Safe Procedures</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-your-voice-in-the-social-sphere-using-ripl/"><u>Amplifying Your Voice in the Social Sphere Using Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-economics-how-twitter-tracks-users-for-zero-cost-access/"><u>App Economics: How Twitter Tracks Users for Zero Cost Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-optimal-engagement-5-free-tactics-for-fb-post-scheduling/"><u>Achieve Optimal Engagement: 5 Free Tactics for FB Post Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deeper-dive-into-personalized-advertising-facebooks-newsfeed-update/"><u>A Deeper Dive Into Personalized Advertising: Facebook's Newsfeed Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-balanced-look-at-online-expat-communities-via-facebook/"><u>A Balanced Look at Online Expat Communities via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-need-for-touch-in-modern-social-networks/"><u>Assessing the Need for Touch in Modern Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-clickbait-the-real-costs-of-social-sharing/"><u>Beyond Clickbait: The Real Costs of Social Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-social-pitfalls-untaging-tips-and-tricks/"><u>Avoid Social Pitfalls: Untaging Tips and Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/adjusting-public-friend-access-to-profile/"><u>Adjusting Public Friend Access to Profile</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unveiling-trillers-unique-strategy-in-the-world-of-online-videos/"><u>Unveiling Triller's Unique Strategy in the World of Online Videos</u></a></li>
+</ul></div>

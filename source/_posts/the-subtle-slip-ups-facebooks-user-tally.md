@@ -1,7 +1,7 @@
 ---
 title: "The Subtle Slip-Ups: Facebook's User Tally"
-date: 2024-06-25T14:46:17.083Z
-updated: 2024-06-26T14:46:17.083Z
+date: 2024-07-12T10:38:47.058Z
+updated: 2024-07-13T10:38:47.058Z
 tags:
   - facebook
 categories:
@@ -33,7 +33,8 @@ thumbnail: https://thmb.techidaily.com/78af3078c80b8e3712553330740f219cdae8af451
 
  Talking about other metrics, the monthly active users saw a rise of two million—which is again negligible. Meta’s revenue grew from $29.01 billion in Q3 2021 to $33.67 billion in the next quarter. But the lower-than-expected net income and forecast caused Meta's share price to plunge.
 
-## Mark Zuckerberg's Statement on Losing Users ![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
+## Mark Zuckerberg's Statement on Losing Users
+![mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg.jpg)
 
  Credits:[Anthony Quintano via Flickr](https://www.flickr.com/photos/quintanomedia/47774197691)
 
@@ -82,3 +83,45 @@ thumbnail: https://thmb.techidaily.com/78af3078c80b8e3712553330740f219cdae8af451
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-7-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-discovering-the-russian-facebook-alternative/"><u>What Is VK?: Discovering the Russian Facebook Alternative</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-art-of-extended-shutter-speeds-complete-review-of-slomo-2024/"><u>The Art of Extended Shutter Speeds  Complete Review of SloMo, 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-xiaomi-redmi-note-12-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Xiaomi Redmi Note 12 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-facebook-profile-picture-selection/"><u>Best Practices for Facebook Profile Picture Selection</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-xiaomi-redmi-12-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Xiaomi Redmi 12 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-itel-p40plus-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Itel P40+ FRP Without Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-for-a-complete-analysis-of-every-facebook-interaction/"><u>The Explorer's Blueprint for a Complete Analysis of Every Facebook Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-responsibility-in-the-battle-against-online-fraudsters/"><u>Big Tech's Responsibility in the Battle Against Online Fraudsters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-base-to-pro-level-gopro-hero5-black-vs-hero4-silver-showdown/"><u>[New] From Base to Pro-Level  GoPro Hero5 Black vs Hero4 Silver Showdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-exodus-uncovering-facebooks-user-drop/"><u>The Hidden Exodus: Uncovering Facebook's User Drop</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistleblowers-allege-fb-reprimands-honesty-in-ads/"><u>Whistleblowers Allege FB Reprimands Honesty in Ads</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-enlarge-your-feed-footprint-with-full-screen-videos/"><u>[Updated] 2024 Approved  Enlarge Your Feed Footprint with Full-Screen Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-believes-online-connections-more-damaging/"><u>US Believes: Online Connections More Damaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-designing-facebook-background-artwork/"><u>Best Practices in Designing Facebook Background Artwork</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/blending-apple-music-with-cinematic-content/"><u>Blending Apple Music with Cinematic Content</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-windows-10s-top-rated-free-dvd-players-2023-edition/"><u>New Windows 10S Top-Rated Free DVD Players (2023 Edition)</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-two-screen-triumph-best-recorder-verdict/"><u>[Updated] 2024 Approved  Two-Screen Triumph  Best Recorder Verdict</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-tecno-camon-30-pro-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Tecno Camon 30 Pro 5G Without PUK Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reason-for-non-visibility-in-app-interactions/"><u>Unveiling the Reason for Non-Visibility in App Interactions</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-discover-the-hottest-tiktok-products-at-amazon/"><u>2024 Approved  Discover the Hottest TikTok Products at Amazon</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-second-chance-for-llife-amidst-emerging-metaverse-innovations/"><u>A Second Chance for LLife Amidst Emerging Metaverse Innovations?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-plot-to-post-a-detailed-guide-to-writing-youtube-videos/"><u>[Updated] 2024 Approved  From Plot to Post  A Detailed Guide to Writing YouTube Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-broadcast-on-instagram-live-without-video-or-sound/"><u>You Can Now Broadcast on Instagram Live Without Video or Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/becoming-who-you-want-to-be-on-social-media-with-facebook/"><u>Becoming Who You Want to Be on Social Media with Facebook</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-fast-and-easy-method-to-match-color-in-photoshop/"><u>Updated 2024 Approved Fast and Easy Method to Match Color in Photoshop</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-an-impartial-appraisal-the-power-of-recordcast/"><u>[Updated] An Impartial Appraisal  The Power of RecordCast</u></a></li>
+<li><a href="https://facebook.techidaily.com/bringing-social-media-into-your-whatsapp-chatscape/"><u>Bringing Social Media Into Your WhatsApp Chatscape</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/in-2024-3-best-motion-blur-plugins-for-adobe-after-effects/"><u>In 2024, 3 Best Motion Blur Plugins for Adobe After Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-2024-approved-update-seamlessly-integrating-apples-wireless-earbuds-with-your-computer/"><u>New 2024 Approved Update Seamlessly Integrating Apples Wireless Earbuds With Your Computer</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-online-reputation-the-best-free-tools-for-social-management/"><u>Boost Your Online Reputation - The Best FREE Tools for Social Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-candidates-fb-as-a-recruitment-tool/"><u>Transforming Candidates: FB as a Recruitment Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-world-shadowbans-and-how-to-escape-them/"><u>The Unseen World: Shadowbans & How to Escape Them</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-samsung-galaxy-s23-ultra-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Samsung Galaxy S23 Ultra Android SIM Unlock APK</u></a></li>
+<li><a href="https://facebook.techidaily.com/connective-convergence-unveiling-the-top-20-social-network-sites/"><u>Connective Convergence: Unveiling the Top 20 Social Network Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/wake-up-your-inactive-facebook-page-with-simple-fixes/"><u>Wake Up Your Inactive Facebook Page with Simple Fixes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+</ul></div>

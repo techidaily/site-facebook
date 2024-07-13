@@ -1,7 +1,7 @@
 ---
 title: 5 Hotspots for Gaining Freelance Assignments
-date: 2024-06-25T13:47:48.504Z
-updated: 2024-06-26T13:47:48.504Z
+date: 2024-07-12T09:32:43.445Z
+updated: 2024-07-13T09:32:43.445Z
 tags:
   - facebook
 categories:
@@ -21,7 +21,8 @@ thumbnail: https://thmb.techidaily.com/42e80c71c3e676d07f669fb711246bda708f83a95
 
  Here is a selection of places that'll help you take the first steps on your journey to freelancing success, whether you're a writer, graphic designer, programmer, or something else.
 
-## 1. LinkedIn ![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
+## 1. LinkedIn
+![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
 
  As the go-to B2B social media network, you're probably not surprised to hear that LinkedIn is a great place to find freelance work.
 
@@ -33,7 +34,8 @@ thumbnail: https://thmb.techidaily.com/42e80c71c3e676d07f669fb711246bda708f83a95
 
  You can also use LinkedIn to find freelance work by using hashtags and keeping an eye out on your feed for people who may need your services.
 
-## 2\. Job Boards ![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
+## 2\. Job Boards
+![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
 
  A lot of new freelancers go straight to the likes of [Upwork](https://www.upwork.com/) ,[Freelancer.com](https://www.freelancer.com/) , and [Fiverr](https://www.fiverr.com/) . Those platforms are handy for building a portfolio, but you'll have to sift through many low-paying gigs to find the gems.
 
@@ -48,7 +50,8 @@ Job boards that you can find great gigs on include:
 
  You can also use bigger job boards like [Indeed](https://www.indeed.com/) and [Neuvoo](https://neuvoo.com/) . Sign up for their newsletters to get the best roles delivered to your inbox.
 
-## 3. Facebook Groups ![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
+## 3. Facebook Groups
+![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
 
  Facebook can help you find pretty much anything, whether you're looking to buy from a local seller or meet like-minded people. And Facebook Groups are also beneficial when you're a freelancer.
 
@@ -60,7 +63,8 @@ Job boards that you can find great gigs on include:
 * [Vue.js for Hire](https://www.facebook.com/groups/vuejsforhire)
 * [Remote Work & Jobs for Digital Nomads](https://www.facebook.com/groups/remotework.digitalnomads/)
 
-## 4. Twitter ![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
+## 4. Twitter
+![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
 
  Twitter is a popular platform for freelancers to connect with others on the same path as them. But beyond that, it's also a great place to find freelance work.
 
@@ -76,7 +80,8 @@ Job boards that you can find great gigs on include:
 
  Both of these tips work if you don't have a Twitter account; you can just use the search bar to look for hashtags and profiles. Of course, though, you won't be able to follow accounts.
 
-## 5\. Emails ![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
+## 5\. Emails
+![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
 
  When you think of email pitches, chances are you're thinking of annoying salespeople. And yes, email pitches are sometimes irritating to receive. But they're only annoying if you make them that way.
 
@@ -92,7 +97,8 @@ Job boards that you can find great gigs on include:
 
  In addition to the job-hunting methods that we outlined above, there are a few things you should keep in mind once you start getting serious about landing gigs.
 
-### Build Relationships ![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
+### Build Relationships
+![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
 
  The phrase "it's not what you know, but who you know" is especially important in the world of freelancing. Often, the best roles are hidden. And if you don't have a strong network, your risks of faltering are higher.
 
@@ -104,7 +110,8 @@ Job boards that you can find great gigs on include:
 
  You don't necessarily need an extensive network; just a group of people you know well enough to help you.
 
-### Don't Drop Off When Things Are Going Well ![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
+### Don't Drop Off When Things Are Going Well
+![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
 
  The worst time to let down your guard is when things are going well in your freelance career—that is precisely when you might find that the tank begins to dry up.
 
@@ -114,7 +121,8 @@ Job boards that you can find great gigs on include:
 
  When you've got a steady base, you might want to focus more on your marketing, too. That way, you can start attracting clients rather than having to go out and get the work.
 
-### Offer Free Value ![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
+### Offer Free Value
+![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
 
  For others to trust you enough to want to spend their money on you, you must provide free value first. But that doesn't mean you need to work for free for other clients (though in some cases, doing so can be worth it).
 
@@ -145,3 +153,39 @@ Job boards that you can find great gigs on include:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/avoiding-dangers-in-digital-trade-9-essential-tips/"><u>Avoiding Dangers in Digital Trade: 9 Essential Tips</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-entrepreneurs-guide-to-snapchat-advertising/"><u>[Updated] In 2024, The Entrepreneur's Guide to Snapchat Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-indirect-messaging-strategies-on-fbc/"><u>Analyzing Indirect Messaging Strategies on FBC</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-must-have-tools-for-effective-social-media-scheduling/"><u>5 Must-Have Tools for Effective Social Media Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-previous-facebook-ties/"><u>Accessing Your Previous Facebook Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-components-of-facebooks-white-list/"><u>Analyzing the Components of Facebook's White List</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-breaking-free-from-the-old-a-complete-step-by-step-guide-to-updating-your-tiktok-avatar/"><u>[New] Breaking Free From the Old  A Complete, Step-By-Step Guide to Updating Your TikTok Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/banned-beyond-borders-facebook-in-these-countries/"><u>Banned Beyond Borders: Facebook in These Countries?</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoid-social-pitfalls-untaging-tips-and-tricks/"><u>Avoid Social Pitfalls: Untaging Tips and Tricks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-instant-verbal-to-written-conversion-for-nothing/"><u>[Updated] Instant Verbal to Written Conversion for Nothing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-mov-files-of-13-ultra-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and MOV files of 13 Ultra?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprerancial-approach-for-negating-distracting-fb-advertisements/"><u>A Comprerancial Approach for Negating Distracting FB Advertisements</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-connectivity-six-arguments-for-leaving-facebook-behind/"><u>Beyond Connectivity - Six Arguments for Leaving Facebook Behind</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-inspire-humorous-graphics-for-online-platform/"><u>2024 Approved  Inspire Humorous Graphics for Online Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-private-chats-in-fb-secure/"><u>Are Private Chats in FB Secure?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, iPogo will be the new iSpoofer On Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-invisible-programs-deciphering-user-behavior-for-commerce/"><u>Are Invisible Programs Deciphering User Behavior for Commerce?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-digital-revolution-todays-vr-landscape-and-tomorrows-trials/"><u>2024 Approved  The Digital Revolution  Today's VR Landscape & Tomorrow's Trials</u></a></li>
+<li><a href="https://facebook.techidaily.com/activism-affects-apps-groups-seek-to-lower-social-media-stars/"><u>Activism Affects Apps: Groups Seek to Lower Social Media Stars</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-13-pro-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone 13 Pro | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/amplifying-your-voice-in-the-social-sphere-using-ripl/"><u>Amplifying Your Voice in the Social Sphere Using Ripl</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-crafting-stunning-visuals-how-to-master-use-of-luts-in-photoshop-suite/"><u>2024 Approved  Crafting Stunning Visuals  How to Master Use of LUTs in Photoshop Suite</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-expert-tips-for-enhancing-youtube-videos-through-seo-mastery/"><u>[Updated] Expert Tips for Enhancing YouTube Videos Through SEO Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-the-unknown-when-will-oculus-quest-iii-arrive/"><u>Awaiting the Unknown: When Will Oculus Quest III Arrive?</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-whisper-walls-strong-in-fb-messenger/"><u>Are Whisper Walls Strong in FB Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-approach-to-securing-your-online-presence/"><u>A Compreenasional Approach to Securing Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-balanced-look-at-online-expat-communities-via-facebook/"><u>A Balanced Look at Online Expat Communities via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-to-enhanced-fb-security/"><u>A Step-by-Step Approach to Enhanced FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153152787-privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-5-smart-ways-to-save-your-roblox-gaming-on-apple-computers/"><u>In 2024, 5 Smart Ways to Save Your Roblox Gaming on Apple Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-facebook-quizzes-a-cybersecurity-risk/"><u>Are Facebook Quizzes a Cybersecurity Risk?</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-picks-calendar-software-for-scheduled-social-shares/"><u>8 Top Picks: Calendar Software for Scheduled Social Shares</u></a></li>
+</ul></div>

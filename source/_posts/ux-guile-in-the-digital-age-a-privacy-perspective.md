@@ -1,7 +1,7 @@
 ---
 title: "UX Guile in the Digital Age: A Privacy Perspective"
-date: 2024-07-12T09:32:36.823Z
-updated: 2024-07-13T09:32:36.823Z
+date: 2024-07-29T07:32:40.096Z
+updated: 2024-07-30T07:32:40.096Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/a3293f7209aa15a71e0e22b0ceceeb5d43595d799
 
  Let's take a look at how dark patterns use psychological biases to manipulate the choices you make, even if those decisions aren't in your best interest.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## What Are Dark Patterns?
 
 [DarkPatterns.org](https://darkpatterns.org/) defines dark patterns as "tricks used in websites and apps that make you buy or sign up for things that you didn't mean to."
@@ -44,6 +48,9 @@ The site lists 12 types of dark patterns to watch out for:
 * **Roach motel:** A situation that's easy to get into, but difficult to get out of.
 * **Sneak into basket:** During the process of making a purchase, the site sneaks additional items you didn't ask for into your shopping cart.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
 ![NordVPN Sneak Into Basket Dark Pattern](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/NordVPN-Sneak-Into-Basket-Dark-Pattern.png)
 
 * **Trick questions:** When a form seems to indicate something, but upon closer inspection, it asks for something totally different.
@@ -52,7 +59,13 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## How Companies Trick You Into Giving Up Your Privacy
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
@@ -79,6 +92,9 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -91,6 +107,10 @@ The site lists 12 types of dark patterns to watch out for:
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -119,6 +139,9 @@ The site lists 12 types of dark patterns to watch out for:
 
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## Fighting Back Against Dark Patterns
 
  Unfortunately, there's not a whole lot you can do about these types of misleading tactics. You're bound to come across them sooner or later on the web. Generally, we recommend that you read over privacy options carefully for all the sites you use. It's important to dig deep into settings to find out what you do and don't have control over.
@@ -158,3 +181,47 @@ The site lists 12 types of dark patterns to watch out for:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-youtube-music-blends/"><u>[New] 2024 Approved  Mastering YouTube Music Blends</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-tech-tips-snagging-your-fb-status-video/"><u>[New] 2024 Approved  Tech Tips  Snagging Your FB Status Video</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-a-new-dawn-for-screen-capturing-apeaksoft-reviewed/"><u>[Updated] 2024 Approved  A New Dawn for Screen Capturing  Apeaksoft Reviewed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-ultimate-guide-to-choosing-a-win10-video-grabber-tool/"><u>[Updated] The Ultimate Guide to Choosing a Win10 Video Grabber Tool</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-gopros-peak-adapters-the-ultimate-6-selection-guide/"><u>2024 Approved  Exploring GoPro's Peak Adapters  The Ultimate 6 Selection Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-overwatch-gameplay-captured-step-by-step-guide/"><u>2024 Approved  Overwatch Gameplay Captured - Step by Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-heavy-investment-in-wordsmiths-fbs-strategic-5m-plan-against-substacks-rise/"><u>A Heavy Investment in Wordsmiths: FB's Strategic $5M Plan Against Substack’s Rise</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-user-access-changing-screens-on-facebook/"><u>Accelerated User Access: Changing Screens on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-online-tests-a-stealthy-cybersecurity-menace/"><u>Are Online Tests a Stealthy Cybersecurity Menace?</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battleground-navigating-through-emerging-us-antitrust-laws/"><u>Big Tech's Battleground: Navigating Through Emerging U.S. Antitrust Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-productivity-with-platforms-like-linkedin-and-twitter/"><u>Boosting Productivity with Platforms Like LinkedIn and Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/designating-which-friends-can-view-you-active/"><u>Designating Which Friends Can View You Active</u></a></li>
+<li><a href="https://fox-that.techidaily.com/diagnosing-and-fixing-persistent-camera-zoom-issues-on-whatsapp/"><u>Diagnosing and Fixing Persistent Camera Zoom Issues on WhatsApp</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-online-media-selecting-the-best-5-quality-boosters/"><u>Elevate Online Media  Selecting the Best 5 Quality Boosters</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-apple-iphone-6-plus-by-drfone-ios/"><u>Everything You Need To Know About Unlocked Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-helper-exploring-its-aid-and-resolution-features/"><u>Facebook Helper: Exploring Its Aid and Resolution Features</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/gratuitous-screen-snap-for-macos/"><u>Gratuitous Screen Snap for MacOS</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-a-step-by-step-technique-for-instagram-savings/"><u>In 2024, A Step-by-Step Technique for Instagram Savings</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y200-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y200 Phone without PIN</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-screen-savvy-secure-your-captures-chromebooks-top-4-techniques/"><u>In 2024, Screen Savvy  Secure Your Captures - Chromebook's Top 4 Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-social-network-to-honor-all-groupies/"><u>Leveraging Social Network to Honor All Groupies</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-friends-with-your-newsfeed-again-by-evading-unwanted-marketing/"><u>Making Friends with Your Newsfeed Again by Evading Unwanted Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149463063-move-your-memories-fb-posts-and-notes-on-leading-websites-now-available/"><u>Move Your Memories: FB Posts & Notes on Leading Websites Now Available.</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-periods-for-online-post-performance/"><u>Peak Periods for Online Post Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-pixels-assembling-images-into-a-facebook-collection/"><u>Personalizing Pixels: Assembling Images Into a Facebook Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-solidity-amidst-storms-what-are-crypto-stability-tokens/"><u>Seeking Solidity Amidst Storms: What Are Crypto Stability Tokens?</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-avoiding-savvy-online-frauds/"><u>Shielding Yourself: Avoiding Savvy Online Frauds</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-enigma-understanding-vague-content-sharing/"><u>Social Media's Enigma - Understanding Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154326467-social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services.</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-social-space-management-with-facebooks-latest-tools/"><u>Streamlining Social Space Management with Facebook's Latest Tools</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tap-into-the-rhythm-web-free-and-comprehensive-for-2024/"><u>Tap Into the Rhythm Web (FREE & Comprehensive) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-face-whistleblower-and-their-message/"><u>The Face Whistleblower and Their Message</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-and-implementation-of-sleep-mode-on-messenger-kids-platform/"><u>The Importance & Implementation of Sleep Mode on Messenger Kids Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-smart-language-for-social-networking-success/"><u>The Ultimate Guide to SMART Language for Social Networking Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-facebooks-missing-verification-code-solution/"><u>Troubleshooting: Facebook's Missing Verification Code Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-the-hate-for-digital-community-hubs/"><u>What Lies Beneath the Hate for Digital Community Hubs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-share-content-on-social-networks/"><u>When to Share Content on Social Networks</u></a></li>
+</ul></div>

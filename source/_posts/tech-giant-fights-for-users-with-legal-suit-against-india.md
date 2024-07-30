@@ -1,7 +1,7 @@
 ---
 title: Tech Giant Fights for Users with Legal Suit Against India
-date: 2024-07-12T09:30:29.007Z
-updated: 2024-07-13T09:30:29.007Z
+date: 2024-07-29T07:31:07.812Z
+updated: 2024-07-30T07:31:07.812Z
 tags:
   - facebook
 categories:
@@ -19,18 +19,27 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
 
  The regulations would compel WhatsApp to break end-to-end encryption on its platform and compromise the privacy of its users.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## India's New IT Rules Threaten User Privacy
 
 [Reuters](https://www.reuters.com/world/india/exclusive-whatsapp-sues-india-govt-says-new-media-rules-mean-end-privacy-sources-2021-05-26) reports that Facebook-owned WhatsApp has issues with one of the new IT regulations in India, which states that social media platforms must identify the "first originator of information" when requested by government authorities.
 
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Indian Government Wants to Regulate Social Media Content
 
  The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was [first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
 
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
 
  A WhatsApp spokesperson issued the following statement to [The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
@@ -47,12 +56,18 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
 
  Facebook has agreed with most of the new regulations, though it is also in talks with the Indian government over certain aspects.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
  WhatsApp's move against the Indian government comes at a time when it has itself been [subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned [WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## India Is One of WhatsApp's Key Markets
 
  India is one of WhatsApp's largest markets, with over 400 million users. The messaging platform is even used for business dealings in the country. Its usage has only increased during the ongoing pandemic due to social distancing norms that have been enforced.
@@ -78,3 +93,36 @@ thumbnail: https://thmb.techidaily.com/836971730456bc9358fe3cf3cc37a571dba17728e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-rising-stars-choices-top-5-hmds-for-drone-enthusiasts/"><u>[New] Rising Stars' Choices  Top 5 HMDs for Drone Enthusiasts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unveiling-the-magic-of-end-screens-for-vimeo-content/"><u>[Updated] 2024 Approved  Unveiling the Magic of End Screens for Vimeo Content</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-does-your-channel-benefit-from-regular-youtube-payments/"><u>[Updated] In 2024, Does Your Channel Benefit From Regular YouTube Payments?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-audio-amplification-for-powerpoint-presentations/"><u>2024 Approved  Audio Amplification for PowerPoint Presentations</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-the-art-of-import-in-windows-10-photo-space/"><u>2024 Approved  Mastering the Art of Import in Windows 10 Photo Space</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tips-labeling-footage-with-text-via-photos-app-win-11/"><u>2024 Approved  Tips  Labeling Footage with Text via Photos App (Win 11)</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-hotspots-for-gaining-freelance-assignments/"><u>5 Hotspots for Gaining Freelance Assignments</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-facebook-footsteps-an-analytical-journey-through-social-engagement/"><u>Behind the Scenes of Your Facebook Footsteps: An Analytical Journey Through Social Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-essentials-in-metas-privacy-adjustments/"><u>Breaking Down the Essentials in Meta's Privacy Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-tailored-newsfeed-to-skip-unwelcome-ads-on-social-media/"><u>Creating a Tailored Newsfeed to Skip Unwelcome Ads on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-pinpoint-friends-3-tagging-tactics-on-facebook/"><u>Efficiently Pinpoint Friends: 3 Tagging Tactics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-methods-for-purging-tumultuous-tweets/"><u>Expert Methods for Purging Tumultuous Tweets</u></a></li>
+<li><a href="https://facebook.techidaily.com/frugal-yet-effective-top-5-costless-methods-for-social-media-scheduling/"><u>Frugal Yet Effective: Top 5 Costless Methods for Social Media Scheduling</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-xiaomi-14-ultra-screen-sharing-drfone-by-drfone-android/"><u>How To Do Xiaomi 14 Ultra Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-tiktok-losing-its-ground-can-facebooks-reel-offer-relief/"><u>Is TikTok Losing Its Ground? Can Facebook's Reel Offer Relief?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-data-analysis-with-8-crowdflower-features/"><u>Master the Art of Data Analysis with 8 CrowdFlower Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-captivating-fb-backgrounds/"><u>Mastering The Art of Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-tools-spotting-intruder-usage-quickly/"><u>Monitoring Tools: Spotting Intruder Usage Quickly</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-audiovisual-masterpieces-unveiled-top-5-music-visualizations-for-every-taste/"><u>New In 2024, Audiovisual Masterpieces Unveiled Top 5 Music Visualizations for Every Taste</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-moment-for-facebooks-user-base/"><u>Peaking Moment for Facebook's User Base</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/screenmaster-review-the-latest-in-tech-capture-for-2024/"><u>ScreenMaster Review  The Latest in Tech Capture for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-the-hate-for-universal-network-engagement-platforms/"><u>Sifting Through the Hate for Universal Network Engagement Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-process-to-eliminate-a-business-profile-from-fb/"><u>Simplified Process to Eliminate a Business Profile From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-the-process-of-making-profitable-facebook-reels/"><u>Simplifying the Process of Making Profitable Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-text-to-3d-the-advent-of-ar-in-social-messaging/"><u>Transforming Text to 3D: The Advent of AR in Social Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-happiness-without-facebooks-chains/"><u>Unlock Happiness Without Facebook's Chains</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-implicit-communication-on-fbc-platform/"><u>Unraveling Implicit Communication on FBC Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/weekends-boosted-by-facebooks-live-shopping-fridays/"><u>Weekends Boosted by Facebook’s Live Shopping Fridays</u></a></li>
+</ul></div>

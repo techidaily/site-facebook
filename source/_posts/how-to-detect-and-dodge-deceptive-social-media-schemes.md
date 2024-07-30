@@ -1,7 +1,7 @@
 ---
 title: How to Detect and Dodge Deceptive Social Media Schemes
-date: 2024-07-12T09:31:06.757Z
-updated: 2024-07-13T09:31:06.757Z
+date: 2024-07-29T07:31:34.924Z
+updated: 2024-07-30T07:31:34.924Z
 tags:
   - facebook
 categories:
@@ -29,7 +29,13 @@ thumbnail: https://thmb.techidaily.com/0bfbb82ab5214d9df42dfb4686963b4575f40401c
 
  Once a scammer gets some clues, they work quickly. Automatic software lets them check hundreds of passwords per minute until something works. To stay safe, you need to guard your information.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Remove Personal Details From Your Facebook Profile
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
 
 ![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
@@ -48,8 +54,14 @@ Close
 
 ![Secure Facebook Profile with Face and Details Hidden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Secure-Facebook-Profile-with-Face-and-Details-Hidden.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
 
 Close
@@ -59,6 +71,9 @@ Close
  You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
 
 ## 2\. Manage Your Facebook Privacy Settings
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
 
  If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
@@ -74,11 +89,20 @@ It’s a good idea to do a privacy check on a regular basis.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Don’t Click Strange URLs on Facebook
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
 
 Close
@@ -92,6 +116,9 @@ Close
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of [reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
 ## 5\. Know the Signs of a Facebook Scam
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
 
  Screenshot by Natalie Stewart, no attribution required.
@@ -115,6 +142,9 @@ Close
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## 7\. Only Add People You Know to Your Facebook Account
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
 
@@ -124,6 +154,9 @@ Close
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Use a Strong Password for Your Facebook Account
 ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
@@ -133,6 +166,9 @@ Close
 
  Even though it's convenient, you should avoid using the**Log in with Facebook** option on other websites. The more sites your Facebook account connects to, the greater the loss if you are ever phished. Instead, make a unique login for each account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Stay Safe From Facebook Phishing
 
  If you think you may have been phished, the first thing you should do is change your Facebook password. Then, log out of all devices. It can also help to go through a checklist of security measures.
@@ -156,3 +192,41 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-quick-tips-turning-off-igtv/"><u>[New] Quick Tips  Turning Off IGTV</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-make-a-channel-trailer/"><u>[Updated] 2024 Approved  How to Make a Channel Trailer</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-art-of-recording-expert-strategies-for-vr-gameplay-preservation/"><u>2024 Approved  The Art of Recording  Expert Strategies for VR Gameplay Preservation</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-tools-for-social-media-embarrassment-extraction/"><u>7 Key Tools for Social Media Embarrassment Extraction</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oneplus-ace-3-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your OnePlus Ace 3 Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-honor-magic-6-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Honor Magic 6.</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehending-fbctas-influence-on-usage/"><u>Comprehending FBCTA's Influence on Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-emojis-and-icons-on-the-social-networking-frontier/"><u>Decoding Emojis and Icons on the Social Networking Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/develop-a-strong-brand-voice-through-engaging-video-content-for-facebook/"><u>Develop a Strong Brand Voice Through Engaging Video Content for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-online-echoes-erasing-discussion-footprints-from-your-posts/"><u>Eliminate Online Echoes: Erasing Discussion Footprints From Your Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/enigmatic-devices-peering-at-facebooks-hidden-wearable-project/"><u>Enigmatic Devices: Peering at Facebook's Hidden Wearable Project</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-impact-of-facebooks-touch-interface/"><u>Evaluating the Impact of Facebook's Touch Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/expectation-hangover-date-and-decision-for-facebooks-governance-board/"><u>Expectation Hangover: Date and Decision for Facebook's Governance Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-focus-5-ways-to-unclutter-and-sharpen-your-image/"><u>Facebook Focus: 5 Ways to Unclutter and Sharpen Your Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-answer-to-the-audio-only-chat-space/"><u>Facebook's Answer to the Audio-Only Chat Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-uptrend-or-plateau/"><u>Facebook's Engagement: Uptrend or Plateau?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-iphone-xs-or-ipad-by-drfone-ios/"><u>How to Bypass Activation Lock on Apple iPhone XS or iPad?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-efficiently-clear-updates-from-your-profile/"><u>How to Efficiently Clear Updates From Your Profile</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-complete-guide-webinar-software-10-best-webinar-software/"><u>In 2024, Complete Guide Webinar Software  10 Best Webinar Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-turn-on-and-use-automatic-hdr-high-dynamic-range-in-windows-11/"><u>In 2024, How to Turn On and Use Automatic HDR (High Dynamic Range) in Windows 11</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-music-lovers-unite-how-to-add-sounds-in-inshot/"><u>In 2024, Music Lovers Unite  How to Add Sounds in InShot</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-understanding-mixed-realitys-impact-on-interaction/"><u>In 2024, Understanding Mixed Reality's Impact on Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-images-a-download-guide/"><u>Mastering Facebook Images: A Download Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/mystery-of-the-momentarily-missed-messages/"><u>Mystery of the Momentarily Missed Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-texting-facebook-rolls-out-groundbreought-features-for-apps-like-instagram-and-messenger/"><u>Revolutionize Texting: Facebook Rolls Out Groundbreought Features for Apps Like Instagram and Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/rights-and-rules-in-image-hosting-services/"><u>Rights and Rules in Image Hosting Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-online-life-from-facebook-fraudsters/"><u>Safeguard Your Online Life From Facebook Fraudsters</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-swapping-outdated-login-credentials-for-facebook/"><u>Securely Swapping Outdated Login Credentials for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-landscapes-overhauited-discovering-4-major-online-shifts/"><u>Social Landscapes Overhauited: Discovering 4 Major Online Shifts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-nightmares-8-disturbing-realities-explored/"><u>Social Network Nightmares: 8 Disturbing Realities Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-messaging-emphasis-bold-and-italics-tips/"><u>The Art of Messaging Emphasis: Bold & Italics Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-new-layout-of-your-favorite-platform/"><u>Understanding the New Layout of Your Favorite Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-genesis-day-on-facebook-for-myself/"><u>Unraveling: The Genesis Day on Facebook for Myself</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-oppo-find-x6-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Oppo Find X6 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Facebook: A Sanctuary From Politics"
-date: 2024-07-12T09:34:04.243Z
-updated: 2024-07-13T09:34:04.243Z
+date: 2024-07-29T07:33:44.092Z
+updated: 2024-07-30T07:33:44.092Z
 tags:
   - facebook
 categories:
@@ -22,6 +22,9 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
  Here's how you can block political and other annoying content on your Facebook account.
 
 ## Facebook's Timeline Can Get Swamped With Politics
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -30,13 +33,32 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
  Then to top it off, Facebook keeps suggesting trending posts on your page while you scroll, which gets dominated by politics and whatever the Kardashians are up to lately. There's no way to turn these suggestions off. However, Facebook does let you tell it which stories you don't want to see.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## How to Filter Politics Out of Your Facebook Feed
 
  If you find yourself regularly being sucked into long political Facebook arguments with friends-of-friends, you probably need to take control of your Facebook. Ditto if you're constantly annoyed by celebrity news or friends who can't function without constantly marinating in sympathy and attention.
 
  We've talked about [how to filter out annoying Facebook posts](https://www.makeuseof.com/filter-out-annoying-facebook-posts-with-these-tools/) before, but there are some techniques that go further, and let you really tune Facebook to do exactly what you want.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ## 1\. Hide, Snooze, or Unfollow Pages, Groups, or People
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Hiding Posts on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Hiding-Posts-on-Facebook.jpg)
 
  Did you know that Facebook lets you block articles from specific pages, groups, and people? One good way to use this is to keep an eye out for articles that annoy you. That means clickbait, politics, the works.
@@ -61,6 +83,9 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
 ## 3\. Use a Browser Extension
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
  You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
@@ -69,6 +94,9 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Creating a Facebook Feed You Enjoy
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
@@ -92,3 +120,41 @@ thumbnail: https://thmb.techidaily.com/be8413a30f19599698e9b5b7f7e17b9eb5081fbfd
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-discover-why-av1-is-a-game-changer-for-youtube-viewers/"><u>[New] In 2024, Discover Why AV1 Is a Game Changer for YouTube Viewers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-the-art-of-screenshot-with-zd-software/"><u>[Updated] In 2024, Mastering the Art of Screenshot with ZD Software</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-streaming-fb-content-on-apple-tv-a-step-by-step-guide/"><u>2024 Approved  Streaming FB Content on Apple TV  A Step-by-Step Guide</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-visualeditormaster-reviews-complete-analysis/"><u>2024 Approved  VisualEditorMaster Reviews – Complete Analysis</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/advanced-5-internet-viewing-units/"><u>Advanced 5 Internet Viewing Units</u></a></li>
+<li><a href="https://facebook.techidaily.com/before-you-unplug-a-guide-to-closing-your-fb-account/"><u>Before You Unplug: A Guide to Closing Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-to-private-pics-on-facebook/"><u>Charting a Course to Private Pics on Facebook</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/cutting-edge-strategies-for-iptv-capture-success/"><u>Cutting-Edge Strategies for IPTV Capture Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-announcing-new-privacy-policies-by-whatsapp/"><u>Delay in Announcing New Privacy Policies by WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebooks-surveillative-approach-via-off-fb-settings/"><u>Dismantling Facebook's Surveillative Approach via Off-FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-facebooks-defense-the-activation-journey/"><u>Embracing Facebook's Defense: The Activation Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-blacklisted-in-these-three-countries/"><u>Facebook Blacklisted in These Three Countries</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-and-gifpedia-face-possible-disentanglement-why-now/"><u>FB and Gifpedia Face Possible Disentanglement; Why Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-interaction-evolution-social-medias-four-pivotal-turns/"><u>Global Interaction Evolution: Social Media's Four Pivotal Turns</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-severing-spotify-facebook-ties-completely/"><u>Guide to Severing Spotify-Facebook Ties Completely</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-realme-narzo-n55-frp-by-drfone-android/"><u>How Can We Bypass Realme Narzo N55 FRP?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-nokia-c12-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Nokia C12 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-best-ways-to-bypass-icloud-activation-lock-on-apple-iphone-14ipadipod-by-drfone-ios/"><u>In 2024, Best Ways to Bypass iCloud Activation Lock on Apple iPhone 14/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-dominance-saturated-with-facebook/"><u>Is Social Media Dominance Saturated with Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-vs-removing-loved-ones-from-fb/"><u>Keeping Memories Alive Vs. Removing Loved Ones From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-landscapes-identifying-facebook-connections/"><u>Navigating Social Landscapes: Identifying Facebook Connections</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reviving-a-stuck-recycle-bin-on-microsofts-latest-os/"><u>Reviving a Stuck Recycle Bin on Microsoft's Latest OS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/selecting-the-optimal-mac-microphone-recorders-our-expert-picks-of-5-for-2024/"><u>Selecting the Optimal Mac Microphone Recorders  Our Expert Picks of 5 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-privacy-conceal-your-likes-on-fb-and-ig/"><u>Social Media Privacy: Conceal Your Likes on FB & IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-hidden-activity-on-your-pcemails/"><u>Spotting Hidden Activity on Your PC/Emails</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-virtual-networking-hub/"><u>Streamlining Your Virtual Networking Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-view-more-simplified-now/"><u>Tailoring Facebook View More Simplified Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-first-of-its-kind-portal-turned-mobility-friendly/"><u>The First of Its Kind: Portal Turned Mobility-Friendly</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-unfolded-six-significant-shifts-in-facebooks-new-world/"><u>The Metaverse Unfolded: Six Significant Shifts in Facebook's New World</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pre-deletion-dilemma-balancing-connectivity-and-privacy/"><u>The Pre-Deletion Dilemma: Balancing Connectivity and Privacy</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ultimate-mememix-download-now/"><u>Ultimate Mememix  Download Now</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/uncover-hubs-sites-that-connect-you-with-youtube-branding-deals/"><u>Uncover Hubs  Sites That Connect You with YouTube Branding Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-social-platform-mastery-guide-to-facebooks-opacity-haven/"><u>Unveiling the Social Platform: Mastery Guide to Facebook's Opacity Haven</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-rescheduled-introduction-of-user-agreement-changes/"><u>WhatsApp's Rescheduled Introduction of User Agreement Changes</u></a></li>
+</ul></div>

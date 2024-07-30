@@ -1,7 +1,7 @@
 ---
 title: "Facebook Picture Control Guide: Mastering Privacy"
-date: 2024-07-12T09:28:58.259Z
-updated: 2024-07-13T09:28:58.259Z
+date: 2024-07-29T07:30:03.720Z
+updated: 2024-07-30T07:30:03.720Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,9 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  Keep reading to learn everything you need to know about Facebook photo privacy settings...
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Photo Privacy Is More Important Than You Think
 
  Keeping your photographs private—or at least [restricted to a small group of friends](https://www.makeuseof.com/tag/4-ways-share-photos-videos-privately-family/) —is more important than you might think. And it's not just because a creep from your old high school is still liking everything you post.
@@ -32,6 +35,9 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 * **Location:** Does your photo reveal where you are? If you're at home, have you just revealed your home address to the world?
 * **Embarrassment:** Has someone posted a snap of you in a compromising position? You probably don't want your family or your boss to see it.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Facebook and Photo Privacy
 
  Of course, the warnings above apply to all forms of social media. But in this article, we're only going to focus on Facebook. How can you control who sees your photos on Facebook? Keep reading to find out.
@@ -47,12 +53,27 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
 
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to [locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
@@ -63,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
  You can edit photos on a case-by-case basis in the**Profile Pictures** album, the**Cover Photos** album, the**Mobile Uploads** album, and the**Timeline Photos** album. However, other albums apply the same setting to all the photos within them.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -72,6 +97,9 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
 ### Pro Tip: Use the Activity Log
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
@@ -120,3 +148,50 @@ thumbnail: https://thmb.techidaily.com/6b26f43d7c441fdc486228c15693f43761df84b70
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-elevate-engagement-crafting-anime-subscribe-bars-for-youtube-content/"><u>[New] In 2024, Elevate Engagement  Crafting Anime Subscribe Bars for YouTube Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-living-large-with-youtube-premium-the-inside-story/"><u>[Updated] 2024 Approved  Living Large with YouTube Premium  The Inside Story</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exploring-picture-in-picture-features-on-sierras-operating-systems/"><u>[Updated] Exploring Picture in Picture Features on Sierra's Operating Systems</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-best-10-elements-that-enthrall-filmora-users/"><u>[Updated] The Best 10 Elements That Enthrall Filmora Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-compact-cameras-for-1000-or-less-4k/"><u>2024 Approved  Best Compact Cameras for $1000 or Less (4K)</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessibility-guide-for-facebook-neighborhood-memberships/"><u>Accessibility Guide for Facebook Neighborhood Memberships</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-avoiding-deceptive-fb-links/"><u>Best Practices for Avoiding Deceptive FB Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-subscription-tactics-that-overtake-apples-model/"><u>Breaking Down Facebook's Subscription Tactics That Overtake Apple’s Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-climb-in-online-advertising-landscape/"><u>Crypto's Climb in Online Advertising Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-hidden-social-norms-for-online-networking/"><u>Decoding Hidden Social Norms for Online Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/disabling-apple-iphone-x-parental-restrictions-withwithout-password-drfone-by-drfone-ios/"><u>Disabling Apple iPhone X Parental Restrictions With/Without Password | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-the-mobility-driven-portal-go-model/"><u>Facebook's Latest: The Mobility-Driven Portal Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-chapter-nine-exciting-reasons-to-dive-into-the-metaverse/"><u>Facebook's Next Chapter: Nine Exciting Reasons to Dive Into the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-elevate-video-impact-proven-youtube-seo-methods/"><u>In 2024, Elevate Video Impact  Proven YouTube SEO Methods</u></a></li>
+<li><a href="https://extra-support.techidaily.com/iphone-tricks-capturing-and-editing-high-speed-visual-storytelling-for-2024/"><u>IPhone Tricks  Capturing & Editing High-Speed Visual Storytelling for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-online-image-on-facebook/"><u>Mastering Your Online Image on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-connectivity-with-apps-and-websites/"><u>Navigating Facebook Connectivity with Apps & Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-trends-in-facebook-usage-metrics/"><u>Peaking Trends in Facebook Usage Metrics</u></a></li>
+<li><a href="https://games-able.techidaily.com/peeling-back-layers-authenticity-in-fake-game-hype/"><u>Peeling Back Layers: Authenticity in Fake Game Hype</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-leads-facebooks-customized-mobile-payments-exceeding-expectations/"><u>Personalization Leads: Facebook's Customized Mobile Payments Exceeding Expectations</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-ancient-news-feed-content-on-fb/"><u>Revisiting Ancient News Feed Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-privacy-delete-fb-watch-logs-now/"><u>Securing Your Privacy: Delete FB Watch Logs Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-embedding-image-descriptors-in-fb-photos/"><u>Step-by-Step: Embedding Image Descriptors in Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-personalization-the-new-standard-on-facebook/"><u>Streamlined Personalization: The New Standard on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweet-release-from-social-media-shackles-deleting-your-company-page/"><u>Sweet Release From Social Media Shackles: Deleting Your Company Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rationale-behind-multiplying-user-identities-in-a-single-facebook-profile/"><u>The Rationale Behind Multiplying User Identities in a Single Facebook Profile</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-vivo-v30-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-your-networking-to-net-income-uncover-5-money-makers-on-igfb/"><u>Turn Your Networking to Net Income: Uncover 5 Money Makers on IG/FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-pivotal-news-moments-in-google/"><u>Unveiling the Pivotal News Moments in Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-digital-footprint-deserves-a-break-the-case-for-quitting-facebook/"><u>Why Your Digital Footprint Deserves a Break: The Case for Quitting Facebook</u></a></li>
+</ul></div>

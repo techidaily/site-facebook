@@ -1,7 +1,7 @@
 ---
 title: "Tracing My Digital Footprint: The Inception of Facebook Usage"
-date: 2024-07-12T09:30:32.552Z
-updated: 2024-07-13T09:30:32.552Z
+date: 2024-07-29T07:31:10.646Z
+updated: 2024-07-30T07:31:10.646Z
 tags:
   - facebook
 categories:
@@ -31,19 +31,31 @@ Follow these steps to find your Facebook account creation date:
 2. Once you’ve logged in, click on your profile picture in the top-right of the site and select**Settings & privacy** .
 3. Choose**Settings** in the menu that opens.
 4. Facebook’s main settings page appears. On this page, in the left sidebar, click the option that says**Your Facebook information** .  
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![your facebook information page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/your-facebook-information-page.jpg)
 5. Several new options appear on the right pane. Next to**Access profile information** , select**View** .
 6. On the next screen, under the**Access your information** menu on the left, scroll down and select**Personal information** .  
 ![facebook profile information menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-profile-information-menu.jpg)
 7. On the right pane, look toward the**Your account creation date** section. This section displays the exact date you created your Facebook account.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![account creation date on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/account-creation-date-on-facebook.jpg)
 
  The steps for finding out your Facebook account creation date on mobile are slightly different.
 
  To find out when you joined Facebook on the mobile app, follow these steps:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook main menu on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-main-menu-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook app access your information option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-access-your-information-option.jpg)
 
 ![personal information option on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/personal-information-option-on-facebook-app.jpg)
@@ -89,20 +101,32 @@ Close
 5. Click**Profile pictures** on the album screen to open your profile photos album.
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
  That date should be the day you made your Facebook profile or very close to that date.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
  Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
 
  Click your profile picture, then go to**Settings and privacy > Activity log** . Then select the**Posts** option on the left menu under**Your activity across Facebook** .
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook activity log menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-activity-log-menu.jpg)
 
  Then select**Your posts, check-ins, photos and videos** .
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
 
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
@@ -113,6 +137,9 @@ Close
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Find Out When You Joined Facebook
 
  If you ever want to know when your Facebook account was created, the methods outlined above should help you find that information.
@@ -138,3 +165,39 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effective-visual-brand-strategies-for-your-youtube-logo/"><u>[New] 2024 Approved  Effective Visual Brand Strategies for Your YouTube Logo</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-export-live-webcam-video-through-vlc/"><u>[New] 2024 Approved  Export Live Webcam Video Through VLC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-deep-dive-into-youtube-writers-workshop-space/"><u>[New] A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2023s-leading-choices-for-downloading-facebook-lite-videos/"><u>[Updated] 2023'S Leading Choices for Downloading Facebook Lite Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-swiftly-upload-to-twitter-premium-video-convertors-guide/"><u>[Updated] In 2024, Swiftly Upload to Twitter  Premium Video Convertors Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-leading-twelve-in-high-definition-cinema-tech/"><u>[Updated] In 2024, The Leading Twelve in High-Definition Cinema Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-regain-sanity-by-unfollowing-not-undergoing/"><u>5 Ways to Regain Sanity by Unfollowing, Not Undergoing</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-actions-fastest-lite-android-picks/"><u>Accelerated Actions: Fastest Lite Android Picks</u></a></li>
+<li><a href="https://games-able.techidaily.com/adept-utilization-of-xbox-add-ons-with-series-sx/"><u>Adept Utilization of Xbox Add-Ons with Series S/X</u></a></li>
+<li><a href="https://facebook.techidaily.com/ban-random-friends-notifications-on-social-media/"><u>Ban Random Friends Notifications on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/capitalizing-on-our-daily-movements/"><u>Capitalizing on Our Daily Movements</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-beyond-facebook-the-future-outlook/"><u>Data Beyond Facebook: The Future Outlook</u></a></li>
+<li><a href="https://facebook.techidaily.com/engineering-your-social-media-iconography/"><u>Engineering Your Social Media Iconography</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149763759-fortifying-your-digital-interactions-facebooks-latest-upgrades-bring-stronger-privacy-with-new-chat-and-call-security-tools/"><u>Fortifying Your Digital Interactions: Facebook's Latest Upgrades Bring Stronger Privacy with New Chat and Call Security Tools.</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-the-4-most-influential-silicon-stories/"><u>Hidden in Plain Sight: The 4 Most Influential Silicon Stories</u></a></li>
+<li><a href="https://howto.techidaily.com/How-to-Git-Push-With-SSH-Key/"><u>How to Git Push With SSH Key</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-iphone-15-when-we-dont-have-apple-id-or-password-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 15 When We Dont Have Apple ID or Password?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveiling-the-ultimate-iphone-selfie-sticks-8/"><u>In 2024, Unveiling the Ultimate IPhone Selfie Sticks (#8)</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-network-for-high-quality-work-clients/"><u>Leveraging Facebook's Network for High-Quality Work Clients</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-use-of-facebooks-shield-against-threats/"><u>Mastering the Use of Facebook’s Shield Against Threats</u></a></li>
+<li><a href="https://facebook.techidaily.com/planning-and-executing-impressive-social-events-on-fb/"><u>Planning & Executing Impressive Social Events on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/silicon-valleys-reality-check-americas-new-tech-laws/"><u>Silicon Valley's Reality Check: America's New Tech Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-safe-on-social-networking-recognize-these-14-tricks-fast/"><u>Stay Safe on Social Networking: Recognize These 14 Tricks Fast</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-zoom-livestream-setup-guide-for-youtube-enthusiasts-for-2024/"><u>Step-by-Step Zoom Livestream Setup Guide for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-excluding-users-from-your-fb-business-page/"><u>Steps for Excluding Users From Your FB Business Page</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-nokia-130-music-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Nokia 130 Music Phone Hassle-Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-high-point-of-facebook-is-it-there-yet/"><u>The High Point of Facebook – Is It There Yet?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealthy-seduction-of-user-data-through-interfaces/"><u>The Stealthy Seduction of User Data Through Interfaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-of-the-charts-which-platform-do-you-love/"><u>Top of the Charts: Which Platform Do You Love?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-creativity-with-ai-assisted-photo-posting-to-facebook/"><u>Unleash Creativity with AI-Assisted Photo Posting to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-social-connectivity-invite-on-facebook-messenger/"><u>Unleashing Social Connectivity: Invite on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-is-your-favorite-social-media-platform-poll/"><u>Which Is Your Favorite Social Media Platform? [Poll]</u></a></li>
+</ul></div>

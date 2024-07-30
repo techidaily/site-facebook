@@ -1,7 +1,7 @@
 ---
 title: "Unplugging From Social Media: A Case Study"
-date: 2024-07-12T09:33:39.687Z
-updated: 2024-07-13T09:33:39.687Z
+date: 2024-07-29T07:33:25.869Z
+updated: 2024-07-30T07:33:25.869Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  However, there is another option. Rather than deleting Facebook, you can just deactivate your account. But what happens when you deactivate your Facebook account? If you deactivate Facebook, can you still use Messenger? And what does deleting Facebook mean in contrast to deactivating it?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## What Is the Difference Between Deleting and Deactivating Facebook?
 
 ![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
@@ -43,6 +46,9 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
 ## Does My Profile Completely Disappear if I Deactivate Facebook?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
@@ -63,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
  What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
@@ -71,6 +80,18 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  The next thing you can do is look through your list of friends. If they're still listed, they're probably just preoccupied. If they're not, the second possibility is that they've blocked you. But before you investigate that, question whether they've deleted their account completely.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
  So how do you know if someone has blocked you on Facebook or deactivated their account?
@@ -79,6 +100,9 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<!-- affiliate ads end -->
 ## Can I Still Use Messenger Without Facebook?
 
  You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
@@ -97,6 +121,9 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can You Reactivate a Facebook Account?
 
  If you've deactivated your Facebook account, all you need to do is log back in to reactivate it. You can change your password if you've forgotten it. Your profile still exists, as does your personal information. Previous messages and comments typically re-appear too.
@@ -121,6 +148,10 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that [you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
@@ -144,3 +175,54 @@ thumbnail: https://thmb.techidaily.com/0afe01c2e0f6b1c3ba9a8b87db7e0159921da64d2
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-motion-dynamics-review/"><u>[New] Comprehensive Motion Dynamics Review</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-promote-youtube-videos-without-paying/"><u>[Updated] In 2024, How to Promote YouTube Videos (Without Paying)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-photo-memory-locker-at-no-cost-plus-elite-charged-cloud-spheres/"><u>[Updated] Photo Memory Locker at No Cost, Plus Elite Charged Cloud Spheres</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-venmo-photo-frame-guidelines/"><u>[Updated] Venmo Photo Frame Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-ultimate-planning-resources-for-social-media-shares/"><u>10 Ultimate Planning Resources for Social Media Shares</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-best-tools-for-transforming-your-spotify-mixes-into-youtube-channels/"><u>2024 Approved  Best Tools for Transforming Your Spotify Mixes Into YouTube Channels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlock-artistic-expression-download-movie-maker-for-win11-enthusiasts/"><u>2024 Approved  Unlock Artistic Expression  Download Movie Maker for Win11 Enthusiasts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-samsung-galaxy-f54-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Samsung Galaxy F54 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-times-facebook-failed-its-users/"><u>5 Times Facebook Failed Its Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-key-perks-for-founding-your-own-facebook-forum/"><u>6 Key Perks for Founding Your Own Facebook Forum</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-persuasive-arguments-for-keeping-facebook-in-your-life/"><u>6 Persuasive Arguments for Keeping Facebook in Your Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-the-source-behind-60-minutes-story/"><u>A Deep Dive: The Source Behind 60 Minutes Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-shift-from-facebook-to-meta-the-digital-rebranding-story-begins/"><u>A Social Shift: From Facebook to Meta, the Digital Rebranding Story Begins</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerated-gaming-high-speed-android-lite-picks/"><u>Accelerated Gaming: High-Speed Android Lite Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/accelerating-collaboration-top-8-features-of-facebook-tools/"><u>Accelerating Collaboration: Top 8 Features of Facebook Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-optimal-engagement-5-free-tactics-for-fb-post-scheduling/"><u>Achieve Optimal Engagement: 5 Free Tactics for FB Post Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-unknown-users-on-your-computer-and-mailbox/"><u>Alert! Unknown Users on Your Computer and Mailbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazons-defensive-claims-against-10k-facebook-group-leaders/"><u>Amazon’s Defensive Claims Against 10K Facebook Group Leaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/android-telepresence-experience/"><u>Android Telepresence Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-my-phone-numbers-circulating-in-facebook-groups/"><u>Are My Phone Numbers Circulating in Facebook Groups?</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-your-online-posts-really-permanent/"><u>Are Your Online Posts Really Permanent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-how-ux-shapes-our-rights/"><u>Behind the Screen: How UX Shapes Our Rights</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-shield-understanding-secure-fb/"><u>Behind the Shield: Understanding Secure FB</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/best-nokia-c12-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>Best Nokia C12 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-hype-reevaluating-facebooks-growth-claims/"><u>Beyond the Hype: Reevaluating Facebook's Growth Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/break-up-with-spotify-remove-it-from-facebook/"><u>Break Up with Spotify: Remove It From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-livestream-without-audiovisuals/"><u>Broadcasting IG Livestream Without Audio/Visuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-an-impressive-facebook-business-persona/"><u>Building an Impressive Facebook Business Persona</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-brighter-connections-without-causing-harm/"><u>Building Brighter Connections Without Causing Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-regretful-tweets-be-undone/"><u>Can Regretful Tweets Be Undone?</u></a></li>
+<li><a href="https://facebook.techidaily.com/clubhouse-competition-facebook-adds-sonic-dimension/"><u>Clubhouse Competition: Facebook Adds Sonic Dimension</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-and-conquer-why-a-group-matters-on-social-media/"><u>Connect and Conquer: Why a Group Matters on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-consumers-and-companies-with-facebooks-new-initiative/"><u>Connecting Consumers and Companies with Facebook’s New Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-crisis-key-platforms-down-for-maintenayer/"><u>Connectivity Crisis: Key Platforms Down for Maintenayer</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-quest-profiles-pages-and-facebook-group-links/"><u>Connectivity Quest: Profiles, Pages & Facebook Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-content-banned-elsewhere-yet-thrives-on-fb/"><u>Controversial Content Banned Elsewhere Yet Thrives on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-organized-facebook-profile/"><u>Crafting an Organized Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-personalized-digital-id/"><u>Creating a Personalized Digital ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossing-friendship-divides-after-a-ban/"><u>Crossing Friendship Divides After a Ban</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-majority-shareholders-of-facebook/"><u>Current Majority Shareholders of Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enhancing-user-experience-by-fixing-menu-glitches/"><u>Enhancing User Experience by Fixing Menu Glitches</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-samsung-galaxy-s24-ultra-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Samsung Galaxy S24 Ultra Phones? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-12-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone 12 online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-note-12-pro-4gfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi Note 12 Pro 4GFRP Lock</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo A56s 5G | Dr.fone</u></a></li>
+</ul></div>

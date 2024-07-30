@@ -1,7 +1,7 @@
 ---
 title: Critical Measures to Undo FB Account Breach Consequences
-date: 2024-07-12T09:27:00.355Z
-updated: 2024-07-13T09:27:00.355Z
+date: 2024-07-29T07:28:40.444Z
+updated: 2024-07-30T07:28:40.444Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/daf5ba2a8491ccb029544c33871dfddf8c00a96e7
 
  Facebook hackers could lock you out of your account and hassle your friends and family. Secure your Facebook account now and get it back before it's too late. We'll show you how.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Tell Whether Your Facebook Account Was Hacked
 
  You can [tell your Facebook account was hacked](http://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) if you spot one of the following signs:
@@ -48,10 +51,16 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ### 1a. Change Your Facebook Password
 
  In case your Facebook hacker hasn't changed your password, you got lucky! Immediately update your password before you log out of suspicious sessions; you don't want to alert the hacker. If it's too late, head to step 1b.
@@ -72,10 +81,16 @@ Do this only if you're sure you can log back in.
 
  If the hacker did change your password, and you need to [recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) , act quickly. Try to regain access, use the**Forgot your password?** link underneath the Facebook login.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
  If Facebook can find your account, you can choose how to**Reset Your Password** .
@@ -92,6 +107,9 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -108,6 +126,9 @@ Do this only if you're sure you can log back in.
 
  Click**See More** to expand the list of**Active** apps and websites, and click**Remove** for each suspicious app individually.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
  We also recommend removing all**Expired** apps and websites.
@@ -122,6 +143,9 @@ Do this only if you're sure you can log back in.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Improving Facebook's Privacy and Security Settings
 
  Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta [Accounts Center](https://accountscenter.facebook.com/) and review the following points:
@@ -132,6 +156,9 @@ Do this only if you're sure you can log back in.
 
  These settings not only [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can [use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do You Keep Your Facebook Account Safe?
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
@@ -155,3 +182,56 @@ Do this only if you're sure you can log back in.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-ace-your-iphones-advanced-tactics-for-downloading-podcasts/"><u>[New] Ace Your iPhones  Advanced Tactics for Downloading Podcasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-simplified-srt-transformation-from-ttml-xml-and-ssa/"><u>[New] In 2024, Simplified SRT Transformation From TTML, XML & SSA</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-mastering-overlay-techniques-for-video-and-image-enhancement-with-windows-10/"><u>[New] Mastering Overlay Techniques for Video and Image Enhancement with Windows 10</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-sprinting-into-the-digital-age-picks-on-vr-treadmills/"><u>[New] Sprinting Into the Digital Age  Picks on VR Treadmills</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-guaranteed-method-to-keep-youtube-shorts-out-of-sight-for-2024/"><u>[Updated] Guaranteed Method to Keep YouTube Shorts Out of Sight for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-the-seamless-media-magic-turning-xml-ssa-into-dynamic-srts-for-2024/"><u>[Updated] The Seamless Media Magic  Turning XML, SSA Into Dynamic SRTs for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-tips-for-obs-and-facebook-integration/"><u>2024 Approved  Expert Tips for OBS and Facebook Integration</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-metaverse-makeover-easy-avatar-construction/"><u>2024 Approved  The Metaverse Makeover  Easy Avatar Construction</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-friend-in-disguise-ending-fb-ties/"><u>A Friend in Disguise: Ending FB Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-a-fragment-of-facebooks-725m-settlement-dollars/"><u>Accessing a Fragment of Facebook's 725M Settlement Dollars</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-podcasts-2022-our-critical-and-creative-reviews/"><u>Best Podcasts 2022 - Our Critical and Creative Reviews</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/best-radio-drama-scripts-for-2024/"><u>Best Radio Drama Scripts for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/color-balance-boost-in-photoshop-simplified/"><u>Color Balance Boost in Photoshop Simplified</u></a></li>
+<li><a href="https://facebook.techidaily.com/command-control-over-comments-a-guide-for-social-media-users/"><u>Command Control Over Comments: A Guide for Social Media Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-respectful-exit-strategies-in-digital-spaces/"><u>Cultivating Respectful Exit Strategies in Digital Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-image-sharing-the-future-of-fb-automatic-captions/"><u>Effortless Image Sharing: The Future of FB Automatic Captions</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147892222-enhancing-sharing-experience-move-fb-content-to-top-3-apps-with-ease/"><u>Enhancing Sharing Experience: Move Fb Content to Top 3 Apps with Ease.</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbs-secret-communication-security/"><u>Exploring FB's Secret Communication Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-oversight-group-what-it-does-and-how-it-works/"><u>FB Oversight Group: What It Does and How It Works</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Fixing Foneazy MockGo Not Working On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149958668-fortifying-online-dialogues-facebook-brings-end-to-end-encryption-for-im-and-call/"><u>Fortifying Online Dialogues: Facebook Brings End-to-End Encryption for IM and Call.</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-definition-content-for-fb-messenger-a-guide/"><u>High-Definition Content for FB Messenger: A Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-infinix-smart-8-pro-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from Infinix Smart 8 Pro.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-videos-on-huawei-nova-y71-by-fonelab-android-recover-video/"><u>How to restore wiped videos on Huawei Nova Y71</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-lost-files-from-infinix-hot-30i-by-fonelab-android-recover-data/"><u>How to retrieve lost files from Infinix Hot 30i?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-tecno-spark-10-4g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Tecno Spark 10 4G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-untagging-from-facebook-pics/"><u>Mastering Untagging From Facebook Pics</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/overcoming-the-impenetrable-stellar-recovers-lost-hdd-data/"><u>Overcoming the Impenetrable: Stellar Recovers Lost HDD Data</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/peak-memetic-artistry-hub/"><u>Peak Memetic Artistry Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/peel-layers-of-personalities-with-messengers-quiz-mechanics/"><u>Peel Layers of Personalities with Messenger's Quiz Mechanics</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-realme-narzo-n53-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Realme Narzo N53 and Browser | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-tactic-purging-your-fb-search-logs/"><u>Privacy Tactic: Purging Your FB Search Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscover-the-social-network-guided-password-recovery-on-fb/"><u>Rediscover the Social Network - Guided Password Recovery on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/refining-online-discourse-the-pursuit-of-better-social-feed-engagement/"><u>Refining Online Discourse: The Pursuit of Better Social Feed Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewables-rise-facebook-commits-to-green-power/"><u>Renewables Rise: Facebook Commits to Green Power</u></a></li>
+<li><a href="https://facebook.techidaily.com/scouring-cyberspace-advanced-tactics-for-finding-emerging-communities/"><u>Scouring Cyberspace: Advanced Tactics for Finding Emerging Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-childs-digital-domain-on-facebook/"><u>Securing Your Child's Digital Domain on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharpen-your-brands-online-image-top-reasons-for-a-business-profile-on-fb/"><u>Sharpen Your Brand's Online Image: Top Reasons for a Business Profile on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-battle-with-political-satire/"><u>Social Media's Battle with Political Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719145362026-tailoring-facebook-view-more-simplified-now/"><u>Tailoring Facebook View More Simplified Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-curating-content-for-a-refined-social-media-experience/"><u>The Ultimate Guide to Curating Content for a Refined Social Media Experience</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-iphone-8-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with iPhone 8 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-vivo-t2-5g-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Vivo T2 5G fingerprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-power-of-verified-usernames-in-america/"><u>Unlock the Power of Verified Usernames in America</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-reno-11f-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Oppo Reno 11F 5G Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-governments-targeting-techs-colossal-entities/"><u>Why Are Governments Targeting Tech's Colossal Entities?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/wireless-methods-to-mirrorapple-iphone-x-and-ipad-to-fire-stick-with-ease-drfone-by-drfone-ios/"><u>Wireless Methods to MirrorApple iPhone X & iPad to Fire Stick With Ease | Dr.fone</u></a></li>
+</ul></div>

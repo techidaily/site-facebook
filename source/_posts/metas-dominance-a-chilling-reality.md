@@ -1,7 +1,7 @@
 ---
 title: "Meta's Dominance: A Chilling Reality"
-date: 2024-07-12T09:31:14.585Z
-updated: 2024-07-13T09:31:14.585Z
+date: 2024-07-29T07:31:40.420Z
+updated: 2024-07-30T07:31:40.420Z
 tags:
   - facebook
 categories:
@@ -49,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/88761ec66a00f0a48060e78f738a540e311f0a473
 
  As evidenced in the buildup to the last two US presidential elections, filtered information can positively or negatively influence global outcomes. Consequently, Meta can easily influence global culture by controlling the kind of information billions of people have access to. That much power, if unchecked, is potentially dangerous.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
 ## 3\. A Privacy Dilemma
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
@@ -60,6 +63,9 @@ thumbnail: https://thmb.techidaily.com/88761ec66a00f0a48060e78f738a540e311f0a473
 
  If you use Facebook services, Meta has a complete history of where you've been for at least the last year. Once you've signed up with any of Meta's products, you become tracked indefinitely. Facebook, for instance, tracks you even when you're not actively using any of its products. It does this through data-sharing agreements with hundreds of tech companies whose apps you're likely using as well.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
 
 ​​​​​​
@@ -74,10 +80,19 @@ Not convinced?
 4. Scroll down and locate the section labeled "**Permissions** ."
 5. Find "**Off-Facebook activity** " and click on it. Here, you should see and manage a list of apps that are sharing your personal data with Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 Close
@@ -86,6 +101,9 @@ Close
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the [New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Stay Conscious of Meta's Influence
 
  Some have called for a breakup of Meta; others advocate for sterner policing of the company. Irrespective of the approach that presents a realistic solution to the problem, one thing is sure—Meta is getting too powerful, and we are all becoming victims in its lair.
@@ -113,3 +131,47 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-compliance-with-standards/"><u>[New] Compliance with Standards</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-master-the-game-with-standout-tiktok-profile-frames/"><u>[New] Master the Game with Standout TikTok Profile Frames</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-identifying-lack-of-engagement-in-snapsphere/"><u>[Updated] 2024 Approved  Identifying Lack of Engagement in Snapsphere</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-leading-speech-gatherers-in-educational-environments/"><u>[Updated] In 2024, Leading Speech Gatherers in Educational Environments</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-screen-recorder-alternatives-in-depth-review-and-top-picks/"><u>[Updated] In 2024, Screen Recorder Alternatives  In-Depth Review & Top Picks</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-time-taken-for-a-20mb-video-playback/"><u>2024 Approved  Time Taken for a 20MB Video Playback</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-tweettub-ios-app-for-fetching-twitter-vids/"><u>2024 Approved  TweetTub  IOS App for Fetching Twitter Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipated-decision-from-social-media-regulators-on-trump-ban-case/"><u>Anticipated Decision From Social Media Regulators on Trump Ban Case</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/backwards-play-mastering-youtube-video-reversals-for-2024/"><u>Backwards Play  Mastering YouTube Video Reversals for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/declare-your-digital-connection-bliss/"><u>Declare Your Digital Connection Bliss</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-facebooks-direct-browser-access/"><u>Eliminate Facebook's Direct Browser Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-on-reinstating-wiped-facebook-content/"><u>Expert Advice on Reinstating Wiped Facebook Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-functionality-of-facebook-portal-for-virtual-meetups/"><u>Exploring the Functionality of Facebook Portal for Virtual Meetups</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rejects-extinction-why-it-wont-die-off-insightful-analysis/"><u>Facebook Rejects Extinction: Why It Won't Die Off - Insightful Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-defiance-why-it-wont-go-dead/"><u>Facebook's Defiance: Why It Won't Go 'Dead'</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-times-facebook-missed-the-mark-on-privacy-and-trust/"><u>Five Times Facebook Missed the Mark on Privacy and Trust</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixing-perverse-display-settings/"><u>Fixing Perverse Display Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-dark-mode-on-facebook/"><u>How to Enable Dark Mode on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-rekindle-on-fb-breaking-past-barriers/"><u>How to Rekindle on FB: Breaking Past Barriers</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Nokia G42 5G? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-essential-obs-setup-for-underperforming-pcs/"><u>In 2024, Essential OBS Setup for Underperforming PCs</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premium-video-recording-devices-for-quality/"><u>In 2024, Premium Video Recording Devices for Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/locating-latest-views-in-the-facebook-feed/"><u>Locating Latest Views in the Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/metamorphose-your-approach-with-meta-profile-center-guide/"><u>Metamorphose Your Approach with Meta Profile Center Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-social-media-advertising/"><u>Navigating the Maze of Social Media Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-group-departure-with-tact/"><u>Navigating the Path to Group Departure with Tact</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-virtual-realms-a-look-at-metaverse-ownership-claims/"><u>Navigating Virtual Realms: A Look at Metaverse Ownership Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-a-new-dimension-understanding-the-metaverse/"><u>Pioneering a New Dimension: Understanding the Metaverse</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/proven-asmr-techniques-and-the-best-microphone-options-for-2024/"><u>Proven ASMR Techniques and the Best Microphone Options for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-launch-on-facebook-what-are-they/"><u>Ray-Ban Stories Launch on Facebook - What Are They?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-social-data-downloading-every-post-like-share/"><u>Reclaiming Social Data: Downloading Every Post, Like, Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-silliness-navigating-friendly-teasing-digitally/"><u>Safe Silliness: Navigating Friendly Teasing Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-chats-on-facebooks-platform/"><u>Securing Chats on Facebooks Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-substitutes-top-10-lightweight-android-titles/"><u>Swift Substitutes: Top 10 Lightweight Android Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-effective-group-communication-on-facebook/"><u>Techniques for Effective Group Communication on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-sharing-vacancies-via-facebook/"><u>Tips for Sharing Vacancies via Facebook</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/top-picks-ultimate-portable-devices-for-cutting-edge-editing-for-2024/"><u>Top Picks  Ultimate Portable Devices for Cutting-Edge Editing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-new-interpretations-for-facebooks-altered-page-designations/"><u>Unpacking New Interpretations for Facebook's Altered Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-withholds-enforcement-of-new-privacy-stance/"><u>WhatsApp Withholds Enforcement of New Privacy Stance</u></a></li>
+</ul></div>

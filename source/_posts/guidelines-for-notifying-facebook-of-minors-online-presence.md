@@ -1,7 +1,7 @@
 ---
 title: Guidelines for Notifying Facebook of Minors' Online Presence
-date: 2024-07-12T09:29:03.832Z
-updated: 2024-07-13T09:29:03.832Z
+date: 2024-07-29T07:30:07.601Z
+updated: 2024-07-30T07:30:07.601Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,9 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  But how do you do this exactly? There is a simple method to report underage accounts on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Report an Underage Account on Facebook
 
  If you see a child who's possibly under 13 years of age on Facebook, you can simply fill out a form and report it. The rest is up to Facebook. There are a few simple steps to take.
@@ -48,6 +51,9 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 2. Enter the child’s first and last name.
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
 6. From the following drop-down menu, choose the year your child was born.
@@ -57,23 +63,35 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Should You Report an Underage Facebook Account?
 
  Letting an underage child use Facebook might not feel dangerous to some people, but there are some genuine grounds to avoid it. Here are some reasons why you should report a Facebook account owned by an underage person.
 
 ### Facebook Can Be Addictive
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
  Children should use Facebook under a restricted and balanced schedule at the recommended age to avoid addiction. Engage kids in creative activities and sports that boost their physical and mental capacity, leaving them with less time for social media.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 ### It Might Lead to Cyberbullying
 
  Children might use Facebook for entertainment, but there’s always a risk of cyberbullying.
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### It Can Worsen Mental Health Issues
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
@@ -87,6 +105,9 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
 ###
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Say No to Underage Facebook Accounts
 
  Children 13 and over are allowed to legally use Facebook under some restrictions. Being a responsible adult, you can file and report the accounts that you know are too young to be on Facebook. Facebook will request verification from the reported account and check whether it needs to be permanently deleted or not.
@@ -112,3 +133,42 @@ thumbnail: https://thmb.techidaily.com/5255f0c0ac11261d99ef752e1d8ce7d04128bb9f4
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-optimal-series-professional-webcam-stabilizers/"><u>[New] 2024 Approved  Optimal Series  Professional Webcam Stabilizers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-a-step-by-step-guide-on-applying-cc-rights-effectively-for-2024/"><u>[New] A Step-by-Step Guide on Applying CC Rights Effectively for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-champions-list-of-superior-gk-trivia-platforms-2024/"><u>[Updated] Champion's List of Superior GK Trivia Platforms, 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-expedient-techniques-to-spot-and-expel-deceptive-insta-connections/"><u>[Updated] Expedient Techniques to Spot and Expel Deceptive Insta Connections</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-cinematographers-blueprint-for-simple-water-vids/"><u>2024 Approved  The Cinematographer's Blueprint for Simple Water Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-pondering-social-unsubscriptions/"><u>A Comprehensive Guide to Pondering Social Unsubscriptions</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/asure-trove-of-premium-youtube-images-from-6-websites-for-2024/"><u>A Treasure Trove of Premium YouTube Images From 6 Websites for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-market-dominance-challenged-by-facebooks-personalized-link-service/"><u>Apple's Market Dominance Challenged by Facebook’s Personalized Link Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-curtain-unmasking-imposters-in-digital-realm/"><u>Behind the Curtain: Unmasking Imposters in Digital Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/chamber-charm-for-communication-beginners/"><u>Chamber Charm for Communication Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-connections-the-essential-guide-to-social-integration-for-xbox-players/"><u>Crafting Connections: The Essential Guide to Social Integration for Xbox Players</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metaai-a-next-gen-chatbot-enhancer/"><u>Decoding MetaAI: A Next-Gen Chatbot Enhancer</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decibels-can-phones-really-discern-our-preferences-without-intent/"><u>Digital Decibels: Can Phones Really Discern Our Preferences Without Intent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-which-platform-delivers-the-deeper-digital-community/"><u>Discovering Which Platform Delivers the Deeper Digital Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolutionary-path-of-internet-privacy-technologies/"><u>Evolutionary Path of Internet Privacy Technologies</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-data-gathering-on-whatsapp-hit-by-germanys-order/"><u>Facebook's Data Gathering on WhatsApp Hit by Germany's Order</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-political-interruptions-on-facebook/"><u>Freedom From Political Interruptions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-no-to-yes-reestablishing-fb-connections/"><u>From No to Yes: Reestablishing FB Connections</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-tecno-spark-20-proplus-by-fonelab-android-recover-messages/"><u>How To  Restore Missing Messages Files from Tecno Spark 20 Pro+</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-honor-magic-5-lite-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Honor Magic 5 Lite to iPod | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-change-your-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Your Location on Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Nubia Red Magic 9 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-offensive-pro-palestinian-activism-disrupting-fb-store/"><u>One-Star Offensive: Pro-Palestinian Activism Disrupting FB Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-league-stars-quit-twitter-to-resist-social-media-toxicity/"><u>Premier League Stars Quit Twitter to Resist Social Media Toxicity</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamped-social-messaging-discover-how-fb-upgrades-apps-like-messenger-and-instagram/"><u>Revamped Social Messaging: Discover How FB Upgrades Apps Like Messenger & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-sharing-space-removing-interaction-from-your-fb-content/"><u>Secure Sharing Space: Removing Interaction From Your FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticker-ads-in-facebook-stories-test-for-marketers/"><u>Sticker Ads in Facebook Stories: Test for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-friendship-to-the-next-level-fb-avatars-and-whatsapp-dialogue/"><u>Taking Friendship to the Next Level: FB Avatars & WhatsApp Dialogue</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-ultimate-guide-to-oppo-find-n3-flip-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Oppo Find N3 Flip Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-photodna-and-its-forensic-capabilities/"><u>Understanding PhotoDNA and Its Forensic Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebook-networks-profiling-and-page-links/"><u>Unlocking Facebook Networks: Profiling and Page Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-pathways-to-invest-in-facebooks-settlement-fund/"><u>Unveiling Pathways to Invest in Facebook's Settlement Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-worlds-transformed-discovering-4-social-media-metamorphoses/"><u>Virtual Worlds Transformed: Discovering 4 Social Media Metamorphoses</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-guide-to-the-most-engaging-podcasts-in-22/"><u>Your Guide to the Most Engaging Podcasts in '22</u></a></li>
+</ul></div>

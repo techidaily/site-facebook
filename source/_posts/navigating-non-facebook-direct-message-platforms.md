@@ -1,7 +1,7 @@
 ---
 title: Navigating Non-Facebook Direct Message Platforms
-date: 2024-07-12T09:29:17.982Z
-updated: 2024-07-13T09:29:17.982Z
+date: 2024-07-29T07:30:17.482Z
+updated: 2024-07-30T07:30:17.482Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,10 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
 
  Your messages can be sent using end-to-end encryption too, although it's not by default, so [you need to know how to activate encryption](https://www.makeuseof.com/enable-encryption-facebook-messenger/) . This means that whatever you send can't be intercepted by third parties as messages are rendered unreadable. No one can see what you send while it's in transit between devices. It's the bare minimum you should expect from an instant messaging service these days.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## Why Might You Avoid Using Facebook?
 
 ![download facebook messenger service app store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Messenger.jpg)
@@ -45,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
 
  But even if you don't have Facebook, the company is still tracking you: shadow profiles detail the activities of those not using the app. Signing up to Messenger isn't going to make much of a difference, compared to the personal information users with Facebook accounts give up.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Download Messenger Without an Active Facebook Account
 
  Things used to be simpler. The process of using Facebook Messenger without having Facebook itself was easy: you could sign up using your phone number. Sorted. But Facebook quietly phased this option out in 2019, so now, you have to have a Facebook account. But don't panic: you can work around this.
@@ -53,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/1a81b2424f69fff5b71451b0842af4d68db51d144
 
  First, you need to know how to install Messenger, which is simple. Just head to the [App Store](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://itunes.apple.com/app/messenger/id454638411) or [Google Play](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU36105/https://play.google.com/store/apps/details?id=com.facebook.orca) , depending on your smartphone or tablet. Make sure it's the official app, made by Facebook Inc., or you risk installing malware by mistake.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
 
 Next, you need to know how to sign up for Messenger.
@@ -63,6 +74,9 @@ Next, you need to know how to sign up for Messenger.
 
  Okay, so now you have a Facebook account. That's not ideal, but you can do something about that at least. So what next?
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Messenger Without an Active Facebook Account
 
  After you activate your account, there are still a few settings to finalize so that you can take full advantage of the app.
@@ -71,6 +85,9 @@ Next, you need to know how to sign up for Messenger.
 
  How can you add friends to Messenger? You can do this via your Facebook account if you want to, but you'll probably need to explain to them that this is temporary, because you're only doing it to interact with them on Messenger. If you want to connect solely on Messenger via your smartphone, you can click on your profile picture in the top-left of your interface. Then go to**Phone contacts > Upload contacts** . This will sync the app with your phone book.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can You Have Messenger Without Using Facebook?
 
  You still have the main problem you wanted to avoid: you have a Facebook profile, simply to use Messenger. So what can you do?
@@ -95,6 +112,9 @@ Next, you need to know how to sign up for Messenger.
 
  You'll see your two options with warnings about what happens when you follow either method. Select**Deactivate account** so you can still use Messenger on your smartphone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can I Use Messenger Without Facebook on my PC?
 
  Sadly, you can only use Messenger via your browser if you've got an active Facebook account.
@@ -128,3 +148,48 @@ Next, you need to know how to sign up for Messenger.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-canon-image-masters-10plus-luts-some-are-free/"><u>[Updated] Canon Image Masters - 10+ LUTs, Some Are Free</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-conquer-the-clutter-learn-bg-erasure-in-figma-designs/"><u>[Updated] Conquer the Clutter  Learn BG Erasure in Figma Designs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-simplified-social-media-sharing-youtube-to-facebook/"><u>[Updated] In 2024, Simplified Social Media Sharing  YouTube to Facebook</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-snap-into-action-a-compelling-ig-gallery-of-inspiration/"><u>[Updated] In 2024, Snap Into Action! A Compelling IG Gallery of Inspiration</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-zooms-best-practices-for-organizing-online-meetings/"><u>[Updated] In 2024, Zoom's Best Practices for Organizing Online Meetings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-optimal-offsite-organization-unveiling-best-practices-and-platforms/"><u>[Updated] Optimal Offsite Organization  Unveiling Best Practices & Platforms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-sing-your-own-song-with-an-iphone-ringtone/"><u>2024 Approved  How to Sing Your Own Song with an iPhone Ringtone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-miui-screen-recorder-review-and-alternatives/"><u>2024 Approved  MIUI Screen Recorder Review and Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-tools-to-keep-your-social-calendar-on-track/"><u>8 Top Tools to Keep Your Social Calendar on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-and-operating-facebooks-inbuilt-protection/"><u>Accessing and Operating Facebook's Inbuilt Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-a-new-era-for-iphone-privacy/"><u>App Tracking Decline: A New Era for iPhone Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-friend-management-for-optimal-online-experience-on-facebook/"><u>Effective Friend Management for Optimal Online Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-everyday-exchange-typographic-techniques/"><u>Elevate Your Everyday Exchange: Typographic Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-secure-mail-validity-is-securityfb-legit/"><u>Facebook Secure Mail Validity: Is @Security@fb Legit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portal-transforms-with-go-adventure/"><u>Facebook's Portal Transforms with Go Adventure</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-nokia-g22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/forums-fade-away-here-are-6-reasons-why/"><u>Forums Fade Away, Here Are 6 Reasons Why</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/free-top-12-best-idle-games-you-can-try-on-pc/"><u>FREE Top 12 Best Idle Games You Can Try on PC</u></a></li>
+<li><a href="https://techidaily.com/how-to-exit-dfu-mode-on-apple-iphone-7-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Exit DFU Mode on Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On ZTE Nubia Flip 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-stop-to-all-facebook-buzz/"><u>Immediate Stop to All Facebook Buzz</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-perfecting-pics-with-practicality-top-5-pc-snipping-tools/"><u>In 2024, Perfecting Pics with Practicality - Top 5 PC Snipping Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/learn-lives-through-interactive-messenger-polls/"><u>Learn Lives Through Interactive Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintain-your-anonymity-elude-these-three-risks/"><u>Maintain Your Anonymity: Elude These Three Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-most-frequent-youtube-short-hurdles-for-2024/"><u>Overcoming the Most Frequent YouTube Short Hurdles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-grip-on-online-community-interaction/"><u>Social Media's Grip On Online Community Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dynamics-of-facebooks-acceptance-criteria/"><u>The Dynamics of Facebook’s Acceptance Criteria</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-telegram-amidst-facebook-shutdown/"><u>The Rise of Telegram Amidst Facebook Shutdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-tracer-first-entry-into-facebook-world/"><u>Timeline Tracer: First Entry Into Facebook World</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-infinix-note-30-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Infinix Note 30</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-visibility-with-instagram-reels-and-facebook-stickers/"><u>Unlocking Brand Visibility with Instagram Reels & Facebook Stickers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Oppo A38? | Dr.fone</u></a></li>
+</ul></div>

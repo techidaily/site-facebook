@@ -1,7 +1,7 @@
 ---
 title: Why Are Governments Targeting Tech's Colossal Entities?
-date: 2024-07-12T09:30:39.220Z
-updated: 2024-07-13T09:30:39.220Z
+date: 2024-07-29T07:31:15.350Z
+updated: 2024-07-30T07:31:15.350Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Big Tech Companies Use Data for Profit
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
@@ -47,6 +50,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
 ## Big Tech Fails to Catch Misleading Ads
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
@@ -55,6 +61,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Big Tech Limits the Market Access of Smaller Companies
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
@@ -66,6 +75,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Another recent case occurred when the [European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
@@ -74,6 +86,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Furthermore, there are ways that you can [help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Big Tech Can Impact Government Decisions and Operations
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
@@ -86,6 +101,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
 ## Big Tech Companies Have Incredible Influence
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
@@ -104,6 +122,9 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -131,3 +152,53 @@ thumbnail: https://thmb.techidaily.com/9bd169ce317850079833c4c232eaa6d389f824b0e
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-how-to-optimize-your-instagram-post-with-music-stickers/"><u>[New] 2024 Approved  How to Optimize Your Instagram Post with Music Stickers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-cutting-edge-actions-screening-tech-report/"><u>[New] Cutting-Edge Actions Screening Tech Report</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-engaging-followers-on-instagram-with-youtube-video-links-in-stories/"><u>[New] In 2024, Engaging Followers on Instagram with YouTube Video Links in Stories</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-elevate-your-farm-the-top-7-stardew-modifications/"><u>[Updated] 2024 Approved  Elevate Your Farm  The Top 7 Stardew Modifications</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-exploring-past-social-media-engagement-via-twitter-archive/"><u>[Updated] 2024 Approved  Exploring Past Social Media Engagement via Twitter Archive</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[Updated] 2024 Approved  Flix Fortune  Hashtags for High Impact, Low-Length Video Content</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-revolutionize-your-mobile-viewing-experience/"><u>[Updated] 2024 Approved  Revolutionize Your Mobile Viewing Experience</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-streamline-your-obs-outputs-for-2024/"><u>[Updated] Streamline Your OBS Outputs for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-apex-recommendations-exquisite-iphone-ringtone-designers/"><u>2024 Approved  Apex Recommendations  Exquisite iPhone Ringtone Designers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-maximize-your-home-studio-webcam-recorder-essentials/"><u>2024 Approved  Maximize Your Home Studio - WebCam Recorder Essentials</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photographic-soundtracking-online/"><u>2024 Approved  Photographic Soundtracking Online</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-social-media-synergy-integrating-business-growth-with-tiktok/"><u>2024 Approved  Social Media Synergy  Integrating Business Growth with TikTok</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-unlock-the-power-of-fb-conversation-capture-tools/"><u>2024 Approved  Unlock the Power of FB Conversation Capture Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/archive-every-echo-comprehensive-history-collection-on-social-media/"><u>Archive Every Echo: Comprehensive History Collection on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/blending-memories-a-guide-to-online-photo-collage-crafting/"><u>Blending Memories: A Guide to Online Photo Collage Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-locations-to-uncover-freelancing-gigs/"><u>Critical Locations to Uncover Freelancing Gigs</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-concerns-with-facebook-quizzes-explored/"><u>Cybersecurity Concerns with Facebook Quizzes Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/design-your-own-content-formula-with-facebooks-reel-feature/"><u>Design Your Own Content Formula with Facebook's Reel Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-teamwork-with-facebook-connectivity/"><u>Enhancing Teamwork with Facebook Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chat-vs-linkedin-connect-group-benefits-evaluated/"><u>Facebook Chat Vs. LinkedIn Connect: Group Benefits Evaluated</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-engagement-curve-top-or-trough/"><u>Facebook's Engagement Curve: Top or Trough?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-vlog-discussion-ideas-each-day-for-2024/"><u>Fresh Vlog Discussion Ideas Each Day for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-is-now-discovering-live-online-retail-at-fb/"><u>Friday Is Now: Discovering Live Online Retail at FB</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-meizu-21-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Meizu 21</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-poco-c50-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Poco C50 Phone When You Forget the Password</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-apple-iphone-12-to-other-iphone-without-icloud-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer Photos from Apple iPhone 12 to other iPhone without iCloud | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/in-2024-never-miss-a-moment-with-free-world-cup-live-streaming/"><u>In 2024, Never Miss a Moment With Free World Cup Live Streaming</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/in-2024-youtube-ventures-steps-for-monetizing-content/"><u>In 2024, YouTube Ventures  Steps for Monetizing Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/indian-tech-regulation-faces-legal-challenge-from-whatsapp/"><u>Indian Tech Regulation Faces Legal Challenge From WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-facebooks-altered-meanings-for-page-labels/"><u>Interpreting Facebook's Altered Meanings for Page Labels</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-frontier-for-listeners-facebooks-audio-initiative/"><u>New Frontier for Listeners: Facebook's Audio Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-images-on-social-media-hub/"><u>Protecting Your Images on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinforcing-your-email-defenses-2fa-on-gmail-outlook-and-more-applications/"><u>Reinforcing Your Email Defenses: 2FA on Gmail, Outlook & More Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-integration-the-emergent-ties-of-fb-and-insta/"><u>Seamless Integration: The Emergent Ties of FB and Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-access-add-admin-to-your-social-media-hub/"><u>Secure Access: Add Admin to Your Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-privacy-preferences-for-on-the-go-check-ins/"><u>Setting Privacy Preferences for On-the-Go Check-Ins</u></a></li>
+<li><a href="https://extra-support.techidaily.com/shatter-the-status-quo-with-these-instagram-9-methods-for-stardom-for-2024/"><u>Shatter the Status Quo with These Instagram #9 Methods for Stardom for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-identification-techniques-by-meta/"><u>Social Identification Techniques by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-backs-new-content-platform-with-5m-financing/"><u>Social Network Backs New Content Platform with $5M Financing</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-social-network-events-with-facebook/"><u>Streamlining Your Social Network Events with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-audio-expressions-in-fb-messenger/"><u>The Art of Audio Expressions in FB Messenger</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719577245493-the-fastest-way-to-learn-korean-at-home-choose-wisely/"><u>The Fastest Way to Learn Korean at Home – Choose Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-undetected-strategies-for-dodging-shadowbanned-content/"><u>The Undetected Strategies for Dodging Shadowbanned Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unspoken-stories-in-whistleblowing-documents-on-fb/"><u>The Unspoken Stories in Whistleblowing Documents on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-utilizing-facebooks-icons-and-emojis-effectively/"><u>Understanding and Utilizing Facebook's Icons & Emojis Effectively</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-creativity-the-best-9-camera-accessories-for-vloggers-and-more-for-2024/"><u>Unleash Creativity  The Best 9 Camera Accessories for Vloggers and More for 2024</u></a></li>
+</ul></div>

@@ -1,0 +1,171 @@
+---
+title: "Discovering What's Hot On FB: Lately Streamed"
+date: 2024-07-29T07:41:50.287Z
+updated: 2024-07-30T07:41:50.287Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Discovering What's Hot On FB: Lately Streamed"
+excerpt: "This Article Describes Discovering What's Hot On FB: Lately Streamed"
+keywords: Facebook Trending Topics,Popular Social Media Videos,Current Viral Content on FB,Latest Streamed Video Hits,Hot Hashtags on Facebook,Influencers' Trendy Content,What's Hot in FB Feeds
+thumbnail: https://thmb.techidaily.com/1e0694b6112d675bbb8f0d747ab36517f01502f4062f523abbe17fcfc5ae5fc7.jpg
+---
+
+## Discovering What's Hot On FB: Lately Streamed
+
+ We've all been there; you are watching an interesting video on Facebook and then all of a sudden, you accidentally refresh, and the video is lost before you have a chance to share or save it. Well, thankfully, Facebook lets you see and manage your watch history.
+
+ In this article, we'll see how to find recently watched videos on Facebook.
+
+## How to View Recently Watched Facebook Videos on the Web
+
+ Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
+
+ Here's how to access Facebook's Activity log section on the web and view your recently watched videos:
+
+1. Open Facebook on your computer and log in with your credentials.
+2. Click your profile picture in the top right corner, and then click on your name.
+3. Click on the**three dots** and choose**Activity log** from the context menu.  
+![Activity Log option in the Facebook Profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Activity-Log.jpg)
+4. Select the**Videos you've watched** option.  
+![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
+
+That's it. Here you will find all the recently watched videos.
+
+ You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
+
+![Delete option to delete individual video from FB watch history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Delete-option.jpg)
+
+ If you want to delete the complete watch history, then click the**Clear Video Watch History** option at the top.
+
+### Filter Facebook Watched Videos by Date on the Web
+
+ If you want to view videos watched in a particular month and year, you can do that too. Here's how:
+
+1. Open the Activity Log window of your Facebook profile.
+2. Click the**Date** option in the left sidebar.  
+![Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date-option.jpg)
+3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
+
+ Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to View Recently Watched Facebook Videos on Android and iOS
+
+ It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
+
+![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
+
+Close
+
+1. Launch the Facebook app on your iOS or Android device and log in to your account.
+2. On iOS, click the**hamburger icon** in the bottom right corner. And on Android, click the hamburger icon in the top-right corner.
+3. Tap on your profile name.
+4. Click the**three dots** next to the**View Tools** option.
+5. Choose**Activity** **log** .
+6. On the Activity log page, slide the available activities to the left and choose the**Videos watched** option.
+
+ You'll now see all the videos you recently watched on your Facebook app.
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Filter Facebook Watched Videos by Date on Android and iOS
+
+ To view Facebook watch history of a particular time period on Android and iOS, follow the below instructions:
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
+
+![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
+
+Close
+
+1. Open the Activity log window on your Android or iOS device.
+2. Slide the available activities to the left and choose the Videos watched option.
+3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
+4. Enter the**Start** and**End** date. Then, click**Done** .
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
+## Never Lose Facebook Videos Again
+
+ The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-profiling-perfection-a-visual-guide/"><u>[New] 2024 Approved  Profiling Perfection  A Visual Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-captivating-your-audience-youtube-intro-excellence-with-imovie/"><u>[New] In 2024, Captivating Your Audience  YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-tunefab-revolutionizing-the-art-of-video-capture/"><u>[New] In 2024, Tunefab  Revolutionizing the Art of Video Capture</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-instant-illusions-mastering-time-lapse-photography-on-samsung/"><u>2024 Approved  Instant Illusions  Mastering Time-Lapse Photography on Samsung</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-week-without-the-blue-bird/"><u>A Week Without the Blue Bird</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-key-findings-from-leaked-fb-documents/"><u>Analyzing Key Findings From Leaked FB Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-the-surface-hidden-post-factors-on-fb/"><u>Beyond the Surface: Hidden Post Factors on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/clearing-the-clutter-from-your-connection-space/"><u>Clearing the Clutter From Your Connection Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-worlds-facebooks-pivotal-shift-to-becoming-meta/"><u>Connecting Worlds: Facebook's Pivotal Shift to Becoming Meta</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/critical-insight-into-recmeisters-video-capture-efficacy-for-2024/"><u>Critical Insight Into Recmeister's Video Capture Efficacy for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-disappearing-text-feature-in-fb-messenger/"><u>Decoding the Disappearing Text Feature in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/distinguishing-profile-names-from-usernames-on-platforms/"><u>Distinguishing Profile Names From Usernames on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/executing-the-perfect-pivot-tearing-down-facebook-business-pages/"><u>Executing the Perfect Pivot: Tearing Down Facebook Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-next-gen-tech-fbs-smartwatch-with-potential-for-2-cameras/"><u>Exploring Next-Gen Tech: FB's Smartwatch With Potential for 2 Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-revamp-of-your-social-media-experience-with-fb/"><u>Exploring the Revamp of Your Social Media Experience with FB</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-gionee-f3-pro-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Gionee F3 Pro Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-digital-to-dollars-is-fb-planning-to-open-nearby-stores/"><u>From Digital to Dollars: Is FB Planning to Open Nearby Stores?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-missing-or-malfunctioning-your-hardware-drivers-with-windows-device-manager-in-windows-1110-by-drivereasy-guide/"><u>How to identify missing or malfunctioning your hardware drivers with Windows Device Manager in Windows 11/10</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-15-pro-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 15 Pro without the Previous Owner?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-realme-11-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Realme 11 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-iphone-editing-magic-shorter-smaller-videos/"><u>In 2024, Unlock iPhone Editing Magic  Shorter, Smaller Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-youtube-on-facebook-feeds/"><u>In 2024, Unlocking YouTube on Facebook Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-networking-techniques-sending-instagram-reels-via-facebook/"><u>Interactive Networking Techniques: Sending Instagram Reels via Facebook</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/introduction-to-stories-essence-and-art/"><u>Introduction to Stories' Essence and Art</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-safe-a-quick-checklist-for-9-warning-signs/"><u>Keep Your Social Safe: A Quick Checklist for 9 Warning Signs</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-tech-trends-top-4-revelations-for-the-informed/"><u>Overlooked Tech Trends: Top 4 Revelations for the Informed</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweep-away-the-social-noise/"><u>Sweep Away the Social Noise</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-charge-of-personal-safety-on-facebook/"><u>Taking Charge of Personal Safety on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-networkers-shield-against-scams/"><u>The Social Networker’s Shield Against Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcast-experience-what-to-listen-to/"><u>The Ultimate 2022 Podcast Experience - What to Listen To</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-ultimate-room-and-pc-checklist-for-vr/"><u>The Ultimate Room and PC Checklist for VR</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/thorough-examination-gopro-silver-hero4-feature-test/"><u>Thorough Examination  GoPro Silver HERO4 Feature Test</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-samsung-galaxy-s24-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on Samsung Galaxy S24</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-cryptocurrency-stablecoin/"><u>What Is a Cryptocurrency Stablecoin?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-represents-your-online-pictures/"><u>Who Represents Your Online Pictures?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-persistent-social-media-advice-is-inevitable/"><u>Why Persistent Social Media Advice Is Inevitable?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Defeating FB Pursuit Through Off-Facebook Settings
-date: 2024-07-12T09:30:45.931Z
-updated: 2024-07-13T09:30:45.931Z
+date: 2024-07-29T07:31:20.016Z
+updated: 2024-07-30T07:31:20.016Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,9 @@ thumbnail: https://thmb.techidaily.com/6038b4e1d0b30613cb41c0ccc8733d5ac9ac78f01
 
 ## What Is the Off-Facebook Activity Tool?
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ![looking at facebook on iphone alongside a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-app-smartphone.jpg)
 
  Facebook has been the subject of significant criticism about its approach to privacy. Now the company is trying to rebuild trust with its users. One way it is doing this is by introducing tools that let users [see their own Facebook data](https://www.makeuseof.com/tag/everything-facebook-recording/) and take more control over this data. The Off-Facebook Activity tool allows users to control what data Facebook receives from other apps and services.
@@ -37,6 +40,9 @@ thumbnail: https://thmb.techidaily.com/6038b4e1d0b30613cb41c0ccc8733d5ac9ac78f01
 
  In general, Facebook collects data about your activity on other websites and apps in order to show you more relevant ads. This data includes information such as the types of products you've viewed, the website or app you were using, and whether or not you made a purchase.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Use the Off-Facebook Activity Tool to Stop Tracking
 ![Women Working on Facebook on a Laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Women-Working-on-Facebook-on-a-Laptop.jpg)
 
@@ -52,8 +58,14 @@ thumbnail: https://thmb.techidaily.com/6038b4e1d0b30613cb41c0ccc8733d5ac9ac78f01
 
  To clear all this information so it is no longer linked to your Facebook account, click the**Clear History** button. Next you can also go to the**Disconnect future activity** (from the Off-Facebook activity page) section and set the slider for**Future Off-Facebook Activity** to**off** to [stop Facebook tracking your activities](https://www.makeuseof.com/tag/facebook-tracking-stop/) in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![screenshot showing manage off-facebook activity page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-off-facebook-activity-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![screenshot showing manage facebook activity toggle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/screenshot-showing-manage-facebook-activity-toggle.jpg)
 
 Close
@@ -68,12 +80,18 @@ Close
 
 ## How Can You Secure Your Facebook Data?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ![Desktop Monitor Placed on a Table Showing Image of a Man Viewing From a Binocular Covered With Facebook Logo Icons](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Desktop-Monitor-Placed-on-a-Table-Showing-Image-of-a-Man-Viewing-From-a-Binocular-Covered-With-Facebook-Logo-Icons.jpg)
 
  If you want to remove your data from Facebook, it's going to take more work. You can start by going to [Facebook Ad Preferences](https://www.facebook.com/ads/preferences/) . Here you can see the profile Facebook has built of you and your interests based on all the data it has access to. You can also go to [Facebook settings](http://www.facebook.com/settings) and download a copy of the data that Facebook has on you. But be warned: the downloaded file will likely be huge.
 
  The very best way to remove your data from Facebook, however, is to delete your account. If you deactivate your account, it won't erase your personal data. Deleting your account will remove most but not all of your data. To learn more about what happens when you delete your account, see our guide to [what deactivating or deleting Facebook really means for privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) .
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Take Control of Your Facebook Data
 
  The Off-Facebook activity tool gives you some measure of control over how your data is shared with Facebook. However, it won't actually delete your data. So if you want to be sure your data isn't being misused, it's best to remove it from Facebook altogether.
@@ -99,3 +117,38 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-understanding-the-streaming-landscape-twitch-vs-youtube-compared/"><u>[New] 2024 Approved  Understanding the Streaming Landscape  Twitch Vs YouTube Compared</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-mastering-friend-requests-desktop-and-mobile-guide/"><u>[New] Mastering Friend Requests  Desktop & Mobile Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-tools-that-simplify-your-content-publishing-cycle/"><u>10 Tools That Simplify Your Content Publishing Cycle</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-perfecting-pixels-lighting-setup-secrets-unveiled/"><u>2024 Approved  Perfecting Pixels  Lighting Setup Secrets Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-prime-5-minute-time-lapse-video-creator/"><u>2024 Approved  Prime 5-Minute Time-Lapse Video Creator</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-stabilizing-shaky-images-a-realistic-benefit-or-hype/"><u>2024 Approved  Stabilizing Shaky Images  A Realistic Benefit or Hype?</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-worrying-aspects-of-the-metaverse-on-facebook/"><u>3 Worrying Aspects of the Metaverse on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-screen-unveiling-five-pivotal-user-disappointments-in-facebook/"><u>Behind the Screen: Unveiling Five Pivotal User Disappointments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-social-medias-hidden-punishments-shadowbans/"><u>Bypassing Social Media's Hidden Punishments (Shadowbans)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/convert-fb-videos-directly-to-mp3-2023-edition-for-2024/"><u>Convert FB Videos Directly to MP3 - 2023 Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-sync-of-social-media-share-instagram-reels-post-on-facebook/"><u>Direct Sync of Social Media: Share Instagram Reels, Post on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-hidden-layers-in-facebooks-leaked-documents/"><u>Discover the Hidden Layers in Facebook’s Leaked Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-payment-plan-paves-way-for-artists-financial-freedom/"><u>Facebook’s Payment Plan Paves Way for Artists’ Financial Freedom</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-poco-c50mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Poco C50Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-contacts-to-facebook-messenger/"><u>How to Add Contacts to Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-do-a-privacy-check-for-your-teens-facebook-account/"><u>How to Do a Privacy Check for Your Teen's Facebook Account</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-lightning-flicker-viewer-windows-photos/"><u>In 2024, Lightning Flicker Viewer - Windows Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-affection-concealing-your-likes-on-networks/"><u>Invisible Affection: Concealing Your Likes on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-evolving-tactics-threatening-eus-facebookinsta-presence/"><u>Meta's Evolving Tactics Threatening EU's Facebook/Insta Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-facebook-group-regulations-efficiently/"><u>Modifying Facebook Group Regulations Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-event-creation-on-facebook-with-ease/"><u>Navigating Event Creation on Facebook with Ease</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/pitch-preservation-monitoring-microphones/"><u>Pitch Preservation  Monitoring Microphones</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-perfection-designing-a-tailored-cover-photo-that-celebrates-you-and-your-avatar/"><u>Profile Perfection: Designing a Tailored Cover Photo that Celebrates You and Your Avatar</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-in-facebooks-messaging/"><u>Protecting Privacy in Facebook's Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-reinventing-instagrams-app-design/"><u>The Allure of Reinventing Instagram's App Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-music-revenue-sharing-on-facebook/"><u>The Evolution of Music Revenue Sharing on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-layers-etiquette-and-norms-in-fb-connections/"><u>The Invisible Layers: Etiquette and Norms in FB Connections</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-honor-magic-6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-oneplus-11-5g-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your OnePlus 11 5G Phone</u></a></li>
+</ul></div>

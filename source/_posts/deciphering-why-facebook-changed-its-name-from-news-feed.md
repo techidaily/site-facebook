@@ -1,0 +1,126 @@
+---
+title: Deciphering Why Facebook Changed Its Name From News Feed
+date: 2024-07-29T07:35:31.204Z
+updated: 2024-07-30T07:35:31.204Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Deciphering Why Facebook Changed Its Name From News Feed
+excerpt: This Article Describes Deciphering Why Facebook Changed Its Name From News Feed
+keywords: Facebook Name Change Reasoning,New Feed to Newsfeed Shift,Facebook News Feed Renaming,Unveiling FB News Update,Understanding Newsfeed Rebrand,Insight,Decoding FB News Strategy
+thumbnail: https://thmb.techidaily.com/7951d32be8f36c4eb18b2a1ca73585423cfb1568fc448e5639b2a4a582d5f7dd.jpg
+---
+
+## Deciphering Why Facebook Changed Its Name From News Feed
+
+ Facebook has many compartments, from groups, to friends, to stories, amongst others. But when you think about Facebook, you are most likely thinking of its News Feed, which is the main interface everyone sees every day.Facebook's News Feed is probably the most powerful tool on the internet; it's not an exaggeration to say that News Feed has changed the world.Now its name is changing from News Feed to Feed. But why?
+
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
+## Why Facebook Erased "News" from News Feed?
+
+ Facebook's News Feed will now simply be known as the "Feed", but Facebook does not offer any real details as to why.
+
+ "This is just a name change and does not impact the app experience more broadly," a company spokesperson said in an email to[The Verge](https://www.theverge.com/2022/2/15/22935080/facebook-meta-news-feed-renaming-branding-political-content-misinformation?scrolla=5eb6d68b7fedc32c19ef33b4) .
+
+Not so fast.
+
+ It is probably safe to say that a major motivation for everything Facebook does today is pressure from Congress, which has been investigating the role Facebook's algorithm plays in distributing misinformation on the internet. This name change is no different.
+
+ Indeed, a bill called The Social Media NUDGE Act has already been drafted, which seeks to slow down the spread of harmful content and misinformation on social media.
+
+ Facebook made at least two changes to how it distributes news prior to this announcement. In October 2019, the company launched[Facebook News](https://about.fb.com/news/2019/10/introducing-facebook-news/) in the US.
+
+ Facebook News is a dedicated place for news on Facebook in the bookmarks section, which independent journalists moderate.
+
+ Related:[Why Meta Is Threatening to Kill Facebook and Instagram in Europe](https://www.makeuseof.com/why-meta-remove-facebook-instagram-europe/)
+
+ Then, in February 2021,[Facebook](https://about.fb.com/news/2021/02/reducing-political-content-in-news-feed/) announced it would reduce the distribution of political content in News Feed in Canada, Brazil, Indonesia, and the US, as a test before rolling out across the world.
+
+ With this renaming, Facebook has closed the loop. Posts by your friends, groups, pages you follow, and others will now be in the Feed.
+
+ Politics and current affairs will now be in Facebook News; according to[Axios](https://www.axios.com/facebook-news-tab-traffic-378e8106-d7f8-481e-b500-e334d3beda3e.html) , US, UK, and German publishers included in the News tab credit Facebook News for referring 30% of all the Facebook traffic they get.
+
+ Therefore, segregating the news away from regular updates by your friends and family is a legally smart move for Facebook. It will certainly help their case with regulators if it drives down misinformation. In that regard, a change from News Feed to Feed makes sense.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
+## Is Facebook Getting Out of the News Business?
+
+ News Feed made Facebook the biggest distributor of news and information in the world. For better or worse, News Feed has had important consequences for the world, especially in politics.
+
+ Will removing the news out of our feeds help stop misinformation? That remains to be seen. After all, friends, groups, and pages you follow are still a potent source of misinformation and toxic content; and Facebook's algorithm will continue to promote what generates the most engagement.
+
+ Facebook may not be getting out of the news business altogether, but it is clear that Facebook is determined to move beyond news, which has brought it nothing but trouble, and dive deep into the metaverse.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-boosting-income-through-effective-video-marketing-for-2024/"><u>[New] Boosting Income Through Effective Video Marketing for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-cut-screen-claims-is-splitcam-supreme/"><u>[New] Cut Screen Claims  Is SplitCam Supreme?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-sideways-to-symmetry-mastering-the-art-of-rotating-visual-content-for-maximum-engagement-for-2024/"><u>[New] From Sideways to Symmetry  Mastering the Art of Rotating Visual Content for Maximum Engagement for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-crafting-effective-in-stream-ad-campaigns-on-facebook-a-comprehensive-guide/"><u>[New] In 2024, Crafting Effective In-Stream Ad Campaigns on Facebook  A Comprehensive Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-the-quick-route-to-celebrity-status-on-insta-top-15-strategies-for-rapid-follower-growth/"><u>[New] In 2024, The Quick Route to Celebrity Status on Insta  Top 15 Strategies For Rapid Follower Growth</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-the-ultimate-snapchat-gif-steps-for-every-user/"><u>[New] In 2024, The Ultimate Snapchat GIF Steps for Every User</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-mastering-video-storage-of-snapchat-stories/"><u>[Updated] 2024 Approved  Mastering Video Storage of Snapchat Stories</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fresh-discussion-ideas-for-podcast-success/"><u>[Updated] Fresh Discussion Ideas for Podcast Success</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-googles-advanced-upload-techniques-for-podcasters/"><u>[Updated] Google's Advanced Upload Techniques for Podcasters</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-tips-for-achieving-crystal-clear-1080p-on-fb/"><u>[Updated] In 2024, Tips for Achieving Crystal Clear 1080P on FB</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-navigate-the-post-production-maze-with-timestamps-and-labels-for-2024/"><u>[Updated] Navigate the Post-Production Maze with Timestamps & Labels for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-teaming-up-for-duet-video-on-tiktok-for-2024/"><u>[Updated] Teaming Up for Duet Video on TikTok for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-words-in-motion-a-guide-to-lively-animation-methods/"><u>[Updated] Words in Motion  A Guide to Lively Animation Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-rifts-users-gain-access-post-hack/"><u>$300 Oculus Rifts, Users' Gain Access Post-Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-rift-investment-by-users-seeking-hacked-data-recovery/"><u>$300 Rift Investment by Users Seeking Hacked Data Recovery</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-route-to-rejuvenate-and-refine-your-vhs-collection-online/"><u>2024 Approved  The Ultimate Route to Rejuvenate and Refine Your VHS Collection Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-fb-avatar-inclusion-in-whatsapp-discussions/"><u>A Guide to FB Avatar Inclusion in WhatsApp Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-claims-in-court-against-10000-fb-groups-admin/"><u>Amazon Claims in Court Against 10,000 FB Groups Admin</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-alternative-vision-not-embracing-metaverse-now/"><u>Apple’s Alternative Vision: Not Embracing Metaverse Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-senior-friendly-digital-network-spots/"><u>Best Senior-Friendly Digital Network Spots</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-sensationalism-a-realistic-assessment-of-fb-dossiers/"><u>Beyond Sensationalism: A Realistic Assessment of FB Dossiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-your-account-security-with-facebooks-2fa-methodology/"><u>Boost Your Account Security with Facebook’s 2FA Methodology</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridge-the-divide-after-deleting-friends/"><u>Bridge the Divide After Deleting Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-metaai-with-predominant-bot-solutions/"><u>Comparing MetaAI with Predominant Bot Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-the-latest-facebook-portable-gadgets/"><u>Comparing the Latest Facebook Portable Gadgets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/comprehensive-list-top-screenshot-videography-tools-for-2024/"><u>Comprehensive List  Top Screenshot Videography Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152295566-connect-more-effortlessly-transferring-posts-and-notes-among-major-sites/"><u>Connect More, Effortlessly: Transferring Posts & Notes Among Major Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-compelling-online-story-with-your-business-profile-on-facebook/"><u>Crafting a Compelling Online Story with Your Business Profile on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-team-assigning-an-admin-to-your-page/"><u>Crafting a Team: Assigning an Admin to Your Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-digital-identity-with-facebook-feed-personalization-techniques/"><u>Crafting Digital Identity with Facebook Feed Personalization Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-virtual-reflection-with-oculus-avatars/"><u>Crafting Your Virtual Reflection with Oculus Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-impactful-fb-profile-photograph/"><u>Creating an Impactful FB Profile Photograph</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-section-analysis-clearing-faceprint-records-on-facebook-a-threat-to-user-security/"><u>Cross-Section Analysis: Clearing Faceprint Records on Facebook – A Threat to User Security?</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-oneplus-open-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my OnePlus Open Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-xs-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone XS Device from iCloud</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-axon-40-lite-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock ZTE Axon 40 Lite Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-direct-methods-to-record-virtual-meetings/"><u>In 2024, Direct Methods to Record Virtual Meetings</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/mastering-live-show-recordings-the-modern-way/"><u>Mastering Live Show Recordings  The Modern Way</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147188934-preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump.</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pros-choice-of-top-slo-mo-mobile-photography-apps-on-ios-and-android-for-2024/"><u>Pro's Choice of Top Slo-Mo Mobile Photography Apps on iOS & Android for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151756035-social-security-boosted-facebooks-messenger-and-instagram-now-offering-encrypted-chats/"><u>Social Security Boosted: Facebook's Messenger & Instagram Now Offering Encrypted Chats</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-unlocking-global-audiences-top-video-language-converters/"><u>Updated Unlocking Global Audiences Top Video Language Converters</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-itel-a05s-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Itel A05s Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150501428-which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here!</u></a></li>
+</ul></div>

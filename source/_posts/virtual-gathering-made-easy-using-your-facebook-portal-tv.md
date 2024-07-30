@@ -1,7 +1,7 @@
 ---
 title: "Virtual Gathering Made Easy: Using Your Facebook Portal TV"
-date: 2024-07-12T09:32:37.945Z
-updated: 2024-07-13T09:32:37.945Z
+date: 2024-07-29T07:32:40.874Z
+updated: 2024-07-30T07:32:40.874Z
 tags:
   - facebook
 categories:
@@ -39,8 +39,14 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 
  Having large images of your family, friends, and/or colleagues on the TV screen during a video call creates an illusion of proximity.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## What Is the Facebook Portal TV?
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
  The [Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
@@ -55,11 +61,17 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 
  The Portal TV offers additional services to you based on your subscription category.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Make Video Calls on the Facebook Portal TV
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Plugging In Your Portal TV
 
 1. Plug in the power adapter and the HDMI cable and then plug the power adapter into an electric source. Your TV will turn on.
@@ -72,6 +84,9 @@ thumbnail: https://thmb.techidaily.com/c625d72d0946f66f9247899cc6c4c66eb70d8cf37
 2. Don't place your Portal TV very close to a speaker or soundbar.
 3. Your Portal TV comes with Dolby Atmos sound. For effective use, it requires Dolby Atmos-encoded streaming content as well as a compatible audio system.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<!-- affiliate ads end -->
 ### Mounting Your Portal TV on Top of Your TV
 
 Your Portal TV has two clips.
@@ -87,6 +102,9 @@ Your Portal TV has two clips.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
 ### Selecting Your Language and Connecting to Wi-Fi
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
@@ -98,6 +116,9 @@ Your Portal TV has two clips.
 
  If the software on your Portal TV isn’t up to date, you'll be required to download the latest version. You may need to restart your Portal TV to proceed with the setup.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Choosing a Name for Your Portal TV and Logging In With Facebook or WhatsApp
 
  You can select one of the options on the menu or proceed to create a custom name for your Portal TV. Tap**Custom** to create a name of your choice.
@@ -107,6 +128,9 @@ Your Portal TV has two clips.
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
 ## Facebook Portal Voice Commands You Need to Know
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
@@ -142,3 +166,46 @@ Your Portal TV has two clips.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-guidance.techidaily.com/new-guide-to-use-luts-in-premiere-pro/"><u>[New] Guide to Use LUTs in Premiere Pro</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pinnacle-photo-the-leading-6-4k-dslr-cameras-of-the-year/"><u>[New] Pinnacle Photo  The Leading 6 4K DSLR Cameras of the Year</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harmonizing-sounds-first-lessons-on-fades-with-audition/"><u>[Updated] Harmonizing Sounds  First Lessons on Fades with Audition</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-professional-filmmakers-pick-is-it-filmora-or-democreator-for-2024/"><u>[Updated] Professional Filmmakers' Pick  Is It Filmora or Democreator for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-smooth-narrative-flow-mastering-inshots-seamless-segments/"><u>A Smooth Narrative Flow  Mastering Inshot's Seamless Segments</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-social-revolution-facebooks-rebranding-journey-leads-to-meta/"><u>A Social Revolution: Facebook’s Rebranding Journey Leads to Meta</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-joy-con-communication-errors-with-switch-console/"><u>Addressing Joy-Con Communication Errors with Switch Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-games-and-networks-social-integration-on-xbox/"><u>Bridging Games and Networks: Social Integration on Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-we-blame-technology-for-personalized-marketing-prowess/"><u>Can We Blame Technology for Personalized Marketing Prowess?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-surveillance-unauthorized-use-of-personal-devices/"><u>Digital Surveillance: Unauthorized Use of Personal Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-who-youre-watching-6-quizzes-for-youtube-fans-for-2024/"><u>Discover Who You're Watching  6 Quizzes for YouTube Fans for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-virtual-persona-picture-perfection-tips/"><u>Elevating Your Virtual Persona: Picture Perfection Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/enable-the-muted-color-palette-in-facebook/"><u>Enable the Muted Color Palette in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-security-profile/"><u>Enhancing Your Facebook Security Profile</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/1716465725108-enjoy-9-complete-uncut-holiday-cine-classics-for-no-cost/"><u>Enjoy 9 Complete, Uncut Holiday Cine Classics for No Cost!</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-foundation-for-healthy-fb-group-interactions/"><u>Establishing Foundation for Healthy FB Group Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-chats-step-into-the-ar-realm-with-messenger/"><u>Facebook Chats Step Into the AR Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-cracks-down-new-penalties-against-misinforming-users/"><u>Facebook Cracks Down: New Penalties Against Misinforming Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-like-to-like-follow-tiktok-outshines-facebook/"><u>From Like to Like-Follow: TikTok Outshines Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebooks-chat-works-behind-scenes/"><u>How Facebook's Chat Works Behind Scenes</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-attract-candidates-posting-job-ads-on-facebook/"><u>How to Attract Candidates: Posting Job Ads on Facebook</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-apple-iphone-14-pro-max-location-on-skout-drfone-by-drfone-virtual-ios/"><u>How to Change Apple iPhone 14 Pro Max Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-evade-facebooks-watchful-eye/"><u>How to Evade Facebook's Watchful Eye</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-infinix-hot-40i-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Infinix Hot 40i</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/hp-printing-revolution-install-new-inkjet-drivers-and-updates/"><u>HP Printing Revolution: Install New Inkjet Drivers and Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-subtleties-of-fb-icons-effectively/"><u>Interpreting the Subtleties of FB Icons Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/maximizing-impact-best-practices-for-corporate-screencast-training/"><u>Maximizing Impact  Best Practices for Corporate Screencast Training</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-and-engage-facebooks-defense-protocols/"><u>Navigate & Engage Facebook's Defense Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/rise-in-ranking-paid-verification-for-users/"><u>Rise in Ranking: Paid Verification for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/rivalry-begins-as-facebook-plants-5-million-seed-in-competitive-journalist-platforms/"><u>Rivalry Begins as Facebook Plants $5 Million Seed in Competitive Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-fact-from-fiction-debunking-facebook-beliefs/"><u>Separating Fact From Fiction: Debunking Facebook Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giant-whatsapp-sues-over-indian-it-regulation-concerns/"><u>Tech Giant WhatsApp Sues Over Indian IT Regulation Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-stellar-performance-amidst-a-social-media-pause/"><u>Telegram's Stellar Performance Amidst a Social Media Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-engaging-posts-with-ripl/"><u>The Ultimate Guide to Engaging Posts with Ripl</u></a></li>
+<li><a href="https://win11.techidaily.com/turbo-charge-battlenet-downloads-for-smooth-gaming/"><u>Turbo Charge Battle.net Downloads for Smooth Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-symbolism-in-new-facebook-page-designations/"><u>Unpacking The Symbolism In New Facebook Page Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-new-interpretations-for-facebook-page-titles/"><u>Unveiling New Interpretations for Facebook Page Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/vk-101-comprehensively-understanding-russias-social-media/"><u>VK 101: Comprehensively Understanding Russia’s Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-fits-in-the-criteria-for-facebook-neighborhood-group-membership/"><u>Who Fits In? - The Criteria for Facebook Neighborhood Group Membership</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Boosting Digital Safety with 2FA for Email Platforms Like Gmail and Outlook
-date: 2024-07-12T09:26:57.118Z
-updated: 2024-07-13T09:26:57.118Z
+date: 2024-07-29T07:28:38.225Z
+updated: 2024-07-30T07:28:38.225Z
 tags:
   - facebook
 categories:
@@ -27,21 +27,39 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  Check out our article on the [pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### Google Prompt
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your [Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### Authenticator App
 ![google 2fa authenticator options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-authenticator-options.jpg)
 
@@ -57,6 +75,9 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Microsoft Outlook
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
@@ -76,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/9d8448293885018e42ea0c2c618da231bf75f85bd
 
  The process for turning 2FA on is different for a Mac or an iDevice. Head to this short MakeUseOf [guide to protecting your Apple account with 2FA](https://www.makeuseof.com/tag/apple-two-factor-authentication/) for full details.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Facebook
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
@@ -85,7 +110,13 @@ Locking your Facebook account is as important as your email address.
 
  You can use the Google Authenticator app from the other sections in this article. Just scan the QR code and follow the Facebook instructions. Alternatively, enter your phone number, wait for the activation code to arrive, and follow the Facebook instructions. The security key option requires [a hardware security key](https://www.makeuseof.com/best-hardware-security-keys/) .
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Twitter
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
@@ -132,3 +163,45 @@ Locking your Facebook account is as important as your email address.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-make-your-mark-on-tiktok-top-30-unique-pfps/"><u>[New] 2024 Approved  Make Your Mark on TikTok  Top 30 Unique PFPs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-cross-platform-success-televisions-and-facebook-collaboration/"><u>[Updated] 2024 Approved  Cross-Platform Success  Televisions & Facebook Collaboration</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-construct-playlist-with-film-assortments/"><u>[Updated] In 2024, Construct Playlist with Film Assortments</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-memories-maker-efficiently-download-tweeted-media-content-for-2024/"><u>[Updated] Memories Maker  Efficiently Download Tweeted Media Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-vital-business-metrics-to-ignite-your-trajectory/"><u>4 Vital Business Metrics to Ignite Your Trajectory</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-facebook-page-polling/"><u>A Step-by-Step Guide to Facebook Page Polling</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/aggregate-attention-masterful-telegram-advertising-approaches-for-2024/"><u>Aggregate Attention  Masterful Telegram Advertising Approaches for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-engaging-translated-content-for-social-networking-sites/"><u>Creating Engaging Translated Content for Social Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-how-facebook-profits-from-musicians-tunes/"><u>Discovering How Facebook Profits From Musicians’ Tunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiency-and-wellness-mastering-facebook-breaks/"><u>Efficiency and Wellness: Mastering Facebook Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast!</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connecting-friends-to-global-community-facebook-as-meta-reimagined/"><u>From Connecting Friends to Global Community - Facebook as Meta Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-couch-to-city-facebooks-mobile-portal/"><u>From Couch to City: Facebook's Mobile Portal</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-elevate-your-pc-best-8-video-capture-tools-for-windows-10/"><u>In 2024, Elevate Your PC  Best 8 Video Capture Tools for Windows 10</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-6-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock Apple iPhone 6 Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-20plus-speedy-controls-mastering-your-pcs-fps/"><u>In 2024, Top 20+ Speedy Controls  Mastering Your PC's FPS</u></a></li>
+<li><a href="https://facebook.techidaily.com/lasting-connections-or-closing-facebook-heres-what-you-should-do-first/"><u>Lasting Connections or Closing Facebook? Here's What You Should Do First</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-lasting-impact-3d-photography-techniques-on-social-networks/"><u>Making a Lasting Impact: 3D Photography Techniques on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-metas-latest-privacy-statute/"><u>Navigating the Nuances of Meta's Latest Privacy Statute</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-for-good-top-7-positives-from-social-sites/"><u>Networking for Good: Top 7 Positives From Social Sites</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rectifying-the-application-could-not-load-qt-plugin-error/"><u>Rectifying the 'Application Could Not Load Qt Plugin' Error</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-fb-with-key-recovery-techniques/"><u>Safeguarding Your FB with Key Recovery Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-on-next-gen-oculus-a-shift-in-plans-max-80-charaters/"><u>Silence on Next-Gen Oculus: A Shift in Plans (Max 80 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/stake-in-the-game-understanding-crypto-stablecoins/"><u>Stake in the Game: Understanding Crypto Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-the-surveillance-germany-orders-cease-of-facebooks-whatsapp-data-gathering/"><u>Stop the Surveillance: Germany Orders Cease of Facebook's WhatsApp Data Gathering</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-fbcta-a-personal-perspective/"><u>The Impact of FBCTA: A Personal Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-whistleblowers-testimony-a-look-into-fb-operations/"><u>The Whistleblower's Testimony: A Look Into FB Operations</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-soccer-teams-cut-ties-with-snapchat-instagram-amid-harsh-criticism/"><u>UK Soccer Teams Cut Ties with Snapchat, Instagram Amid Harsh Criticism</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-what-doesnt-make-it-to-your-feed-on-fb/"><u>Unveiling What Doesn't Make It to Your Feed on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-marketplace-unveiled-facebooks-new-friday-venture/"><u>Virtual Marketplace Unveiled: Facebook's New Friday Venture</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-ghost-in-online-chatting/"><u>What Is a 'Ghost' In Online Chatting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-feature-availability-remains-same-without-new-policies/"><u>WhatsApp's Feature Availability Remains Same Without New Policies</u></a></li>
+</ul></div>

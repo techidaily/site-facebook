@@ -1,7 +1,7 @@
 ---
 title: Can We Trust Our Devices Not to Use Us for Profits?
-date: 2024-07-12T11:08:53.653Z
-updated: 2024-07-13T11:08:53.653Z
+date: 2024-08-08T11:19:09.873Z
+updated: 2024-08-09T11:19:09.873Z
 tags:
   - facebook
 categories:
@@ -15,6 +15,9 @@ thumbnail: https://thmb.techidaily.com/d2b7e4746fe693895b4178e4d3a3d7272df65f201
 
 ## Can We Trust Our Devices Not to Use Us for Profits?
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Users have experienced personalized ads for topics they have discussed, leading them to believe their phones are listening to their conversations.
@@ -27,6 +30,9 @@ What is going on?
 
  Let's consider the evidence and try to work out. Is your phone listening to you for ads, or is it simply a good, old-fashioned, coincidence?
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Does Your Phone Listen to You for Adverts?
 
  Various users across the web have claimed that something fishy is going on with their phones.
@@ -61,6 +67,9 @@ What is going on?
 
  Google reacted to this by taking action,[stating](https://www.blog.google/products/assistant/more-information-about-our-processes-safeguard-speech-data/) : "Audio snippets are not associated with user accounts." But as VRT pointed out, they don't need to be. More recently, I was brushing my teeth while reading an article about a movie when this advert appeared.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
@@ -69,6 +78,9 @@ What is going on?
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Can You Prove If an App Is Listening to You?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
@@ -83,6 +95,9 @@ What is going on?
 
  Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -107,6 +122,9 @@ What is going on?
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -136,3 +154,64 @@ What is going on?
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-boost-video-engagement-top-8-youtube-ranks-unveiled/"><u>[New] 2024 Approved  Boost Video Engagement  Top 8 YouTube Ranks Unveiled</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-efficiently-photograph-your-pcs-view/"><u>[New] 2024 Approved  Efficiently Photograph Your PC's View</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-capture-without-capsule-the-no-limit-story-saving-app-for-2024/"><u>[New] Capture Without Capsule  The No-Limit Story Saving App for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-channeling-creativity-get-green-screen-tips-from-youtube-for-2024/"><u>[New] Channeling Creativity  Get Green Screen Tips From YouTube for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-unraveling-the-mystery-of-stalled-instagram-videos/"><u>[New] In 2024, Unraveling the Mystery of Stalled Instagram Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-youtube-growth-secrets-masterful-narration-techniques/"><u>[New] In 2024, YouTube Growth Secrets  Masterful Narration Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-proven-techniques-to-enhance-engagement-and-interaction/"><u>[Updated] 2024 Approved  Proven Techniques to Enhance Engagement and Interaction</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-cyberspace-cinema-collector/"><u>[Updated] Cyberspace Cinema Collector</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-redirect-macs-image-backup-to-new-folder-for-2024/"><u>[Updated] Redirect Mac's Image Backup to New Folder for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/17-spanish-sayings-that-will-make-you-sound-like-a-native/"><u>17 Spanish Sayings That Will Make You Sound Like a Native</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-digital-artistry-on-your-phone-top-8-multimedia-enhancement-apps/"><u>2024 Approved  Digital Artistry on Your Phone  Top 8 Multimedia Enhancement Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-harness-the-power-of-gopro-studio-essential-editing-techniques/"><u>2024 Approved  Harness the Power of GoPro Studio  Essential Editing Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-70-lite-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor 70 Lite 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/deactivating-in-app-web-engagement-on-fb/"><u>Deactivating In-App Web Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-the-final-month-for-insta-threads/"><u>December: The Final Month for Insta Threads</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-your-online-space-for-group-interaction-a-networking-analysis/"><u>Deciding Your Online Space for Group Interaction: A Networking Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-data-downloading-all-of-your-facebook-activity/"><u>Deciphering Data: Downloading All of Your Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-change-from-a-narrative-perspective/"><u>Decoding Facebook's Change From a Narrative Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-picture-visibility-options/"><u>Decoding FB Picture Visibility Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-metas-decision-to-quit-face-recognition-on-facebook/"><u>Decoding Meta's Decision to Quit Face Recognition on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-deceit-dispelling-10-facebook-falsehoods/"><u>Decoding Online Deceit: Dispelling 10 Facebook Falsehoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-equilibrium-of-price-in-crypto-coins/"><u>Decoding the Equilibrium of Price in Crypto Coins</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-power-dynamics-7-core-insights-from-social-media-papers/"><u>Deconstructing Power Dynamics: 7 Core Insights From Social Media Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/delayed-dictum-social-media-court-hesitates/"><u>Delayed Dictum: Social Media Court Hesitates</u></a></li>
+<li><a href="https://facebook.techidaily.com/delve-into-digital-memories-friends-facebook-timeline/"><u>Delve Into Digital Memories: Friends' Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-identifies-counterfeits/"><u>Demystifying How PhotoDNA Identifies Counterfeits</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-age-shift-facebooks-social-influence/"><u>Digital Age Shift: Facebook’s Social Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorum-or-discretion-managing-late-family-members-on-fb/"><u>Digital Decorum or Discretion? Managing Late Family Members on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-ban-political-content-on-fb/"><u>Digital Detox: Ban Political Content on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disappointments-examining-site-shutdowns/"><u>Digital Disappointments: Examining Site Shutdowns</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-goodbye-rituals-facebook-post-mortem-options/"><u>Digital Goodbye Rituals: Facebook Post-Mortem Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-global-mention-feature-in-fb/"><u>Disabling Global Mention Feature in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-and-vanish-step-by-step-fb-deletion-guide-android/"><u>Disconnect & Vanish: Step-By-Step FB Deletion Guide (Android)</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-world-of-virtual-mall-on-fb-fridays/"><u>Discover the World of Virtual Mall on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-non-facebook-messenger-platforms/"><u>Discovering Non-Facebook Messenger Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-best-fb-image-choice/"><u>Discovering the Best FB Image Choice</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-digital-denizens-on-fb/"><u>Discreet Digital Denizens on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-data-the-statistical-impact-of-hashtags-in-facebook-interactions/"><u>Dissecting Data: The Statistical Impact of Hashtags in Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metaverse-vs-virtual-reality-exploring-6-core-distinctions/"><u>Dissecting Metaverse Vs. Virtual Reality: Exploring 6 Core Distinctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-metas-strategy-delaying-full-encryption-until-2023-rollout/"><u>Dive Into Meta's Strategy: Delaying Full Encryption Until 2023 Rollout</u></a></li>
+<li><a href="https://facebook.techidaily.com/dividing-lines-in-digital-districts-with-facebook-update/"><u>Dividing Lines in Digital Districts with Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-facebooks-engaging-quizzes-compromise-security/"><u>Do Facebook's Engaging Quizzes Compromise Security?</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-techniques-to-unlock-fb-accounts-in-emergency/"><u>Effective Techniques to Unlock Fb Accounts in Emergency</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-marketing-insights-with-8-critical-crowdfire-functions/"><u>Elevate Marketing Insights with 8 Critical Crowdfire Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-engagement-upgrade-your-earnings-with-these-strategies/"><u>Elevate Your Engagement, Upgrade Your Earnings with These Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-fb-profile-with-impactful-covers/"><u>Elevate Your Fb Profile With Impactful Covers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Lenovo ThinkPhone? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-samsung-galaxy-a05s-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Samsung Galaxy A05s</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-honor-x50iplus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-vivo-t2-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Vivo T2 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mjolnir-strikes-back-release-day/"><u>In 2024, Mjölnir Strikes Back! Release Day</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-lava-storm-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Lava Storm 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-ebook-shopping-a-users-handbook-for-the-ios-bookshelf-app/"><u>Mastering eBook Shopping: A User's Handbook for the iOS Bookshelf App</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/pro-tips-effortless-capture-of-hulu-videos-across-windowsmaciphone-for-2024/"><u>Pro Tips  Effortless Capture of Hulu Videos Across Windows/Mac/iPhone for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/thrilling-rides-recorded-top-action-cam-gear-for-23-bikers/"><u>Thrilling Rides Recorded – Top Action Cam Gear for '23 Bikers</u></a></li>
+</ul></div>

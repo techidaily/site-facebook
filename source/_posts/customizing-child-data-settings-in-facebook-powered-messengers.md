@@ -1,7 +1,7 @@
 ---
 title: Customizing Child Data Settings in Facebook-Powered Messengers
-date: 2024-07-12T11:06:09.912Z
-updated: 2024-07-13T11:06:09.912Z
+date: 2024-08-08T11:21:21.410Z
+updated: 2024-08-09T11:21:21.410Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,9 @@ Here's a look at the different fields you can add...
 
  Parents can pick a profile picture of their choice or ask their child to pick one. This way, everyone on the list can stay updated on your kid's appearance. You can also remove it if you’re concerned about the [safety of Messenger Kids](https://www.makeuseof.com/is-messenger-kids-safe-children/) .
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Edit Name
 
  When you [start an account on Messenger Kids](https://www.makeuseof.com/learn-to-use-facebook-messenger-kids/) , your name and personal information are required. Parents can remove names or change them if someone else (a sibling) uses that account.
@@ -57,6 +60,9 @@ Here's a look at the different fields you can add...
 
 Here's how to change the information through a smartphone:
 
+<!-- affiliate ads begin -->
+<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<!-- affiliate ads end -->
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu-1.jpg)
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook-1.jpg)
@@ -75,8 +81,15 @@ Close
 
 **Download:** Messenger Kids for [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2012911/https://play.google.com/store/apps/details?id=com.facebook.talk&hl=en&gl=US) |[iOS](https://apps.apple.com/us/app/messenger-kids/id1285713171)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### How to Change Your Kid's Profile Picture
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
@@ -91,6 +104,10 @@ To change your child's profile image:
 
 ### How to Change Name and Date of Birth
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info.jpg)
 
 ![Change date of birth in Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-date-of-birth-in-Messenger-Kids.jpg)
@@ -105,8 +122,19 @@ Close
 
 ### How to Change Pronouns
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
 Close
@@ -117,6 +145,9 @@ Follow these steps to change pronouns in the Messenger Kids app:
 2. Select your child's pronouns.
 3. Select**Save** . You can also clear pronouns if already listed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### Changing Personal Information on Messenger Kids Via Desktop
 
  Messenger Kids enables parents to change their kid's information through a desktop computer as well. You can use the same method when using a Chromebook or browser on your phone (like Safari for iPhone or Google Chrome for Android).
@@ -125,6 +156,15 @@ Follow these steps:
 
 1. Log in to your Facebook account connected with Messenger Kids to open the**Home Page** .
 2. The leftmost bar features the services offered by Facebook in your region. You can find**Messenger Kids** in the list by scrolling down.  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ![Click on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids.jpg)
 3. Click**Messenger Kids** to open the accounts connected.
 4. Choose the account you wish to make changes to.
@@ -136,8 +176,14 @@ Follow these steps:
 7. Similarly, update the date of birth and gender of your child.
 8. Select**Save** to apply the changes.
 9. If you don't want your child to use Messenger Kids anymore, or they have outgrown the age to be using it, there is an option to**Delete Account** and erase all information.  
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Delete Messenger kids Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Delete-Messenger-kids-Account.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Changing Information on Messenger Kids Made Easy
 
  Messenger Kids integrates interesting features and safe technology to let kids socialize with their loved ones. Parents can change information on the Messenger Kids account to keep everyone updated and maintain security.
@@ -163,3 +209,58 @@ Follow these steps:
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-endless-viewing-with-iphone-writes-of-video/"><u>[New] In 2024, Endless Viewing with iPhone' Writes of Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-building-a-strong-visual-narrative-in-youtube-videos-for-2024/"><u>[Updated] Building a Strong Visual Narrative in YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/blending-bits-volume-manipulation-mastery-with-reaper-for-2024/"><u>Blending Bits  Volume Manipulation Mastery with Reaper for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-guide-to-audiovisual-transmitters/"><u>Comprehensive Guide to Audiovisual Transmitters</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/comprehensive-guide-to-top-5-free-windows-screen-recorders/"><u>Comprehensive Guide to Top 5 Free Windows Screen Recorders</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-the-future-with-meta-ais-social-media-entry/"><u>Deciding the Future with Meta AI's Social Media Entry</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-digital-duplicate-scam-schemes/"><u>Deciphering Digital Duplicate Scam Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebook-messages-a-study-on-messenger-symbols/"><u>Deciphering Facebook Messages - A Study on Messenger Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-operational-architecture-plan/"><u>Deciphering Facebook’s Operational Architecture Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-online-vs-offline-signals-in-facebook/"><u>Deciphering Online Vs. Offline Signals in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-algorithms-that-drive-fb-content-suggests/"><u>Deciphering the Algorithms That Drive FB Content Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-benefits-of-sleep-mode-in-messenger-kids/"><u>Deciphering the Benefits of Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-symbolic-meaning-in-fb-messages/"><u>Deciphering the Symbolic Meaning in FB Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-vk-russias-answer-to-facebook-uncovered/"><u>Deciphering VK: Russia's Answer to Facebook Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/decode-the-meta-gateway-to-instagram-and-facebooks-centrality/"><u>Decode the Meta Gateway to Instagram & Facebook's Centrality</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-googles-significant-announcements/"><u>Decoding Google's Significant Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-online-indecision-an-insight-into-vague-blogging/"><u>Decoding Online Indecision: An Insight Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-controversial-facebook-documents/"><u>Decoding the Controversial Facebook Documents</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-of-online-forum-interactions-via-facebook/"><u>Deletion of Online Forum Interactions via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-previous-social-interactions-on-fb/"><u>Delving Into Previous Social Interactions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-past-with-facebooks-memory-repository/"><u>Delving Into Your Past with Facebook's Memory Repository</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-(securityfbcom)/"><u>Determining the Credibility of Facebook's Safety Email: <security@fb.com></u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-fact-from-fiction-in-jokes-at-facebook/"><u>Differentiating Fact From Fiction in Jokes at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-for-your-profile-remove-regretful-posts-now/"><u>Digital Detox for Your Profile: Remove Regretful Posts Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-the-leading-20-forums-in-online-communication/"><u>Digital Dialogues: The Leading 20 Forums in Online Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dystopia-major-social-networks-downed/"><u>Digital Dystopia: Major Social Networks Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-fortune-unites-with-who-in-health-crisis-funding/"><u>Digital Fortune Unites with WHO in Health Crisis Funding</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-realities-await-3-concerns-of-facebooks-metaverse/"><u>Digital Realities Await - 3 Concerns of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-more-about-your-circle-with-messenger-polls/"><u>Discover More About Your Circle with Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-discussion-archiving-for-private-online-space/"><u>Discreet Discussion: Archiving for Private Online Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/discretion-in-digital-conceal-your-social-favors/"><u>Discretion in Digital: Conceal Your Social Favors</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-facebook-determines-allowed-media/"><u>Dissecting How Facebook Determines Allowed Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-social-medias-survivor-the-case-for-facebook/"><u>Dissecting Social Media's Survivor - The Case for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-privacy-dont-join-facebooks-link-ledger/"><u>Dive Into Privacy: Don't Join Facebook's Link Ledger</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-digital-dangers-a-guide-to-fb-security/"><u>Dodging Digital Dangers: A Guide to FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-shunning-facial-identification-compromise-facebook-user-protection/"><u>Does Shunning Facial Identification Compromise Facebook User Protection?</u></a></li>
+<li><a href="https://facebook.techidaily.com/double-tap-deception-verifying-profiles-authenticity/"><u>Double-Tap Deception: Verifying Profiles' Authenticity</u></a></li>
+<li><a href="https://facebook.techidaily.com/earn-prestige-point-paid-metas-badge/"><u>Earn Prestige Point: Paid Metas Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-control-of-fb-connected-services/"><u>Effective Control of FB Connected Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-for-social-media-imagery-explanation/"><u>Effective Methods for Social Media Imagery Explanation</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-integration-of-new-users-in-fb-chat/"><u>Effortless Integration of New Users in FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-brand-top-5-revenue-ideas-for-ig-and-fb/"><u>Elevate Your Brand: Top 5 Revenue Ideas for IG & FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-presence-3d-photos-on-fb/"><u>Elevate Your Online Presence: 3D Photos on FB</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/free-backdrops-for-sustainable-cinema/"><u>Free Backdrops for Sustainable Cinema</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/from-concept-to-shares-how-to-create-hit-videos-for-fbinstagram-for-2024/"><u>From Concept to Shares  How to Create Hit Videos for FB/Instagram for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-y200-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo Y200 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-vivo-v30-pro-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Vivo V30 Pro? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-audience-level-sound-production-using-audacity/"><u>In 2024, Audience-Level Sound Production Using Audacity</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-best-practices-for-free-clipart-use-in-projects/"><u>In 2024, Best Practices for Free Clipart Use in Projects</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-charting-the-differences-in-youtubes-ownership-and-cc-models/"><u>In 2024, Charting the Differences in YouTube's Ownership and CC Models</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-iphone-13-features-performance-and-more/"><u>In-Depth Analysis of iPhone 13: Features, Performance & More</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Break Free: Delete, Disconnect & Discover"
-date: 2024-07-12T11:05:35.201Z
-updated: 2024-07-13T11:05:35.201Z
+date: 2024-08-08T11:21:49.308Z
+updated: 2024-08-09T11:21:49.308Z
 tags:
   - facebook
 categories:
@@ -21,8 +21,14 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  Here's how you can block political and other annoying content on your Facebook account.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Timeline Can Get Swamped With Politics
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
@@ -51,8 +57,14 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Remove Your Political Views From Your Profile
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<!-- affiliate ads end -->
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
  When you create your Facebook profile, it asks you about your political views, among other things. If you do add your views, however, Facebook uses this information to suggest political posts and ads to you. Adding this piece of information to your profile is not really necessary, unless you are affiliated with a political party, and you have to put your views on display.
@@ -63,8 +75,14 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Use a Browser Extension
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
  You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
@@ -94,3 +112,53 @@ thumbnail: https://thmb.techidaily.com/f755ebc6fd74e541b86783b8f288eb9ebe73ceda2
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-find-your-fit-understanding-basic-to-pro-plans-at-vimeo/"><u>[New] 2024 Approved  Find Your Fit  Understanding Basic to Pro Plans at Vimeo</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-top-7-fps-experiences-of-the-decade/"><u>[New] In 2024, Top 7 FPS Experiences of the Decade</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-top-eight-sources-of-graffiti-fonts-online/"><u>[New] Top Eight Sources of Graffiti Fonts Online</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-comparing-high-end-drone-and-camera-tech/"><u>[Updated] Comparing High-End Drone & Camera Tech</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-explore-the-world-of-mobile-video-editing-with-snapchat-favorites/"><u>[Updated] Explore the World of Mobile Video Editing with Snapchat Favorites</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-loop-maker-assembly/"><u>2024 Approved  Loop Maker Assembly</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-key-revelations-from-the-facebook-papers/"><u>7 Key Revelations From The Facebook Papers</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-uplifting-social-media-impacts-todays-world/"><u>7 Uplifting Social Media Impacts Today's World</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-act-strategically-managing-your-facebook-friend-network/"><u>Balancing Act: Strategically Managing Your Facebook Friend Network</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-5-web-based-titling-aces-identified/"><u>Best 5 Web-Based Titling Aces Identified</u></a></li>
+<li><a href="https://article-files.techidaily.com/best-tiktok-video-editing-tips-for-2024/"><u>Best Tiktok Video Editing Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-coalition-evaluating-the-leading-20-social-networks/"><u>Connectivity Coalition: Evaluating the Leading 20 Social Networks</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/data-collection-and-analysis-for-2024/"><u>Data Collection and Analysis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-hidden-world-of-shadowbanning/"><u>Deciphering the Hidden World of Shadowbanning</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-upcoming-us-antitrust-measures-against-major-tech-firms/"><u>Dissecting the Upcoming US Antitrust Measures Against Major Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-viral-campaigns-with-strategic-fb-posting-techniques/"><u>Driving Viral Campaigns with Strategic FB Posting Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/dynamic-user-defined-avatars-hit-oculus-market/"><u>Dynamic, User-Defined Avatars Hit Oculus Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-spot-sharing-on-facebook-chatrooms/"><u>Effortless Spot Sharing on Facebook Chatrooms</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-guide-to-solving-error-encountered-on-geforce-software/"><u>Expert Guide to Solving ‘Error Encountered’ on GeForce Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-changes-in-facebooks-content-organization/"><u>Exploring Changes in Facebook's Content Organization</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-status-active-or-offline-discover-and-track/"><u>FB Status: Active or Offline - Discover & Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-john-doe-to-jane-smith-mastering-the-facebook-renaming-journey/"><u>From John Doe to Jane Smith: Mastering the Facebook Renaming Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-vpns-revolutionized-online-security/"><u>How VPNs Revolutionized Online Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignore-whatsapps-privacy-changes-account-functionality-unaffected/"><u>Ignore WhatsApp’s Privacy Changes: Account Functionality Unaffected</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-shake-up-how-will-new-us-antitrust-laws-reshape-tech/"><u>Impending Shake-Up: How Will New U.S. Antitrust Laws Reshape Tech?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-remove-restricted-mode-on-apple-iphone-xs-max-by-drfone-ios/"><u>In 2024, How Do You Remove Restricted Mode on Apple iPhone XS Max</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-management-securing-your-social-media-space-with-admins/"><u>Mastery Over Management: Securing Your Social Media Space with Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-and-fb-data-protection-vr-headset-user-guide/"><u>Meta and FB Data Protection: VR Headset User Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mov-to-galaxy-a05s-converter-convert-mov-files-for-galaxy-a05s-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Galaxy A05s converter-convert .mov files for Galaxy A05s</u></a></li>
+<li><a href="https://facebook.techidaily.com/moving-from-twitter-to-tweeters/"><u>Moving From Twitter to Tweeters</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-of-digital-advertising-on-instagram-facebook/"><u>New Age of Digital Advertising on Instagram, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/proxy-pages-or-real-people-unmask-online-suspects/"><u>Proxy Pages or Real People? Unmask Online Suspects</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-yourself-essential-online-disclosures-to-avoid/"><u>Safeguard Yourself: Essential Online Disclosures to Avoid</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-conceal-like-counts-on-sites/"><u>Secure Your Digital Footprint: Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-security-101-why-avoid-mystery-friends/"><u>Social Network Security 101: Why Avoid Mystery Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/study-most-covid-19-misinformation-was-spread-by-these-12-influencers/"><u>Study: Most Covid-19 Misinformation Was Spread by These 12 Influencers</u></a></li>
+<li><a href="https://facebook.techidaily.com/sunlit-surfaces-fb-operations-bathed-in-solar-energy/"><u>Sunlit Surfaces: FB Operations Bathed in Solar Energy</u></a></li>
+<li><a href="https://facebook.techidaily.com/terrifying-realities-in-metas-media-empire/"><u>Terrifying Realities in Meta’s Media Empire</u></a></li>
+<li><a href="https://win-forum.techidaily.com/ultimate-tricks-how-to-remove-non-control-panel-listed-applications/"><u>Ultimate Tricks: How to Remove Non-Control Panel Listed Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-decision-delay-in-default-end-to-end-encryption/"><u>Understanding Meta’s Decision: Delay in Default End-to-End Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-your-social-media-and-chat-life-on-whatsapp/"><u>Uniting Your Social Media and Chat Life on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-messenger-kids-inbuilt-sleep-mode/"><u>Unlocking Potential with Messenger Kids' Inbuilt Sleep Mode</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-sleep-mode-a-comprehensive-guide-to-messenger-kids-efficiency/"><u>Utilizing Sleep Mode: A Comprehensive Guide to Messenger Kids Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-reschedules-introduction-of-revised-privacy-terms/"><u>WhatsApp Reschedules Introduction of Revised Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-owns-facebook-now/"><u>Who Owns Facebook Now?</u></a></li>
+</ul></div>

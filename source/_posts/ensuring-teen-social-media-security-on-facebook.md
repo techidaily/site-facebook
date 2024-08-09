@@ -1,0 +1,182 @@
+---
+title: Ensuring Teen Social Media Security on Facebook
+date: 2024-08-08T11:25:22.566Z
+updated: 2024-08-09T11:25:22.566Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Ensuring Teen Social Media Security on Facebook
+excerpt: This Article Describes Ensuring Teen Social Media Security on Facebook
+keywords: Teens & FB Safety,Social Media Secure,Facebook Protection,Securing Teen Facebook,Safe Social Networking,FB Youth Security,Guarding Young FB Users,Safe Teen Social Media,Secure FB for Teens,Protect Young Users,Techniques for Safe FB,Fortify Teen Facebook,Ensure Youth FB Safety,Secure Teens Online
+thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81d484489a08d43204f560599.jpg
+---
+
+## Ensuring Teen Social Media Security on Facebook
+
+ Have you been wondering if your teen is safe using Facebook? If they're a regular user of social media, there is a chance that they're exposed to all kinds of threats. From spammers, to fraud, to receiving friends' requests from people they don't know, it's important to make sure your teen is safe online.
+
+ You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
+
+## What Is a Privacy Check on Facebook?
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
+
+ Like every social media site, Facebook has privacy settings to keep its users safe. It may sound like a burden to go through privacy settings to make sure your teen's (and your) account is safe, but the good thing is, you only have to do it once to ensure your teen is protected. If you're confused about[what age kids should start using social media](https://www.makeuseof.com/what-age-should-kids-start-using-social-media/) , the age that most social media sites note down is thirteen.
+
+ Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
+
+## How to Do a Privacy Check of Your Teen's Facebook Account
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
+![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
+
+Close
+
+ When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
+
+ All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+## Privacy Setting Basics
+
+ There are some[privacy settings on Facebook that you should change](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) as soon as you get a moment. With so many[Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) out there, you should address the issue of privacy for your teen's account before they fall victim to one of them.
+
+ When you click on your teen's**Privacy** , you'll be given some**Privacy Shortcuts** to look over. In this section, you'll be able to review important things such as: if your teen's birthday is correct.
+
+ Note that they should be at least thirteen years of age to access Facebook because of the advertisements shown to them. To clarify, Facebook won't show inappropriate ads (involving alcohol for example) to underage teens. This is why it's important to check the birth date they have listed.
+
+ In the**Privacy Shortcuts** section, you will also be able to review things like**Activity** . In this section you can review things like:
+
+* Who can see their posts.
+* Who can see their past posts.
+* Check who can see the people, Pages, and lists they follow.
+* Choose how people can find and contact them.
+
+ Also in the**Privacy Shortcuts** , you should cover privacy basics and go through things like:
+
+* Tagging (who can tag them).
+* Posts (check if they are private or public).
+* Check who can see their stories.
+* Check who can see their future reels.
+* Make sure that only friends of friends can send requests and not strangers.
+* Check if their Friend List is visible and determine if it should be set to private for extra safety.
+* Check who can look them up using the email and phone number they provided.
+* Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Check Ad Settings
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
+
+Close
+
+ Facebook's news feeds show more than just the activity of friends and people your teen follows. They also show numerous advertisements. After you've checked the age of your teen to make sure they are not being shown inappropriate ads, you can also go to ad settings to optimize the kind of ads they see.
+
+ To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
+
+ In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+## Why Online Safety Is More Important Than Ever
+
+ Both posts and advertisements that your teen sees are unpredictable, and there is no such thing as being one hundred percent safe online. If you've never thought about checking their privacy settings on Facebook, it may be time to do so.
+
+ By doing this, you will be able to make sure that when your teen posts something, it is only being seen by their close circle. You will also make sure that spammers have a limited chance of reaching them.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-protectly-copy-youtube-tracks-for-free/"><u>[New] 2024 Approved  How to Protectly Copy Youtube Tracks for Free</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-security-victory-making-your-fb-available-again/"><u>[New] Security Victory  Making Your FB Available Again</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-sparkling-ideas-crafting-creative-and-engaging-facebook-ads/"><u>[New] Sparkling Ideas  Crafting Creative and Engaging Facebook Ads</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unresolved-problem-viewing-videos-on-sony-a6400/"><u>[New] Unresolved Problem  Viewing Videos on Sony A6400</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-explore-the-world-writes-itself-the-top-20-youtube-playlists-for-enthusiasts/"><u>[Updated] 2024 Approved  Explore the World' Writes Itself  The Top 20 YouTube Playlists for Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harmonizing-tracks-understanding-crossfades/"><u>[Updated] Harmonizing Tracks  Understanding Crossfades</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-creating-engaging-facebook-covers-best-practices-unveiled/"><u>2024 Approved  Creating Engaging Facebook Covers  Best Practices Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-mac-techniques-for-instagram-short-form-videos/"><u>2024 Approved  Mac Techniques for Instagram Short-Form Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-motivational-speaker-appraisal-edition-8/"><u>2024 Approved  Motivational Speaker Appraisal, Edition 8</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-stream-control-tactics-10-ways-to-unwind-live-play/"><u>2024 Approved  Stream Control Tactics  10 Ways to Unwind Live Play</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-y200-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-reasons-you-should-take-a-break-from-social-media/"><u>7 Reasons You Should Take a Break From Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-your-facebook-blocked-entities/"><u>Accessing Your Facebook Blocked Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/americas-new-legal-framework-curtailing-big-techs-power/"><u>America's New Legal Framework: Curtailing Big Tech's Power</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-or-disabled-on-iphone-14-pro-max-7-mehtods-you-cant-miss-by-drfone-ios/"><u>Apple ID Locked or Disabled On iPhone 14 Pro Max? 7 Mehtods You Cant-Miss</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-stance-on-metaverse-a-decision-of-distinction/"><u>Apple’s Stance on Metaverse - A Decision of Distinction</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-our-smartphones-subtly-studying-us-for-targeted-marketing/"><u>Are Our Smartphones Subtly Studying Us For Targeted Marketing?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-down-on-irksome-social-media-suggestions-on-facebook/"><u>Cutting Down On Irksome Social Media Suggestions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprint-dos-and-donts-for-online-safety/"><u>Digital Footprint Do's & Don'ts for Online Safety</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dive-deep-into-afrikaans-with-these-7-mondly-lessons-benefits/"><u>Dive Deep Into Afrikaans with These 7 Mondly Lessons Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/does-your-phone-listen-to-you-for-ads-or-is-it-just-coincidence/"><u>Does Your Phone Listen to You for Ads? Or Is It Just Coincidence?</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/eliminating-echoes-effective-strategies-for-reducing-delay-on-your-chromecast-audio-setup/"><u>Eliminating Echoes: Effective Strategies for Reducing Delay on Your Chromecast Audio Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-the-virtual-shift-6-motivating-facts-about-facebooks-metaverse/"><u>Embracing the Virtual Shift: 6 Motivating Facts About Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-a-stress-free-fb-deletion/"><u>Essential Steps for a Stress-Free FB Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-free-application-review-maximizing-social-efficacy/"><u>Exclusive Free Application Review: Maximizing Social Efficacy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-most-accurate-and-user-friendly-storm-tracker-apps-of-the-year-2024/"><u>Expert Picks: Most Accurate and User-Friendly Storm Tracker Apps of the Year 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-dating-transformed-the-future-of-relationships/"><u>Facebook Dating Transformed: The Future of Relationships?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-raises-the-bar-sonic-features-launched/"><u>Facebook Raises the Bar: Sonic Features Launched</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-illusion-to-immersion-deciphering-metaverse-and-vr-differences/"><u>From Illusion to Immersion: Deciphering Metaverse and VR Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-more-influence-in-minutes-join-a-facebook-group/"><u>Gain More Influence in Minutes: Join a Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150836238-governance-guild-prepares-to-dictate-trumps-status-on-fb/"><u>Governance Guild Prepares to Dictate Trump's Status on FB</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harnessing-the-full-potential-of-lunapic-artistry-for-2024/"><u>Harnessing the Full Potential of LunaPic Artistry for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-c33-2023-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-format-text-in-messenger-bold-italics-and-more/"><u>How to Format Text in Messenger: Bold, Italics, and More</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-definition-wonders-our-favorites-list/"><u>In 2024, High Definition Wonders  Our Favorites List</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-enter-the-ispoofer-discord-server-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to enter the iSpoofer discord server On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-infinix-smart-8-hd-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Infinix Smart 8 HD online without jailbreak</u></a></li>
+<li><a href="https://facebook.techidaily.com/invest-in-yourself-with-facebook-help-create-the-metaverse/"><u>Invest in Yourself with Facebook - Help Create the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigative-study-oculus-q2-uptake-among-hacked-facebookers/"><u>Investigative Study: Oculus Q2 Uptake Among Hacked Facebookers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/mastering-internet-media-our-picks-for-top-browser-recording-tools-for-2024/"><u>Mastering Internet Media  Our Picks for Top Browser Recording Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/nba-live-on-social-media-fb-and-twt-covering-seasons/"><u>NBA Live on Social Media: FB & Twt Covering Seasons</u></a></li>
+<li><a href="https://win-able.techidaily.com/overwatch-trouble-heres-how-to-resolve-launch-issues-and-black-screens/"><u>Overwatch Trouble? Here's How to Resolve Launch Issues and Black Screens</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/paramount-considerations-in-utilizing-artificial-intelligence-for-emotional-support-via-chatgpt/"><u>Paramount Considerations in Utilizing Artificial Intelligence for Emotional Support via ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-virtual-communities-for-older-users/"><u>Prime Virtual Communities For Older Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-virtual-space-meta-vs-facebook/"><u>Securing Your Virtual Space: Meta Vs. Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-etiquette-for-business-pages-blocking-users/"><u>Social Etiquette for Business Pages: Blocking Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-trust-unveiling-facebooks-new-policies-hub/"><u>The Blueprint of Trust: Unveiling Facebook’s New Policies Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-forecast-of-social-media-turmoil-fb-edition/"><u>The Forecast of Social Media Turmoil: FB Edition</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-redmi-note-13-proplus-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Redmi Note 13 Pro+ 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-picks-for-virtual-interactions/"><u>Top Picks for Virtual Interactions</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unconventional-methods-how-to-remove-hidden-applications-on-windows/"><u>Unconventional Methods: How To Remove Hidden Applications on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-room-efficiency-with-these-10-sms-tactics/"><u>Unlock Room Efficiency with These 10 SMS Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-captivating-fb-backgrounds/"><u>Unveiling the Secrets to Captivating FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-safety-in-social-media-environments/"><u>User Safety in Social Media Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-hide-your-like-counts-on-facebook-and-instagram/"><u>You Can Now Hide Your Like Counts on Facebook and Instagram</u></a></li>
+</ul></div>

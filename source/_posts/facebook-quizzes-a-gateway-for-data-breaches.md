@@ -1,0 +1,173 @@
+---
+title: "Facebook Quizzes: A Gateway for Data Breaches?"
+date: 2024-08-08T11:29:35.966Z
+updated: 2024-08-09T11:29:35.966Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Facebook Quizzes: A Gateway for Data Breaches?"
+excerpt: "This Article Describes Facebook Quizzes: A Gateway for Data Breaches?"
+keywords: Facebook Quiz Risks,Data Leakage in Quizzes,Social Media Security Hack,Protecting User Info on Facebook,Safe Online Quizzing,Preventing Privacy Breaches,Secure Facebook Interactions
+thumbnail: https://thmb.techidaily.com/e663bf23b6887cb8279b82d66477ecb71e4a937f5292de883673cace9e11db92.jpg
+---
+
+## Facebook Quizzes: A Gateway for Data Breaches?
+
+ That fun “all about you” quiz on Facebook might seem harmless, but it could actually be a serious cybersecurity risk. Quizzes, challenges, and questionnaires on Facebook (and indeed other social media sites) can trick you into giving away valuable personal information. Some are straight-up scams. How can you spot scam quizzes, and what should you do if you fill one out?
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What Are Facebook Quizzes?
+
+ We’ve all been there: you’re scrolling through Facebook and run into a quiz promising to match you with a fictional character. It might ask you to fill out a long list of favorites to share with friends or advertise “accurate results” for your Hogwarts house, for instance.
+
+ While these quizzes might look fun at a glance, they can actually be a big security risk. The most suspicious types are the “challenges” that have you answer a long list of questions. For example, a challenge might ask for your pets’ names, your favorite color, the elementary school you attended, or your mother’s maiden name.
+
+[The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Cybersecurity Risks of Facebook Quizzes
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
+
+ There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
+
+ Take a look at the types of questions Facebook quizzes and challenges ask. They want things like the names of your pets, children, and parent, which are frequently used as security question answers. So are names of schools, streets you lived on, or even info about vehicles you’ve owned.
+
+ If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
+
+ These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## What to Do if You’ve Taken Facebook Quizzes
+
+ It’s natural to be concerned if you realize you may have taken a malicious Facebook quiz. If this happens, don’t panic. You can take action to protect yourself and make sure others don’t fall for the same trap.
+
+### Analyze the Quiz
+
+ First, find the quiz or challenge you responded to. What format was the quiz in—a link or a post? Did you fill out multiple choice questions on another website or type in custom answers on a post?
+
+ If the quiz was multiple-choice questions on another website, such as Buzzfeed, you are probably not in any danger. It is difficult to give away any personal information in a multiple-choice quiz since the answers are already written. There are also a few tools you can use to[check if the link was safe](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) or not.
+
+ Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+### Take Screenshots and Notes
+
+![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
+
+ If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
+
+ Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+### Report the Scam Quiz
+
+ Report the post to Facebook to warn the moderation team that the post could be a scam. Next, contact the Better Business Bureau using[their Scam Tracker](https://www.bbb.org/ScamTracker) to report the incident. The BBB can investigate and warn other people about the risky quiz or challenge.
+
+ Contact your bank and credit card companies. Explain the situation so they can stay alert for potential unauthorized attempts to access your account. They can also provide guidance on securing your financial accounts, so the information from the quiz is useless to hackers.
+
+ You could warn your family and friends of the quiz, but don't share it in case someone clicks on it without reading your warning.
+
+ Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
+
+### Change Your Security Question Answers
+
+ It might be a hassle, but it’s a good idea to go through all of your important accounts and change your security question answers. Use the list or screenshot of your answers from the quiz to guide your changes. Don’t reuse any answers you gave away on the quiz.
+
+ In most cases, you can choose another question. But if you’re struggling to find security question options that weren’t compromised by the quiz answers, you can even use fake answers. Just keep track of what you said.
+
+ Some websites or services may allow you to secure your account without using security questions. If this is an option, it is worth using. For example, you might be able to use one-time codes sent to your phone or email instead of answering security questions to reset your password, i.e.[two-factor authentication (2FA)](https://www.makeuseof.com/tag/what-is-two-factor-authentication-and-why-you-should-use-it/) .
+
+## Staying Safe on Facebook
+
+ Facebook quizzes can be a serious cybersecurity risk, but you can take steps to protect your information. Before taking any quizzes on Facebook, take a close look at the questions. Stay away from quizzes that give you a bad feeling—always trust your gut.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-androids-top-12-ultimate-wildlife-game-picks/"><u>[New] Android's Top 12 Ultimate Wildlife Game Picks</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-compreenas-a-step-by-step-process-to-apply-luts-in-photoshop-cc/"><u>[New] In 2024, Compreenas a Step-by-Step Process to Apply LUTs in Photoshop CC</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-leading-10-digital-subtitling-platforms/"><u>[New] Leading 10 Digital Subtitling Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-guide-to-embedding-youtube-videos-in-insta-stories/"><u>[New] The Ultimate Guide to Embedding YouTube Videos in Insta Stories</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-which-is-superior-in-media-management-vlc-or-mx-for-2024/"><u>[New] Which Is Superior in Media Management  VLC or MX for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-boost-your-snaps-techniques-for-enhanced-snapchat-zoom/"><u>2024 Approved  Boost Your Snaps  Techniques for Enhanced Snapchat Zoom</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-composing-prime-canon-temporal-vignettes/"><u>2024 Approved  Composing Prime Canon Temporal Vignettes</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/binkw32dll-error-fix-guide-strategies-to-overcome-file-not-found-issues/"><u>Binkw32.dll Error Fix Guide: Strategies to Overcome File Not Found Issues</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/combining-skypes-ease-with-zooms-advanced-features/"><u>Combining Skype's Ease with Zoom's Advanced Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-infinix-smart-7-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Infinix Smart 7</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-honor-100-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-photodna-image-matching-technique-explained/"><u>Decoding PhotoDNA: Image Matching Technique Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-magic-of-saturday-and-sunday-malls-at-fb/"><u>Discover the Magic of Saturday and Sunday Malls at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/diversifying-outreach-with-deft-multi-group-social-media-techniques/"><u>Diversifying Outreach with Deft Multi-Group Social Media Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-your-conversation-security-with-end-to-end-encrypted-services-on-facebook/"><u>Enhance Your Conversation Security with End-to-End Encrypted Services on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-professional-horizons-through-targeted-client-engagement-on-fb/"><u>Expanding Professional Horizons Through Targeted Client Engagement on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-guide-remove-your-name-from-facebook-images/"><u>Expert Guide: Remove Your Name From Facebook Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-reasoning-behind-feeding-on-facebook/"><u>Exploring the Reasoning Behind 'Feeding' On Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-the-metaverse-an-in-depth-analysis/"><u>Facebook & The Metaverse: An In-Depth Analysis</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-video-short-display-for-you/"><u>Fixed Video Short Display for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-lonely-nights-to-stronger-bonds-fb-for-expat-groups-analysis/"><u>From Lonely Nights to Stronger Bonds? FB for Expat Groups Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-virtual-mirror-to-profile-spotlight-crafting-the-perfect-fb-cover-photo-with-you/"><u>From Virtual Mirror to Profile Spotlight: Crafting the Perfect FB Cover Photo with You</u></a></li>
+<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-meta-mitigates-misuse-of-private-media-circulation/"><u>How Meta Mitigates Misuse of Private Media Circulation</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-samsung-galaxy-m14-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Samsung Galaxy M14 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-simplified-approaches-to-insta-photovideo-resharing/"><u>In 2024, Simplified Approaches to Insta Photo/Video Resharing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-guide-newest-lg-bp550-specs/"><u>In 2024, Ultimate Guide  Newest LG BP550 Specs</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-introduces-novel-monetizing-opportunities-for-creators/"><u>Instagram Introduces Novel Monetizing Opportunities for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-social-media-into-work-culture-effectively/"><u>Integrating Social Media Into Work Culture Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-forces-facebook-to-reconsider-strategy/"><u>IOS 14.5 Update Forces Facebook to Reconsider Strategy</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-to-huawei-converter-convert-mkv-for-huawei-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Huawei  converter - convert MKV for Huawei </u></a></li>
+<li><a href="https://facebook.techidaily.com/new-wave-of-social-media-facebooks-ray-ban-stories-explained-and-costed/"><u>New Wave of Social Media: Facebook's Ray-Ban Stories Explained & Costed</u></a></li>
+<li><a href="https://facebook.techidaily.com/preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-privacy-from-facebook-surveillance/"><u>Protect Your Privacy From Facebook Surveillance</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/reimagining-blockbuster-favorites-7-swap-for-2024/"><u>Reimagining Blockbuster Favorites - #7 Swap for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-twitter-and-snapchat-are-part-of-president-bidens-vaccination-campaign/"><u>Report: Facebook, Twitter, and Snapchat Are Part of President Biden's Vaccination Campaign</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolving-vertical-aspect-ratio-issue/"><u>Resolving Vertical Aspect Ratio Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattered-in-silence-post-fb-information/"><u>Shattered in Silence: Post-FB Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-impact-study-in-us-detrimental-over-beneficial/"><u>Social Media's Impact Study in US: Detrimental Over Beneficial</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-activating-two-factor-authentication-in-fb/"><u>Step-by-Step: Activating Two-Factor Authentication in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-universal-notification-service-fb/"><u>Stop Universal Notification Service: FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-talk-shifts-third-gen-oculus-quest-on-pause/"><u>Tech Talk Shifts: Third-Gen Oculus Quest on Pause</u></a></li>
+<li><a href="https://facebook.techidaily.com/tenfold-tips-for-taming-the-textual-territories/"><u>Tenfold Tips for Taming the Textual Territories</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-most-noteworthy-tech-failures-in-recent-times/"><u>The 5 Most Noteworthy Tech Failures in Recent Times</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-selecting-the-ultimate-facebook-pic/"><u>The Art of Selecting the Ultimate Facebook Pic</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-hidden-user-interactions-in-fb-spheres/"><u>Understanding Hidden User Interactions in FB Spheres</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfriend-suggested-people-on-social-media-hub/"><u>Unfriend Suggested People on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-online-follower-list/"><u>Unmasking Online Follower List</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-world-nft-trial-by-meta-drop-on-social-media/"><u>Unveiling a New World: NFT Trial by Meta Drop on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-updated-privacy-center-strategies/"><u>Unveiling Facebook’s Updated Privacy Center Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-procedure-for-altering-your-facebook-nickname/"><u>Unveiling the Procedure for Altering Your Facebook Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-transparency-of-fbcta/"><u>Unveiling the Transparency of FBCTA</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-y77t-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y77t Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-governments-target-mega-corporations-in-the-digital-age/"><u>Why Governments Target Mega-Corporations in the Digital Age</u></a></li>
+</ul></div>

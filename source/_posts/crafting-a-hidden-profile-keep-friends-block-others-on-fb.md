@@ -1,7 +1,7 @@
 ---
 title: "Crafting a Hidden Profile: Keep Friends, Block Others on FB"
-date: 2024-07-12T11:07:59.466Z
-updated: 2024-07-13T11:07:59.466Z
+date: 2024-08-08T11:19:52.847Z
+updated: 2024-08-09T11:19:52.847Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
  The internet brings people together, even when they'd rather it didn't. Maybe you don't want your colleagues to know what you get up to on the weekends, or perhaps you want to prevent your boyfriend's ex-girlfriend from stalking you. Whatever the reason, there ARE ways to stop strangers from seeing your Facebook profile.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
+EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<!-- affiliate ads end -->
 ## 1\. Make Your Facebook Profile Private
 
  This is the most obvious way to keep prying eyes out of your Facebook account. You may not want to have anyone and everyone looking through your profile at any given time. You don't necessarily have to open up your profile to the public if you're not an influencer, content creator, celebrity, or public figure.
@@ -34,6 +38,9 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn [how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 ## 3\. Change Your Facebook Profile Discovery Settings
 
  Everyone gets the odd invite from random people, like people you went to high school with or mutual friends you don't really want to connect with. You've probably ignored a few invites for so long that you barely notice them on your Facebook account anymore. But it doesn't have to be that way.
@@ -69,8 +83,15 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 4. Next, click the**drop-down menu** , select**Friends** , and click**Close** .
 5. Now, click**Edit** next to the **Who can look you up using the phone number you provided?** option and do the same thing.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ## 4\. Change Your Facebook Post Settings
 
  Not all Facebook posts are for everyone. When posting about your weekend shenanigans, the last thing you want is to be scolded by your parents or side-eyed by your manager. But you also want to be able to freely post what you want without worrying about the repercussions.
@@ -82,6 +103,9 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 3. Scroll down to the**Your activity** section and click**Edit** next to**Who can see your future posts?**
 4. Choose the**Friends** option in the**drop-down menu** . You can also choose**Specific friends** or exclude some people by selecting the**Friends except** option. Click**Close** when you're done.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
 ## How to Keep a Low Profile on Facebook
@@ -107,3 +131,61 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-open-world-wonders-beyond-gtas-empire-for-2024/"><u>[New] Open World Wonders Beyond GTA's Empire for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-swapping-streams-saving-songs-cross-service-shuffling-for-2024/"><u>[Updated] Swapping Streams, Saving Songs  Cross-Service Shuffling for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-twitterscape-in-focus-your-route-to-watching-hd-videos-for-2024/"><u>[Updated] Twitterscape in Focus  Your Route to Watching HD Videos for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-broadcast-battleground-which-wins-obs-or-twitch/"><u>2024 Approved  Broadcast Battleground  Which Wins, OBS or Twitch?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-select-selections-exciting-cardboard-friendly-virtual-reality-titles/"><u>2024 Approved  Select Selections  Exciting Cardboard-Friendly Virtual Reality Titles</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlocking-audience-connection-top-video-formats-for-youtube-success/"><u>2024 Approved  Unlocking Audience Connection  Top Video Formats for YouTube Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-concealed-expressions-in-messenger-correspondence/"><u>Deciphering Concealed Expressions in Messenger Correspondence</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-media-etiquette-follow-vs-unfollow-on-facebook/"><u>Deciphering Social Media Etiquette: Follow Vs. Unfollow on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-social-medias-sustainability-the-case-for-fb/"><u>Deciphering Social Media’s Sustainability: The Case for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-why-telegram-became-a-lifeline-during-facebook-blackout/"><u>Deciphering Why Telegram Became a Lifeline During Facebook Blackout</u></a></li>
+<li><a href="https://facebook.techidaily.com/declaring-safe-status-in-your-online-social-space/"><u>Declaring Safe Status in Your Online Social Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-and-correcting-facebooks-common-complaints/"><u>Decoding & Correcting FaceBook's Common Complaints</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-features-in-facebooks-support-portal/"><u>Decoding the Features in Facebook's Support Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/defining-boundaries-restricting-your-fb-contacts/"><u>Defining Boundaries: Restricting Your FB Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/defining-vagueposting-the-quest-for-engagement/"><u>Defining Vagueposting: The Quest for Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-or-memories-managing-late-loved-ones-virtual-footprints/"><u>Deletion or Memories - Managing Late Loved Ones' Virtual Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-revenue-sharing-for-melodies/"><u>Demystifying Facebook’s Revenue Sharing for Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-strategic-blueprint-layout/"><u>Demystifying Facebook’s Strategic Blueprint Layout</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-detects-illegal-photographs/"><u>Demystifying How PhotoDNA Detects Illegal Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/detaching-instagrams-footprint-from-fb-network/"><u>Detaching Instagram's Footprint From FB Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/detect-and-deter-the-top-14-scams-on-facebook-at-hand/"><u>Detect and Deter: The Top 14 Scams on Facebook at Hand</u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-between-profile-and-username-ids-on-networks/"><u>Differentiating Between Profile and Username IDs on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dazzle-transformative-techniques-for-images/"><u>Digital Dazzle: Transformative Techniques for Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discretion-dictate-evade-this-privacy-poachers-group/"><u>Digital Discretion Dictate: Evade This Privacy Poacher's Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-self-care-how-to-step-away-from-fb/"><u>Digital Self-Care: How to Step Away From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-solitude-embracing-a-no-social-media-lifestyle/"><u>Digital Solitude: Embracing a No-Social Media Lifestyle</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-instant-gratification-avoiding-fb-reels/"><u>Disabling Instant Gratification: Avoiding Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-facebooks-chat-sounds-a-guide-to-soundmojis/"><u>Discover Facebook's Chat Sounds: A Guide to Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-financial-gains-for-artists-on-facebooks-new-service/"><u>Discovering Financial Gains for Artists on Facebook’s New Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-public-resentment-towards-internet-socialization-sites/"><u>Dissecting Public Resentment Towards Internet Socialization Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-smartphones-secretly-serve-up-targeted-advertisements/"><u>Do Smartphones Secretly Serve Up Targeted Advertisements?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-get-duped-by-these-14-recurring-facebook-swindles/"><u>Don't Get Duped by These 14 Recurring Facebook Swindles</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-court-challenge-to-big-technology-companies/"><u>Donald Trump's Court Challenge to Big Technology Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/download-private-fb-memories-without-breaking-rules/"><u>Download Private FB Memories Without Breaking Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-and-privacy-the-unveiling-date-of-facebook-messengers-encryption/"><u>E2EE & Privacy: The Unveiling Date of Facebook Messenger’s Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-update-birthdate-on-social-media/"><u>Easy Steps to Update Birthdate on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-to-connect-with-clients-on-facebook-professionally/"><u>Effective Strategies to Connect with Clients on Facebook Professionally</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-navigation-through-diverse-facebook-profiles/"><u>Efficient Navigation Through Diverse Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-on-the-go-10-lightweight-android-essentials/"><u>Efficient on the Go: 10 Lightweight Android Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-contact-addition-in-facebooks-messaging-service/"><u>Effortless Contact Addition in Facebook's Messaging Service</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-repair-stellars-quicktime-mov-fixes/"><u>Effortless Repair: Stellar’s QuickTime MOV Fixes</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-c12-pro-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia C12 Pro Phones with/without a PC</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-leading-edge-the-ultimate-15-camera-guide/"><u>In 2024, Leading Edge  The Ultimate 15 Camera Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-skyrocket-engagement-with-youtubes-powerful-featured-channels-strategy/"><u>In 2024, Skyrocket Engagement with Youtube’s Powerful Featured Channels Strategy</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/integrate-twitter-videos-into-your-instagram-feed-for-2024/"><u>Integrate Twitter Videos Into Your Instagram Feed for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-multimedia-slides-with-speech-recordings-powerpoint-for-2024/"><u>Mastering Multimedia Slides with Speech Recordings (PowerPoint) for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-powerdirector-pro-tip-how-to-achieve-consistent-color-across-clips/"><u>New PowerDirector Pro Tip How to Achieve Consistent Color Across Clips</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-audiophiles-companion-to-top-tier-audio-equipment-for-2024/"><u>The Audiophile's Companion to Top-Tier Audio Equipment for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-basics-a-guide-to-rtx-graphics-cards/"><u>Understanding the Basics: A Guide to RTX Graphics Cards</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Crafting a Tailored Online Avatar Scope
-date: 2024-07-12T11:04:15.707Z
-updated: 2024-07-13T11:04:15.707Z
+date: 2024-08-08T11:22:53.166Z
+updated: 2024-08-09T11:22:53.166Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 
  Here's how to decide which Facebook friends see you online and which don't...
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## How Do People See Who's Online on Facebook?
 
 ![facebook online dot active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-online-dot-active-status.jpg)
@@ -45,6 +49,9 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -55,8 +62,15 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 2. In the dropdown menu, select**Active Status: ON** .  
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+</a>
+<!-- affiliate ads end -->
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 ## How to Switch Off Facebook Online Status Completely
@@ -71,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/693eb80266e384166dbf5061df1490b93fef1d741
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
 Close
@@ -86,6 +103,10 @@ Close
 
  You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -105,6 +126,10 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
@@ -134,3 +159,48 @@ This is different from a full Facebook block.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-streamlined-steps-for-preserving-vimeo-recordings/"><u>[New] 2024 Approved  Streamlined Steps for Preserving Vimeo Recordings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-20-must-have-video-tools-for-new-creators/"><u>[New] In 2024, 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-a-step-by-step-guide-to-maximizing-spotifys-ad-space/"><u>[New] In 2024, A Step-by-Step Guide to Maximizing Spotify's Ad Space</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-turn-your-webcam-into-a-broadcast-device-with-vlc/"><u>[Updated] 2024 Approved  Turn Your Webcam Into a Broadcast Device with VLC</u></a></li>
+<li><a href="https://facebook.techidaily.com/awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban.</u></a></li>
+<li><a href="https://facebook.techidaily.com/bypassing-facebook-2fa-post-phone-loss/"><u>Bypassing Facebook 2FA Post-Phone Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/chat-charisma-enhancing-with-bold-and-italic-styles/"><u>Chat Charisma: Enhancing with Bold and Italic Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlled-consumption-navigate-without-fb-reels/"><u>Controlled Consumption: Navigate without Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-expansion-a-future-headline/"><u>Cryptocurrency's Expansion: A Future Headline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-social-media-identity-on-facebook/"><u>Customizing Social Media Identity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-a-closer-look-at-facebook-files/"><u>Debunking Myths: A Closer Look at Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-digital-giant-understanding-vk-in-russia/"><u>Decoding the Digital Giant: Understanding VK in Russia</u></a></li>
+<li><a href="https://facebook.techidaily.com/discerning-hidden-intents-in-digital-conversations/"><u>Discerning Hidden Intents in Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/germany-calls-for-halt-to-facebooks-whatsapp-data-harvesting/"><u>Germany Calls for Halt to Facebook's WhatsApp Data Harvesting</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-se-2020-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone SE (2020)?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reclaim-your-cash-the-fb-reimbursement-route/"><u>How to Reclaim Your Cash: The FB Reimbursement Route</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/how-to-remove-background-in-figma-for-2024/"><u>How to Remove Background In Figma for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-spot-fake-profiles-on-facebook/"><u>How to Spot Fake Profiles on Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-itel-s23plus-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Itel S23+ FRP</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-samsung-galaxy-m14-4g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Samsung Galaxy M14 4G FRP In 3 Different Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovating-connectivity-facebook-unveils-new-subscription-link-methods/"><u>Innovating Connectivity: Facebook Unveils New Subscription Link Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-the-latest-privacy-tools-in-facebooks-comprehensively-redesigned-hub/"><u>Leverage the Latest Privacy Tools in Facebook’s Comprehensively Redesigned Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-likes-why-less-is-more-on-social-sites/"><u>Life Without Likes: Why Less Is More on Social Sites</u></a></li>
+<li><a href="https://fox-http.techidaily.com/minimize-time-maximize-results-with-this-srt-to-txt-hack-for-2024/"><u>Minimize Time, Maximize Results with This SRT to TXT Hack for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-exit-from-facebook-groups-a-step-by-step-guide/"><u>Navigating Exit From Facebook Groups: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-reconnection-on-social-networks/"><u>Navigating Reconnection on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-for-professional-success-5-ways/"><u>Navigating Social Media for Professional Success - #5 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-end-of-your-facebook-era-key-steps/"><u>Navigating the End of Your Facebook Era: Key Steps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-honor-90-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Honor 90 Screen | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-12-data-from-itunes-backup-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 12 Data From iTunes Backup | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-cyber-spaces-permit-negative-feedback/"><u>Should Cyber Spaces Permit Negative Feedback?</u></a></li>
+<li><a href="https://facebook.techidaily.com/sleuthing-in-the-social-web-unveiling-phony-accounts/"><u>Sleuthing in the Social Web: Unveiling Phony Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-mastery-for-your-career-journey/"><u>Social Networking Mastery for Your Career Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-society-one-like-at-a-time/"><u>Strengthening Society One Like at a Time</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fine-print-of-chat-formatting-highlights-and-caps/"><u>The Fine Print of Chat Formatting: Highlights & Caps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quest-behind-metas-hyper-ai-colossus/"><u>The Quest Behind Meta's Hyper-AI Colossus</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-through-its-transparent-governance-space/"><u>Understanding Facebook Through Its Transparent Governance Space</u></a></li>
+<li><a href="https://some-tips.techidaily.com/understanding-the-foundation-of-motion-visualization-for-2024/"><u>Understanding the Foundation of Motion Visualization for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/what-does-the-blue-marker-on-fb-chat-reveal/"><u>What Does the Blue Marker on FB Chat Reveal?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Big Tech in Trouble? Government Intervention Explained
-date: 2024-07-12T11:04:57.228Z
-updated: 2024-07-13T11:04:57.228Z
+date: 2024-08-08T11:22:19.775Z
+updated: 2024-08-09T11:22:19.775Z
 tags:
   - facebook
 categories:
@@ -17,12 +17,18 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
 
  However, some sources include others, such as Twitter, Samsung, and Netflix. In addition, people often mention Chinese companies such as Alibaba, Tencent, and Baidu while discussing Big Tech firms. However, they are competitors to the Big Five rather than under the same umbrella.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 ## Big Tech’s Beginnings
 
  Big Tech companies didn’t always have such a massive influence on society. When Facebook launched in 2004, only Harvard University students could use it, followed by an expansion to high schools and other universities. It took until 2006 for the company to open usage to people without educational institution-related emails.
@@ -37,6 +43,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 ## Big Tech Companies Use Data for Profit
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -47,6 +56,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
@@ -57,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Big Tech Limits the Market Access of Smaller Companies
 
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
@@ -79,6 +94,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
 ## Big Tech Can Impact Government Decisions and Operations
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![US Capitol building](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/us-capitol-building.jpg)
 
  The name recognition associated with Big Tech companies convinces many government authorities to use services offered by those providers. Google, Microsoft, and Amazon have numerous government agencies as customers. Amazon Web Services (AWS) even offers a specific cloud service for these entities.
@@ -109,6 +127,9 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -134,3 +155,43 @@ thumbnail: https://thmb.techidaily.com/9e5ef4400f63e7f920ad051c5a9167da56f0ec84a
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram/"><u>[Desktop & Mobile Solutions] How to Rotate Videos for Instagram?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-cultivating-a-sustainable-advertising-ecosystem-famebits-strategies-for-2024/"><u>[New] Cultivating a Sustainable Advertising Ecosystem  FameBit’s Strategies for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-dull-to-dynamic-top-11-techniques-for-enhanced-hues/"><u>[New] From Dull to Dynamic  Top 11 Techniques for Enhanced Hues</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-essential-guide-enabling-a-full-screen-grid-on-zoom/"><u>[New] In 2024, Essential Guide  Enabling a Full-Screen Grid on Zoom</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-perfecting-presentations-with-zoom-screenshares-for-2024/"><u>[New] Perfecting Presentations with Zoom Screenshares for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-advanced-strategies-for-enhancing-vhs-images-digitally/"><u>2024 Approved  Advanced Strategies for Enhancing VHS Images Digitally</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-lock-and-load-effortless-profile-url-addition-on-tiktok/"><u>2024 Approved  Lock-and-Load  Effortless Profile URL Addition on TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-virtuality-deciphering-the-metaverse-mystery/"><u>Beyond Virtuality: Deciphering the Metaverse Mystery</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-a-community-around-your-brand-increase-likesshares-on-fb/"><u>Building a Community Around Your Brand: Increase Likes/Shares on FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-and-overcoming-solitude-effective-strategies/"><u>ChatGPT and Overcoming Solitude: Effective Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-clusters-uncovering-the-hottest-social-sites-and-services/"><u>Community Clusters: Uncovering the Hottest Social Sites & Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-dialogue-symbolism-and-icons-in-social-media-messaging/"><u>Decoding Digital Dialogue: Symbolism and Icons in Social Media Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-to-reconnect-the-realities-of-abandoning-online-friends/"><u>Disconnect to Reconnect: The Realities of Abandoning Online Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-deep-into-facebooks-policy-framework-at-launch/"><u>Diving Deep Into Facebook's Policy Framework at Launch</u></a></li>
+<li><a href="https://win-forum.techidaily.com/efficiently-remove-items-on-your-pc-the-command-prompt-way-in-windows-10/"><u>Efficiently Remove Items on Your PC: The Command Prompt Way in Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-dialogue-dynamics-stylish-textual-elements/"><u>Enhancing Dialogue Dynamics: Stylish Textual Elements</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-vivo-y100a-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-excellence-meta-crafts-worlds-faster-ai-system/"><u>In Pursuit of Excellence: Meta Crafts World's Faster AI System</u></a></li>
+<li><a href="https://facebook.techidaily.com/mapping-your-friends-facebooks-new-neighborhood-structure/"><u>Mapping Your Friends: Facebook's New Neighborhood Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-data-eradication-clear-facebook-records/"><u>Mastering Data Eradication: Clear Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-marketing-avenues-for-brands-on-fb-and-insta-reels/"><u>New Marketing Avenues for Brands on FB & Insta Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-level-of-socializing-messengers-new-ar-dimensions/"><u>Next Level of Socializing: Messenger’s New AR Dimensions</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrospect-significant-stories-from-google/"><u>Retrospect: Significant Stories From Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/scrutinizing-security-email-address-is-securityfbcom-genuine/"><u>Scrutinizing Security Email Address: Is @security@fb.com Genuine?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150243390-securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-compre-cookie-guide-to-captivating-covers-on-fb/"><u>The Compre Cookie Guide to Captivating Covers on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-for-a-complete-analysis-of-every-facebook-interaction/"><u>The Explorer's Blueprint for a Complete Analysis of Every Facebook Interaction</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-manual-to-creating-engaging-ae-heads-ups-for-2024/"><u>The Ultimate Manual to Creating Engaging AE Heads-Ups for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unable-to-upload-iphone-data-to-icloud-try-our-9-proven-fixes/"><u>Unable to Upload iPhone Data to iCloud? Try Our 9 Proven Fixes.</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reason-for-non-visibility-in-app-interactions/"><u>Unveiling the Reason for Non-Visibility in App Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-believes-online-connections-more-damaging/"><u>US Believes: Online Connections More Damaging</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/video-gamings-top-10-capture-card-recommendations-for-2024/"><u>Video Gaming's Top 10 Capture Card Recommendations for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vk-discovering-the-russian-facebook-alternative/"><u>What Is VK?: Discovering the Russian Facebook Alternative</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-safety-on-social-selling-platforms-key-steps-to-take/"><u>Your Safety on Social Selling Platforms: Key Steps to Take</u></a></li>
+</ul></div>

@@ -1,0 +1,180 @@
+---
+title: Social Media's Duty to Combat Pandemic Rumors and Lies
+date: 2024-08-08T11:23:41.171Z
+updated: 2024-08-09T11:23:41.171Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Social Media's Duty to Combat Pandemic Rumors and Lies
+excerpt: This Article Describes Social Media's Duty to Combat Pandemic Rumors and Lies
+keywords: Fighting Pandemic Fake News,Social Media Virality Control,Debunk Pandemic Myths,Digital Information Verification,Combating Health Rumors Online,Truth in Social Media Use,Social Platform Responsibility
+thumbnail: https://thmb.techidaily.com/c381619f8aafcfb0f80b6508563d2271437d8649f2f0442bcc2c7a6fb3d30ee1.jpg
+---
+
+## Social Media's Duty to Combat Pandemic Rumors and Lies
+
+ COVID-19 has taken the world by storm. And being the first pandemic our generation has lived through, it has brought much confusion and misinformation.
+
+ Since talks of a COVID-19 vaccine started coming up, so too have numerous myths and false information surrounding it. And with conversations on social media spreading like wildfire through real people's accounts, it can be difficult to tell the difference between facts and fiction.
+
+Here's what social media platforms can do to tackle the issue.
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## The Spread of COVID-19 and Vaccine Misinformation on Social Media
+
+ Social media is an extension of our lives, so information shared online can spread like wildfire. When COVID-related misinformation is circulated, it creates uncertainty, skepticism and distrust, which can lead to people rejecting proven public health measures.
+
+ This becomes easier when the public is not well-informed about COVID-19 and vaccines, and has a lack of trust in authoritative sources, such as the government, scientists and healthcare professionals.
+
+ In June 2020, BBC News reported that social media companies were[not doing enough to curb the spread of false news](https://www.bbc.co.uk/news/technology-52903680) relating to COVID-19 and the COVID-19 vaccine.
+
+[Facebook](https://about.fb.com/news/2021/02/reaching-billions-of-people-with-covid-19-vaccine-information/) has since released a statement claiming to take action against this by sharing and promoting authoritative information about COVID-19 vaccines, as well as combating misinformation by removing false claims on the topic.
+
+ In a report released in March 2021, the[Center for Countering Digital Hate](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) found that of the anti-vaccine content that had been circulated on Facebook and Twitter more than 812,000 times between February 1 and March 16, 2021, 65 percent came from just 12 accounts.
+
+ Read more:[Report Finds That Most COVID-19 Misinformation Was Spread by These 12 Influencers](https://www.makeuseof.com/study-covid-misinformation-spread-by-influencers/)
+
+ These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
+
+![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-2.png)
+
+Close
+
+ Social media companies have employed various initiatives to combat the spread of COVID-19 misinformation. That's why you'll see a lot of pandemic-related information as you open your social media apps or scroll through your feed.
+
+ The home section of the YouTube app, for instance, features a post on COVID-19 from the World Health Organization. When you click on**Learn More** , it takes you to a resource center which includes myths, advice and Q&As.
+
+YouTube also removes videos that violate its COVID-19 policy.
+
+ When you search the COVID-19 hashtag or topic on Twitter, at the top you'll find a resource portal and options to find out more about COVID-19 and vaccine-related information in your country.
+
+ You might spot a warning under posts with misleading COVID-19 information, too. Any tweet from a user promoting 5G conspiracy theories has a blue exclamation mark with a message from Twitter on getting the facts about COVID-19 and links to[a story debunking the claim](https://twitter.com/i/events/1246086575043178496) .
+
+ Facebook has banned more than a billion fake accounts, taken down 12 million posts that spread misinformation about COVID-19 vaccines, and says it has hired fact-checkers around the world.
+
+ Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
+
+## How Social Media Companies Can Protect Users From Harmful Misinformation
+
+ In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
+
+### 1\. Tap Into Celebrities and Religious and Community Leaders
+
+ Many people distrust figures of authority, such as the government. Social media companies can partner with celebrities and religious and community leaders to post videos presenting factual and myth-busting information online.
+
+ They can also share their personal experiences around getting vaccinated.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2\. Establish Shared Online Standards Across Social Media Platforms
+
+ Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
+
+### 3\. Establish a Clear Threshold for Enforcement Action
+
+ A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
+
+ This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
+
+### 4\. Display Corrective Posts to Users Exposed to Disinformation
+
+ Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
+### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
+
+ Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
+
+ Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
+
+ Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
+
+## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
+
+ As the COVID-19 pandemic has highlighted, the role played by social media in the spread of misinformation can have serious social and public health consequences. Mass vaccination remains the most likely successful strategy to achieve long-term control of the pandemic.
+
+ In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/1719153181758-satoshi-sheep-the-ceos-animal-mashup-moniker/"><u>'Satoshi Sheep': The CEO's Animal Mashup Moniker</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-deciphering-the-coded-language-of-concealed-youtube-movies/"><u>[New] 2024 Approved  Deciphering the Coded Language of Concealed YouTube Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-twitter-video-downloader-download-twitter-videos-to-iphone/"><u>[New] 2024 Approved  Twitter Video Downloader  Download Twitter Videos to iPhone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-how-to-use-zoom-webinars-beginners-guide/"><u>[Updated] 2024 Approved  How to Use Zoom Webinars [Beginner’s Guide]</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevating-video-experience-best-youtube-to-avi-companions/"><u>[Updated] In 2024, Elevating Video Experience  Best YouTube-to-AVI Companions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-guide-to-improved-zoom-video-quality/"><u>[Updated] The Ultimate Guide to Improved Zoom Video Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-undercurrents-why-users-are-leaving-fb/"><u>A Deep Dive Into the Undercurrents: Why Users Are Leaving FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-establishing-industry-ties-via-facebook/"><u>A Step-by-Step Guide to Establishing Industry Ties via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-high-ranking-investment-for-badge/"><u>Achieve High Ranking: Investment for Badge</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-an-unplugged-lifestyle-reducing-the-time-spent-on-social-networks/"><u>Achieving an Unplugged Lifestyle: Reducing the Time Spent on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieving-robust-account-protection-through-2fa-on-gmail-and-outlook-systems/"><u>Achieving Robust Account Protection Through 2FA on Gmail & Outlook Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/addressing-inoperative-fb-postmessage-indicators/"><u>Addressing Inoperative FB Post/Message Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-private-chats-in-fb-secure/"><u>Are Private Chats in FB Secure?</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-tech-life-pausing-on-facebook/"><u>Balancing Tech Life: Pausing on Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boost-browser-safety-on-windows-11-with-the-implementation-of-defender-aguard/"><u>Boost Browser Safety on Windows 11 with the Implementation of Defender Aguard</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-facebooks-revised-page-tagging-system/"><u>Breaking Down Facebook's Revised Page Tagging System</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-fbctas-effect-on-consumers/"><u>Breaking Down the FBCTA's Effect on Consumers</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-stereotypes-the-rise-and-role-of-metamates-at-facebook/"><u>Breaking Stereotypes: The Rise and Role of Metamates at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/busting-the-biggest-facebook-myths-top-10-reality-checks/"><u>Busting the Biggest Facebook Myths: Top 10 Reality Checks</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metamorphosis-be-beneficial-meta-ai-meets-social-networks/"><u>Can Metamorphosis Be Beneficial: Meta AI Meets Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/capturing-connotations-of-single-word-via-photos/"><u>Capturing Connotations of Single Word via Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/claim-prestige-metas-verified-status-stamp/"><u>Claim Prestige: Meta’s Verified Status Stamp</u></a></li>
+<li><a href="https://facebook.techidaily.com/community-control-crusade-commanding-conversations-with-facebooks-advanced-tools/"><u>Community Control Crusade: Commanding Conversations with Facebook’s Advanced Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensively-understanding-and-evading-online-shadowbans/"><u>Comprehensively Understanding and Evading Online Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-chronicles-seeking-pages-groups-in-fb-realm/"><u>Connectivity Chronicles: Seeking Pages, Groups in FB Realm</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-safe-facebook-space-for-young-users/"><u>Crafting a Safe Facebook Space for Young Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-counterfeit-digital-dossiers-online/"><u>Crafting Counterfeit Digital Dossiers Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-three-dimensional-photos-for-social-media/"><u>Crafting Three-Dimensional Photos for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-a-distinguished-facebook-professional-page/"><u>Creating a Distinguished Facebook Professional Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-community-conduct-tapping-into-the-latest-tools-for-group-oversight-on-facebook/"><u>Cultivating Community Conduct: Tapping Into the Latest Tools for Group Oversight on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-who-views-your-fb-activity/"><u>Customizing Who Views Your FB Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-sleuthing-for-safety-decoding-the-9-signs-of-account-hijacking/"><u>Cyber Sleuthing for Safety: Decoding the 9 Signs of Account Hijacking</u></a></li>
+<li><a href="https://facebook.techidaily.com/daily-retrospection-made-simple-with-facebooks-feature/"><u>Daily Retrospection Made Simple with Facebook's Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-defense-directive-dodge-these-threatening-apps/"><u>Data Defense Directive: Dodge These Threatening Apps</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/guide-to-profiting-from-youtube-shorts-key-requirements-and-potential-income-for-2024/"><u>Guide to Profiting From YouTube Shorts  Key Requirements & Potential Income for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-do-i-reset-my-oppo-find-x6-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Oppo Find X6 Phone without technical knowledge? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-tecno-spark-20-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Tecno Spark 20</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-real-time-broadcasting-a-beginners-guide-for-2024/"><u>Mastering Real-Time Broadcasting  A Beginner's Guide for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-iphones-with-ease-download-podcasts-made-simple-for-2024/"><u>Navigating iPhones with Ease - Download Podcasts Made Simple for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719143617196-overlooked-technology-moments-heres-what-you-missed-out/"><u>Overlooked Technology Moments, Here's What You Missed Out</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-google-pixel-8-pro-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Google Pixel 8 Pro FRP Bypass</u></a></li>
+</ul></div>

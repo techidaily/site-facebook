@@ -1,7 +1,7 @@
 ---
 title: "Beyond the Sensational Stories: Rethinking Social Media Scandals"
-date: 2024-07-12T11:07:58.314Z
-updated: 2024-07-13T11:07:58.314Z
+date: 2024-08-08T11:19:54.284Z
+updated: 2024-08-09T11:19:54.284Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,10 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
 **Note:** The Facebook Papers were released before [Facebook's rebranding to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , so we will still refer to the company as Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## The Facebook Papers' Revelations Aren't Particularly Scandalous
 
  Most of the reports from The Facebook Papers focus on misinformation as the big “revelation” about Facebook. Now, misinformation certainly is a problem on the internet; it can actually be quite dangerous. But it isn't particularly scandalous for Facebook.
@@ -35,12 +39,18 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
  The Facebook Papers are being described and perceived as the worst information that could have come out about the company. But that's not so. Imagine if the reports contained information that showed Facebook was being used by other countries in cyberattacks. That would have been a real revelation.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook Misinformation Warning](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Misinformation-Warning.jpg)
 
  Image Credits: Facebook
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as [Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -55,6 +65,9 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
  When you read some of the reports about Facebook from The Facebook Papers, you're probably thinking that it's pretty bad for Facebook. But with lots of the reports, there's much more than meets the eye.
@@ -69,6 +82,9 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
  The particular example used is the CEO claiming Facebook removes 94 percent of the hate speech it finds before a human reports it, but a leaked report reveals less than five percent of all hate speech is removed from the platform.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
  Image Credits: Anthony Quintano via Flickr
@@ -79,6 +95,9 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
 
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -104,3 +123,46 @@ thumbnail: https://thmb.techidaily.com/61f1e99d6299e2b7e5df71d7f81a59ac930cb2c81
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nnovative-tactics-to-amplify-game-vids-via-hashtags-for-2024/"><u>[New] Innovative Tactics to Amplify Game Vids via Hashtags for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-real-time-view-count-detectors/"><u>[New] Real-Time View Count Detectors</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-top-10-hilarious-tweets-galore-for-2024/"><u>[New] Top 10 Hilarious Tweets Galore for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-essential-tips-for-producing-high-quality-youtube-videos-for-2024/"><u>[Updated] Essential Tips for Producing High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-speedy-windows-file-review-strategies/"><u>[Updated] Speedy Windows File Review Strategies</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-bridging-avi-and-gif-with-filmoras-seamless-conversion-tools/"><u>2024 Approved  Bridging AVI & GIF with Filmora's Seamless Conversion Tools</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-samsung-galaxy-a14-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Samsung Galaxy A14 5G</u></a></li>
+<li><a href="https://fox-that.techidaily.com/cant-use-silent-switch-on-iphone-discover-other-ways-to-control-sound-settings/"><u>Can't Use Silent Switch on iPhone? Discover Other Ways to Control Sound Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-filter-bubble-acts-technicalities/"><u>Deciphering Filter Bubble Act's Technicalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photographers-domain-posting/"><u>Deciphering Photographer's Domain Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-gap-between-metaverse-and-vr-understanding-6-key-variations/"><u>Deciphering The Gap Between Metaverse & VR: Understanding 6 Key Variations</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebook-posts-that-pass-unnoticed/"><u>Decoding Facebook: Posts That Pass Unnoticed</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-gesture-interface-advantages/"><u>Decoding Facebook's Gesture Interface Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-chat-emojis-and-glyphs-meanings/"><u>Decoding FB Chat Emojis & Glyphs Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-success-top-8-advantages-for-corporate-profiles-over-personal/"><u>Decoding FB Success: Top 8 Advantages for Corporate Profiles over Personal</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-complexity-of-facebooks-operational-rules/"><u>Decoding the Complexity of Facebook's Operational Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/decrease-personalized-promotions-on-social-platforms/"><u>Decrease Personalized Promotions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-judgment-for-trumponomy-suspension-enacted/"><u>Delay in Judgment for Trumponomy Suspension Enacted</u></a></li>
+<li><a href="https://facebook.techidaily.com/deliberations-continue-expected-decision-from-platforms-oversight-board/"><u>Deliberations Continue: Expected Decision From Platform’s Oversight Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/demanding-action-from-social-media-leaders-against-scam-campaigns/"><u>Demanding Action From Social Media Leaders Against Scam Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-language-of-facebooks-emotive-codes/"><u>Demystifying the Language of Facebook’s Emotive Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-mosaic-magic-assembling-photos-for-social-media-spotlight/"><u>Digital Mosaic Magic: Assembling Photos for Social Media Spotlight</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-silence-strikes-whatsapp-and-instagram-downed/"><u>Digital Silence Strikes: WhatsApp & Instagram Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fbs-tracking-tactics-using-off-fb-toolset/"><u>Disable Fb's Tracking Tactics Using Off-FB Toolset</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-hate-button-pros-and-cons/"><u>Disabling 'Hate' Button: Pros & Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/discreet-data-harvesting-securely-downloading-personal-fb-vids/"><u>Discreet Data Harvesting: Securely Downloading Personal FB Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-the-essence-of-fbctas-purpose/"><u>Diving Into the Essence of FBCTA's Purpose</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/download-twitter-gif-3-ways-to-download-gifs-from-twitter-on-your-pc/"><u>Download Twitter GIF  3 Ways to Download GIFs From Twitter on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/earnwhileengage-top-5-revenue-generating-strategies-for-social-media/"><u>EarnwhileEngage: Top 5 Revenue-Generating Strategies for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-implement-2fa-on-facebook-platform/"><u>Easy Steps to Implement 2FA on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-downloading-images-and-videos-from-fb/"><u>Efficiently Downloading Images and Videos From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-privacy-game-facebooks-secure-strategies-explained/"><u>Elevate Your Privacy Game: Facebook's Secure Strategies Explained</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-100-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor 100 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-break-boundaries-get-free-vob-handling-toolset-pc-and-mac/"><u>In 2024, Break Boundaries  Get Free VOB Handling Toolset (PC & Mac)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-11-pro-max-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 11 Pro Max Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-honor-play-7t-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Honor Play 7T Phone Hassle-Free</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-discovering-the-best-websites-for-acquiring-high-fidelity-whoosh-soundtracks/"><u>Updated Discovering the Best Websites for Acquiring High-Fidelity Whoosh Soundtracks</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/video-file-issues-after-stellar-repairing/"><u>Video File Issues After Stellar Repairing</u></a></li>
+<li><a href="https://change-location.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Vivo S18e? | Dr.fone</u></a></li>
+</ul></div>

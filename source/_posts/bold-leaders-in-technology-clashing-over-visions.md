@@ -1,7 +1,7 @@
 ---
 title: Bold Leaders in Technology Clashing Over Visions
-date: 2024-07-12T11:04:27.331Z
-updated: 2024-07-13T11:04:27.331Z
+date: 2024-08-08T11:22:43.818Z
+updated: 2024-08-09T11:22:43.818Z
 tags:
   - facebook
 categories:
@@ -21,8 +21,14 @@ thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b5421786
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Jack Dorsey
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
 
 **Best known for:** Co-founder and CEO of Twitter
@@ -35,8 +41,14 @@ thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b5421786
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Elizabeth Holmes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
 
 **Best known for:** Founder and CEO of Theranos
@@ -49,8 +61,19 @@ thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b5421786
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ## 3\. Julian Assange
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
 
 **Best known for:** Founder of WikiLeaks
@@ -83,6 +106,9 @@ thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b5421786
 
  The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Bill Gates
 
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
@@ -146,3 +172,63 @@ thumbnail: https://thmb.techidaily.com/ed24203618acc19422dc1e656e53cdd94b5421786
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-flashframe-crafter/"><u>[New] 2024 Approved  FlashFrame Crafter</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-complex-projects-on-magix-video-pro-x/"><u>[New] Navigating Complex Projects on Magix Video Pro X</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-premium-drone-fleet-the-ultimate-cinematic-allies/"><u>[New] Premium Drone Fleet  The Ultimate Cinematic Allies</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-virtual-upgrade-social-story-snipper/"><u>[New] Virtual Upgrade  Social Story Snipper</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-cryptic-collection-of-2023-auction-for-anonymity-artifacts/"><u>[Updated] 2024 Approved  The Cryptic Collection of 2023  Auction for Anonymity Artifacts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-how-to-download-hd-facebook-videos-for-2024/"><u>[Updated] How to Download HD Facebook Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-expert-methods-for-win10-game-screen-recording/"><u>[Updated] In 2024, Expert Methods for Win10 Game Screen Recording</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-non-gta-worlds-a-list-of-comparable-mega-hits/"><u>[Updated] In 2024, Non-GTA Worlds  A List of Comparable Mega-Hits</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-seamless-hd-viewing-top-10-android-video-apps/"><u>[Updated] Seamless HD Viewing  Top 10 Android Video Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-oneplus-ace-2-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from OnePlus Ace 2 to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-beyond-imagination-vr-powered-movies/"><u>2024 Approved  Beyond Imagination  VR-Powered Movies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exclusive-download-hassle-free-video-closures-here/"><u>2024 Approved  Exclusive  Download Hassle-Free Video Closures Here</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-mastering-your-digital-footprint-facebook-lives-made-easy/"><u>2024 Approved  Mastering Your Digital Footprint  Facebook Lives Made Easy</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-perfecting-visual-storytelling-adding-context-to-your-pictures-through-text/"><u>2024 Approved  Perfecting Visual Storytelling  Adding Context to Your Pictures Through Text</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-privacy-iphone-users-growing-aversion/"><u>App Privacy: IPhone Users' Growing Aversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/be-part-of-the-future-facebooks-10000-metaverse-builders-wanted/"><u>Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted!</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-followers-to-professional-clients-facebooks-role-unveiled/"><u>Converting Followers to Professional Clients: Facebook's Role Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-oversight-judicial-panel/"><u>Demystifying Facebook's Oversight Judicial Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-updated-news-feed-structure/"><u>Dissecting Facebook's Updated News Feed Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/epic-games-discloses-tracking-for-unlimited-game-playtime/"><u>Epic Games Discloses Tracking for Unlimited Game Playtime</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-mirage-deceptive-identity-reproduction/"><u>Facebook Mirage: Deceptive Identity Reproduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-access-to-whatsapp-users-reined-in-by-germany-legislation/"><u>Facebook's Access to WhatsApp Users Reined in by Germany Legislation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-image-compromised-in-poll-showcasing-tech-mistrust/"><u>Facebook's Image Compromised in Poll Showcasing Tech Mistrust</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-music-monetization-scheme-explained/"><u>Facebook's New Music Monetization Scheme Explained</u></a></li>
+<li><a href="https://win-answers.techidaily.com/get-back-to-gaming-a-step-by-step-guide-to-overcoming-roblox-startup-problems/"><u>Get Back to Gaming: A Step-by-Step Guide to Overcoming Roblox Startup Problems</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-facebook-enhancement-reels-rooms-in-story-panels/"><u>Impending Facebook Enhancement: Reels, Rooms in Story Panels?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-asmr-expertise-soundscapes-that-ease-sleeplessness/"><u>In 2024, ASMR Expertise  Soundscapes That Ease Sleeplessness</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-insights-into-efficient-lunapic-usage/"><u>In 2024, Expert Insights Into Efficient LunaPic Usage</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-vivo-y27-4g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Vivo Y27 4G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-parting-pleasantries-free-and-paid-outro-snippets/"><u>In 2024, Parting Pleasantries  Free & Paid Outro Snippets</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-workings-of-facebooks-content-filter/"><u>Inside the Workings of Facebook's Content Filter</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-the-rise-of-disenchanted-facebookers/"><u>Insight: The Rise of Disenchanted Facebookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-facebooks-organizational-framework/"><u>Insightful Analysis: Facebook's Organizational Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/investing-in-your-segment-of-the-725-million-facebook-payout/"><u>Investing in Your Segment of the $725 Million Facebook Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/joining-the-dots-your-guide-to-linking-accounts-across-platforms-and-xbox/"><u>Joining the Dots: Your Guide to Linking Accounts Across Platforms and Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-with-content-translated-into-multiple-languages/"><u>Maximizing Engagement with Content Translated Into Multiple Languages</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-bokeh-perfection-top-rated-mobile-apps-for-photography-enthusiasts-for-2024/"><u>New Bokeh Perfection Top-Rated Mobile Apps for Photography Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-lifes-priorities-by-curbing-excessive-facebook-visits/"><u>Optimizing Life's Priorities by Curbing Excessive Facebook Visits</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-your-path-as-an-influential-voice/"><u>Paving Your Path as an Influential Voice</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-meets-portability-with-facebooks-new-launch/"><u>Portal Meets Portability with Facebook’s New Launch</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/professional-mov-file-handling-on-your-latest-windows-11-system-for-2024/"><u>Professional .MOV File Handling on Your Latest Windows 11 System for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-salesmen-in-your-pocket-a-truth-or-tale-of-coincidence/"><u>Silent Salesmen in Your Pocket: A Truth or Tale of Coincidence?</u></a></li>
+<li><a href="https://facebook.techidaily.com/smarter-more-personalized-advertising-awaits-you-on-facebook/"><u>Smarter, More Personalized Advertising Awaits You on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-intertwine-fb-insta-unity-emerges/"><u>Social Sites Intertwine: FB, Insta Unity Emerges</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-soundscape-evolution-a-new-chapter-for-facebook-and-spotify/"><u>Social Soundscape Evolution: A New Chapter for Facebook and Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/steady-as-she-goes-unveiling-the-world-of-crypto-stability-coins/"><u>Steady as She Goes: Unveiling the World of Crypto Stability Coins</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-choosing-the-best-microsoft-ergonomic-keyboard-for-comfort-and-quality/"><u>The Definitive Guide to Choosing the Best Microsoft Ergonomic Keyboard for Comfort and Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-revolutionary-duo-facebook-meets-spotify-for-project-boombox/"><u>The Revolutionary Duo: Facebook Meets Spotify for Project Boombox</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-right-approach-to-partial-youtube-downloads-for-2024/"><u>The Right Approach to Partial YouTube Downloads for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-connectivity-through-facebook-portals/"><u>Unlocking the Potential of Social Connectivity Through Facebook Portals</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-distinctions-between-fb-pages-and-unames/"><u>Unveiling the Distinctions Between FB Pages & UNAMES</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-new-era-of-user-privacy-at-meta/"><u>Unveiling the New Era of User Privacy at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrets-to-personal-brand-reformation-on-social-media/"><u>Unveiling the Secrets to Personal Brand Reformation on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vanish-mode-on-facebook-messenger/"><u>What Is Vanish Mode on Facebook Messenger?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-does-a-new-fb-icon-signify-change/"><u>When Does a New Fb Icon Signify Change?</u></a></li>
+</ul></div>

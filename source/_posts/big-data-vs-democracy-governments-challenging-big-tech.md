@@ -1,7 +1,7 @@
 ---
 title: "Big Data Vs. Democracy: Governments Challenging Big Tech"
-date: 2024-07-12T11:04:41.963Z
-updated: 2024-07-13T11:04:41.963Z
+date: 2024-08-08T11:22:32.456Z
+updated: 2024-08-09T11:22:32.456Z
 tags:
   - facebook
 categories:
@@ -17,6 +17,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  Big Tech has changed the world by spurring technological progress. However, some government leaders believe these companies have too much power and influence and want to break them up.If Big Tech is pushing the world forward, why are governments so keen to curtail its power?
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is Big Tech?
 
  Big Tech collectively describes the most prolific and prosperous technology companies in today’s marketplace. Facebook, Apple, Google, Microsoft, and Amazon (often called the Big Five) are the brands most commonly given this identifier.
@@ -37,6 +40,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
 ## Big Tech Companies Use Data for Profit
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
@@ -59,6 +65,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
 ## Big Tech Limits the Market Access of Smaller Companies
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
@@ -69,6 +78,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  Another recent case occurred when the [European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
@@ -91,6 +103,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
 ## Big Tech Companies Have Incredible Influence
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
@@ -101,6 +116,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  However, that’s not a universally held opinion. Many governmental bodies invite these companies to meetings that entities with less influence cannot attend.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
@@ -109,6 +127,9 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## No Easy Path Forward for Regulating Big Tech
 
  These examples highlight valid reasons governments are pushing back to decrease Big Tech’s influence or rein in its power. However, regulation is not straightforward. Individual government leaders must decide how to limit impact and in what areas of society.
@@ -134,3 +155,51 @@ thumbnail: https://thmb.techidaily.com/4d762caa04f98755e083fa6f19084871af3024b44
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-unravel-media-complexity-transforming-xmlttml-into-srt-gold/"><u>[New] 2024 Approved  Unravel Media Complexity  Transforming XML/TTML Into SRT Gold</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-capturing-the-action-5-roblox-recordings-for-mac-users/"><u>[New] Capturing the Action  5 Roblox Recordings for Mac Users</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-elevate-instagrams-visual-feast-integrating-audio-effects/"><u>[New] Elevate Instagram's Visual Feast  Integrating Audio Effects</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-decode-facebooks-algorithm-change-and-protect-your-reach/"><u>[Updated] In 2024, Decode Facebook’s Algorithm Change & Protect Your Reach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-transforming-followers-into-loyalists-with-instagram-videos-for-2024/"><u>[Updated] Transforming Followers Into Loyalists with Instagram Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-unboxing-the-typhoon-h-yuneecs-drone-expertise/"><u>2024 Approved  Unboxing the Typhoon H  Yuneec's Drone Expertise</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-facebooks-daily-memory-utility/"><u>A Step-by-Step Guide to Facebook's Daily Memory Utility</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/advanced-techniques-for-perfecting-your-voice-with-morphvox/"><u>Advanced Techniques for Perfecting Your Voice with MorphVOX</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-accessibility-at-no-cost-understanding-snapchats-tracking-practices/"><u>App Accessibility at No Cost: Understanding Snapchat’s Tracking Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-group-leave-friction-the-facebook-way/"><u>Avoiding Group Leave Friction: The Facebook Way</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/best-anti-tracker-software-for-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Best Anti Tracker Software For Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-first-impressions-deciphering-the-fb-intrigue/"><u>Beyond First Impressions: Deciphering The FB Intrigue</u></a></li>
+<li><a href="https://facebook.techidaily.com/checklist-for-identifying-fb-enthusiasts/"><u>Checklist for Identifying FB Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/claiming-a-portion-of-the-mega-settlement-from-facebook/"><u>Claiming a Portion of the Mega-Settlement From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-for-your-social-space-profile-ban-process/"><u>Clean Slate for Your Social Space: Profile Ban Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/deconstructing-power-play-the-new-strategy-against-big-tech-and-silicon-valley/"><u>Deconstructing Power Play: The New Strategy Against Big Tech and Silicon Valley</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-netgear-wireless-network-drivers/"><u>Download and Update NETGEAR Wireless Network Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-support-a-closer-look-at-its-usage/"><u>Facebook Support: A Closer Look at Its Usage</u></a></li>
+<li><a href="https://fox-access.techidaily.com/frolicsome-user-enrollment-process/"><u>Frolicsome User Enrollment Process</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/google-meet-excellence-on-the-house-complete-guide-for-all-users/"><u>Google Meet Excellence on the House  Complete Guide for All Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-sever-spotify-facebook-association-effectively/"><u>How To Sever Spotify-Facebook Association Effectively</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-expert-video-downloader-kit-ideal-for-firefox-browser-users/"><u>In 2024, Expert Video Downloader Kit  Ideal for FireFox Browser Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-stolen-apple-iphone-se-2022-in-different-conditionsin-by-drfone-ios/"><u>In 2024, How To Unlock Stolen Apple iPhone SE (2022) In Different Conditionsin</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-live-stream-titans-duel-comparative-exploration-of-twitch-and-youtube/"><u>In 2024, Live-Stream Titans Duel  Comparative Exploration of Twitch & YouTube</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovation-meets-art-mastering-these-top-7-graders-methods/"><u>Innovation Meets Art  Mastering These Top 7 Graders' Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-broken-connection-with-friendster-facebook/"><u>Mending Broken Connection with Friendster (Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/methodology-of-removing-spam-from-online-discussions/"><u>Methodology of Removing Spam From Online Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-platforms-responsibility-in-the-fight-against-covid-19-misinformation/"><u>Online Platforms' Responsibility in the Fight Against COVID-19 Misinformation</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/resurrecting-absorbed-gpt-dialogues/"><u>Resurrecting Absorbed GPT Dialogues</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-fb-content-planning-5-low-cost-high-impact-techniques/"><u>Revamping FB Content Planning: 5 Low-Cost, High Impact Techniques</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/smartphone-tools-for-crafting-your-ideal-vocal-sound/"><u>Smartphone Tools for Crafting Your Ideal Vocal Sound</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-sever-instagram-connection-with-facebook/"><u>Steps to Sever Instagram Connection with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streaming-on-ig-live-with-no-media-required/"><u>Streaming On IG Live With No Media Required</u></a></li>
+<li><a href="https://facebook.techidaily.com/sustainability-shines-facebooks-full-renewable-dependency/"><u>Sustainability Shines: Facebook's Full Renewable Dependency</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-control-deleting-history-from-your-fb-account/"><u>Taking Control: Deleting History From Your FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-risks-in-accepting-everyones-friendship-overtures/"><u>The Hidden Risks in Accepting Everyone's Friendship Overtures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-facebooks-feed-algorithm/"><u>The Mechanics of Facebook's Feed Algorithm</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-vk-understanding-russias-alternative-facebook/"><u>The Rise of VK: Understanding Russia’s Alternative Facebook</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/the-ultimate-list-of-free-haunting-noise-archives/"><u>The Ultimate List of Free Haunting Noise Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-eyes-the-case-for-deleting-your-facebook-watch-history/"><u>Unseen Eyes: The Case for Deleting Your Facebook Watch History</u></a></li>
+<li><a href="https://facebook.techidaily.com/wait-and-see-facebook-board-halts-decision-process/"><u>Wait and See: Facebook Board Halts Decision Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-cant-you-turn-off-facebook-content-recommendations/"><u>Why Can't You Turn Off Facebook Content Recommendations?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "Covid Fables: Influencers Among Most Perpetuators"
-date: 2024-07-12T10:59:47.739Z
-updated: 2024-07-13T10:59:47.739Z
+date: 2024-08-15T18:42:04.516Z
+updated: 2024-08-16T18:42:04.516Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,9 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -69,3 +72,40 @@ But what if, in reality, there are only 12 prime suspects?
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-edit-like-a-pro-title-and-description-tips-for-igtv-success/"><u>[New] 2024 Approved  Edit Like a Pro  Title & Description Tips for IGTV Success</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elite-exploration-the-new-parrot-ar-edition-for-2024/"><u>[New] Elite Exploration  The New Parrot AR Edition for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-photography-clarity-revolution-best-fixers-of-the-web-age/"><u>[New] Photography Clarity Revolution  Best Fixers of the Web Age</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-exploring-youtubes-payment-mechanisms-for-content-makers/"><u>2024 Approved  Exploring YouTube's Payment Mechanisms for Content Makers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-keeping-secrets-on-screen-tips-for-private-content-reduction/"><u>2024 Approved  Keeping Secrets on Screen  Tips for Private Content Reduction</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-practical-ways-to-regain-lost-facebook-profile-access/"><u>7 Practical Ways to Regain Lost Facebook Profile Access</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016744164-audacity-sound-device-malfunction-here-are-5-reliable-fixes/"><u>Audacity Sound Device Malfunction? Here Are 5 Reliable Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnect-from-dates-via-facebook-nostalgia/"><u>Disconnect From Dates via Facebook Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-speculations-the-future-name-of-facebook/"><u>Dissecting Speculations: The Future Name of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-guide-elevate-your-fb-pages-guardianship/"><u>Essential Guide: Elevate Your FB Page's Guardianship</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-historical-social-media-feedback/"><u>Examining Historical Social Media Feedback</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-digital-frontiers-with-meta-drops-trial-run/"><u>Exploring Digital Frontiers with Meta Drops Trial Run</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-visuals-mastering-hd-content-postings/"><u>Facebook for Visuals: Mastering HD Content Postings</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebooks-daily-time-reminder-to-take-a-break/"><u>How to Use Facebook's Daily Time Reminder to Take a Break</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-samsung-galaxy-a15-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Samsung Galaxy A15 5G FRP</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-iphone-11-pro-max-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From iPhone 11 Pro Max without Password?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-mac-gaming-recording-roblox-adventures/"><u>In 2024, Mac Gaming  Recording Roblox Adventures</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-revises-privacy-terms-what-you-should-know/"><u>Meta Revises Privacy Terms: What You Should Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-portal-options/"><u>Navigating Facebook Portal Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-horizons-beyond-twitter/"><u>New Horizons Beyond Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-outage-alert-all-big-social-apps-down/"><u>Online Outage Alert: All Big Social Apps Down</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overwatch-graphic-driver-issue-resolved-updated-gameplay-experience/"><u>Overwatch Graphic Driver Issue Resolved - Updated Gameplay Experience</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/professional-file-removal-toolkit-discovering-stellar-erasers-power-on-windows-systems/"><u>Professional File Removal Toolkit: Discovering Stellar Eraser's Power on Windows Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-life-rewind-what-happens-after-you-unplug/"><u>Real Life Rewind: What Happens After You Unplug</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/syma-x5c-rc-quadcopter-analysis-value-for-money-in-consumer-drones/"><u>SYMA X5C R/C Quadcopter Analysis: Value for Money in Consumer Drones</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-list-before-unlinking-from-fb/"><u>The Essential List Before Unlinking From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-path-less-connected-your-guide-to-leaving-facebook/"><u>The Path Less Connected: Your Guide to Leaving Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-selective-nature-of-social-network-news-feeds/"><u>The Selective Nature of Social Network News Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/ux-guile-in-the-digital-age-a-privacy-perspective/"><u>UX Guile in the Digital Age: A Privacy Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-gathering-made-easy-using-your-facebook-portal-tv/"><u>Virtual Gathering Made Easy: Using Your Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vibrancy-dynamize-your-facebook-assembly/"><u>Virtual Vibrancy: Dynamize Your Facebook Assembly</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-we-know-facebooks-re-naming-speculations/"><u>What We Know: Facebook's Re-Naming Speculations</u></a></li>
+<li><a href="https://facebook.techidaily.com/wipe-your-facebook-traces-on-android-devices/"><u>Wipe Your Facebook Traces on Android Devices</u></a></li>
+</ul></div>

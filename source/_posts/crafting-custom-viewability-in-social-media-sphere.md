@@ -1,7 +1,7 @@
 ---
 title: Crafting Custom Viewability in Social Media Sphere
-date: 2024-07-12T11:04:05.176Z
-updated: 2024-07-13T11:04:05.176Z
+date: 2024-08-15T18:38:13.209Z
+updated: 2024-08-16T18:38:13.209Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,9 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 ![facebook chat settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-chat-settings-updated.jpg)
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
@@ -70,8 +73,14 @@ thumbnail: https://thmb.techidaily.com/3681ab3fb1278f9c5e283b2684cc0a6da110630db
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 
 Close
 
@@ -104,13 +113,26 @@ This is different from a full Facebook block.
 2. Select their name to bring up a menu of settings.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 4. Choose the option for**Block messages and calls** .  
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
@@ -134,3 +156,39 @@ This is different from a full Facebook block.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-eyecatch-protector-cam-cover/"><u>[Updated] 2024 Approved  Eyecatch Protector Cam Cover</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-highlighting-the-best-ios-psp-emulators-1-5/"><u>[Updated] In 2024, Highlighting the Best iOS PSP Emulators #1-5</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-rethinking-recipes-squared-up-tutorials-for-youtube-and-facebook-success/"><u>2024 Approved  Rethinking Recipes  Squared-Up Tutorials for YouTube and Facebook Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-tips-for-producing-high-quality-hdr-photographs-with-lightroom/"><u>2024 Approved  Tips for Producing High-Quality HDR Photographs with Lightroom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-deep-dive-into-the-apple-homepod-mini-experience-listening-pleasure-and-voice-assistant-insights/"><u>A Deep Dive Into the Apple HomePod Mini Experience: Listening Pleasure & Voice Assistant Insights</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/aoc-agon-pro-ag456uczd-unveiled-the-revolutionary-ultra-wide-oled-game-monitor-with-an-edge-radius-defining-45-display-extreme-curvature-and-blistering-perf5/"><u>AOC Agon Pro AG456UCZD Unveiled – The Revolutionary Ultra-Wide OLED Game Monitor with an Edge Radius Defining 45 Display, Extreme Curvature & Blistering Performance Reviewed!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-non-appearance-of-tiny-vid-content-for-2024/"><u>Cured  Non-Appearance of Tiny Vid Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-an-inaccessible-account-on-social-networking-site-fb/"><u>Fixing an Inaccessible Account on Social Networking Site - FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-recover-deleted-facebook-posts/"><u>How to Recover Deleted Facebook Posts</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-8-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone 8?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-elevate-gaming-experience-through-perfect-recordings/"><u>In 2024, Elevate Gaming Experience Through Perfect Recordings</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-kitchen-kings-and-queens-crown-your-channel-with-a-name/"><u>In 2024, Kitchen Kings & Queens  Crown Your Channel With a Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-expands-reels-with-advertising-facebook-explores-stickers/"><u>Instagram Expands Reels with Advertising, Facebook Explores Stickers</u></a></li>
+<li><a href="https://facebook.techidaily.com/join-facebooks-metaverse-creation-seeking-10k-talents/"><u>Join Facebook's Metaverse Creation - Seeking 10K Talents!</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-visibility-choosing-a-strong-fb-photo/"><u>Maximizing Visibility: Choosing a Strong Fb Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-media-restrictions/"><u>Navigating Through Facebook’s Media Restrictions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-how-to-slice-3gp-videos-into-smaller-clips-2023-tutorial/"><u>New 2024 Approved How to Slice 3GP Videos Into Smaller Clips 2023 Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-control-updates-on-childs-messenger-details/"><u>Parental Control Updates on Child's Messenger Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/peering-into-facebooks-content-regulation-entities/"><u>Peering Into Facebook’s Content Regulation Entities</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-away-from-pics-lessons-learned-in-disconnecting/"><u>Post Away From Pics: Lessons Learned in Disconnecting</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-your-online-persona-with-a-new-profile-picture/"><u>Revamping Your Online Persona with a New Profile Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-networks-identifying-fb-intrusions/"><u>Secure Your Social Networks: Identifying FB Intrusions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/skip-chatgpt-embrace-these-7-automatic-coding-programs-for-developers/"><u>Skip ChatGPT, Embrace These 7 Automatic Coding Programs for Developers</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-popular-facebook-hurdles-strategies-to-resolve-them/"><u>Tackling Popular Facebook Hurdles: Strategies to Resolve Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/testing-marketing-potential-sticker-ads-in-story-formats-on-fbinsta/"><u>Testing Marketing Potential: Sticker Ads in Story Formats on FB/Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-covert-concept-of-acceptance-on-fb-networks/"><u>The Covert Concept of Acceptance on FB Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-sleuths-guide-to-unmasking-digital-dissemblers/"><u>The Social Sleuth's Guide to Unmasking Digital Dissemblers</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-friends-suggestion-on-facebook/"><u>Turn Off Friends Suggestion on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-subtextual-dialogue-in-online-communities/"><u>Understanding Subtextual Dialogue in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-trumps-digital-history/"><u>Unearthing Trump’s Digital History</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-world-awaits-6-compelling-reasons-for-facebooks-metaverse-journey/"><u>Virtual World Awaits: 6 Compelling Reasons for Facebook's Metaverse Journey</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/what-makes-a-viral-video-the-tiktok-twitter-link/"><u>What Makes a Viral Video  The TikTok-Twitter Link</u></a></li>
+</ul></div>

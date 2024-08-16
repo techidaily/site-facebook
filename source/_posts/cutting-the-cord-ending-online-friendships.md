@@ -1,7 +1,7 @@
 ---
 title: "Cutting the Cord: Ending Online Friendships"
-date: 2024-07-12T11:03:43.359Z
-updated: 2024-07-13T11:03:43.359Z
+date: 2024-08-15T18:38:32.224Z
+updated: 2024-08-16T18:38:32.224Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,9 @@ thumbnail: https://thmb.techidaily.com/0cf9688fb864217953ed20bc37cbae8628a2ed0f2
 * [How to Take a Break From Someone on Facebook](#how-to-take-a-break-from-someone-on-facebook)
 * [How to Stop Taking a Break on Facebook](#how-to-stop-taking-a-break-on-facebook)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Facebook's "Take a Break" feature allows you to mute updates from a friend without unfriending them.
@@ -91,6 +94,10 @@ Here, you'll find three options.
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ## How to Stop Taking a Break on Facebook
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
@@ -98,11 +105,17 @@ Here, you'll find three options.
 * Visit the [Take a Break quicklink on Facebook](https://web.facebook.com/take%5Fa%5Fbreak) .
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
@@ -117,11 +130,17 @@ Here, you'll find three options.
 * Select**No longer limit what X can see** and click**Save** .
 
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
@@ -144,3 +163,48 @@ Here, you'll find three options.
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-cutting-edge-techniques-for-youtube-video-edits-via-wm-maker/"><u>[New] 2024 Approved  Cutting-Edge Techniques for YouTube Video Edits via WM Maker</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-optimizing-vimeo-video-speed-rates-for-2024/"><u>[New] Optimizing Vimeo Video Speed Rates for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-premier-5-online-communities-ascending-beyond-twitter-for-2024/"><u>[New] Premier 5 Online Communities Ascending Beyond Twitter for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-essential-5-apps-to-download-social-media-video-clips/"><u>[Updated] Essential 5 Apps to Download  Social Media Video Clips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-best-free-tool-your-android-unhindered/"><u>[Updated] In 2024, Best Free Tool  Your Android, Unhindered</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-film-techniques-on-youtube-by-future-visionaries/"><u>[Updated] In 2024, Essential Film Techniques on YouTube by Future Visionaries</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-essential-tools-and-tricks-for-minecraft-recordings/"><u>[Updated] In 2024, Essential Tools and Tricks for Minecraft Recordings</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-8-iphonecomputer-apps-for-seamless-video-editing-for-2024/"><u>[Updated] Top 8 iPhone/Computer Apps for Seamless Video Editing for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-best-smile-generator-for-memes/"><u>2024 Approved  Best Smile Generator for Memes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/6-proven-methods-to-fully-integrate-with-languages/"><u>6 Proven Methods to Fully Integrate with Languages</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/charting-earnings-from-youtube-adsense-what-you-can-expect-per-1000-views-for-2024/"><u>Charting Earnings From YouTube AdSense  What You Can Expect per 1,000 Views for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-newly-watched-fb-videos-efficiently/"><u>Exploring Newly Watched FB Videos Efficiently</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-momentum-stalled-by-5-infamous-incidents/"><u>Facebook’s Momentum Stalled by 5 Infamous Incidents</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-novice-to-connoisseur-deciphering-social-media-symbolism/"><u>From Novice to Connoisseur: Deciphering Social Media Symbolism</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-ensure-fair-payment-for-artists/"><u>How Does Facebook Ensure Fair Payment for Artists?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>In 2024, 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-xiaomi-redmi-note-12-pro-4g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Xiaomi Redmi Note 12 Pro 4G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-to-apple-iphone-6-drfone-by-drfone-ios/"><u>In 2024, How to Mirror PC to Apple iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-browsing-through-friends-facebook-journeys/"><u>Insightful Browsing Through Friends' Facebook Journeys</u></a></li>
+<li><a href="https://facebook.techidaily.com/major-mistakes-a-look-at-tech-fails-of-22/"><u>Major Mistakes: A Look at Tech Fails of '22</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-shortcut-setup-guide/"><u>Mastering FB: Shortcut Setup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-gold-vs-twitter-silver-true-status-comparison/"><u>Meta Gold Vs. Twitter Silver: True Status Comparison</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-spontaneous-social-media-ousters/"><u>Navigating Spontaneous Social Media Ousters</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-world-life-beyond-facebook/"><u>Offline World: Life Beyond Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pioneering-physical-activity-bests-in-virtual-treadmills-for-2024/"><u>Pioneering Physical Activity  Bests in Virtual Treadmills for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-implications-the-aftermath-of-facial-id-removal-on-social-media/"><u>Privacy Implications: The Aftermath of Facial ID Removal on Social Media</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/proficiency-through-practice-using-ez-grabber/"><u>Proficiency Through Practice  Using EZ Grabber</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-examine-shared-experiences-via-facebook/"><u>Re-Examine Shared Experiences via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/saturation-point-is-facebook-there-now/"><u>Saturation Point – Is Facebook There Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-stitching-piecing-together-profile-and-group-links/"><u>Social Stitching: Piecing Together Profile & Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/speed-boost-top-10-lightweight-android-apps/"><u>Speed Boost: Top 10 Lightweight Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-scams-in-social-swapping-platforms-protective-guidelines-revealed/"><u>Spotting Scams in Social Swapping Platforms – Protective Guidelines Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-sign-ins-and-share-strategies-for-fb-groups/"><u>Stealthy Sign-Ins and Share Strategies for FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tidbit-facebook-prototype-smartwatch-features-dual-lenses/"><u>Tech Tidbit: Facebook Prototype Smartwatch Features Dual Lenses?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-networker-eliminating-public-view-of-fb-stories/"><u>The Invisible Networker: Eliminating Public View of Fb Stories</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-checklist-for-zoom-recording/"><u>The Ultimate Checklist for Zoom Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-home-entertainment-with-facebook-portals-for-videocalls/"><u>Transforming Home Entertainment with Facebook Portals for Videocalls</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/tuning-up-large-display-on-win11/"><u>Tuning Up Large Display on Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-power-dynamics-between-metaai-and-bots/"><u>Unraveling the Power Dynamics Between MetaAI and Bots</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-policy-change-rollout-beyond-may-15/"><u>WhatsApp Pauses Policy Change Rollout Beyond May 15</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
+</ul></div>

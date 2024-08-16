@@ -1,0 +1,207 @@
+---
+title: Key Approaches to Restore Deactivated Facebook ID
+date: 2024-08-15T18:47:37.095Z
+updated: 2024-08-16T18:47:37.095Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Key Approaches to Restore Deactivated Facebook ID
+excerpt: This Article Describes Key Approaches to Restore Deactivated Facebook ID
+keywords: Reactivate FB Account,Unlock Facebook ID,Resetting FB Password,Recovering Deactivated FB,Reviving Deactivated ID,Restore Fb Login,Facebook ID Reactivation
+thumbnail: https://thmb.techidaily.com/a8a502e12209ca4cf0a910d9af6975208a0b7497dd6ac900e046b6637a6b7e0e.jpg
+---
+
+## Key Approaches to Restore Deactivated Facebook ID
+
+ Your Facebook account isn't as safe as it could be. Unless you only just updated all your security settings, chances are your password is too weak, your information has changed, or you don't have a two-factor authentication backup.
+
+This makes you vulnerable to losing access to your account.
+
+ Let us show you how you can secure your Facebook account right now while you can still log in. Should you forget your password, lose your phone, or get hacked, you'll have multiple ways to recover and secure your Facebook account.
+
+## 1\. Check Your Important Security Settings
+
+![Facebook Check Your Important Security Settings Guide](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Check-Your-Important-Security-Settings-Guide.jpg)
+
+ Facebook has a neat little tool that lets you review your account's most important security settings.
+
+ Open Facebook in your desktop browser, expand the**Account menu** in the top right, and head to**Settings & privacy > Settings** , then switch to the**Security and Login** screen, click the[Check Your Important Security Settings](https://www.facebook.com/privacy/review/?review%5Fid=573933453011661) link at the top, and follow the on-screen guide.
+
+ Ideally, your password should be OK, two-factor authentication enabled, and login alerts turned on. The tool will help you close those three particular security gaps, but we'll also show you how to double-check everything manually too.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## 2\. Update Your Contact Information
+
+![Facebook General Account Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-General-Account-Settings.jpg)
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
+
+ A fairly easy way to recover your Facebook password is through alternative contact information, such as email addresses and mobile phone numbers.
+
+ Obviously, this only works if you have access to the respective accounts. So make sure your contact information is up-to-date.
+
+**Note:** To add or remove personal data, you'll need to enter your Facebook password. This ensures that no one can change your information, should you ever forget to log yourself out of your account at a publicly accessible computer.
+
+Here are the contact details you can update and how to do so...
+
+### Email Address
+
+![Facebook Add Another Email Address](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Add-Another-Email-Address.jpg)
+
+ Head to**Account > Settings & privacy > Settings** , which should send you to the[**General** account settings](https://www.facebook.com/settings?tab=account) . Here, click**Edit** next to**Contact** to see all the email addresses added to your account.
+
+ Make sure you have access to all these accounts, remove outdated email addresses, and add additional ones as needed. We recommend that you have at least two email addresses associated with your Facebook account.
+
+ When you add an email address, a confirmation will be sent to your primary address. As a security precaution, this confirmation includes a link that allows you to cancel the request of adding a new email.
+
+ In other words, having a working email address on record is an extra layer of security, as you will be notified of changes and can prevent them, while at the same time being able to use that address to recover access to your account.
+
+### Mobile Phone Number
+
+![Facebook Confirm Your Number](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Confirm-Your-Number.jpg)
+
+ Now let's check the phone numbers attached to your Facebook account. Switch to the[**Mobile** settings](https://www.facebook.com/settings?tab=account&section=email&view) screen and review the phone numbers listed here.
+
+ As with the email addresses, we recommend that you have at least one backup, i.e. two mobile phone numbers added to your Facebook account.
+
+ To add a mobile phone number, you can choose between receiving a text message or a call to verify the number. You'll receive a confirmation code that you can enter on the**Mobile Settings** page.
+
+ Note that this only works with selected carriers and if your mobile carrier is supported, they might charge a fee for receiving Facebook's call or text message.
+
+ Related:[How to Recover Your Facebook Account When You Can't Log In](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/)
+
+## 3\. Update Your Password
+
+![Facebook Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Change-Password.jpg)
+
+ A weak password is one of the most likely ways to get your account hacked. A strong password is just as bad if you're using it for more than one online account.
+
+ Since passwords can leak, you should also update your password about once a year.
+
+ Head to Facebook**Settings** and switch to the[**Security and Login** settings](https://www.facebook.com/settings?tab=security&section=browsing&view) screen. Under**Login** , click**Edit** next to the**Change password** field.
+
+ Enter your current password, followed by two copies of your new password. Click Save changes and don't forget to update your[password manager](https://www.makeuseof.com/tag/4-open-source-password-managers-passwords-safe/) or note down your password in a secure place, for example, a paper-based address book.
+
+ Related:[How to Create a Strong Password You Won't Forget](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
+## 4\. Enable Login Notifications
+
+![Facebook Setting Up Extra Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Setting-Up-Extra-Security.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ To receive email or text message notifications when someone logs into your Facebook account from a new device or location, set up login alerts.
+
+ Head to Facebook **Settings >[Security and Login](https://www.facebook.com/settings?tab=security)**  , scroll down to**Setting Up Extra Security** , and click**Edit** next to the**Get alerts about unrecognized logins** option.
+
+ You can have the alerts sent to your Facebook account, Messenger, and any of the email addresses associated with your account; the more, the merrier.
+
+ Be sure to click**Save changes** when you're done.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+## 5\. Enable Two-Factor Authentication
+
+![Facebook Two-Factor Authentication and Authorized Logins](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Facebook-Two-Factor-Authentication-and-Authorized-Logins.jpg)
+
+ Two-factor authentication makes it more difficult for someone else to log into your Facebook account. Every time anyone (even you) wants to log into your Facebook account from an unauthorized device, they will need to provide a security code.
+
+ You can receive this code under your primary phone number, Facebook's own code generator, or a third-party authentication tool.
+
+ To enable Facebook's two-factor authentication, go to Facebook **Settings >[Security and Login](https://www.facebook.com/settings?tab=security)**  , scroll down to**Two-factor authentication** , and click**Edit** next to the**Use two-factor authentication** option.
+
+ You'll have to enter your password before Facebook redirects you to its dedicated[Two-factor authentication page](https://www.facebook.com/security/2fac/settings) , where you can turn two-factor authentication on or off, manage your security methods, and add a backup method.
+
+We highly recommend that you set up the following security methods:
+
+* **Text message (SMS)** : You can use any of the phone numbers associated with your Facebook account. Since you can only use one at a time, make sure you're using the one you'll most likely have access to in months or years from now. If you change your phone number, remember to update your preferred phone number here.
+* **Authentication app:** You can receive your login code in most third-party authenticator apps, including Duo and Google Authenticator. Just use the respective app to scan the provided QR code or manually enter a code to unlock the feature.
+* **Recovery codes:** When all of the above methods fail, it's good to have recovery codes as a backup. You can write the codes down or save them in a secure location.
+
+ Note that you can always log in to your account using a previously authorized computer. And it's a good idea to double-check that list from time to time.
+
+ You can find it under Facebook**Settings > Security and Login** , scroll down to**Two-factor authentication** , then click**View** next to the**Authorized Logins** option.**Remove** all outdated devices or those you're not familiar with.
+
+ Related:[How to Use Facebook Two-Factor Authentication](https://www.makeuseof.com/tag/how-to-use-facebook-login-approvals-code-generator-android/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## Your Facebook Account Saved
+
+ It goes without saying that you should log out of your Facebook account after you are finished using it. You should also be very careful with Facebook apps and where you use Facebook to log into other services.
+
+ Generally, if you follow some common-sense practices, have a strong password that you never share, and update frequently, your account should be safe.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-top-tips-for-shooting-high-quality-youtube-videos/"><u>[New] 2024 Approved  Top Tips for Shooting High-Quality YouTube Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-capture-and-share-the-world-in-high-definition-with-mi-11s-screenshot-capabilities-for-2024/"><u>[New] Capture and Share the World in High Definition with Mi 11'S Screenshot Capabilities for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-spinning-jujutsu-kaisen-stories-on-tiktok-for-2024/"><u>[Updated] Spinning Jujutsu Kaisen Stories on TikTok for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-swiftly-convert-creepy-slow-videos-with-best-apps/"><u>[Updated] Swiftly Convert Creepy-Slow Videos with Best Apps</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-eliminate-background-noise-from-video-files-freepriced/"><u>2024 Approved  Eliminate Background Noise From Video Files (Free/Priced)</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-effective-money-making-tactics-on-social-platforms/"><u>5 Effective Money-Making Tactics on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/channels-as-pathways-within-facebook-communities/"><u>Channels as Pathways Within Facebook Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealing-your-images-simplified-fb-guide/"><u>Concealing Your Images, Simplified: FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-cyberspace-30-the-metaverse-reality/"><u>Decoding Cyberspace 3.0: The Metaverse Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/deny-hidden-network-proposals-on-social-site/"><u>Deny Hidden Network Proposals on Social Site</u></a></li>
+<li><a href="https://facebook.techidaily.com/digging-deeper-rethinking-the-stigma-around-fb-reports/"><u>Digging Deeper: Rethinking The Stigma Around FB Reports</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-potential-candidates-tips-on-posting-jobs-on-facebook/"><u>Engaging Potential Candidates: Tips on Posting Jobs on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/enhancing-beauty-on-streams-via-color-grading/"><u>Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-current-top-decision-makers/"><u>Facebook's Current Top Decision-Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-judgment-properly-ban-trump-with-time-restriction/"><u>Facebook's Judgment: Properly Ban Trump, With Time Restriction</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-find-x7-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Oppo Find X7 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-entry-after-forgotten-or-revoked-login-credentials/"><u>How to Regain Entry After Forgotten or Revoked Login Credentials</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupted-pdf-v15-file-when-manual-method-fails-by-stellar-guide/"><u>How to repair corrupted PDF v1.5 file when manual method fails</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-no-gps-signal-heres-every-possible-solution-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokemon Go No GPS Signal? Heres Every Possible Solution On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-report-300-investment-in-headsets-for-account-security/"><u>Insight Report: $300 Investment in Headsets for Account Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-threads-is-shutting-down-in-december-heres-why/"><u>Instagram Threads Is Shutting Down in December: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-facebook-secure-spotting-and-resolving-breaches/"><u>Is Your Facebook Secure? Spotting & Resolving Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-and-found-precise-steps-to-restore-your-fb-sign-in/"><u>Lost and Found: Precise Steps to Restore Your FB Sign-In</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mac-and-monitor-woes-fixing-undetected-external-display-problems/"><u>Mac and Monitor Woes: Fixing Undetected External Display Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-mobile-facebook-exploration/"><u>Mastery Over Mobile Facebook Exploration</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-encryption-truthful-or-not/"><u>Messenger Encryption: Truthful or Not?</u></a></li>
+<li><a href="https://facebook.techidaily.com/quell-the-public-forum-strategies-for-curtailing-comments-in-facebook/"><u>Quell the Public Forum: Strategies for Curtailing Comments in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reality-to-rhetoric-ai-transforms-words-in-pictures/"><u>Reality to Rhetoric: AI Transforms Words in Pictures</u></a></li>
+<li><a href="https://facebook.techidaily.com/saving-your-social-footprint-regaining-deleted-fb-stories/"><u>Saving Your Social Footprint: Regaining Deleted FB Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-platforms-adapt-to-sponsored-feature-trends/"><u>Social Networking Platforms Adapt to Sponsored Feature Trends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-saga-tracing-facebooks-footprints/"><u>The Metaverse Saga: Tracing Facebook's Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-secret-keepers-playbook-private-photos-on-fb/"><u>The Secret Keeper’s Playbook: Private Photos on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-metrics-and-tools-for-thriving-businesses/"><u>Top 4 Metrics & Tools for Thriving Businesses</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-new-tunes-with-a-mini-player-spotify-in-the-facebook-app/"><u>Uncover New Tunes with a Mini Player – Spotify in the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-new-facebook-structure-revelations/"><u>Understanding New Facebook Structure Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unintended-exposure-have-my-personal-and-phone-numbers-been-shared-on-facebook/"><u>Unintended Exposure: Have My Personal and Phone Numbers Been Shared on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-members-efficiently-through-group-channels/"><u>Uniting Members Efficiently Through Group Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-full-featured-spotify-use-in-facebook/"><u>Unlocking Full-Featured Spotify Use in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-mysteries-of-filter-bubble-act/"><u>Unraveling the Mysteries of Filter Bubble Act</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-out-a-storm-of-negative-headlines-for-fb/"><u>Watch Out! A Storm of Negative Headlines for FB</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-oppo-find-x7-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Oppo Find X7 Ultra | Dr.fone</u></a></li>
+</ul></div>

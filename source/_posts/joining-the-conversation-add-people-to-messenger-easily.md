@@ -1,0 +1,178 @@
+---
+title: "Joining the Conversation: Add People to Messenger Easily"
+date: 2024-08-23T02:13:06.244Z
+updated: 2024-08-24T02:13:06.244Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Joining the Conversation: Add People to Messenger Easily"
+excerpt: "This Article Describes Joining the Conversation: Add People to Messenger Easily"
+keywords: Join Messages Chat,Easy Chat Invite,Message More Friends,Add to DMs Quickly,Messenger Convo Expand,Chat New Users Now,Sign Into Messenger Group
+thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc972c34955c94cad23467f1e0.jpg
+---
+
+## Joining the Conversation: Add People to Messenger Easily
+
+ Facebook Messenger is a great way of keeping in touch with family, friends, and acquaintances. It’s a free app owned by Meta, formerly Facebook Inc., that lets you send private messages to anyone in your contacts.
+
+ But how can you actually add contacts to Facebook Messenger? Can you add them on Messenger but not on Facebook? And what if they don’t even have Facebook?
+
+## How Do I Add New Contacts on Messenger?
+
+ If you have the person you want to interact with already added as a Facebook friend, you can chat to them via Messenger really easily.
+
+ Simply open the Messenger app if you’ve got it on your smartphone (or click on the service’s icon, which looks like a speech bubble with a lightning bolt inside, via Facebook on your browser).
+
+ Go to the**Chat** interface, at the bottom left of your screen. You can then either click on**Search** and see suggested recipients or click on the “compose” button, which looks like a small pen inside a square box; on smartphone apps, this is at the top-right of your screen.
+
+ Suggested contacts will appear, or you can type in a name in the “To:” field to filter that list. All applicable Facebook friends and groups will appear, so simply click on the one you want and start talking!
+
+## Does Messenger Automatically Add Contacts?
+
+![Facebook Messaging service](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/The-Messenger-app-logo.jpg)
+
+ You might have opened Messenger and been shocked to see a list of people who you can chat to right away. That’s because Messenger automatically adds your friends from Facebook to Messenger.
+
+ So what about adding people you know from your smartphone? You might want to add all your contacts (or at least those using Facebook) to Messenger.
+
+ All you need to do is go to your profile by clicking on your photo icon at the top-left of your interface. Next, tap on**Phone contacts > Upload contacts** .
+
+ If you change your mind afterwards, you can do this process again to unsync the two.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
+### How Do I Sync My Contacts From Facebook to Messenger?
+
+ You can also open Messenger and navigate to**People** . You’ll see a list of friends who are currently active. Tap the address book symbol on the top-right of your screen; this will show you the people who are in your phone contacts list and who use Facebook. Click on any of them to start chatting.
+
+## Can I Add Someone on Messenger but Not Facebook?
+
+![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
+
+![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+Close
+
+ You don’t need to add someone as a friend on Facebook in order to chat to them on Messenger.
+
+ All you have to do is go on Facebook, search for their name, and click on the profile of the person you want to chat to. Underneath their profile picture and banner, you’ll see three icons. You don’t want to click on the ellipsis, or on “Add Friend”. Instead, click**Message** . This will open up the Messenger app and let you talk to them.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+## Can You Add Someone on Messenger Without a Facebook Profile?
+
+ There used to be simple ways to use Messenger without being on Facebook too, chiefly through adding phone numbers. However, since Facebook’s parent company refocused itself as Meta, this option has gone.
+
+ Nonetheless,[you don’t need Facebook to use Messenger](https://www.makeuseof.com/tag/use-messenger-without-facebook/) —or at least, you don’t have to be active on Facebook to still use the chat function. The onus here, though, is on the person you’re trying to connect with. If you can chat to them elsewhere, you might need to guide them through joining Facebook, deactivating their account (but not deleting it!), and then connecting on Messenger.
+
+ Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Why Can’t I Add Someone on Messenger?
+
+![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
+ This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
+
+ If you haven’t done this yourself, go to your profile, then tap**Mobile number > Add mobile number** and add your number. Facebook will text you a verification code to check it’s correct.
+
+ This has a few benefits, including resetting your password if you have trouble logging in, and receiving SMS notifications about your account.
+
+ The downside is that you’re giving away more information about yourself: Facebook uses this to “improve personalized ads”, i.e. if you buy something from a shop by clicking via Facebook, all that data is linked to you. Social media apps don’t exactly have the best reputation[when it comes to looking after your privacy](https://www.makeuseof.com/apps-avoid-privacy/) …
+
+ In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
+
+## How Do I Delete Chats From Messenger?
+
+ Let’s say you’ve got loads of chat threads open on Messenger now and want to close some. You have a few options to delete the conversations. In case you’re wondering, blocking someone won’t delete the chats on Messenger, but they won’t be able to send new messages from that account.
+
+So how can you delete old messages on Messenger?
+
+ Open Messenger then tap and hold on the conversation thread you want to get rid of. A box will open underneath with numerous options. From here, you can**Mute** , meaning you won’t get notifications from that person, **Delete** , or**Archive** .
+
+ You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## Add Friends on Messenger With Ease
+
+ You can now keep in touch with your family and friends easily through Facebook and its associated Messenger app. Of course, there are plenty of instant messaging alternatives, but if you’re intent on sticking with Meta, you can at least make sure your chats are secure by keeping them encrypted too.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-aspect-ratio-preferences-on-facebook-vids/"><u>[New] Aspect Ratio Preferences on Facebook Vids</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-enhancing-video-content-step-by-step-cropping-and-export-guide/"><u>[New] Enhancing Video Content  Step-by-Step Cropping & Export Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[New] In 2024, From Average to Exceptional  Discover the Finest Free Intra Designs</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-metaverse-musings-top-30-quotes-for-immersive-living/"><u>[New] Metaverse Musings  Top 30 Quotes for Immersive Living</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-engage-and-learn-students-choice-of-best-historical-youtubes/"><u>[Updated] Engage & Learn  Students' Choice of Best Historical YouTubes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-master-your-youtube-content-with-superior-webm-converters/"><u>[Updated] Master Your YouTube Content with Superior WebM Converters</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-real-time-photo-editing-on-the-go-cropping-techniques/"><u>[Updated] Real-Time Photo Editing  On-the-Go Cropping Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-content-dilemma-deciding-on-the-best-platform-igtv-or-youtube/"><u>[Updated] The Content Dilemma  Deciding on the Best Platform - IGTV or YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-snapchat-slideshow-technique-for-2024/"><u>[Updated] The Ultimate Snapchat Slideshow Technique for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-headsets-a-new-hacked-account-reset-method/"><u>$300 Oculus Headsets, A New Hacked Account Reset Method</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-essential-strategies-successful-webcam-and-gaming-recordings/"><u>2024 Approved  Essential Strategies  Successful Webcam & Gaming Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-reasons-why-social-media-is-actually-good-for-you/"><u>9 Reasons Why Social Media Is Actually Good for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-outshine-regular-chatbot-systems/"><u>Can MetaAI Outshine Regular Chatbot Systems?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mp4-files-on-samsung-galaxy-s23-fe-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung Galaxy S23 FE</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-external-fb-appswebsites/"><u>Enhancing Interaction with External FB Apps/Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-foundations-of-facebooks-operational-plan/"><u>Exploring the Foundations of Facebook's Operational Plan</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/exploring-the-youtube-content-manager-toolkit-for-2024/"><u>Exploring the YouTube Content Manager Toolkit for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-virtual-societal-divisions-with-facebook/"><u>Exploring Virtual Societal Divisions with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-policy-2023-politics-and-religion-out-of-sight/"><u>Facebook Policy 2023: Politics and Religion Out of Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-friendly-networking-spaces/"><u>Greatest Age-Friendly Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-multi-group-posts-for-greater-engagement/"><u>Harnessing the Power of Multi-Group Posts for Greater Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-and-remove-shortcuts-on-facebook/"><u>How to Add and Remove Shortcuts on Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/hp-notebook-efficient-screen-capture-strategies-for-2024/"><u>HP Notebook  Efficient Screen Capture Strategies for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-components-to-creativity-designing-your-own-4k-editor-pc/"><u>In 2024, From Components to Creativity  Designing Your Own 4K Editor PC</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-setup-and-strategies-for-youtube-gamers-live-sessions/"><u>In 2024, Setup and Strategies for YouTube Gamers' Live Sessions</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-oppo-find-x7-ultra-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Oppo Find X7 Ultra Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-transform-your-videos-on-demand-freedom-through-editing-android-edition/"><u>In 2024, Transform Your Videos on Demand  Freedom Through Editing, Android Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-uncovering-the-top-4-social-shifts-online/"><u>Interactive Evolution: Uncovering the Top 4 Social Shifts Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-age-wisdom-teens-heeding-the-call-to-unplug-from-instagram/"><u>New Age Wisdom: Teens Heeding the Call to Unplug From Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstructive-oddities-of-a-stopped-up-facebook-page/"><u>Overcome the Obstructive Oddities of a Stopped-Up Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-locations-unveiling-freelancer-openings/"><u>Prime Locations Unveiling Freelancer Openings</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-insights-busting-top-10-facebook-fables/"><u>Social Media Insights: Busting Top 10 Facebook Fables</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/techniques-to-reclaim-your-exclusive-snaps-for-2024/"><u>Techniques to Reclaim Your Exclusive Snaps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-true-nature-of-metaverse-versus-vr-six-factors/"><u>Uncovering The True Nature of Metaverse Versus VR: Six Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-misdirection-in-digital-consent/"><u>Understanding Misdirection in Digital Consent</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 14 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unraveling-the-secrets-to-gently-fading-audio-in-audacity/"><u>Unraveling the Secrets to Gently Fading Audio in Audacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
+</ul></div>

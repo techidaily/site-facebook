@@ -1,0 +1,203 @@
+---
+title: Unveiling Alternatives to Facebook Usage
+date: 2024-08-23T02:12:09.901Z
+updated: 2024-08-24T02:12:09.901Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Unveiling Alternatives to Facebook Usage
+excerpt: This Article Describes Unveiling Alternatives to Facebook Usage
+keywords: Social Media Beyond FB,Exploring Non-Facebook Platforms,Diversify Digital Interactions,Life Without Facebook,Alternative Networking Sites,Reducing Dependence on FB,New Social Sites Discovery
+thumbnail: https://thmb.techidaily.com/f52859b8cd9dd422cf0c712696f19c9a8d2ea9a54ae99a71f15e709bfd0f373c.jpg
+---
+
+## Unveiling Alternatives to Facebook Usage
+
+ Facebook has endured several scandals over the years, and these invariably concern the privacy and security of its users. This led to the #DeleteFacebook campaign, and you might have been tempted to delete Facebook as a result.
+
+ However, there is another option. Rather than deleting Facebook, you can just deactivate your account. But what happens when you deactivate your Facebook account? If you deactivate Facebook, can you still use Messenger? And what does deleting Facebook mean in contrast to deactivating it?
+
+## What Is the Difference Between Deleting and Deactivating Facebook?
+
+![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
+
+ There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
+
+ Deactivation is for people who aren't certain they want to leave Facebook forever. If you just want to take a sabbatical from social media, deactivation is a good option, although it's not the only one. You could merely ignore Facebook without deactivating it, but that depends on how tempted you'll be to return.
+
+ Deleting Facebook is more permanent. It's a decision that you shouldn't take lightly. If you delete your account, you can't come back and expect any of your data to still be intact. There is a way to start again, but we'll return to that later on.
+
+## Can People Search for Me if I Deactivate Facebook?
+
+ People can still search for you, but your profile shouldn't show up—that is, in theory.
+
+ Your timeline will disappear, alongside your list of "likes". That should happen immediately, though you'll need to jump through a few hoops to get to that stage. Everything will be invisible.
+
+ Similarly, if you delete Facebook, your account will vanish. But full deletion won't happen for a little while because the social network gives you 30 days' leeway before the point of no return.
+
+ If you log back in shortly after deactivating your account, it will be automatically reactivated.
+
+ Otherwise, it takes 90 days for Facebook to remove information on a deleted account from its servers. Some details will still exist, but any personal identifiers will disappear. You'll become a statistic.
+
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Does My Profile Completely Disappear if I Deactivate Facebook?
+
+![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
+
+ Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
+
+ How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
+
+ If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
+
+## Do My Comments Disappear if I Deactivate Facebook?
+
+ If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
+
+ Facebook is obsessed with memories. It likes to make you nostalgic, and remind you of just how long you've used social media. It's to build brand loyalty.
+
+ That's why your comments won't vanish. Your name will appear as plain text since Facebook has removed the link to your account. Facebook will also replace your profile image with a default icon, i.e. a grayed out silhouette.
+
+ And of course, if you choose to reactivate your Facebook account (which we'll come back to), all of those posts will revert to normal: your profile photo will reappear alongside comments. Your name will become a link again too.
+
+ So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
+
+ What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
+
+ If you're concerned that someone has been unusually quiet on Facebook, there are three options to consider. The first is that they're simply busy. Try messaging them to ask if they're okay.
+
+ The next thing you can do is look through your list of friends. If they're still listed, they're probably just preoccupied. If they're not, the second possibility is that they've blocked you. But before you investigate that, question whether they've deleted their account completely.
+
+![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
+
+ So how do you know if someone has blocked you on Facebook or deactivated their account?
+
+ Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
+
+ Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Can I Still Use Messenger Without Facebook?
+
+ You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
+
+[But you can still use Messenger](https://www.makeuseof.com/tag/use-messenger-without-facebook/) even if you don't have a Facebook account.
+
+ When you deactivate your account, Facebook will ask if you want to deactivate Messenger too. Say no, and the Messenger app will retain your information. If you'd prefer to go without the instant messaging service,[you can deactivate Messenger](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) separately.
+
+ In some cases, you'll need to reinstall Messenger after deactivation.
+
+ So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+## Can People See My Messages if I Deactivate Facebook?
+
+ Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
+
+ However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Can You Reactivate a Facebook Account?
+
+ If you've deactivated your Facebook account, all you need to do is log back in to reactivate it. You can change your password if you've forgotten it. Your profile still exists, as does your personal information. Previous messages and comments typically re-appear too.
+
+ Actually, Facebook makes it very easy to reactivate. That's especially true if you've given the social network your phone number. Some users have reported getting texts from Facebook, tempting them back. Clicking on the accompanying link—even accidentally—will reactivate your profile. (Of course, it's dangerous to click on URLs in SMS as they could be malicious phishing links, so be careful!)
+
+![how much does facebook know about me](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-activity.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+ Can you reactivate a deleted Facebook account? You can, but it's more difficult. You'll need to have taken steps to prepare for your reactivation**before** deletion.
+
+ The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
+
+## What Happens to Tagged Photos After Deactivating Facebook?
+
+ Because Facebook has saved your data for your potential return, tags in pictures will still exist. However, those tags will convert to plain text. No one can link those images to a profile. This is also true of any other posts you're tagged in. To reiterate, your profile isn't visible to anyone.
+
+ If you reactivate your account, the tags will reappear as if nothing's happened.
+
+ Much the same happens after deletion; tags will revert to plain text. If you open a new account, those original tags won't link automatically with your name again. Just think of the number of people with the same name as you: you can't expect Facebook to accurately find the right one again.
+
+ Let's say you've deleted your profile, then regretted it, and decided to return. You'll need to ask your contacts to remove previous tags and update them to your new profile.
+
+ Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
+
+## Should You Deactivate or Delete Facebook?
+
+ If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/unnies-in-a-flash-top-10-quick-and-quirky-video-concepts-for-youtubers/"><u>[New] Funnies in a Flash  Top 10 Quick & Quirky Video Concepts for YouTubers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-art-of-effortless-video-size-transformation-on-macos/"><u>[New] In 2024, The Art of Effortless Video Size Transformation on MacOS</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-closer-look-at-the-vegaspro-19-makeover/"><u>2024 Approved  A Closer Look at the VegasPro '19 Makeover</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-convert-vimeo-hd-mp4-format-guide/"><u>2024 Approved  Convert Vimeo HD  MP4 Format Guide</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-tomorrows-teachers-today-through-vr/"><u>2024 Approved  Crafting Tomorrow’s Teachers, Today Through VR</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-how-to-fade-in-and-fade-out-video-clips/"><u>2024 Approved  How to Fade-In and Fade-Out Video Clips</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-a-course-through-the-digital-landscape/"><u>Charting a Course Through the Digital Landscape</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/comprehensive-techniques-for-movie-recording-across-os-and-devices/"><u>Comprehensive Techniques for Movie Recording Across OS and Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discontent-one-star-reviews-rising-for-fb-app-ratings/"><u>Digital Discontent: One-Star Reviews Rising for FB App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-evolution-understanding-the-role-of-news-on-facebook/"><u>Engaging Evolution: Understanding the Role of News on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-account-protection-by-revamping-social-network-phrasing/"><u>Enhancing Account Protection by Revamping Social Network Phrasing</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oppo-reno-11-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-15-pro-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone 15 Pro? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-ultimate-budget-breakdown-how-much-does-it-cost-to-start-a-podcast/"><u>In 2024, Ultimate Budget Breakdown  How Much Does It Cost To Start a Podcast?</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-eliminating-online-track-record-on-facebook/"><u>Master the Art of Eliminating Online Track Record on Facebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-momentum-accelerating-fb-videos-for-2024/"><u>Mastering Momentum  Accelerating FB Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/meticulous-breakdown-of-metas-updated-privacy-statutes/"><u>Meticulous Breakdown of Meta's Updated Privacy Statutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-online-condemnation/"><u>Navigating the World of Online Condemnation</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-noteworthy-transformations-4-essential-shifts-in-social-media/"><u>Networking Noteworthy Transformations: 4 Essential Shifts in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-oculus-go-with-full-access-through-facebook/"><u>New Era for Oculus Go with Full Access Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-echo-chambranle-how-networking-unites-people/"><u>Online Echo Chambranle: How Networking Unites People</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-tech-future-with-facebook-and-rust-fusion/"><u>Pioneering Tech Future with Facebook and Rust Fusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-secrets-skip-these-privacy-invasive-apps/"><u>Protect Your Secrets: Skip These Privacy Invasive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-will-fb-proceed-with-giphy-disintegration/"><u>Reconsidering Ties: Will FB Proceed With Giphy Disintegration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-admiration-how-to-conceal-like-counts-on-sites/"><u>Silent Admiration: How to Conceal Like Counts on Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-relief-7-ways-to-ease-the-overload/"><u>Social Media Relief: 7 Ways to Ease the Overload</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-method-for-fb-photo-and-video-downloads/"><u>The Ultimate Method for FB Photo and Video Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-in-verification-leveraging-facebooks-advanced-moderation-mechanisms/"><u>Virtual Vigilance in Verification: Leveraging Facebook's Advanced Moderation Mechanisms</u></a></li>
+</ul></div>

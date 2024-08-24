@@ -1,7 +1,7 @@
 ---
 title: Are Invisible Programs Deciphering User Behavior for Commerce?
-date: 2024-07-12T10:51:20.291Z
-updated: 2024-07-13T10:51:20.291Z
+date: 2024-08-23T02:07:12.289Z
+updated: 2024-08-24T02:07:12.289Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,9 @@ What is going on?
 
  It sounds unlikely, but the anecdotal evidence is quite compelling. BBC Technology Report Zoe Kleinman [reports an occasion](http://www.bbc.co.uk/news/technology-35639549) when she learned of a friend's death in tragic circumstances, only to find that her friend's name, the accident, location, and year were in the Google search box on her phone.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Reddit Users Think Their Phones Are Listening
 
  Common search terms for this subject on Google include things like: "does iphone listen to you for ads," "can my phone hear me," and "is google listening to my conversations?"
@@ -63,12 +66,18 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your [Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
 
  It does**seem** as though this is something more than coincidence. After all, proving that smartphone mics are collecting data to target content to users is tricky. But as we know that phones and digital assistants are listening, is it really a surprise that companies like Google, Amazon, and Facebook should be interested in what you're saying?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can You Prove If an App Is Listening to You?
 
  Could apps capture audio data using your smartphone's microphone? To find out, cybersecurity experts Ken Munro and David Lodge from Pen Test Partners developed an app. Its aim is to record what was being said in the vicinity of a phone and display it on a monitor.
@@ -79,10 +88,16 @@ What is going on?
 
 ![Woman using a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/muo-security-phone-listening-handset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Do Phones Listen to You? Companies Say “No”
 
  Google and Facebook have both denied that their apps can use smartphone microphones to gather information in this way.
@@ -107,6 +122,9 @@ What is going on?
 
  Surprisingly, not a single topic appeared as adverts, neither as pop-ups nor as inbox spam. There was no Google News feed item, and nothing on any linked devices.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## So, Why Do You Get Ads for Things You Talk About?
 
  We know that Google does record you, just as we know that Amazon does, via the Amazon Echo. But is the information is used for commercial purposes?
@@ -138,3 +156,38 @@ What is going on?
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-learn-quickly-flipping-video-sequence-android-style/"><u>[New] 2024 Approved  Learn Quickly  Flipping Video Sequence Android-Style</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-eizos-masterpiece-delving-into-the-world-of-4k-cg318-4k-for-2024/"><u>[New] EIZO's Masterpiece  Delving Into the World of 4K CG318-4K for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-understanding-the-price-tag-on-youtube-promo/"><u>[New] Understanding the Price Tag on Youtube Promo</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elevating-web-visibility-with-close-up-techniques/"><u>[Updated] Elevating Web Visibility with Close-Up Techniques</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-depth-examination-lg-bp350-screen-specifications-and-reviews/"><u>[Updated] In-Depth Examination  LG BP350 Screen Specifications and Reviews</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-altering-meeting-screens-in-microsoft-teams/"><u>2024 Approved  Altering Meeting Screens in Microsoft Teams</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-capture-the-scene-right-basic-cinematography-for-new-directors/"><u>2024 Approved  Capture the Scene Right  Basic Cinematography for New Directors</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-from-single-shots-to-unified-visions-a-mosaic-story/"><u>2024 Approved  From Single Shots to Unified Visions  A Mosaic Story</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-vivo-y17s-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Vivo Y17s to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-guide-to-finding-innovative-facebook-groups/"><u>A Comprehensive Guide to Finding Innovative Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/americans-favor-detriments-of-online-networking-dominate/"><u>Americans Favor: Detriments of Online Networking Dominate</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-reporting-and-managing-underage-account-usage/"><u>Best Practices: Reporting and Managing Underage Account Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-sarcasm-and-jokes-in-fbc-messages/"><u>Breaking Down Sarcasm & Jokes in FBC Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-voices-facebook-introduces-audiovisual-hub/"><u>Bridging Voices: Facebook Introduces Audiovisual Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-contacts-on-facebook-platform/"><u>Concealed Contacts on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-esteemed-facebook-presence-a-guide/"><u>Crafting an Esteemed Facebook Presence: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/cross-platform-connectivity-share-your-fb-memories-anywhere/"><u>Cross-Platform Connectivity: Share Your Fb Memories Anywhere.</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-new-language-of-facebook-pages-designations/"><u>Decoding The New Language of Facebook Pages' Designations</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-to-end-chat-encryption-for-facebook-insta-pushed-to-2022/"><u>End-to-End Chat Encryption for Facebook, Insta Pushed to 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-listening-our-top-podcast-picks-for-22/"><u>Essential Listening: Our Top Podcast Picks for '22</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-meizu-21-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Meizu 21 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-pursuit-of-privacy-industry-overview/"><u>In Pursuit of Privacy: Industry Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-social-id-check-unveiling-on-fb/"><u>Meta's Social ID Check - Unveiling on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-meets-vr-six-critical-disparities-to-consider/"><u>Metaverse Meets VR: Six Critical Disparities to Consider</u></a></li>
+<li><a href="https://facebook.techidaily.com/profile-picture-strategies-for-social-success/"><u>Profile Picture Strategies for Social Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/reset-your-digital-boundaries-post-facebook-account-hack/"><u>Reset Your Digital Boundaries Post-Facebook Account Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-controvernial-approach-to-advertising/"><u>Social Media's New Controvernial Approach to Advertising?</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-playback-techniques-in-social-media-apps/"><u>Spotify Playback Techniques in Social Media Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-24-hour-cyber-sabbath-for-big-tech/"><u>The 24-Hour Cyber Sabbath for Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-surge-in-telegram-users-during-facebook-shutdown/"><u>Unveiling the Surge in Telegram Users During Facebook Shutdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/verdict-on-holding-facebook-oversight-on-trump-ban/"><u>Verdict on Holding: Facebook Oversight on Trump Ban</u></a></li>
+</ul></div>

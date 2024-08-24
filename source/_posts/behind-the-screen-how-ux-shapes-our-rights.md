@@ -1,7 +1,7 @@
 ---
 title: "Behind the Screen: How UX Shapes Our Rights"
-date: 2024-07-12T10:51:32.944Z
-updated: 2024-07-13T10:51:32.944Z
+date: 2024-08-23T02:07:00.141Z
+updated: 2024-08-24T02:07:00.141Z
 tags:
   - facebook
 categories:
@@ -60,6 +60,10 @@ The site lists 12 types of dark patterns to watch out for:
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled [Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. Default Settings
 
  This dark pattern is pretty obvious. Nobody is surprised that major companies default to collecting a lot of your data. They make money by using your data to show you more relevant ads, as well as selling your information to third parties, so they want as much info as possible.
@@ -70,6 +74,9 @@ The site lists 12 types of dark patterns to watch out for:
 
  A GDPR-compliant setup, without dark patterns, would have no default settings and let everyone choose whatever options they want from the start.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. Ease of Changing Settings
 
  How simple do these companies make it to change privacy settings? If you've ever used Facebook or Google's privacy settings, you won't be surprised to find out that it's hard to turn data-sharing off. These services often choose images and text placement to encourage users to share more data.
@@ -80,6 +87,9 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -92,6 +102,9 @@ The site lists 12 types of dark patterns to watch out for:
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -108,6 +121,9 @@ The site lists 12 types of dark patterns to watch out for:
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. Forced Action and Timing
 
  Do you make good decisions when you're rushed? Do you weigh all the options carefully, thinking about the pros and cons of each choice? Of course not. Under pressure, you feel that you have to pick a suitable option as quickly as possible.
@@ -120,6 +136,9 @@ The site lists 12 types of dark patterns to watch out for:
 
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Fighting Back Against Dark Patterns
 
  Unfortunately, there's not a whole lot you can do about these types of misleading tactics. You're bound to come across them sooner or later on the web. Generally, we recommend that you read over privacy options carefully for all the sites you use. It's important to dig deep into settings to find out what you do and don't have control over.
@@ -159,3 +178,42 @@ The site lists 12 types of dark patterns to watch out for:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-surveying-youtube-interactions/"><u>[Updated] 2024 Approved  Surveying YouTube Interactions</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-free-traffic-on-youtube-tips-that-actually-work/"><u>[Updated] Free Traffic on YouTube  Tips That Actually Work</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-beyond-reality-comparing-vr-augmented-and-mixed-tech/"><u>[Updated] In 2024, Beyond Reality  Comparing VR, Augmented & Mixed Tech</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-low-light-captures-on-your-iphone/"><u>[Updated] Mastering Low-Light Captures on Your IPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-discretionary-measures-steer-clear-of-these-3-apps/"><u>Data Discretionary Measures: Steer Clear of These 3 Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-the-rollout-of-whatsapps-revised-privacy-rules/"><u>Delay in the Rollout of WhatsApp's Revised Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-for-fb-chatters-schedule-revealed-soon/"><u>E2EE for FB Chatters: Schedule Revealed Soon?</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-location-sharing-with-facebook-peers/"><u>Enabling Location Sharing with Facebook Peers</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-prototype-sparks-interest-could-support-two-cameras/"><u>Facebook Prototype Sparks Interest: Could Support Two Cameras?</u></a></li>
+<li><a href="https://facebook.techidaily.com/humor-in-the-age-of-fact-vs-fiction/"><u>Humor in the Age of Fact vs Fiction</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-huawei-nova-y71-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Huawei Nova Y71 to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-iphone-passcode-again-unlock-apple-iphone-13-mini-without-passcode-now-drfone-by-drfone-ios/"><u>In 2024, Forgot iPhone Passcode Again? Unlock Apple iPhone 13 mini Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reinventing-speech-the-ultimate-guide-to-free-vocal-adjustments/"><u>In 2024, Reinventing Speech  The Ultimate Guide to Free Vocal Adjustments</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-transforming-your-favorite-tunes-the-best-spotify-playlists-tools-for-youtube/"><u>In 2024, Transforming Your Favorite Tunes  The Best Spotify Playlists Tools for YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/interlinked-identities-examining-fb-insta-relationship/"><u>Interlinked Identities: Examining FB-Insta Relationship</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/introducing-minisforums-new-portable-gaming-laptop-156-144hz-full-hd-display-at-just-189/"><u>Introducing Minisforum's New Portable Gaming Laptop: 15.6 144Hz Full HD Display at Just $189</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebooks-influence-maxed-out/"><u>Is Facebook's Influence Maxed Out?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-interests-secret-fb-and-insta-like-hiding/"><u>Keeping Your Interests Secret: FB & Insta Like Hiding</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-locating-facebook-profile-and-group-connections/"><u>Mastering Social: Locating Facebook Profile & Group Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/professional-progression-social-media-uses-demystified/"><u>Professional Progression: Social Media Uses Demystified</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-german-law-against-facebook-and-whatsapp-data-mining/"><u>Protecting Privacy: German Law Against Facebook and WhatsApp Data Mining</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/responsible-ai-use-enhancing-writing-editing-processes/"><u>Responsible AI Use: Enhancing Writing, Editing Processes</u></a></li>
+<li><a href="https://driver-download.techidaily.com/seamless-setup-for-hp-devices-free-driver-downloads-inside/"><u>Seamless Setup for HP Devices - Free Driver Downloads Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharp-eyes-spot-these-14-typical-social-media-traps/"><u>Sharp Eyes! Spot These 14 Typical Social Media Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/steer-clear-of-others-in-fb-on-this-day-feature/"><u>Steer Clear of Others in FB On This Day Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-inside-the-new-era-of-privacy-control-with-facebooks-updated-settings-hub/"><u>Step Inside the New Era of Privacy Control With Facebook’s Updated Settings Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-temporary-trouble-6-hours-of-no-internet/"><u>Tech Temporary Trouble: 6 Hours of No Internet</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-playbook-for-dodging-online-charlatans/"><u>The Essential Playbook for Dodging Online Charlatans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-shutdown-saga-how-meta-ended-facial-id-on-facebook/"><u>The Shutdown Saga: How Meta Ended Facial ID on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-stealth-approach-to-display-restriction/"><u>The Stealth Approach to Display Restriction</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-5-android-games-for-true-ps2-virtual-gaming-adventures-for-2024/"><u>Top 5 Android Games for True PS2 Virtual Gaming Adventures for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-identity-transformation-protocol/"><u>Understanding Facebook's Identity Transformation Protocol</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-with-8-must-try-crowdfire-innovations/"><u>Unlocking Potential with 8 Must-Try Crowdfire Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-us-legislation-on-tech-monopolies-unpacked/"><u>Upcoming US Legislation on Tech Monopolies Unpacked</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/win10-screen-problems-missing-fullscreen-mode/"><u>Win10 Screen Problems: Missing Fullscreen Mode</u></a></li>
+</ul></div>

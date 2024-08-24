@@ -1,7 +1,7 @@
 ---
 title: Analyzing Google’s Major Press Breakthroughs
-date: 2024-07-12T10:54:13.698Z
-updated: 2024-07-13T10:54:13.698Z
+date: 2024-08-23T02:04:27.209Z
+updated: 2024-08-24T02:04:27.209Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,9 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
@@ -49,6 +52,9 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
@@ -63,12 +69,18 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
  Google and [Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. The FTC Pixel Lawsuit
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
@@ -77,10 +89,16 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. The $25B UK and Netherlands Lawsuits
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
@@ -108,3 +126,58 @@ thumbnail: https://thmb.techidaily.com/bae70dc1da321109f70e787435e8a7bf8638e9926
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-the-essential-guide-to-video-spinning-in-vlc-media-player/"><u>[New] 2024 Approved  The Essential Guide to Video Spinning in VLC Media Player</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-comprehensive-guide-to-cross-posting-youtube-video-on-fb-for-2024/"><u>[New] Comprehensive Guide to Cross-Posting YouTube Video on FB for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cracking-the-code-knowing-your-posts-spectators-on-instagram-for-2024/"><u>[New] Cracking The Code  Knowing Your Post's Spectators on Instagram for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-prodigious-story-making-worlds-top-8-institutions/"><u>[New] In 2024, Prodigious Story Making  World's Top 8 Institutions</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nline-aggregators-for-securing-affiliates-on-googles-platform-for-2024/"><u>[New] Online Aggregators for Securing Affiliates on Google's Platform for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-quick-window-snaps-in-winoses/"><u>[New] Quick Window Snaps in WinOSes</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-2024-approved-skyrocket-your-twitter-presence-through-livestreaming/"><u>[Updated] 2024 Approved  Skyrocket Your Twitter Presence Through Livestreaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-channel-flair-free-download-templates-for-2024/"><u>[Updated] Channel Flair  Free Download Templates for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-integrating-your-day-job-with-passionate-online-content/"><u>[Updated] Integrating Your Day Job with Passionate Online Content</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/best-routers-with-built-in-parental-control-features/"><u>Best Routers with Built-In Parental Control Features</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhanced-fnaf-security-breach-experience-no-more-pc-game-crashes/"><u>Enhanced FNAF Security Breach Experience – No More PC Game Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Samsung Galaxy A25 5G?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-myth-busting-realities-of-instagram-story-followers/"><u>In 2024, Myth-Busting  Realities of Instagram Story Followers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfecting-color-balance-in-gopro-editing/"><u>In 2024, Perfecting Color Balance in GoPro Editing</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-professional-tips-achieving-crisp-focus-during-online-conferences/"><u>In 2024, Professional Tips  Achieving Crisp Focus During Online Conferences</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-depth-look-at-screenrec-your-laptops-best-friend/"><u>In-Depth Look at ScreenRec  Your Laptop's Best Friend</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/intelligent-evolution-future-enhancements-in-gpt-5/"><u>Intelligent Evolution: Future Enhancements in GPT-5</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/languages-meet-pop-culture-understand-ks/"><u>Languages Meet Pop Culture: Understand KS</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/method-to-maintain-and-retrieve-past-chatgpt-dialogues-easily/"><u>Method to Maintain and Retrieve Past ChatGPT Dialogues Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-as-a-digital-trendsetter/"><u>Rising as a Digital Trendsetter</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-continues-facebooks-rebuttal-to-the-end/"><u>The Evolution Continues - Facebook's Rebuttal to the End</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-12-mini-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>Unlock iPhone 12 mini With Forgotten Passcode Different Methods You Can Try</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-conspiracies-the-whistleblowers-expose-of-fb-data/"><u>Unveiling Conspiracies: The Whistleblower's Expose of FB Data</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-replace-vsdc-with-these-powerful-mac-video-editors/"><u>Updated In 2024, Replace VSDC with These Powerful Mac Video Editors</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-honor-magic-6-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-dating-how-to-get-started/"><u>What Is Facebook Dating? How to Get Started</u></a></li>
+</ul></div>

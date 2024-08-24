@@ -1,0 +1,205 @@
+---
+title: Has Your Facebook Been Hacked? How to Tell (and Fix It)
+date: 2024-08-23T02:14:20.159Z
+updated: 2024-08-24T02:14:20.159Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Has Your Facebook Been Hacked? How to Tell (and Fix It)
+excerpt: This Article Describes Has Your Facebook Been Hacked? How to Tell (and Fix It)
+keywords: Facebook Hacked Signs,Detect Hacks on FB,Resolve FB Breaches,Identify FB Security Issues,Recover From FB Hacking,Secure Your FB Account,Fix FB Compromise
+thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24ff85257e3a0b7e2c37dbd29.jpg
+---
+
+## Has Your Facebook Been Hacked? How to Tell (and Fix It)
+
+ It's no fun logging into Facebook and realizing that someone has hacked your account. But it happens, and the damage done can be a big deal for you and your friends and family.
+
+ Thankfully, there are a few things that you can do to confirm that your Facebook account was hacked and how to deal with it.
+
+## How to Check if Your Facebook Account Was Hacked
+
+ Facebook hacks have gotten more sophisticated over the years. It started out posting spam links on your friends' walls. Now, Facebook hackers might send messages with links to your friends, hoping they click on it and give up their account info too.
+
+ Another common Facebook scam is your account posting unbelievably cheap items on Facebook marketplace, or posting in groups asking people to answer a riddle.
+
+ Your hacked Facebook account might also change your profile information, or even change your email address and password. These are all bad scenarios and things you'll want to avoid.
+
+ There are two main ways to tell if your Facebook account was hacked: checking your login locations and checking your payment history.
+
+### How to Check Your Facebook Login Locations
+
+![facebook login locations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-logins.jpg)
+
+ Thankfully, there's an easy way to discover whether or not someone else has logged into your Facebook account.
+
+ Go to **Settings and Privacy > Activity Log > Active Sessions** . The information contained in the section will show where you've logged in and with what devices you signed in.
+
+ Remember: If your password has been changed by a hacker, you need to[act quickly to recover your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
+
+ If you do find a discrepancy with where you've logged in to Facebook, you can easily end the activity of that session, which should help safeguard you from any hacking attempt on that device. You can also log out of all sessions to be safe.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+### Checking Your Payment History on Facebook
+
+![facebook-payments-center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-payments-center.png)
+
+ There's another way to check whether someone has hacked your Facebook account, and that's by checking your purchase history. If you have a credit card stored on your account, it's possible that hackers could make fraudulent purchases and drive up your bill.
+
+ To ensure you're protected, go to **Settings and Privacy > Settings > Account Center > Payments.** Here, you can see if someone purchased ads using your account or used Meta Pay.
+
+ If you notice any fraudulent charges, you can inform[Facebook Support](https://www.facebook.com/support) about them. The company is pretty good with replying to concerns, whether that's through the Facebook account or through its official Twitter account.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+## How to Report Your Hacked Facebook Account
+
+![facebook hacked reporting page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-hacked-page.jpg)
+
+ If you have any problems with hacking whatsoever, you should inform Facebook. Facebook is keen to know about hacks and wants to do its part to keep the site as safe and secure as possible. Facebook is constantly adapting and improving it's security,
+
+ Facebook has a dedicated page for those who believe their account may have been compromised. This page can be found at[facebook.com/hacked](https://www.facebook.com/hacked) . Here, you can report people sending messages from your account, duplicate accounts, or a potential hack attempt.
+
+ You could check out the[Bullying Center](https://www.facebook.com/safety/bullying) ,[Safety Check](https://www.facebook.com/about/safetycheck/) , and[Safety Center](https://www.facebook.com/safety) pages if you have additional problems with your Facebook account and/or security.
+
+## How to Fix a Hacked Facebook Account
+
+![Photo of a person holding their phone with the Facebook login page showing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/using-facebook-on-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<!-- affiliate ads end -->
+ If you have been unfortunate enough to suffer from a hacked Facebook account, don't worry. It is possible to rectify the issue.
+
+To minimize the damage you should:
+
+* Change your Facebook password.
+* Remove suspicious third-party applications.
+* Alert your friends and family as soon as possible.
+* Report the issue to Facebook via the company's official channels.
+
+ If you need more detailed guidance, here's a full guide on[how to fix a hacked Facebook account](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Protect Your Facebook Account in Future
+
+ Before we get into fixing your Facebook account, it's best to know how to prevent would-be hackers from accessing your account. Setting a better password, avoiding spam, and increasing your privacy are just a few methods that could help safeguard your Facebook.
+
+### Use a Strong Password
+
+ You need to set a memorable password that isn't susceptible to brute force attacks. Enabling fingerprint access is also good security advice, along with being convenient.
+
+ After you have taken care of the basics, there are a few more advanced options you should consider. You could enable email or login notifications, which you can do under **Settings and Privacy > Settings > Account Center > Password and Security > Login Alerts.**
+
+ Under the security settings, you can also set up two-factor authentication. Doing so requires a security code to be typed when logging in from an unknown device or browser, and is another powerful deterrent to consider. Just make sure you keep this updated with your current phone number.
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
+### Take Precautions When Browsing Facebook
+
+ You also need to think about the preventative measures you can take to protect your Facebook account from hackers.
+
+ For example, you should avoid clickbait links. This might seem simple enough, but there are plenty of cases of people clicking spam on Facebook and that lead to malware or phishing sites. Don't let it happen to you. Avoid spam links, which may even appear in your Messenger inbox.
+
+ You should also avoid any messages claiming to be your friends trying to get their accounts fixed, as this is another common hack. Here, a hacker will send you a link when pretending to be a friend, and the link will end up stealing your information instead. You should also avoid sending anyone a Facebook text message code or one-time PIN (OTP).
+
+ You should also avoid fake websites that are made to look like Facebook and could steal your sensitive information. If you enter your login details into such a site, your Facebook account will be hacked in seconds.
+
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Adjust Your Facebook Privacy Settings
+
+ Another step you can take is to increase privacy settings on your profile page, photos, posts, and tags.
+
+ Hiding these items from the public view improves your privacy on the platform. Doing so is a good way to ensure that your details are shown to specific people, and not to your entire list—or worse—the entire internet.
+
+## Safeguard Your Facebook Privacy and Security
+
+ Hopefully, you now know how to tell if your Facebook account has been hacked and what to do about it.
+
+ And remember, while nothing is ever 100 percent protected, Facebook offers lots of ways to safeguard your account. Doing so means that hackers will be hard-pressed to obtain your data or personal information. By taking the necessary security precautions, you're ensuring that you're as protected as possible.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-unveiling-the-top-10-video-editing-apps-for-instagram-magic/"><u>[New] 2024 Approved  Unveiling the Top 10 Video Editing Apps for Instagram Magic</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-laugh-out-loud-with-cartoon-face-tricks-in-snapchat-for-2024/"><u>[New] Laugh Out Loud with Cartoon Face Tricks in Snapchat for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-snicker-secrets-of-virtual-realms-making-funny-memes/"><u>[New] Snicker Secrets of Virtual Realms  Making Funny Memes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-5-ios-platforms-for-experiencing-classic-psp-games-for-2024/"><u>[Updated] Top 5 iOS Platforms for Experiencing Classic PSP Games for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-elevate-your-content-a-guide-to-engaging-live-thumbnails/"><u>2024 Approved  Elevate Your Content  A Guide to Engaging Live Thumbnails</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-your-news-source-what-does-fb-want-to-know/"><u>A Closer Look at Your News Source: What Does FB Want to Know?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>A Working Guide For Pachirisu Pokemon Go Map On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-spark-star-rating-anger-drop-facebooks-app-ratings/"><u>Activists Spark Star Rating Anger, Drop Facebook's App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-fb-leveraging-different-messengers/"><u>Alternatives to FB: Leveraging Different Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/auto-caption-generation-boost-engagement-in-your-fb-gallery/"><u>Auto-Caption Generation: Boost Engagement in Your FB Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-busting-10-common-facebook-myths/"><u>Behind the Scenes: Busting 10 Common Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-fb-shadownet-with-off-facebook-activity-option/"><u>Blocking Fb ShadowNet with Off-Facebook Activity Option</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprinting-your-social-strategy-with-effective-group-formation-fb/"><u>Blueprinting Your Social Strategy with Effective Group Formation (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-communities-facebook-maps-new-societal-sections/"><u>Bridging Communities: Facebook Maps New Societal Sections</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-music-to-life-access-spotifys-miniplayer-via-facebook/"><u>Bring Music to Life: Access Spotify's Miniplayer via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-examine-trumps-social-media-standing/"><u>CEO to Examine Trump's Social Media Standing</u></a></li>
+<li><a href="https://facebook.techidaily.com/client-acquisition-tactics-on-social-media-platforms/"><u>Client Acquisition Tactics on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-the-components-of-online-identity-to-your-xbox/"><u>Connect The Components of Online Identity to Your Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-virtuality-exploring-metaverse-through-facebook/"><u>Connecting Virtuality: Exploring Metaverse Through Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/creator-payment-frequency-on-youtube-platform/"><u>Creator Payment Frequency on YouTube Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrency-commercials-a-social-media-shift/"><u>Cryptocurrency Commercials: A Social Media Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-rules-through-the-lens-of-its-new-center/"><u>Decoding Facebook's Rules Through the Lens of Its New Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-recommended-facebook-posts/"><u>Decoding Recommended Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-social-media-algorithms-impact-and-influence-of-hash-tags-on-facebooks-ecosystem/"><u>Decoding Social Media Algorithms: Impact and Influence of Hash Tags on Facebook's Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-subtle-cues-in-the-art-of-friend-requesting-on-fb/"><u>Decoding Subtle Cues in the Art of Friend Requesting on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-shadowbans-in-online-communities/"><u>Demystifying Shadowbans in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-vk-understanding-russias-virtual-sphere/"><u>Demystifying VK: Understanding Russia's Virtual Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-your-social-media-identity-icon/"><u>Designing Your Social Media Identity Icon</u></a></li>
+<li><a href="https://facebook.techidaily.com/despite-ban-facebook-celebrates-its-vaccine-dissenters/"><u>Despite Ban, Facebook Celebrates Its Vaccine Dissenters</u></a></li>
+<li><a href="https://facebook.techidaily.com/dialogue-dynamics-dial-up-messengers-format-guide/"><u>Dialogue Dynamics Dial-Up: Messenger's Format Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-cupids-at-work-facebooks-novel-approach-to-matchmaking/"><u>Digital Cupids at Work: Facebook’s Novel Approach to Matchmaking</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-from-facebook-android-instructions/"><u>Disconnecting From Facebook (Android) Instructions</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-facebooks-matchmaking-portal-initiation-steps/"><u>Discovering Facebook's Matchmaking Portal: Initiation Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-facebook-observation-via-off-fb-workflow/"><u>Dismantling Facebook Observation via Off-FB Workflow</u></a></li>
+<li><a href="https://facebook.techidaily.com/disneyplus-reveals-how-user-behavior-fuels-free-content-accessibility/"><u>Disney+ Reveals How User Behavior Fuels Free Content Accessibility</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/eyecatcher-studio-wx-series-for-2024/"><u>EyeCatcher Studio WX Series for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149095879-guarding-your-digital-identity-no-random-connections-please/"><u>Guarding Your Digital Identity: No Random Connections, Please!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-15-plus-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock iPhone 15 Plus Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-samsung-galaxy-s23-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Samsung Galaxy S23 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-video-conversions-moving-from-basic-sdr-to-vivid-hdr/"><u>In 2024, Mastering Video Conversions  Moving From Basic SDR to Vivid HDR</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-platforms-for-game-casting/"><u>In 2024, Premier Platforms for Game Casting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-source-stock-images-directly-from-trusted-4-youtube-vids/"><u>In 2024, Source Stock Images Directly From Trusted 4 Youtube Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150672275-panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban.</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackle-windows-11-woes-your-guide-to-fixing-11-issues/"><u>Tackle Windows 11 Woes - Your Guide to Fixing 11 Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153483748-unlock-cross-service-integration-move-your-fb-stories-swiftly/"><u>Unlock Cross-Service Integration: Move Your FB Stories Swiftly</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-asus-rog-phone-7-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Asus ROG Phone 7 Phone Network-Ready</u></a></li>
+</ul></div>

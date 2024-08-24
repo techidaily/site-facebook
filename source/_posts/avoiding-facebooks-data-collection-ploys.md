@@ -1,7 +1,7 @@
 ---
 title: Avoiding Facebook's Data Collection Ploys
-date: 2024-07-12T10:49:34.153Z
-updated: 2024-07-13T10:49:34.153Z
+date: 2024-08-23T02:08:54.449Z
+updated: 2024-08-24T02:08:54.449Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
@@ -45,6 +48,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
  Facebook owns several other major social sites and services. The largest of these are Instagram and WhatsApp, both giants in their own right. If you're using Instagram, Facebook is tracking your data. The image-sharing social media platform is a Facebook Product with all the tracking and data privacy issues you can imagine.
@@ -61,6 +67,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated [Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
@@ -71,12 +80,18 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
  If you want to stop being stalked by ads online, consider using the [Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can [share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Is Facebook Tracking Me?
 
  Advertising and money. At this point, most internet users understand that online tracking is de rigueur. Each link is another opportunity for Facebook or another advertising company to track us.
@@ -113,6 +128,9 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
@@ -137,12 +155,23 @@ thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are [several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
 
 **Download:** Epic Privacy Browser for [Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Tor Browser
 
 [Tor](http://www.torproject.org/) is free anonymity software that usually runs as part of a modified Mozilla Firefox browser. It is well known as the home of darknet markets, dissidents, and other nefarious services. However, you can use it to stop trackers and keep your network traffic anonymous.
@@ -169,12 +198,18 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
 **Download:** Cookie AutoDelete for [Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Should You Block Facebook Tracking?
 
 Facebook tracking serves one purpose: Facebook advertising.
@@ -208,3 +243,46 @@ Image Credit: Sabphoto/Shutterstock
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ringing-video-life-youtube-slide-insertion/"><u>[New] Bringing Video Life  YouTube Slide Insertion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-seamless-extraction-top-8-fb-movies/"><u>[New] In 2024, Seamless Extraction  Top 8 FB Movies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitters-viral-hit-list-tiktok-edition/"><u>[New] In 2024, Twitter's Viral Hit List  TikTok Edition</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[Updated] 2024 Approved  Dodging Doubts  A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-extensive-analysis-best-cloud-storage-recommendations/"><u>[Updated] In 2024, Extensive Analysis  Best Cloud Storage Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-budget-friendly-steps-for-syncing-your-fb-content-schedule/"><u>5 Budget-Friendly Steps for Syncing Your FB Content Schedule</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-oppo-a79-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Oppo A79 5G PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-must-try-apps-to-keep-your-social-plan-on-track/"><u>9 Must-Try Apps to Keep Your Social Plan on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/banishing-facebooks-buzz-to-silence-land/"><u>Banishing Facebook's Buzz to Silence Land</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/change-saving-spot-for-macs-photos-for-2024/"><u>Change Saving Spot for Mac's Photos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrencys-ascendancy-in-social-media-marketing/"><u>Cryptocurrency's Ascendancy in Social Media Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-the-mystique-a-guide-to-facebooks-emoji-lexicon/"><u>Demystifying the Mystique: A Guide to Facebook's Emoji Lexicon</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-how-and-why-telegram-flourished-during-fb-offline-hours/"><u>Dissecting How and Why Telegram Flourished During FB Offline Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-your-timelines-past-content/"><u>Diving Into Your Timeline's Past Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-contempt-the-facebook-like-phenomenon-decoded/"><u>Examining Contempt: The Facebook-Like Phenomenon Decoded</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-newsfeed-now-more-user-centric-than-ever/"><u>FB Newsfeed Now More User-Centric than Ever</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-word-2013-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signature - For Word 2013</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/guide-fixing-startechs-driver-compatibility-challenges-across-windows-10-8-and-7-systems/"><u>Guide: Fixing StarTech's Driver Compatibility Challenges Across Windows 10, 8 & 7 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-unhide-hidden-facebook-posts/"><u>Guidelines to Unhide Hidden Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-access-the-meta-accounts-center-for-facebook-and-instagram/"><u>How to Access the Meta Accounts Center for Facebook and Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-clarify-your-fb-images-a-step-by-step-approach/"><u>How to Clarify Your Fb Images: A Step-by-Step Approach</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-vivo-t2-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Vivo T2 5G using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-excel-2019-run-time-error-1004-stellar-by-stellar-guide/"><u>How to Fix Excel 2019 Run Time Error 1004 | Stellar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-insert-sign-in-uot-file-by-ldigisigner-sign-a-word-sign-a-word/"><u>How to insert sign in .uot file</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-the-magic-of-motion-in-video-text-elements/"><u>In 2024, Unlock the Magic of Motion in Video Text Elements</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-icons-explained-symbolism-on-facebook/"><u>Messenger Icons Explained - Symbolism on Facebook</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/notable-20-anime-series-theme-tracks/"><u>Notable 20 Anime Series Theme Tracks</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-you-use-facebook-to-log-into-other-apps-6-pros-and-cons/"><u>Should You Use Facebook to Log Into Other Apps? 6 Pros and Cons</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-safety-first-dodge-the-friend-request-trap/"><u>Social Media Safety First: Dodge the Friend Request Trap</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-alteration-of-childs-information-in-facebook-messenger/"><u>Stepwise Alteration of Child's Information in Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-to-diminish-your-reel-viewing/"><u>Techniques to Diminish Your Reel Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-building-a-significant-profile/"><u>The Art of Building a Significant Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-facebook-in-modern-work-environments/"><u>The Role of Facebook in Modern Work Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-swiftly-removing-facebook-stories/"><u>Tips for Swiftly Removing Facebook Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-discontentment-into-dollars-fb-refund-method/"><u>Transform Your Discontentment Into Dollars - FB Refund Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowfollow-dynamics-tactical-approaches-for-successful-facebook-engagement/"><u>Unfollow/Follow Dynamics: Tactical Approaches for Successful Facebook Engagement</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-cant-i-install-the-ipogo-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Why cant I install the ipogo On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+</ul></div>

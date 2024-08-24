@@ -1,7 +1,7 @@
 ---
 title: "America's Growing Challenge to Big Tech: The New Antitrust Reality"
-date: 2024-07-12T10:49:04.960Z
-updated: 2024-07-13T10:49:04.960Z
+date: 2024-08-23T02:09:22.163Z
+updated: 2024-08-24T02:09:22.163Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,16 @@ thumbnail: https://thmb.techidaily.com/98af3c33462a260586336a96ddc2cbdb473875d7a
 
  More than [merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
  Those intimately involved with the platform's operation will no longer be able to use their behind-the-scenes edge to their own gain. Practices that prevent smaller brands from gaining traction will also be targeted under this section.
@@ -49,6 +55,9 @@ thumbnail: https://thmb.techidaily.com/98af3c33462a260586336a96ddc2cbdb473875d7a
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -61,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/98af3c33462a260586336a96ddc2cbdb473875d7a
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -81,10 +93,16 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -122,3 +140,43 @@ Finally, we come to the economic backing to make it all happen.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-achieving-financial-independence-through-youtube-and-adsense/"><u>[New] 2024 Approved  Achieving Financial Independence Through YouTube and AdSense</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-capture-with-clarity-advanced-tips-for-gopro-hero5-black/"><u>[New] Capture with Clarity  Advanced Tips for GoPro Hero5 Black</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-how-to-choose-the-right-frames-per-second-30-vs-60-for-2024/"><u>[New] How to Choose the Right Frames Per Second - 30 Vs. 60 for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-scene-stealer-snapshot-study/"><u>[New] In 2024, Scene-Stealer Snapshot Study</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-cutting-edge-strategies-to-minimize-vids-for-instagram-on-macos-for-2024/"><u>[Updated] Cutting-Edge Strategies to Minimize Vids for Instagram on macOS for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-mastering-minecraft-screen-capture-a-mac-guide-for-2024/"><u>[Updated] Mastering Minecraft Screen Capture  A Mac Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-optimizing-video-clarity-with-youtube-tools-for-2024/"><u>[Updated] Optimizing Video Clarity with YouTube Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-top-social-planners-for-timely-posting/"><u>7 Top Social Planners for Timely Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-key-calendar-software-for-consistent-posting-cycles/"><u>8 Key Calendar Software for Consistent Posting Cycles</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprerancial-guide-to-facebook-echo-show-vs-portal/"><u>A Comprerancial Guide to Facebook Echo Show vs Portal</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-zero-notifications-from-fb/"><u>Achieve Zero Notifications From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/advance-to-elite-level-with-metas-payment/"><u>Advance to Elite Level with Meta's Payment</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-suspicious-activity-on-your-computer-emails/"><u>Alert! Suspicious Activity on Your Computer, Emails</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-meta-ais-feasibility-with-social-media-giants/"><u>Assessing Meta AI's Feasibility with Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-usefulness-and-pitfalls-in-facebook-based-events-organization/"><u>Assessing the Usefulness and Pitfalls in Facebook-Based Events Organization</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-connectivity-six-arguments-for-leaving-facebook-behind/"><u>Beyond Connectivity - Six Arguments for Leaving Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-out-fbs-constant-notification-chirps/"><u>Blocking Out Fb's Constant Notification Chirps</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-misinformation-on-platforms-during-pandemic/"><u>Breaking Down Misinformation on Platforms During Pandemic</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-in-digital-socialization-with-facebook-updates/"><u>Bridging Gaps in Digital Socialization with Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/brisk-browsing-favorite-fast-android-apps/"><u>Brisk Browsing: Favorite Fast Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-a-social-media-platform-shape-our-local-commerce-landscape/"><u>Can a Social Media Platform Shape Our Local Commerce Landscape?</u></a></li>
+<li><a href="https://facebook.techidaily.com/childhood-activity-report-on-social-media-sites-like-fb/"><u>Childhood Activity Report on Social Media Sites Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/clear-out-your-social-presence-delete-business-page-protocols/"><u>Clear Out Your Social Presence: Delete Business Page Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/commerce-through-observation-a-deep-dive/"><u>Commerce Through Observation: A Deep Dive</u></a></li>
+<li><a href="https://facebook.techidaily.com/commitment-to-privacy-facebook-expands-encryption-to-messenger-calls-and-dms/"><u>Commitment to Privacy: Facebook Expands Encryption to Messenger Calls and DMs</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-audiences-the-functionality-of-hashtags-in-online-networks-on-fb/"><u>Connecting Audiences: The Functionality of Hashtags in Online Networks on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/covert-online-presence-hiding-fb-pages-via-archives/"><u>Covert Online Presence: Hiding FB Pages via Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/current-executive-leadership-of-facebook/"><u>Current Executive Leadership of Facebook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/efficient-lecture-capture-with-macos-for-2024/"><u>Efficient Lecture Capture with MacOS for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-infinix-smart-8-pro-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Smart 8 Pro without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-14-to-other-iphone-11-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 14 To Other iPhone 11 devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-video-presentations-with-top-30-free-intra-makers/"><u>In 2024, Elevate Your Video Presentations with Top 30 Free Intra Makers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-video-editing-on-a-shoestring-16-free-and-intuitive-movie-makers/"><u>New Video Editing on a Shoestring 16 Free and Intuitive Movie Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719146313065-simplify-syncing-cross-platform-transfer-of-facebook-items/"><u>Simplify Syncing: Cross-Platform Transfer of Facebook Items</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-solution-to-d3d9dll-not-detected-issues-in-windows/"><u>The Ultimate Solution to d3d9.dll Not Detected Issues in Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transform-your-phone-with-funimate-the-ultimate-apk-guide/"><u>Transform Your Phone with Funimate - The Ultimate APK Guide</u></a></li>
+</ul></div>

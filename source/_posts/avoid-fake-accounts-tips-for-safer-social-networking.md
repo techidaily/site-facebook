@@ -1,7 +1,7 @@
 ---
 title: "Avoid Fake Accounts: Tips for Safer Social Networking"
-date: 2024-07-12T10:53:45.451Z
-updated: 2024-07-13T10:53:45.451Z
+date: 2024-08-23T02:04:53.593Z
+updated: 2024-08-24T02:04:53.593Z
 tags:
   - facebook
 categories:
@@ -73,18 +73,33 @@ It’s a good idea to do a privacy check on a regular basis.
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ## 4\. Don’t Click Strange URLs on Facebook
 
 ![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 Close
 
  A common way to scam people is to use Messenger. Scammers send out these links using bots loaded with generic scripts. For instance, “this is hilarious…” or “OMG, check this out!”. If you see a line like this attached to a URL, be careful, especially if it’s out of character for your friend.
@@ -113,6 +128,9 @@ Close
 
 ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Facebook is full of public posts asking users to reply with trivia. They often ask for nostalgic things, such as your first car or favorite teacher. These posts seem like fun, but they are dangerous.
 
  Answering these questions gives the scammer clues to your password or security questions. If you feel inspired by the question, it's better to strike up a conversation in a private chat instead of commenting.
@@ -121,6 +139,18 @@ Close
 
  You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Only Add People You Know to Your Facebook Account
 
 ![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
@@ -131,6 +161,9 @@ Close
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 8\. Use a Strong Password for Your Facebook Account
 
 ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
@@ -164,3 +197,43 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-how-to-use-zoom-in-gmail-best-ways-for-2024/"><u>[New] How to Use Zoom in Gmail [Best Ways] for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-experts-guide-to-interactive-instagram-stories-polling/"><u>[New] In 2024, The Expert's Guide to Interactive Instagram Stories Polling</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-one-step-guide-to-simultaneous-cam-plus-screen-recording/"><u>[Updated] 2024 Approved  One Step Guide to Simultaneous Cam + Screen Recording</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/an-intro-to-quantum-hdr-innovations/"><u>An Intro to Quantum HDR Innovations</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/authors-recommended-the-best-text-voice-generators-for-all-platforms-for-2024/"><u>Authors Recommended The Best Text Voice Generators for All Platforms for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/boosting-startup-top-tips-to-accelerate-windows-11-boot-process/"><u>Boosting Startup: Top Tips to Accelerate Windows 11 Boot Process</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/drive-smart-save-more-score-20-off-on-drivecare-with-our-authentic-discount-code/"><u>Drive Smart, Save More: Score 20%% Off on Drivecare with Our Authentic Discount Code !</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-accurate-info-on-your-childs-messenger-profile/"><u>Ensuring Accurate Info on Your Child’s Messenger Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-shutdown-the-data-dilemma-continues/"><u>Facebook Shutdown: The Data Dilemma Continues</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-contrast-rich-interface-on-facebook-app/"><u>Guide to Contrast-Rich Interface on Facebook App</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-forgotten-pin-of-your-nubia-z50s-pro-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Nubia Z50S Pro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-accelerating-or-slowing-down-your-storys-timeline-on-insta/"><u>In 2024, Accelerating or Slowing Down Your Story's Timeline on Insta</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-melodic-medley-choosing-the-best-ringtone-websites/"><u>In 2024, Melodic Medley  Choosing the Best Ringtone Websites</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-tunepiercer-screen-capture-app-review/"><u>In 2024, TunePiercer Screen Capture App Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-a-meta-account-more-private-than-a-facebook-account-for-oculus-quest-2/"><u>Is a Meta Account More Private Than a Facebook Account for Oculus Quest 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-secrets-safe-bypass-these-intrusive-apps/"><u>Keep Your Secrets Safe: Bypass These Intrusive Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-hashtag-strategies-for-effective-communication-on-facebook/"><u>Leveraging Hashtag Strategies for Effective Communication on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-identity-shift-on-social-networks-via-photo-change/"><u>Mastery of Identity Shift on Social Networks via Photo Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/mentoring-minds-sheryls-impact-at-facebook/"><u>Mentoring Minds: Sheryl's Impact at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-divide-metaverse-and-vrs-6-key-distinctions/"><u>Navigating The Digital Divide: Metaverse & VR's 6 Key Distinctions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/our-10-favorite-note-taking-apps-of-2024/"><u>Our 10 Favorite Note Taking Apps of 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-details-corporate-gains-the-trade-off/"><u>Personal Details, Corporate Gains: The Trade-Off</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-concerns-removing-facial-recognition-data-effects-on-users/"><u>Privacy Concerns: Removing Facial Recognition Data Effects on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/real-time-notifications-for-lost-chat-images-on-messenger/"><u>Real-Time Notifications for Lost Chat Images on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/reverse-the-ruin-how-to-fix-mistakenly-removed-fb-items/"><u>Reverse the Ruin: How to Fix Mistakenly Removed FB Items</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-regain-facebook-acces-after-sign-out/"><u>Strategies to Regain Facebook Acces After Sign-Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-cleanup-delete-story-on-facebook-with-confidence/"><u>Swift Cleanup: Delete Story on Facebook with Confidence</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-tech-blunders-in-the-pandemic-year/"><u>The Top 5 Tech Blunders in the Pandemic Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ups-and-downs-of-facebooks-user-growth/"><u>The Ups and Downs of Facebook's User Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-social-media-posts-effectively/"><u>Timing Your Social Media Posts Effectively</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-5-cloud-based-voice-customizers-for-chrome-os-vocal-transformation-tools-reviewed-for-2024/"><u>Top 5 Cloud-Based Voice Customizers for Chrome OS  Vocal Transformation Tools Reviewed for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-for-fixed-video-file-cannot-be-displayed-error-code-224003/"><u>Troubleshooting Guide for Fixed 'Video File Cannot Be Displayed' Error (Code #224003)</u></a></li>
+<li><a href="https://facebook.techidaily.com/vague-narratives-explored-a-digital-phenomenons-analysis/"><u>Vague Narratives Explored: A Digital Phenomenon's Analysis</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-nokia-c210-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Nokia C210 Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-implementation-of-updated-privacy-agreement/"><u>WhatsApp Delays Implementation of Updated Privacy Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-youll-love-social-sites-more-after-these-9-insights/"><u>Why You'll Love Social Sites More After These 9 Insights</u></a></li>
+</ul></div>

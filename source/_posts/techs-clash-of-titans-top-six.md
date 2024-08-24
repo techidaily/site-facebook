@@ -1,0 +1,220 @@
+---
+title: "Tech's Clash of Titans: Top Six"
+date: 2024-08-23T02:18:12.266Z
+updated: 2024-08-24T02:18:12.266Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Tech's Clash of Titans: Top Six"
+excerpt: "This Article Describes Tech's Clash of Titans: Top Six"
+keywords: Tech Giants Rivalry (Head-to-Head Technology Battles),Comparison of Leading Tech Companies,Big Technology Players Analysis (Tech Industry Powerhouses),Top Six Tech Innovators Showdown,Silicon Valley Titans Competition (Tech Industry Elite),Tech Market Leaders Clash (Competitive Technology Landscape),Six Biggest Tech Companies Faceoff (Industry's Top Competitors)
+thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed98794f1ba27d0b681ad3c785.jpg
+---
+
+## Tech's Clash of Titans: Top Six
+
+ Some of the most prominent names in big tech have inspired the world with their visionary ideas. Others have shocked us to our core.
+
+ But there's one thing that the tech moguls on this list share in common: they have equally impressed and outraged their audience at various points throughout their careers.
+
+ Read on to find out the most polarizing tech tycoons we can't get enough of.
+
+## 1\. Jack Dorsey
+
+![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
+
+**Best known for:** Co-founder and CEO of Twitter
+
+ Jack Dorsey is no stranger to controversy, having been summoned before Congress on multiple occasions to testify about alleged political bias and misinformation on Twitter.
+
+ But perhaps his most polarizing moment was when[Twitter permanently suspended Donald Trump's account](https://www.makeuseof.com/twitter-bans-trump-for-good/) following repeated rule violations and the 2021 Capitol Hill riots.
+
+ The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
+
+ Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
+
+## 2\. Elizabeth Holmes
+
+![Elizabeth Holmes interview](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/elizabeth-holmes-interview.jpg)
+
+**Best known for:** Founder and CEO of Theranos
+
+ Elizabeth Holmes was a rising star in the health tech world, crowned the youngest and wealthiest self-made female in America in 2015 by Forbes. What Theranos offered was simple, yet revolutionary. Holmes claimed her company could do blood testing with a fingerprick—a feat not yet conquered in health technology.
+
+ Theranos was at its peak when a partnership with Walgreens was announced. However, medical experts were skeptical about Theranos' blood testing machine, and ex-employee whistleblowers came forward to expose the fraud.
+
+ A bombshell article published in 2015 in[The Wall Street Journal](https://www.wsj.com/articles/theranos-has-struggled-with-blood-tests-1444881901) was Theranos' first blow. While Holmes initially denied the allegations made in the article, sentiment towards Theranos was turning, eventually culminating in criminal charges.
+
+ The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
+
+## 3\. Julian Assange
+
+![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->
+**Best known for:** Founder of WikiLeaks
+
+ Julian Assange shot to notoriety in 2010 after publishing a number of classified documents on WikiLeaks. The most damaging leaks involved a series of classified US war logs and diplomatic cables, which prompted high-profile US politicians to label Assange a "terrorist."
+
+ After allegations of sexual assault led to Sweden issuing an international arrest warrant for Assange, he took refuge in the Ecuadorian Embassy in London in 2012, claiming the warrant would lead to him eventually being extradited to the United States.
+
+ WikiLeaks continued to publish confidential leaks with Assange at the helm during his seven-year asylum tenure at the embassy.
+
+ Related: [Freedom of Information Sites Full of Declassified Documents and Secrets](https://www.makeuseof.com/tag/freedom-information-sites-declassified-documents/)
+
+ After Ecuador withdrew his asylum in 2019, police entered the embassy and fresh charges for breaching bail saw Assange spend 50 weeks in prison. Swedish prosecutors dropped their case against him in 2019.
+
+ Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 4\. Susan Wojcicki
+
+![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+
+**Best known for:** CEO of YouTube
+
+ Relatively foreign to controversy, Wojcicki's first fall out with the YouTube community was when she upheld the decision not to kick YouTube personality Logan Paul from the platform. This was after he posted a video of a person who had committed suicide.
+
+ She maintained that being tasteless was not enough to get kicked off the platform, and Paul hadn't violated the three-strikes rule to have his account terminated.
+
+ More recently, Wojcicki copped flak for receiving a free expression award from the Freedom Forum. Netizens were quick to point out the fact that the Freedom Forum is sponsored by YouTube.
+
+![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
+ The video highlighting the win has received over 50,000 dislikes at this time of writing.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Bill Gates
+
+![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
+
+**Best known for:** Co-founder of Microsoft
+
+ Bill Gates has been battling criticisms of his company since its inception. One of his earliest critics was Gary Kildall, who alleged that DOS was stolen from him.
+
+ His private memoir, Computer Connections, said of Gates: "He is divisive. He is manipulative. He is a user. He has taken much from me and the industry."
+
+ Gates has also been a magnet for conspiracy theories, including the outlandish theory that he promoted the worldwide COVID-19 vaccine rollout as a pretext to inject people with microchips.
+
+ Contrary to the many conspiracy theories that paint Gates as a supervillain, his foundation (the Bill & Melinda Gates Foundation) promotes philanthropy to combat disease and poverty worldwide.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
+## 6\. Mark Zuckerberg
+
+![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
+
+**Best known for:** Co-founder of Facebook
+
+ Zuckerberg, along with his Facebook co-founders, pioneered internet social networking as it is known today. Connecting with friends and family from any corner of the globe has never been simpler using Facebook.
+
+ However, as Facebook grew, so did its base of disaffected users. Facebook has faced a number of controversies over the years.
+
+ In early 2021, [Facebook blocked access to news media content in Australia](https://www.makeuseof.com/facebook-bans-news-australia-over-proposed-legislation/) . This was in response to a proposed law that would force it to pay news publishers that host content on the platform. This decision led to Facebook being labeled a bully.
+
+ The block was lifted after a few days, but not without leaving a lingering bad taste in the Australian community. After all, community pages, such as emergency services and charity pages, were temporarily blocked during this time.
+
+ Related: [What Is Parler? Why This Alternative Social Network Is Growing](https://www.makeuseof.com/what-is-parler-social-network/)
+
+ Like Twitter, Facebook has also been criticized for both censoring and refusing to censor Donald Trump at various times.
+
+ Facebook employees staged a virtual walkout after Zuckerberg personally stated that he would not remove a post made by Trump in reference to the 2020 Minneapolis protests ("when the looting starts, the shooting starts"). The same version of the post had been hidden under a warning message by Twitter.
+
+ When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
+
+## Least Polarizing Tech Figure?
+
+ It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
+
+ The defining trait that these figures have in common is ironclad mental resilience. The ability to do your job and ignore critics is praiseworthy, whether you agree with their actions or not.
+
+ Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-a-guide-to-creative-use-of-supplementary-footage-b-roll/"><u>[New] A Guide to Creative Use of Supplementary Footage (B-Roll)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-crafting-visuals-theory-to-practice-with-colors/"><u>[New] Crafting Visuals  Theory to Practice with Colors</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-eye-on-the-social-scene-top-tweets-of-2023/"><u>[New] In 2024, Eye on the Social Scene  Top Tweets of 2023</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-mastering-mobile-video-viewing-top-10-hd-players-on-android-for-2024/"><u>[New] Mastering Mobile Video Viewing  Top 10 HD Players on Android for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-pinnacle-ios-solutions-the-best-ps2-game-emulators/"><u>[Updated] 2024 Approved  Pinnacle IOS Solutions  The Best PS2 Game Emulators</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-top-10-webcam-applications-in-windows-a-comprehensive-list/"><u>[Updated] 2024 Approved  Top 10 Webcam Applications in Windows  A Comprehensive List</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-camera-roundup-top-picks-for-superior-videography/"><u>[Updated] Camera Roundup  Top Picks for Superior Videography</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-expert-tips-for-streamlining-mov-recordings-on-win10-for-2024/"><u>[Updated] Expert Tips for Streamlining MOV Recordings on Win10 for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/10-essential-windows-methods-for-controller-recognition/"><u>10 Essential Windows Methods for Controller Recognition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-advanced-playback-techniques-to-streamline-media-workflows/"><u>2024 Approved  Advanced Playback Techniques to Streamline Media Workflows</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-step-by-step-for-adding-a-link-in-your-tiktok-bios/"><u>2024 Approved  The Ultimate Step-by-Step for Adding a Link in Your TikTok Bios</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-tools-to-keep-your-social-calendar-on-track/"><u>8 Top Tools to Keep Your Social Calendar on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-and-operating-facebooks-inbuilt-protection/"><u>Accessing and Operating Facebook's Inbuilt Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-a-new-era-for-iphone-privacy/"><u>App Tracking Decline: A New Era for iPhone Privacy</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/controversial-features-in-todays-websites/"><u>Controversial Features in Today's Websites</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/core-principles-for-online-storytelling-craftsmanship-for-2024/"><u>Core Principles for Online Storytelling Craftsmanship for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-data-unraveling-misconceptions-about-facebook-reports/"><u>Decoding Data: Unraveling Misconceptions About Facebook Reports</u></a></li>
+<li><a href="https://techidaily.com/different-methods-for-resetting-xiaomi-redmi-note-13-5g-phones-with-screen-locked-and-not-drfone-by-drfone-reset-android-reset-android/"><u>Different Methods for Resetting Xiaomi Redmi Note 13 5G Phones with Screen Locked and Not | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-friend-management-for-optimal-online-experience-on-facebook/"><u>Effective Friend Management for Optimal Online Experience on Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722976183738-effortless-installation-of-elgato-drivers-step-by-step-tutorial/"><u>Effortless Installation of Elgato Drivers - Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-everyday-exchange-typographic-techniques/"><u>Elevate Your Everyday Exchange: Typographic Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-secure-mail-validity-is-securityfb-legit/"><u>Facebook Secure Mail Validity: Is @Security@fb Legit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portal-transforms-with-go-adventure/"><u>Facebook's Portal Transforms with Go Adventure</u></a></li>
+<li><a href="https://facebook.techidaily.com/forums-fade-away-here-are-6-reasons-why/"><u>Forums Fade Away, Here Are 6 Reasons Why</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-infinix-smart-8-plus-by-drfone-android/"><u>How to Bypass FRP on Infinix Smart 8 Plus?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-nokia-c22-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Nokia C22 Quickly? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-stop-to-all-facebook-buzz/"><u>Immediate Stop to All Facebook Buzz</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-poco-x5-easily-by-drfone-android/"><u>In 2024, How To Unlock a Poco X5 Easily?</u></a></li>
+<li><a href="https://facebook.techidaily.com/learn-lives-through-interactive-messenger-polls/"><u>Learn Lives Through Interactive Messenger Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintain-your-anonymity-elude-these-three-risks/"><u>Maintain Your Anonymity: Elude These Three Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-influence-amplifying-creators-reels-and-their-profits/"><u>Meta's Influence: Amplifying Creators' Reels and Their Profits</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-and-simple-methods-for-saving-snapshots-of-your-ps4-games-and-menus/"><u>Quick & Simple Methods for Saving Snapshots of Your PS4 Games and Menus</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/shutter-speed-supreme-the-ultimate-camera-guide-for-slow-videos/"><u>Shutter Speed Supreme  The Ultimate Camera Guide for Slow Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-grip-on-online-community-interaction/"><u>Social Media's Grip On Online Community Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-covered-dont-spill-essential-online-non-disclosures/"><u>Stay Covered, Don't Spill: Essential Online Non-Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-synergy-hide-your-fb-networking/"><u>Subtle Synergy: Hide Your FB Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dynamics-of-facebooks-acceptance-criteria/"><u>The Dynamics of Facebook’s Acceptance Criteria</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-telegram-amidst-facebook-shutdown/"><u>The Rise of Telegram Amidst Facebook Shutdown</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-tracer-first-entry-into-facebook-world/"><u>Timeline Tracer: First Entry Into Facebook World</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-visibility-with-instagram-reels-and-facebook-stickers/"><u>Unlocking Brand Visibility with Instagram Reels & Facebook Stickers</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-oppo-reno-8t-5g-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Oppo Reno 8T 5G? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-mastodon-really/"><u>What Is Mastodon Really?</u></a></li>
+</ul></div>

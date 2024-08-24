@@ -1,7 +1,7 @@
 ---
 title: A Step-by-Step Approach to Enhanced FB Security
-date: 2024-07-12T10:51:21.411Z
-updated: 2024-07-13T10:51:21.411Z
+date: 2024-08-23T02:07:11.217Z
+updated: 2024-08-24T02:07:11.217Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,9 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the [Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -66,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The [Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
@@ -77,6 +83,9 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
 
 * Adding people to your restricted list on Facebook via the [Blocking](https://www.facebook.com/settings?tab=blocking) tab means they'll remain your friend on Facebook, but won't be able to see the posts you share with your friends only.
@@ -84,16 +93,25 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
 * Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## Be Facebook Privacy Aware
 
  By cleaning up past posts, being mindful of who sees your photos, and restricting access to your personal data, you can create a secure online presence on Facebook and other social media outlets. It's worthwhile reviewing these settings periodically to ensure that everything is as locked as you want it to be.
@@ -117,3 +135,55 @@ thumbnail: https://thmb.techidaily.com/3e4359dd584ef6e6b8909874d88727d66b87bd9dc
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-growth-and-glitter-in-video-ventures/"><u>[New] 2024 Approved  The Ultimate Guide to Growth & Glitter in Video Ventures</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-cutting-edge-capturing-10-apps-that-lead-the-web-video-recording-race/"><u>[New] Cutting Edge Capturing  #10 Apps That Lead the Web Video Recording Race</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-bypassing-youtubes-copyright-strike-legal-strategies-and-precautions/"><u>[New] In 2024, Bypassing YouTube's Copyright Strike  Legal Strategies and Precautions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-samsung-photo-editor-review-pros-con-features-and-guide/"><u>[New] Samsung Photo Editor Review - Pros, Con, Features, and Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-step-by-step-guide-to-find-youtube-hidden-videos/"><u>[Updated] 2024 Approved  Step-By-Step Guide to Find YouTube Hidden Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-in-class-ps3-virtual-games-for-pc/"><u>[Updated] In 2024, Best-in-Class PS3 Virtual Games for PC</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-sound-senses-try-our-free-online-rhythm-analyzers/"><u>[Updated] Sound Senses  Try Our FREE Online Rhythm Analyzers</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-heimdalls-vigil-gods-clash-in-ragnarok/"><u>2024 Approved  Heimdall's Vigil  Gods Clash in Ragnarok</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-multi-camera-mastery-top-11-cameras-for-every-viewpoint/"><u>2024 Approved  Multi-Camera Mastery  Top 11 Cameras for Every Viewpoint</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-comprehensive-guide-to-metaverse-promotion/"><u>2024 Approved  The Comprehensive Guide to Metaverse Promotion</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024s-top-camera-lineup-for-professional-use/"><u>2024’S Top Camera Lineup for Professional Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-shift-in-tech-monopoly-controls/"><u>Analyzing the Shift in Tech Monopoly Controls</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beat-overheating-and-boost-performance-top-review-of-havit-5-adjustable-fans-for-your-gaming-rig/"><u>Beat Overheating and Boost Performance: Top Review of HAVIT 5 Adjustable Fans for Your Gaming Rig</u></a></li>
+<li><a href="https://facebook.techidaily.com/combat-the-quiescence-wake-up-your-facebook-account/"><u>Combat the Quiescence: Wake Up Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-communities-in-real-time-with-facebooks-update/"><u>Connecting Communities in Real-Time with Facebook's Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-with-conciseness-the-essential-smart-list-for-users/"><u>Connecting with Conciseness: The Essential SMART List for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-covid-misinformation-a-roadmap-for-social-networks/"><u>Curbing COVID Misinformation: A Roadmap for Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-what-facebooks-revised-page-names-mean-now/"><u>Deciphering What Facebook's Revised Page Names Mean Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-potential-partners-in-a-click-facebooks-innovations-for-singles/"><u>Discovering Potential Partners in a Click: Facebook’s Innovations for Singles</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-hp-officejet-5255-printer-drivers-latest-version/"><u>Download and Install HP OfficeJet 5255 Printer Drivers: Latest Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-teardown-tactics-for-social-media-business-pages/"><u>Effective Teardown Tactics for Social Media Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortless-tunes-access-spotify-through-facebooks-mini-panel/"><u>Effortless Tunes: Access Spotify Through Facebook's Mini-Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tech-updates-forgotten-the-top-4-innovations-to-remember/"><u>Essential Tech Updates Forgotten: The Top 4 Innovations to Remember</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-group-dynamics-in-social-media-giants/"><u>Exploring the Group Dynamics in Social Media Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-user-chat-new-tools-for-instagram-messenger-users-announced/"><u>Facebook Enhances User Chat: New Tools for Instagram, Messenger Users Announced</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-more-ways-to-step-away-from-facebooks-clutches/"><u>Five More Ways to Step Away From Facebook's Clutches</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-samsung-galaxy-s23-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Samsung Galaxy S23 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-exploring-earning-potential-revenue-from-youtube-advertisements/"><u>In 2024, Exploring Earning Potential  Revenue From YouTube Advertisements?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-iphone-14-pro-max-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My iPhone 14 Pro Max when Phone is Broken?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-reflect-your-vision-affordable-personalization-of-professional-logo-designs-free/"><u>In 2024, Reflect Your Vision  Affordable Personalization of Professional Logo Designs (Free)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-ultimate-strategy-to-turn-your-fb-page-into-cash/"><u>In 2024, The Ultimate Strategy to Turn Your FB Page Into Cash</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-to-facebook-transfer-sharing-reel-content-seamlessly/"><u>Instagram to Facebook Transfer: Sharing Reel Content Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-online-identity-consequences-free/"><u>Is Online Identity Consequences-Free?</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-exclusion-in-fb-nostalgia/"><u>Master the Art of Exclusion in FB Nostalgia</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-path-to-influence/"><u>Mastering Social Media: Path to Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-messaging-innovations-roll-out-on-fb-messenger-and-instagram/"><u>New Messaging Innovations Roll Out on FB Messenger & Instagram</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/revitalize-computing-power-refreshing-intels-graphics-drivers/"><u>Revitalize Computing Power: Refreshing Intel's Graphics Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-virtual-afterlife-of-family-members-on-social-media-platforms/"><u>Securing Virtual Afterlife of Family Members on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/slash-the-impact-of-selective-advertising-on-web-platforms/"><u>Slash the Impact of Selective Advertising on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepping-away-smoothly-how-to-gradually-reduce-facebook-presence/"><u>Stepping Away Smoothly: How to Gradually Reduce Facebook Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-not-to-overlook-when-quitting-social-sites/"><u>Steps Not To Overlook When Quitting Social Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-6-steps-leading-from-forums-to-social-groups/"><u>The 6 Steps Leading From Forums To Social Groups</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-double-edged-sword-of-generative-ai/"><u>The Double-Edged Sword of Generative AI</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-elite-8-virtual-handhelds-overview-for-2024/"><u>The Elite 8 Virtual Handhelds Overview for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/top-5-ps2-simulators-to-transform-your-ios-gaming/"><u>Top 5 PS2 Simulators to Transform Your iOS Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-challenges-big-tech-on-free-speech-grounds/"><u>Trump Challenges Big Tech on Free Speech Grounds</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-crafting-the-perfect-track-heres-our-selection-of-the-best-8-chrome-os-compatible-daws-musicians/"><u>Updated In 2024, Crafting the Perfect Track? Heres Our Selection of the Best 8 Chrome OS-Compatible DAWs Musicians</u></a></li>
+</ul></div>

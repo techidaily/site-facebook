@@ -1,7 +1,7 @@
 ---
 title: "Behind the Scenes: Busting 10 Common Facebook Myths"
-date: 2024-07-12T10:48:42.349Z
-updated: 2024-07-13T10:48:42.349Z
+date: 2024-08-23T02:09:43.133Z
+updated: 2024-08-24T02:09:43.133Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,9 @@ Pixabay free image
 
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it ![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3\. Facebook Is Going to Charge You Money
 
 ![Cybersecurity measures of sites with payment methods](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Cybersecurity-measures-of-sites-with-payment-methods.jpg)
@@ -57,6 +60,9 @@ Pixabay free image
 
  Also, it means that if you've liked a certain page, your friends might see a photo of your face showing as a supporter of the page when the page is advertising on Facebook. So be careful what you "like".
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. You Can Post Other People's Content on Facebook
 
 ![Woman's hand handling a phone with a cup of coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/My-project-(4)-1.jpg)
@@ -65,6 +71,18 @@ Pixabay free image
 
  In other words, don't share content you don't own or have a right to share. You can use a [Rights Manager](https://www.facebook.com/formedia/tools/rights-manager) to protect your own intellectual property if you are a content creator.
 
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. It's Easy to Quit Facebook
 
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53).jpg)
@@ -75,6 +93,9 @@ Pixabay free image
 
  You'll also need to manually disconnect any app you have connected to Facebook, uninstall the Facebook app from your phone and tablet, as well as clear out your browser history.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
@@ -85,16 +106,25 @@ Pixabay free image
 
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ## 8\. Facebook Is Getting a Dislike Button
 
 ![Facebook-myths-dislike-button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/10/Facebook-myths-dislike-button.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
  For a long time now, people have been hoping for a "Dislike" button much like the "Like" button. But while Facebook wants you to get more Likes, a "Dislike" button would go against the fabric of the positive experience Facebook wants to push, according to founder Mark Zuckerberg.
 
  There are mixed opinions about [whether social media sites should have dislike buttons](https://www.makeuseof.com/social-media-platforms-dislike-buttons/) , and while Facebook never released it, it did release varied sticker emoticons for users to express themselves on Facebook.
 
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
 
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
@@ -111,6 +141,9 @@ Pixabay free image
 
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
 
  There are only two instances where Facebook will actually require ID proof from you,[according to its Help Centre](https://www.facebook.com/help/314201258613998/) :
@@ -143,3 +176,55 @@ Pixabay free image
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-gain-profit-power-the-secret-of-successful-youtube-marketing-and-500plus-for-2024/"><u>[New] Gain Profit Power  The Secret of Successful Youtube Marketing & 500+ for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-grasping-fcp-obtain-it-at-no-cost/"><u>[Updated] Grasping FCP  Obtain It at No Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-messenger-rooms-tips-and-tricks-for-beginners/"><u>10 Messenger Rooms Tips and Tricks for Beginners</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-must-have-apps-for-effective-social-media-timing/"><u>10 Must-Have Apps for Effective Social Media Timing</u></a></li>
+<li><a href="https://facebook.techidaily.com/12-adverse-impacts-social-medias-influence-on-society/"><u>12 Adverse Impacts: Social Media's Influence on Society</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-facetune-features-your-ultimate-guide-to-better-images/"><u>2024 Approved  Exploring Facetune Features  Your Ultimate Guide to Better Images</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unlocking-visual-storytelling-with-your-canon-timelapse-toolkit/"><u>2024 Approved  Unlocking Visual Storytelling with Your Canon Timelapse Toolkit</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-secure-steps-to-regain-lost-fb-account-control/"><u>8 Secure Steps to Regain Lost FB Account Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-compreenasional-approach-to-securing-your-online-presence/"><u>A Compreenasional Approach to Securing Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-comprehensive-roundup-of-this-years-most-compelling-podcasts/"><u>A Comprehensive Roundup of This Year's Most Compelling Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/activate-fb-two-factor-authentication-guide/"><u>Activate FB Two-Factor Authentication Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/adopting-a-fresh-username-with-facebook/"><u>Adopting a Fresh Username with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/alert-possible-intrusion-in-your-email-and-computer-system/"><u>Alert! Possible Intrusion in Your Email & Computer System</u></a></li>
+<li><a href="https://win-able.techidaily.com/alienware-command-center-malfunction-heres-how-to-restore-its-functionality/"><u>Alienware Command Center Malfunction? Here's How to Restore Its Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-social-networks-unpacked/"><u>Alternative Social Networks Unpacked</u></a></li>
+<li><a href="https://facebook.techidaily.com/android-tv-synergy-a-modern-setup-guide/"><u>Android-TV Synergy: A Modern Setup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/archery-athletes-disengage-from-online-platforms/"><u>Archery Athletes Disengage From Online Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-internet-comments-eternal-markers/"><u>Are Internet Comments Eternal Markers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-push-notifications-predicting-your-choices-truth-or-chance/"><u>Are Push Notifications Predicting Your Choices? Truth or Chance?</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-post-frequency-in-multiple-social-platforms/"><u>Balancing Post Frequency in Multiple Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-managing-third-party-websites-and-apps-on-your-facebook-profile/"><u>Best Practices for Managing Third-Party Websites and Apps on Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-clear-communication-delving-into-vague-blogging/"><u>Beyond Clear Communication: Delving Into Vague Blogging</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-screens-re-evaluating-facebooks-user-count/"><u>Beyond Screens: Re-Evaluating Facebook’s User Count</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-social-bonds-with-3-innovative-facebook-tagging-methods/"><u>Boost Social Bonds with 3 Innovative Facebook Tagging Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/channel-powered-accessibility-for-facebooks-group-members/"><u>Channel-Powered Accessibility for Facebook's Group Members</u></a></li>
+<li><a href="https://facebook.techidaily.com/claims-facebook-stands-against-dishonest-commerce-posts/"><u>Claims: Facebook Stands Against Dishonest Commerce Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/clean-slate-strategies-banishing-negative-posts-online/"><u>Clean Slate Strategies: Banishing Negative Posts Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/compact-play-enjoy-spotify-in-facebooks-miniplayer/"><u>Compact Play: Enjoy Spotify in Facebook's Miniplayer</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-who-sees-your-active-status-on-fb/"><u>Controlling Who Sees Your Active Status on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-engaging-social-network-circle/"><u>Crafting an Engaging Social Network Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-viral-videos-a-comprehensive-guide-to-facebook-reels/"><u>Creating Viral Videos: A Comprehensive Guide to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-an-online-community-strategies-for-high-engagement-content-on-facebook/"><u>Cultivating an Online Community: Strategies for High-Engagement Content on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/curbing-the-clicks-reducing-your-online-presence/"><u>Curbing the Clicks: Reducing Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-edge-chatting-integrating-facebooks-sounds-in-messages/"><u>Cutting-Edge Chatting: Integrating Facebook’s Sounds in Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-for-dollars-tracking-trends-and-targets/"><u>Data for Dollars: Tracking Trends and Targets</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/facebook-favoritism-at-your-fingertips-the-top-8-app-list/"><u>Facebook Favoritism at Your Fingertips  The Top 8 App List</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-itel-a60-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Itel A60 Activity | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-infinix-note-30-vip-racing-edition-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Infinix Note 30 VIP Racing Edition to iPhone | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-affordable-pc-video-recording-tools/"><u>In 2024, Affordable PC Video Recording Tools</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-complete-digest-exploring-google-podcast-apps-essence/"><u>In 2024, Complete Digest  Exploring Google Podcast App's Essence</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-realme-narzo-60x-5g-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Realme Narzo 60x 5G to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-oppo-a2-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Oppo A2 Lock Screen Password?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xs-max-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XS Max Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151882486-navigate-new-ways-transporting-fb-stories-and-notebooks-effortlessly/"><u>Navigate New Ways: Transporting FB Stories & Notebooks Effortlessly</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-no-cost-video-editing-solutions-top-imovie-alternatives/"><u>New 2024 Approved No-Cost Video Editing Solutions Top iMovie Alternatives</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/step-by-step-process-of-setting-up-your-logitech-webcam-for-video-for-2024/"><u>Step-by-Step Process of Setting Up Your Logitech Webcam for Video for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-complete-guide-to-securing-your-twitch-account-with-2fa-setup-and-use-instructions/"><u>The Complete Guide to Securing Your Twitch Account with 2FA Setup & Use Instructions</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-the-art-of-cinematic-editing-a-final-cut-pro-x-tutorial/"><u>Updated 2024 Approved The Art of Cinematic Editing A Final Cut Pro X Tutorial</u></a></li>
+</ul></div>

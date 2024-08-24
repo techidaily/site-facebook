@@ -1,7 +1,7 @@
 ---
 title: Securely Engage with Friends on Facebook, Here’s How!
-date: 2024-07-12T10:52:09.137Z
-updated: 2024-07-13T10:52:09.137Z
+date: 2024-08-23T02:06:25.868Z
+updated: 2024-08-24T02:06:25.868Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,9 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the [Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -62,10 +65,21 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The [Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
@@ -73,6 +87,9 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
@@ -84,6 +101,9 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 * To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
 * Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. Quick Tips
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
@@ -94,6 +114,18 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 * Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
 * Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Be Facebook Privacy Aware
 
  By cleaning up past posts, being mindful of who sees your photos, and restricting access to your personal data, you can create a secure online presence on Facebook and other social media outlets. It's worthwhile reviewing these settings periodically to ensure that everything is as locked as you want it to be.
@@ -117,3 +149,63 @@ thumbnail: https://thmb.techidaily.com/e849b3433ae861a98a41e422ed19bb8502406c236
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-chuckletunes-directory-select-funny-ringtone-sources/"><u>[New] ChuckleTunes Directory  Select Funny Ringtone Sources</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-complete-logs-of-facebook-messages-explained-for-2024/"><u>[New] Complete Logs of Facebook Messages Explained for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-elevate-your-voice-discovering-the-leading-vocal-changer-applications-for-android/"><u>[New] Elevate Your Voice  Discovering the Leading Vocal Changer Applications for Android</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-techniques-for-photo-based-tileworks/"><u>[New] Exploring Techniques for Photo-Based Tileworks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-changing-instagram-voices-a-step-by-step-guide/"><u>[New] In 2024, Changing Instagram Voices  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unearthing-unique-content-for-youtubes-spotlight/"><u>[New] In 2024, Unearthing Unique Content for Youtube's Spotlight</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-google-meet-username-transformation-guide-for-2024/"><u>[Updated] Google Meet Username Transformation Guide for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-interplatform-video-uploading-twitter-and-tumblr-synced-for-2024/"><u>[Updated] Interplatform Video Uploading  Twitter & Tumblr Synced for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-pros-hunters-rate-action-camera-winners/"><u>[Updated] Pros Hunters Rate  Action Camera Winners</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-your-daily-dose-of-humor-and-heartbreak-from-instagram-memes-for-2024/"><u>[Updated] Your Daily Dose of Humor & Heartbreak From Instagram Memes for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-pureaiediting-refined-photo-craftsmanship/"><u>2024 Approved  PureAiEditing  Refined Photo Craftsmanship</u></a></li>
+<li><a href="https://facebook.techidaily.com/4-vital-business-metrics-to-ignite-your-trajectory/"><u>4 Vital Business Metrics to Ignite Your Trajectory</u></a></li>
+<li><a href="https://facebook.techidaily.com/7-ways-social-media-brings-people-together/"><u>7 Ways Social Media Brings People Together</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/amplify-visual-narratives-with-audio-in-premiere-pro-for-2024/"><u>Amplify Visual Narratives with Audio in Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-social-medias-impact-on-quest-2-privacy/"><u>Analyzing Social Media's Impact on Quest 2 Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-eclipsed-by-facebooks-customized-personalized-user-access-methods/"><u>Apple Eclipsed by Facebook's Customized, Personalized User Access Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-exits-the-rationale-behind-facebooks-stay/"><u>Beyond Exits: The Rationale Behind Facebook's Stay</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-social-media-campaign-the-new-covid-19-frontier/"><u>Biden's Social Media Campaign: The New COVID-19 Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-tech-reshaped-what-new-antitrust-measures-mean/"><u>Big Tech Reshaped: What New Antitrust Measures Mean</u></a></li>
+<li><a href="https://facebook.techidaily.com/buzzword-bonanza-a-quick-guide-to-understanding-smart-acronyms/"><u>Buzzword Bonanza: A Quick Guide to Understanding SMART Acronyms</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-metaai-set-new-benchmarks-in-ai-conversationality/"><u>Can MetaAI Set New Benchmarks in AI Conversationality?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/cost-effective-wifi-solutions-analyzed-a-closer-look-at-the-tp-link-archer-c50/"><u>Cost-Effective WiFi Solutions Analyzed - A Closer Look at the TP-Link Archer C50</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-vk-exploring-russias-digital-gathering-place/"><u>Decoding VK: Exploring Russia's Digital Gathering Place</u></a></li>
+<li><a href="https://facebook.techidaily.com/defeating-displeasing-marketing-strategies-on-your-facebook-feed/"><u>Defeating Displeasing Marketing Strategies on Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-a-bespoke-fb-representation/"><u>Designing a Bespoke FB Representation</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiency-and-wellness-mastering-facebook-breaks/"><u>Efficiency and Wellness: Mastering Facebook Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/express-your-preferred-social-platform/"><u>Express Your Preferred Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-troubles-heres-how-to-navigate-and-fix-them-fast/"><u>FaceBook Troubles? Here's How to Navigate and Fix Them Fast!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vigilance-identifying-and-correcting-breaches/"><u>Facebook Vigilance: Identifying & Correcting Breaches</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fast-techniques-to-recover-deleted-reddit-posts-for-2024/"><u>Fast Techniques to Recover Deleted Reddit Posts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-offset-guide-affordable-channel-buys-to-monetize/"><u>First Offset Guide  Affordable Channel Buys to Monetize</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connecting-friends-to-global-community-facebook-as-meta-reimagined/"><u>From Connecting Friends to Global Community - Facebook as Meta Reimagined</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-tweets-to-tabs-facebooks-new-approach-to-content-discussion/"><u>From Tweets to Tabs: Facebook's New Approach to Content Discussion</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-sony-xperia-1-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-gaming-transformed-by-tech/"><u>In 2024, Gaming Transformed by Tech</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-poco-x5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Poco X5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-advances-in-therapy-tailored-cbt-techniques-for-better-wellness/"><u>ISBM Advances in Therapy: Tailored CBT Techniques for Better Wellness</u></a></li>
+<li><a href="https://facebook.techidaily.com/lasting-connections-or-closing-facebook-heres-what-you-should-do-first/"><u>Lasting Connections or Closing Facebook? Here's What You Should Do First</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-a-lasting-impact-3d-photography-techniques-on-social-networks/"><u>Making a Lasting Impact: 3D Photography Techniques on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterclass-transforming-your-social-media-moniker-on-fb/"><u>Masterclass: Transforming Your Social Media Moniker on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-grants-extension-exploring-reasons-behind-encryption-push-to-23/"><u>Meta Grants Extension: Exploring Reasons Behind Encryption Push to '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-non-facebook-direct-message-platforms/"><u>Navigating Non-Facebook Direct Message Platforms</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-moto-g-stylus-2023-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Moto G Stylus (2023).</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-fb-with-key-recovery-techniques/"><u>Safeguarding Your FB with Key Recovery Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/shop-smart-on-social-9-secrets-for-safe-marketplace-use/"><u>Shop Smart on Social: 9 Secrets for Safe Marketplace Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/silence-on-next-gen-oculus-a-shift-in-plans-max-80-charaters/"><u>Silence on Next-Gen Oculus: A Shift in Plans (Max 80 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-chatter-circuit-a-compilation-of-this-years-popular-social-platforms/"><u>The Chatter Circuit: A Compilation of This Year's Popular Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filters-shifting-understanding-fbctas-role/"><u>The Filters Shifting: Understanding FBCTA's Role</u></a></li>
+<li><a href="https://media-tips.techidaily.com/tiny-tunes-massive-savings-how-to-compact-audio-files-for-all-devices/"><u>Tiny Tunes, Massive Savings: How to Compact Audio Files for All Devices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/troubleshooting-steps-saving-conversations-with-chatgpt/"><u>Troubleshooting Steps: Saving Conversations with ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-soccer-teams-cut-ties-with-snapchat-instagram-amid-harsh-criticism/"><u>UK Soccer Teams Cut Ties with Snapchat, Instagram Amid Harsh Criticism</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-what-doesnt-make-it-to-your-feed-on-fb/"><u>Unveiling What Doesn't Make It to Your Feed on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/water-sports-collectives-quit-social-channels/"><u>Water Sports Collectives Quit Social Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-a-ghost-in-online-chatting/"><u>What Is a 'Ghost' In Online Chatting?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-pauses-introduction-of-revised-user-agreement/"><u>WhatsApp Pauses Introduction of Revised User Agreement</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-controls-facebook-currently/"><u>Who Controls Facebook Currently?</u></a></li>
+</ul></div>

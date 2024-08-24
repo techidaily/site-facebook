@@ -1,7 +1,7 @@
 ---
 title: A Look Back at Google’s Major News of 2022
-date: 2024-07-12T10:50:32.403Z
-updated: 2024-07-13T10:50:32.403Z
+date: 2024-08-23T02:07:57.153Z
+updated: 2024-08-24T02:07:57.153Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,16 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. The End of YouTube Originals
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
 
  As the name suggests, YouTube Originals focused on content entirely original to YouTube that had a higher production budget than your average video. These could be movies, TV shows, or even recorded Google events. YouTube Originals came about in 2016 and was only around for six years before Google pulled the plug.
@@ -53,6 +59,9 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and [various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
  In early 2022, the US International Trade Commission ruled that Google did indeed violate a total of five Sonos patents. But in August of the same year, Google hit Sonos back with its own lawsuit, claiming that Sonos had actually violated seven of Google's patents, such as its voice assistant technology.
@@ -63,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
 ![elemental block showing fb facebook abbreviation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/fb-block-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
  Google and [Facebook (now known as Meta)](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) are undoubtedly giants in the tech industry, with their combined worth coming to over a trillion dollars. But in early 2022, rumors began circulating about a possible secret deal existing between the two companies.
 
  This deal was reportedly proposed to consolidate the online advertising market and was formed in 2018, with suspicions arising around its possible existence back in 2020\. The CEO of Facebook, as it was then called, Mark Zuckerberg, and Google CEO Sundar Pichai allegedly formed the deal, though it was originally thought that the signature was solely provided by Facebook COO Sheryl Sandberg.
@@ -73,10 +89,16 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. The $25B UK and Netherlands Lawsuits
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
@@ -108,3 +130,67 @@ thumbnail: https://thmb.techidaily.com/ff7dea50eb587133c9c080dfe92ef9382e6bba6ee
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-instagram-live-with-professional-obs/"><u>[New] In 2024, Instagram Live with Professional OBS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-15-best-sites-to-find-and-download-royalty-free-music-for-youtube/"><u>[Updated] 2024 Approved  15 Best Sites to Find & Download Royalty-Free Music for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comedy-crusade-youtubes-hottest-laughter-leaders-for-2024/"><u>[Updated] Comedy Crusade  YouTube's Hottest Laughter Leaders for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-facebook-film-fans-choosing-the-best-extensions-and-downloader-plugins-on-firefox/"><u>[Updated] Facebook Film Fans  Choosing the Best Extensions and Downloader Plugins on Firefox</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-memes-galore-download-and-share-joy/"><u>[Updated] Memes Galore  Download & Share Joy</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-recalibrating-youtube-rearranging-with-ease-and-speed/"><u>[Updated] Recalibrating YouTube  Rearranging with Ease and Speed</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-vsx-screen-grabber-insight-detailed-overview/"><u>[Updated] VSX Screen Grabber Insight  Detailed Overview</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-curate-your-cognitive-playlist-top-trivia-channels/"><u>2024 Approved  Curate Your Cognitive Playlist  Top Trivia Channels</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-mirror-apple-iphone-12-pro-max-to-your-windows-pc-drfone-by-drfone-ios/"><u>6 Methods to Mirror Apple iPhone 12 Pro Max to your Windows PC | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ai-ryzen-zen-chip-9-hx-grooves-past-intel-in-single-core-performance-leaving-core-ultra-7-268v-and-ryzen-9-7945hx3d-in-the-dust/"><u>AI Ryzen Zen Chip 9 HX Grooves Past Intel in Single-Core Performance, Leaving Core Ultra 7 268V & Ryzen 9 7945HX3D In The Dust</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-the-motive-behind-facebooks-just-feed-change/"><u>Analyzing the Motive Behind Facebook's 'Just Feed' Change</u></a></li>
+<li><a href="https://win-answers.techidaily.com/cities-skylines-crashing-dilemma-discover-the-fixes-you-need/"><u>Cities: Skylines Crashing Dilemma? Discover the Fixes You Need</u></a></li>
+<li><a href="https://facebook.techidaily.com/clear-the-clutter-filter-out-politics-boost-joy/"><u>Clear the Clutter: Filter Out Politics, Boost Joy</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-social-network-snapshot-downloading-your-facebook-past/"><u>Complete Social Network Snapshot: Downloading Your Facebook Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/decline-to-share-your-digital-footprint-with-facebook/"><u>Decline to Share Your Digital Footprint with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-iphone-13-pro-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your iPhone 13 Pro Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-decorators-dream-designing-collage-content-on-social-platforms/"><u>Digital Decorators' Dream: Designing Collage Content on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oppo-reno-8t-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Oppo Reno 8T 5G Device SIM</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-tactics-against-online-platforms-shadowbans/"><u>Evasion Tactics Against Online Platform's Shadowbans</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-different-post-formats-for-optimal-social-media-reach/"><u>Exploring Different Post Formats for Optimal Social Media Reach</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-honor-play-8t-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Honor Play 8T in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-6-plus-passcode-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 6 Plus Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-vivo-x-fold-2-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Vivo X Fold 2 Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-note-50-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme Note 50 Phone without Google Account?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-oppo-find-x7-ultra-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Oppo Find X7 Ultra</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-feed-clean-tips-to-delete-fb-comments/"><u>Keeping Your Feed Clean: Tips to Delete Fb Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-in-immediate-access-to-separate-facebook-profiles/"><u>Mastery in Immediate Access to Separate Facebook Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-integrates-on-instagramfacebook-with-new-initiative/"><u>Meta Drops Integrates on Instagram/Facebook with New Initiative</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/navigating-the-best-youtube-news-networks-today/"><u>Navigating the Best YouTube News Networks Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/opening-doors-to-facebooks-community-platforms/"><u>Opening Doors to Facebook's Community Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/podcast-and-live-room-spotlight-on-facebooks-latest-hub/"><u>Podcast & Live Room Spotlight on Facebook's Latest Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-privacy-metas-image-control-plan/"><u>Protecting Privacy: Meta's Image Control Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionize-your-workflow-with-facebooks-8-core-features/"><u>Revolutionize Your Workflow with Facebook's 8 Core Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-authenticity-on-meta-platforms/"><u>Social Authenticity on Meta Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-identity-authentication-by-meta/"><u>Social Identity Authentication by Meta</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/streamline-content-management-twitter-vids-to-insta-feed-for-2024/"><u>Streamline Content Management  Twitter Vids to Insta Feed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-insiders-guide-to-crafting-insta-tones-for-2024/"><u>The Insider's Guide to Crafting Insta Tones for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-photographers-pathway-transitioning-from-camera-to-computer-screen-for-2024/"><u>The Photographer's Pathway  Transitioning From Camera to Computer Screen for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-life-without-constant-connectivity/"><u>The Quiet Life Without Constant Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-completely-removing-fb-alerts/"><u>Tips for Completely Removing Fb Alerts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-10-cheapbudget-friendly-action-cameras/"><u>Top 10 Cheap/Budget Friendly Action Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchain-yourself-avoid-being-tagged-in-photos/"><u>Unchain Yourself: Avoid Being Tagged in Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-productivity-explore-8-must-have-crowdfire-functions/"><u>Unlock Productivity: Explore 8 Must-Have Crowdfire Functions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-secrets-of-fbs-curated-content/"><u>Unraveling the Secrets of Fb's Curated Content</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-best-free-girl-voice-changer-online-for-2024/"><u>Updated Best Free Girl Voice Changer Online for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-help-center-and-what-can-you-use-it-for/"><u>What Is Facebook Help Center and What Can You Use It For?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-extends-grace-period-for-new-privacy-acceptance/"><u>WhatsApp Extends Grace Period for New Privacy Acceptance</u></a></li>
+</ul></div>

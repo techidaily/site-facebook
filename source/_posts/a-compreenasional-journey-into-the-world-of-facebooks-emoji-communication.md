@@ -1,7 +1,7 @@
 ---
 title: A Compreenasional Journey Into the World of Facebook's Emoji Communication
-date: 2024-07-12T10:54:44.195Z
-updated: 2024-07-13T10:54:44.195Z
+date: 2024-08-23T02:03:58.038Z
+updated: 2024-08-24T02:03:58.038Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/ae8528ae334175808b74ac01fefc618d6dd771a55
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
@@ -41,6 +44,14 @@ thumbnail: https://thmb.techidaily.com/ae8528ae334175808b74ac01fefc618d6dd771a55
 
 ![Create Facebook Post Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/create-facebook-post-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
  Once in the**Create post** window, there are a lot more icons to navigate. Besides the options already mentioned, there's an icon to tag friends in your post, a check-in feature that adds a location to your post, a flag icon that shares life events, and an ellipsis button for more features.
 
 ![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
@@ -59,6 +70,9 @@ thumbnail: https://thmb.techidaily.com/ae8528ae334175808b74ac01fefc618d6dd771a55
 
 ![Activities Icons for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/activities-icons-for-facebook-post.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
 
  If [Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
@@ -67,6 +81,9 @@ thumbnail: https://thmb.techidaily.com/ae8528ae334175808b74ac01fefc618d6dd771a55
 
 ![Symbols for Post Audience Facebook Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/symbols-for-post-audience-facebook-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 What do these Facebook symbols mean?
 
 * **Globe (Public)** : Make your posts visible to anyone on the internet.
@@ -102,6 +119,9 @@ What do these Facebook symbols mean?
 
 ![Facebook Post Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-post-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
 
 ## Facebook Navigation Symbols
@@ -114,6 +134,9 @@ What do these Facebook symbols mean?
 
 ![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
 
 ![Chats Icon and Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/chats-icon-and-tools-on-facebook.jpg)
@@ -122,6 +145,9 @@ What do these Facebook symbols mean?
 
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
 
 ### Facebook Navigation Icons
@@ -161,6 +187,9 @@ What do these Facebook symbols mean?
 
  Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from [downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to [boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Symbols on Facebook: Explained
 
  Once you know what all of these Facebook symbols mean, it's clear that this social network is good for much more than just scrolling mindlessly.
@@ -188,3 +217,61 @@ What do these Facebook symbols mean?
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-becoming-a-star-spectator-on-the-social-stage/"><u>[New] In 2024, Becoming a Star Spectator on the Social Stage</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-improve-obs-rendering-speed-and-quality/"><u>[New] In 2024, Improve OBS Rendering Speed and Quality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-ultimate-guide-to-transforming-views-into-revenue/"><u>[New] The Ultimate Guide to Transforming Views Into Revenue</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-top-tier-window-snapper-for-win11-users-for-2024/"><u>[New] Top-Tier Window Snapper for Win11 Users for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>[New] Youtube's Prime Moments  Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-conquering-cinematic-recording-a-guide-to-windowsmacosios/"><u>[Updated] Conquering Cinematic Recording  A Guide to Windows/macOS/iOS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-ultimate-blueprint-for-successful-freefire-videos-on-youtube/"><u>[Updated] The Ultimate Blueprint for Successful FreeFire Videos on YouTube</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-how-to-check-your-videos-legal-status-before-tiktok-upload/"><u>2024 Approved  How to Check Your Video's Legal Status Before TikTok Upload</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-macpc-vmix-bridge-software/"><u>2024 Approved  MacPC VMix Bridge Software</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-vivo-y200-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-visual-journey-mastering-the-art-of-incorporating-text-into-images-on-pcmacos-for-2024/"><u>A Visual Journey  Mastering the Art of Incorporating Text Into Images on PC/MacOS for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/atlasos-resurgence-guide-for-older-tech/"><u>AtlasOS Resurgence Guide for Older Tech</u></a></li>
+<li><a href="https://win-blog.techidaily.com/blackwood-performance-improvements-on-the-elder-scrolls-online-server/"><u>Blackwood Performance Improvements on The Elder Scrolls Online Server</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-a2-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from A2</u></a></li>
+<li><a href="https://fox-http.techidaily.com/distinguished-choices-top-iphone-sound-artisans/"><u>Distinguished Choices  Top iPhone Sound Artisans</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-convenience-with-easy-to-modify-fb-links/"><u>Enhance Convenience with Easy-to-Modify FB Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-content-policies-on-facebooks-white-list/"><u>Exploring Content Policies on Facebook's White List</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-faces-an-unexpected-setback-from-ios-145/"><u>Facebook Faces an Unexpected Setback From iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-journey-through-the-metaverse-landscape/"><u>Facebook's Journey Through the Metaverse Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-new-challenge-in-the-wake-of-ios-145/"><u>Facebook's New Challenge in the Wake of iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/find-and-explore-fbs-latest-views/"><u>Find and Explore FB's Latest Views</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/fire-stick-remote-pairing-made-easy-a-comprehensive-instructional/"><u>Fire Stick Remote Pairing Made Easy: A Comprehensive Instructional</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-metaai-challenge-traditional-ai-dialogue-tools/"><u>How Does MetaAI Challenge Traditional AI Dialogue Tools?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-regain-fb-log-in-without-prior-generated-codes/"><u>How to Regain FB Log In Without Prior Generated Codes</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-lag-and-hitching-in-fortnite-on-your-pc/"><u>How to Resolve Lag and Hitching in Fortnite on Your PC</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-c55-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Poco C55 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-learn-to-navigate-two-screens-a-comprehensible-guide-to-floating-window-on-netflix/"><u>In 2024, Learn to Navigate Two Screens  A Comprehensible Guide to Floating Window on Netflix</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-navigating-your-idevice-how-to-download-episodes-with-swiftness/"><u>In 2024, Navigating Your iDevice - How to Download Episodes with Swiftness</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-in-avoiding-social-snares-of-high-order/"><u>Mastery in Avoiding Social Snares of High Order</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-facebook-security-essential-privacy-strategies/"><u>Maximize Facebook Security: Essential Privacy Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-learning-with-poll-based-questions/"><u>Maximizing Social Learning with Poll-Based Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-fbs-facial-recognition-systema-detailed-analysis/"><u>Meta Drops FB's Facial Recognition System—A Detailed Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/more-than-meets-the-eye-reassessing-the-facebook-dossier/"><u>More than Meets the Eye: Reassessing The Facebook Dossier</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-video-repair-tool-repair-corrupt-damaged-unplayable-video-files-of-vivo-y78plus-by-stellar-video-repair-mobile-video-repair/"><u>MP4 Video Repair Tool - Repair corrupt, damaged, unplayable video files of Vivo Y78+</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-distancing-minimizing-online-interactions/"><u>Navigating Social Distancing: Minimizing Online Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/notice-hacked-recognizing-and-resolving-facebook-breaches/"><u>Notice Hacked? Recognizing & Resolving Facebook Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-metaverse-is-it-superior-to-facebooks-rift-2/"><u>Privacy in the Metaverse: Is It Superior to Facebook's Rift 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-your-online-identity-on-facebook-unpredictably/"><u>Reclaiming Your Online Identity on Facebook Unpredictably</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-content-circulation-facebook-listens-to-user-voices/"><u>Rethinking Content Circulation: Facebook Listens to User Voices</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/-wealth-wonders-a-kids-fortune-in-the-streaming-space-for-2024/"><u>Ryan’s Wealth Wonders  A Kid's Fortune in the Streaming Space for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-pledges-support-against-global-virus-threat/"><u>Social Media Pledges Support Against Global Virus Threat</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-forum-participation-a-guide/"><u>Stealthy Forum Participation: A Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-disengagement-for-a-focused-facebook-feed/"><u>Strategic Disengagement for a Focused Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-disclosures-in-facebook-papers-released/"><u>The Essential Disclosures in Facebook Papers Released</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-joining-an-expat-group-on-facebook/"><u>The Pros and Cons of Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-puzzle-societys-scorn-towards-online-friendship-groups/"><u>The Puzzle: Society's Scorn Towards Online Friendship Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-defense-strategy-for-your-social-networking/"><u>The Ultimate Defense Strategy for Your Social Networking</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-xiaomi-redmi-12-5g-by-fonelab-android-recover-music/"><u>The way to get back lost music from Xiaomi Redmi 12 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-podcasts-of-22-comprehensive-review-and-ratings/"><u>Top Podcasts of '22 - Comprehensive Review & Ratings</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-custom-setup-unresponsive-issues/"><u>Troubleshooting Steps for Custom Setup Unresponsive Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-secrecy-of-facebook-chats/"><u>Unveiling the Secrecy of Facebook Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-truths-about-facebooks-popularity-claims/"><u>Unveiling Truths About Facebook’s Popularity Claims</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/watching-star-wars-saga-chronologically-on-disneyplus-a-step-by-step-guide/"><u>Watching 'Star Wars' Saga Chronologically on Disney+: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-made-the-biggest-impact-top-podcasts-from-22/"><u>What Made the Biggest Impact: Top Podcasts From '22</u></a></li>
+</ul></div>

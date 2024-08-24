@@ -1,7 +1,7 @@
 ---
 title: 7 Negative Effects of Social Media on People and Users
-date: 2024-07-12T10:48:36.678Z
-updated: 2024-07-13T10:48:36.678Z
+date: 2024-08-23T02:09:48.646Z
+updated: 2024-08-24T02:09:48.646Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,16 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  If you [find yourself upset after a social media session](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) , also consider the networks you use and the people you follow. You're much more likely to feel anxious after reading political arguments and doomsday news than you are after seeing fun updates from your favorite musicians or photos of your friends' pets.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Cyberbullying
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows [what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -57,10 +63,16 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know [how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
  As most people are probably aware, social media forms unrealistic expectations of life and friendships in our minds.
@@ -73,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Negative Body Image
 
 ​​​​​​
@@ -107,6 +122,9 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our [guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
@@ -132,3 +150,53 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-top-3-hd-film-scrapers-on-fb/"><u>[New] Top 3 HD Film Scrapers on Fb</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-understanding-the-impact-of-macos-11-big-sur-on-users/"><u>[New] Understanding the Impact of macOS 11 Big Sur on Users</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-groundwork-for-animate-infographic-creation/"><u>[Updated] Groundwork for Animate Infographic Creation</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-bridging-the-gap-incorrancing-youtube-links-within-presentation-software/"><u>[Updated] In 2024, Bridging the Gap  Incorrancing YouTube Links Within Presentation Software</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-mastering-subtitle-integration-in-wmp/"><u>[Updated] In 2024, Mastering Subtitle Integration in WMP</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-plainvidwin11-intuitive-simple-screen-recorder-for-pcs/"><u>2024 Approved  PlainVidWin11  Intuitive, Simple Screen Recorder for PCs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/breaking-down-vimeo-streaming-giants-secrets-revealed-for-2024/"><u>Breaking Down Vimeo  Streaming Giant's Secrets Revealed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-brings-an-abrupt-thread-halt-on-insta/"><u>December Brings an Abrupt Thread Halt on Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciding-on-facebook-events-perks-and-issues/"><u>Deciding On Facebook Events - Perks and Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-access-rites-to-meta-social-network-governance/"><u>Deciphering Access Rites to Meta Social Network Governance</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-photodnas-role-in-digital-security/"><u>Deciphering PhotoDNA's Role in Digital Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/decision-making-for-your-ideal-social-media-hub/"><u>Decision-Making for Your Ideal Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-simple-feed-name-change/"><u>Decoding Facebook’s Simple Feed Name Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-new-antitrust-policies-against-big-tech/"><u>Decoding New Antitrust Policies Against Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-privacy-leaked-facebook-secrets-exposed/"><u>Decoding Privacy: Leaked Facebook Secrets Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-inescapable-recommendations-on-fb/"><u>Decoding the Inescapable Recommendations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-upcoming-us-antitrust-reforms-and-impact-on-tech-titans/"><u>Decoding Upcoming US Antitrust Reforms & Impact on Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/delete-fb-view-records-a-guide-to-a-cleaner-profile/"><u>Delete FB View Records: A Guide to a Cleaner Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-digital-obscurity-a-study-of-vague-content-sharing/"><u>Delving Into Digital Obscurity - A Study of Vague Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/designing-engaging-facebook-timeline-images/"><u>Designing Engaging Facebook Timeline Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-digital-picture-proprietorship/"><u>Determining Digital Picture Proprietorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-the-credibility-of-facebooks-safety-email-securityfbcom/"><u>Determining the Credibility of Facebook's Safety Email: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/differentiating-yourself-as-a-brand-choosing-between-personal-and-business-pages/"><u>Differentiating Yourself as a Brand: Choosing Between Personal and Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-age-advantages-the-positive-seven-for-society/"><u>Digital Age Advantages: The Positive Seven for Society</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-delirium-the-top-20-web-pages-where-people-unite/"><u>Digital Delirium: The Top 20 Web Pages Where People Unite</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-top-3-places-without-facebook/"><u>Digital Disconnect: Top 3 Places Without Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-how-each-like-and-share-matters/"><u>Digital Footprints: How Each Like & Share Matters</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-identity-shift-step-by-step-guide-to-renaming-fb-profile/"><u>Digital Identity Shift: Step-by-Step Guide to Renaming FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-lifesavers-the-guide-to-saving-fb-content/"><u>Digital Lifesavers: The Guide to Saving FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitized-dilemminas-the-complex-costs-of-social-media/"><u>Digitized Dilemminas: The Complex Costs of Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-access-to-groups-with-facebooks-channels-feature/"><u>Direct Access to Groups with Facebook's Channels Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-how-grouping-strengthens-digital-relationships/"><u>Discover How Grouping Strengthens Digital Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/discussion-dive-which-social-platform-excels-in-community-building/"><u>Discussion Dive: Which Social Platform Excels in Community Building</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facebooks-governance-strategy-in-its-latest-launch/"><u>Dissecting Facebook’s Governance Strategy in Its Latest Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-impact-of-touch-on-social-networking/"><u>Dissecting the Impact of Touch on Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-metas-verified-reputation-system/"><u>Diving Into Meta's Verified Reputation System</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-give-strangers-access-to-your-social-profile/"><u>Don't Give Strangers Access to Your Social Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-exclusion-of-extraneous-exchanges-in-fb-groups/"><u>Efficient Exclusion of Extraneous Exchanges in Fb Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-ways-to-disconnect-from-facebook-android-style/"><u>Efficient Ways to Disconnect From Facebook, Android Style</u></a></li>
+<li><a href="https://facebook.techidaily.com/electric-future-total-renewable-infrastructure-at-fb/"><u>Electric Future: Total Renewable Infrastructure at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-profile-metas-paid-verification/"><u>Elevate Your Profile: Metas' Paid Verification</u></a></li>
+<li><a href="https://video-capture.techidaily.com/essential-android-mobas-the-ultimate-list-for-2024/"><u>Essential Android MOBAs  The Ultimate List for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/gaming-memories-made-easy-with-fraps/"><u>Gaming Memories Made Easy with Fraps</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Vivo S17 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-the-ultimate-travel-guide-youtubes-best-vlogs/"><u>In 2024, The Ultimate Travel Guide  YouTube's Best Vlogs</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ng-the-very-best-top-9-free-logo-design-software/"><u>Ranking the Very Best  Top 9 Free Logo Design Software</u></a></li>
+</ul></div>

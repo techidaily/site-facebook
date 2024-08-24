@@ -1,7 +1,7 @@
 ---
 title: "Be Alert: Detect and Deter Uninvited Social Media Access"
-date: 2024-07-12T10:49:09.580Z
-updated: 2024-07-13T10:49:09.580Z
+date: 2024-08-23T02:09:17.644Z
+updated: 2024-08-24T02:09:17.644Z
 tags:
   - facebook
 categories:
@@ -41,6 +41,9 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
  If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Remove Device Access to Facebook
 
  If you see something that looks suspicious, you can use this list to revoke that device's access. Keep in mind that some IP address glitches might occasionally see one of your legitimate devices pop up in an unrecognized location. Using a VPN set to a server in a different location will do this, too. These cases are safe to ignore.
@@ -55,6 +58,9 @@ To revoke device access on your Facebook account:
 
  The access will be revoked, but the unauthorized person could potentially log in again if they know your password.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Change Your Facebook Password
 
  Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
@@ -67,6 +73,17 @@ To revoke device access on your Facebook account:
 
 ![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### How to Set Up Two-Factor Authentication (2FA)
 
  Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
@@ -80,6 +97,9 @@ To turn on 2FA on Facebook:
 
 ![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Set Up Alerts for Unrecognized Logins
 
  You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
@@ -103,6 +123,9 @@ To set up the feature:
 
 ![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Has Your Facebook Account Been Breached?
 
 Let's quickly summarize what we have learned:
@@ -139,3 +162,51 @@ Let's quickly summarize what we have learned:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-jumpstart-your-channel-with-these-top-10-video-editing-tips/"><u>[New] 2024 Approved  Jumpstart Your Channel with These Top 10 Video Editing Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-uncapped-screenshot-savior-app/"><u>[New] Uncapped Screenshot Savior App</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-hero5-black-or-yi-comparing-top-actions-cameras/"><u>[Updated] 2024 Approved  Hero5 Black or YI  Comparing Top Actions Cameras</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-one-click-coordination-sync-your-zoom-calls-across-devices/"><u>[Updated] 2024 Approved  One-Click Coordination  Sync Your Zoom Calls Across Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-video-inversion-step-by-step-strategy/"><u>[Updated] In 2024, Instagram Video Inversion  Step-by-Step Strategy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-making-a-mark-advanced-strategies-for-youtube-video-production/"><u>[Updated] Making a Mark  Advanced Strategies for YouTube Video Production</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-game-plan-for-creating-a-hit-youtube-introduction-trailer/"><u>2024 Approved  The Game Plan for Creating a Hit YouTube Introduction Trailer</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-top-5-efforts-crafting-perfect-titles/"><u>2024 Approved  Top 5 Efforts  Crafting Perfect Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-reasons-you-should-be-worried-about-the-facebook-metaverse/"><u>3 Reasons You Should Be Worried About the Facebook Metaverse</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-itel-p40-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-reasons-social-media-killed-online-forums/"><u>6 Reasons Social Media Killed Online Forums</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-new-chapter-without-carolyn-in-facebook-ads/"><u>A New Chapter Without Carolyn in Facebook Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/adaptive-timing-for-profile-picture-evolution/"><u>Adaptive Timing for Profile Picture Evolution</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/addressing-the-reboot-loop-how-to-solve-frequent-watch-dogs-legion-shutdowns-on-desktops/"><u>Addressing the Reboot Loop: How to Solve Frequent 'Watch Dogs: Legion' Shutdowns on Desktops</u></a></li>
+<li><a href="https://facebook.techidaily.com/after-the-big-shutdown-our-data-trail/"><u>After the Big Shutdown: Our Data Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/basketball-clubs-refuse-social-media-access/"><u>Basketball Clubs Refuse Social Media Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-in-promoting-vacancies-through-fb/"><u>Best Practices in Promoting Vacancies Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-spots-to-traverse-for-freelance-employment/"><u>Best Spots to Traverse for Freelance Employment</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-texting-facebook-rolls-out-sonic-innovations/"><u>Beyond Texting: Facebook Rolls Out Sonic Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-data-battle-whatsapp-challenges-indian-privacy-act/"><u>Big Data Battle: WhatsApp Challenges Indian Privacy Act</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-complexity-insights-from-facebooks-openness-center/"><u>Breaking Down Complexity: Insights From Facebook's Openness Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-powerful-branding-on-fb-8-compelling-arguments-for-business-pages/"><u>Building Powerful Branding on FB: 8 Compelling Arguments for Business Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-your-life-stories-mastering-facebook-on-this-day/"><u>Capture Your Life Stories: Mastering Facebook On This Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/career-enhancement-through-effective-social-media-use/"><u>Career Enhancement Through Effective Social Media Use</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/channel-trailers-that-convert-viewers-into-customers-for-2024/"><u>Channel Trailers that Convert Viewers Into Customers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-securityfbcom/"><u>Checking the Legitimacy of FB's Safety Mail Address: security@fb.com</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-meta-shatter-the-dominance-of-facebook-and-instagram-in-europe/"><u>Could Meta Shatter the Dominance of Facebook & Instagram in Europe?</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-effective-bilingualmultilingual-social-media-messages/"><u>Crafting Effective Bilingual/Multilingual Social Media Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/crossover-creation-facebooks-new-joint-venture-with-spotify/"><u>Crossover Creation: Facebook's New Joint Venture with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/cutting-off-mobile-browsing-feature-facebook/"><u>Cutting Off Mobile Browsing Feature: Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/cybersecurity-trend-300-oculus-purchases-breached-accounts/"><u>Cybersecurity Trend: $300 Oculus Purchases, Breached Accounts</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/demystifying-cable-tv-and-online-streaming-services-an-in-depth-comparison/"><u>Demystifying Cable TV and Online Streaming Services: An In-Depth Comparison</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dji-redefines-gaming-the-in-depth-comparison-of-mavic-air-and-spark/"><u>DJI Redefines Gaming  The In-Depth Comparison of Mavic Air and Spark</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/exploring-the-dangers-of-keygen-malware-symptoms-and-removal-strategies/"><u>Exploring the Dangers of Keygen Malware: Symptoms & Removal Strategies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/gasp-and-guffaw-10-instagram-pages-where-laughter-meets-tears/"><u>Gasp & Guffaw  10 Instagram Pages Where Laughter Meets Tears</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-tecno-pop-7-pro-by-drfone-android/"><u>How to Bypass FRP on Tecno Pop 7 Pro?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/how-to-create-a-successful-live-stream-for-2024/"><u>How to Create A Successful Live Stream for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-xs-max-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone XS Max to PC via USB? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oneplus-11r-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from OnePlus 11R to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/innovative-visual-tech-top-7-screen-options-for-image-experts/"><u>Innovative Visual Tech - Top 7 Screen Options for Image Experts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-f54-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy F54 5G Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154597437-secure-digital-dialogues-facebook-implements-comprehensively-end-to-end-encryption-for-direct-messaging-and-calls/"><u>Secure Digital Dialogues: Facebook Implements Comprehensively End-to-End Encryption for Direct Messaging and Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151253987-unveiling-my-initial-facebook-sign-up-day/"><u>Unveiling: My Initial Facebook Sign-Up Day</u></a></li>
+</ul></div>

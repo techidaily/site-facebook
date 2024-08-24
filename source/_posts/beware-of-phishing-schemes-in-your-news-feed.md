@@ -1,7 +1,7 @@
 ---
 title: Beware of Phishing Schemes in Your News Feed
-date: 2024-07-12T10:55:25.125Z
-updated: 2024-07-13T10:55:25.125Z
+date: 2024-08-23T02:03:18.658Z
+updated: 2024-08-24T02:03:18.658Z
 tags:
   - facebook
 categories:
@@ -69,10 +69,16 @@ Close
 
 It’s a good idea to do a privacy check on a regular basis.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Remove Access to Facebook From Suspicious Apps
 
 ![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
  Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
 
  You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
@@ -95,10 +101,16 @@ Close
 
  If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of [reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Know the Signs of a Facebook Scam
 
 ![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Screenshot by Natalie Stewart, no attribution required.
 
  Knowing the [most common Facebook phishing scams](https://www.makeuseof.com/most-common-social-media-phishing-attacks/) helps you stay alert. One common trick is to send you a link to a fake website, often a login page. Remember that Facebook will never ask you to "verify your account" before following a link.
@@ -109,6 +121,9 @@ Close
 
  Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Don’t Reply to Trivia Facebook Posts
 
 ![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
@@ -131,16 +146,39 @@ Close
 
  If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## 8\. Use a Strong Password for Your Facebook Account
 
 ![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
 
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->
  Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
 
  Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to [make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
 
  Even though it's convenient, you should avoid using the**Log in with Facebook** option on other websites. The more sites your Facebook account connects to, the greater the loss if you are ever phished. Instead, make a unique login for each account.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ## Stay Safe From Facebook Phishing
 
  If you think you may have been phished, the first thing you should do is change your Facebook password. Then, log out of all devices. It can also help to go through a checklist of security measures.
@@ -164,3 +202,68 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-direct-transfer-of-tweets-video-features-onto-snapchat-for-2024/"><u>[New] Direct Transfer of Tweets' Video Features Onto Snapchat for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-fast-track-fun-turning-animated-art-into-sticky-messages-quickly-for-2024/"><u>[New] Fast Track Fun  Turning Animated Art Into Sticky Messages Quickly for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-navigating-the-nuances-of-twitters-video-policies/"><u>[New] In 2024, Navigating the Nuances of Twitter's Video Policies</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/1715859853332-updated-explore-android-written-by-dr-jane-smith-a-renowned-psychologist-specializing-in-cognitive-development-and-learning-styles/"><u>[Updated] Explore Android' Written By  Dr. Jane Smith, a Renowned Psychologist Specializing in Cognitive Development and Learning Styles.</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-fix-the-green-screen-on-youtube-on-mac-in-2024/"><u>[Updated] How to Fix the Green Screen on YouTube on Mac, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-turn-your-instagram-footage-backwards-easily/"><u>[Updated] In 2024, Turn Your Instagram Footage Backwards Easily</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfect-your-photos-with-text-tips-for-adding-titles-in-microsoft-photos/"><u>[Updated] Perfect Your Photos with Text  Tips for Adding Titles in Microsoft Photos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlocking-the-potential-of-videoleaps-zoom-functionality/"><u>[Updated] Unlocking the Potential of VideoLeap's Zoom Functionality</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-lut-techniques-for-enhanced-ae-visuals/"><u>2024 Approved  LUT Techniques for Enhanced AE Visuals</u></a></li>
+<li><a href="https://techtrends.techidaily.com/charging-up-the-past-uncovering-the-origins-and-growth-of-electric-automobiles/"><u>Charging Up the Past: Uncovering the Origins and Growth of Electric Automobiles</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/dissecting-alternatives-to-the-well-known-vlc/"><u>Dissecting Alternatives to the Well-Known VLC</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-install-hp-840-g3-printer-drivers-step-by-step-guide/"><u>Download & Install HP 840 G3 Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-gameplay-with-the-ultimate-asus-vg245h-gaming-monitor/"><u>Elevate Your Gameplay with The Ultimate Asus VG245H Gaming Monitor</u></a></li>
+<li><a href="https://facebook.techidaily.com/essentials-of-facebook-job-advertising-guide/"><u>Essentials of Facebook Job Advertising Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-ethical-review-body-its-role-decoded/"><u>Facebook's Ethical Review Body: Its Role Decoded</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/getting-acquainted-with-social-networkings-love-hub/"><u>Getting Acquainted with Social Networking's Love Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-vivo-using-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of Vivo using Video Repair Utility on Mac?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-purge-your-facebook-data-on-android/"><u>How to Purge Your Facebook Data on Android</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-samsung-galaxy-s24-ultra-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Samsung Galaxy S24 Ultra Phone Screen?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-2030-the-anticipated-renaissance/"><u>Instagram 2030: The Anticipated Renaissance</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-intermission-what-facebook-suggests-for-teenagers/"><u>Instagram Intermission: What Facebook Suggests for Teenagers?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/instagram-music-lawfare-summary-for-2024/"><u>Instagram Music Lawfare Summary for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/real-time-conversion-of-online-streaming-content-into-gifs/"><u>Real-Time Conversion of Online Streaming Content Into GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-as-a-digital-trendsetter/"><u>Rising as a Digital Trendsetter</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-social-landscape-four-reasons-users-leave-fb/"><u>Shifting Social Landscape: Four Reasons Users Leave FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/streamlining-your-device-by-clearing-youtube-downloads-for-2024/"><u>Streamlining Your Device by Clearing YouTube Downloads for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-continues-facebooks-rebuttal-to-the-end/"><u>The Evolution Continues - Facebook's Rebuttal to the End</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-moral-dilemrances-of-disapproving-platforms/"><u>The Moral Dilemrances of Disapproving Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-visuals-in-enhancing-facebook-engagement/"><u>The Role of Visuals in Enhancing Facebook Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-significance-of-being-on-the-verified-list/"><u>The Significance of Being on the 'Verified' List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-redefining-your-fb-profile-name/"><u>The Ultimate Guide to Redefining Your FB Profile Name</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-computer-components-in-depth-reviews-and-insights/"><u>Tom's Computer Components: In-Depth Reviews & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-7-revolutionary-ai-software-for-mastering-mathematical-challenges/"><u>Top 7 Revolutionary AI Software for Mastering Mathematical Challenges</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-the-sovled-warno-crashes-on-pc-issue/"><u>Troubleshooting the [SOVLED] Warno Crashes on PC Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-in-facebooks-secret-talks/"><u>Trust in Facebooks Secret Talks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-conspiracies-the-whistleblowers-expose-of-fb-data/"><u>Unveiling Conspiracies: The Whistleblower's Expose of FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-disclosures/"><u>Unveiling Facebook's Hidden Disclosures</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-dating-how-to-get-started/"><u>What Is Facebook Dating? How to Get Started</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-caution-is-needed-in-the-facebook-digital-frontier/"><u>Why Caution Is Needed in the Facebook Digital Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-scares-us-threefold-in-society/"><u>Why Meta Scares Us Threefold in Society</u></a></li>
+</ul></div>

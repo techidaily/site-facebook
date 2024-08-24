@@ -1,0 +1,241 @@
+---
+title: Securing Your Profile Against Scam Artists on Facebook
+date: 2024-08-23T02:15:07.779Z
+updated: 2024-08-24T02:15:07.779Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Securing Your Profile Against Scam Artists on Facebook
+excerpt: This Article Describes Securing Your Profile Against Scam Artists on Facebook
+keywords: Secure FB Profile,Fight Online Scams,Anti-Fraud Tips,Protect From Scammers,Safe Social Networking,Prevent Facebook Frauds,Shield Against Fakes
+thumbnail: https://thmb.techidaily.com/85e9c2e32a903b6bf60a65b77968212abbcf7690eb44299839f1e9c463cd1ddf.jpg
+---
+
+## Securing Your Profile Against Scam Artists on Facebook
+
+ If you think you are safe from Facebook scammers, you are actually more vulnerable. Overconfidence can cause you to underestimate the risks.
+
+ These eight strategies can help you avoid phishing and scammers on Facebook.
+
+## Why Would Someone Hack Your Facebook?
+
+![Phishing website with credentials being lifted with fishhook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Phishing-website-with-credentials-being-lifted-with-fishhook.jpg)
+
+ Because they want your personal information. They can use that info to access your bank accounts, or even steal your identity. And they have many ways to[steal from you through Facebook](https://www.makeuseof.com/tag/ways-hackers-use-facebook-steal/) .
+
+ Your login credentials are valuable for several reasons. One is that you may have credit cards or other payment methods linked with them. They can also help the scammer access other accounts. For example, your bank or online shopping accounts.
+
+ Once a scammer gets some clues, they work quickly. Automatic software lets them check hundreds of passwords per minute until something works. To stay safe, you need to guard your information.
+
+## 1\. Remove Personal Details From Your Facebook Profile
+
+![A vulnerable Facebook profile, with the user's real name, photo, and personal information.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---main-page-1.jpg)
+
+![A vulnerable Facebook profile showing all the places the user has lived and gone to school.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---school-and-hometown-history-1.jpg)
+
+![A vulnerable Facebook profile detailing all the user's workplaces](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-vulnerable-Facebook-profile---work-history-1.jpg)
+
+Close
+
+ Before Facebook's rise, being anonymous online was the default. It was considered extremely unwise to share your real-life information.
+
+ But Facebook requires users to go by their real names. Consider the example profile pictured above. It may look normal, but to a scammer, it’s a gold mine of personal details.
+
+ This profile shares lots of possible passwords. You can see their pet's name, hometown name, school sports team, and more. And you don’t even need to be friends to see it.
+
+ It's better to limit the information you share.[Making an anonymous Facebook profile](https://www.makeuseof.com/how-to-make-anonymous-facebook-profile/) is the best way to protect yourself. Take a look at this altered example, with all possible details hidden.
+
+![Secure Facebook Profile with Face and Details Hidden](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Secure-Facebook-Profile-with-Face-and-Details-Hidden.jpg)
+
+![A blank Work Education and Places Lived page on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-blank-Work-Education-and-Places-Lived-page-on-Facebook.jpg)
+
+![Messenger blocking messages from a stranger on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Messenger-blocking-messages-from-a-stranger-on-Facebook.jpg)
+
+Close
+
+ This profile is much safer. And having a profile like this doesn’t impact the way you use Facebook. After all, you don't need to share your workplace history to enjoy a social connection.
+
+ You can take it one step further, so people can only send you messages if you have a mutual friend. Do this using the**Privacy Settings** .
+
+## 2\. Manage Your Facebook Privacy Settings
+
+![Profile Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Profile-Privacy-Settings.jpg)
+
+ If you've used Facebook for a while, you have a lot of information organized on your profile. You might not want to remove it, since it's a handy reference tool. If you want to keep this data on Facebook, make sure you're the only one who can see it.
+
+ From the Facebook website or app, go to**Settings & Privacy** \>**Privacy Center** . For recommended settings, you can check out our[guide to Facebook Privacy](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) .
+
+It’s a good idea to do a privacy check on a regular basis.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. Remove Access to Facebook From Suspicious Apps
+
+![Authorized apps list on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Authorized-apps-list-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Apps often request access to your Facebook profile. In most cases, the access just enables the app's social media sharing options. But it’s still a good idea to check your Authorized Apps.
+
+ You can see them under**Settings & Privacy** \>**Settings** \>**Apps and Websites** . Remove any apps you don’t recognize. Remember that apps where you**Log in with Facebook** will appear on this list, too.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Don’t Click Strange URLs on Facebook
+
+![Examining a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Examining-a-suspicious-link-on-FB-Messenger.jpg)
+
+![A fake Facebook Login Page with scam signs highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/A-fake-Facebook-Login-Page-with-scam-signs-highlighted.jpg)
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Receiving a suspicious link on FB Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Receiving-a-suspicious-link-on-FB-Messenger.jpg)
+
+Close
+
+ A common way to scam people is to use Messenger. Scammers send out these links using bots loaded with generic scripts. For instance, “this is hilarious…” or “OMG, check this out!”. If you see a line like this attached to a URL, be careful, especially if it’s out of character for your friend.
+
+ These automated messages try to convince you into giving up your personal details. The message might try to scare you, or tempt you with promises of something funny or interesting. Many times, they contain a link.
+
+ If you receive such a message, even from a friend, don’t follow the directions or open the link. Instead, reply and ask what's going on. Your friend can tell you what's going on, but a bot won’t reply.
+
+ If you're still unsure, you can check a link’s destination using a web app that tests it for you. We’ve compiled a list of[reliable link-checking services](https://www.makeuseof.com/tag/4-quick-sites-that-let-you-check-if-links-are-safe/) for you to pick from.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## 5\. Know the Signs of a Facebook Scam
+
+![A fake Facebook Login page contrasted with the real one. In the fake page, a fake "we need to verify your account" message is displayed, the URL is not leading to Facebook, the page title and dividor contain spelling errors, the language settings are incorrect for the user, the autofill information is missing, and the footer contains the wrong company name..](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Compare-FB-login-pages.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+ Screenshot by Natalie Stewart, no attribution required.
+
+ Knowing the[most common Facebook phishing scams](https://www.makeuseof.com/most-common-social-media-phishing-attacks/) helps you stay alert. One common trick is to send you a link to a fake website, often a login page. Remember that Facebook will never ask you to "verify your account" before following a link.
+
+ In the example above, you can see a phishing page on the left compared to the real Facebook login page on the right. Instantly, you can see that the URL on the fake page does not say Facebook.com.
+
+ Looking closer, we can see spelling errors. The language settings options are inaccurate to the user's region, as well. The footer is also incorrect. It uses the Facebook Inc company name. But as of 2022, the real site uses Meta © 2022.
+
+ Lastly, scammers use screen captures of the real site instead of building fake pages. You shouldn't click anything on a phishing site. But if you long-tap or right-click to inspect the links, you will often find that they are actually images. The blurry quality also gives this away.
+
+## 6\. Don’t Reply to Trivia Facebook Posts
+
+![example of a phishing post on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/example-of-a-phishing-post-on-social-media.jpg)
+
+ Facebook is full of public posts asking users to reply with trivia. They often ask for nostalgic things, such as your first car or favorite teacher. These posts seem like fun, but they are dangerous.
+
+ Answering these questions gives the scammer clues to your password or security questions. If you feel inspired by the question, it's better to strike up a conversation in a private chat instead of commenting.
+
+ Even if you don’t use that information for[password recovery](https://www.makeuseof.com/how-to-reset-facebook-password-forgot/) , sharing it can put your friends and family at risk. Your loved ones might share your connection to these memorable details. Your first pet may also be your sibling's first pet, for example.
+
+ You cannot guarantee that none of your loved ones will use the same detail for their logins. So, it’s best to keep it to yourself.
+
+## 7\. Only Add People You Know to Your Facebook Account
+
+![An incoming friend request on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-friend-request.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+ Make sure you trust someone before accepting a request. Scammers often go after personal details hidden behind “friends only” privacy settings. To protect yourself, it’s a good idea to limit your Facebook Friends to people you actually know.
+
+ One of the most common[Facebook Marketplace scams](https://www.makeuseof.com/facebook-marketplace-scams-and-how-to-avoid-them/) is to offer a friend request to potential buyers. The seller may pretend that they don’t know another way to contact you, but this is a lie.
+
+ If you want to talk to a stranger, you don’t have to be Facebook friends. You can use Messenger. Go to**Settings & Privacy** \>**Settings** \>**Privacy** and enable**Message Requests** .
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 8\. Use a Strong Password for Your Facebook Account
+
+![someone on a keyboard logging in](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Person-typing-a-strong-password.jpg)
+
+ Avoid using phone numbers, pet names, and similar information as passwords, as these are easy to guess. Also, avoid having short, simple passwords, and never use the same password on more than one site.
+
+ Your password should be 14 characters at least. It should also contain a mix of upper and lower-case letters, numbers, and symbols. There are more ways to[make sure your password is secure](https://www.makeuseof.com/tag/6-tips-for-creating-an-unbreakable-password-that-you-can-remember/) , but these are the basics.
+
+ Even though it's convenient, you should avoid using the**Log in with Facebook** option on other websites. The more sites your Facebook account connects to, the greater the loss if you are ever phished. Instead, make a unique login for each account.
+
+## Stay Safe From Facebook Phishing
+
+ If you think you may have been phished, the first thing you should do is change your Facebook password. Then, log out of all devices. It can also help to go through a checklist of security measures.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-mastering-mp4-downloading-vimeo-videos-easily/"><u>[New] Mastering MP4  Downloading Vimeo Videos Easily</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-best-practices-a-guide-to-optimal-mobile-video-reduction/"><u>2024 Approved  Best Practices  A Guide to Optimal Mobile Video Reduction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-standards-on-fb-profile/"><u>Elevating Security Standards on FB Profile</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-major-online-interaction-hubs-unpacking-facebook-twitter-instagram-and-youtube-dynamics/"><u>Exploring Major Online Interaction Hubs: Unpacking Facebook, Twitter, Instagram & YouTube Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fun-tests-are-they-stealing-secrets/"><u>Facebook's Fun Tests: Are They Stealing Secrets?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portal-adapts-to-your-lifestyle-with-go/"><u>Facebook's Portal Adapts to Your Lifestyle with Go</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-protect-system-decoded-and-activated-for-maximum-safety/"><u>Facebook’s Protect System Decoded & Activated for Maximum Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-expanding-your-spotify-reach/"><u>Facebook's Role in Expanding Your Spotify Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-transformation-into-a-simpler-social-media-platform/"><u>Facebook’s Transformation Into a Simpler Social Media Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-id-shutdown-exploring-the-meta-facebook-breakup/"><u>Facial ID Shutdown? Exploring the Meta-Facebook Breakup</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-streamlines-your-conversations-upgraded-messaging-on-instagram-and-messenger-awaits/"><u>FB Streamlines Your Conversations: Upgraded Messaging on Instagram & Messenger Awaits</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-vision-fully-sourced-from-renewable-resources/"><u>FB's Vision: Fully Sourced From Renewable Resources</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-magic-5-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-group-formation-a-facebook-perspective/"><u>Guide to Group Formation: A Facebook Perspective</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-alerting-about-child-users-in-virtual-spaces/"><u>Guidelines for Alerting About Child Users in Virtual Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-label-safe-user-on-fb/"><u>Guidelines to Label Safe User on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-facebook-act-fast-with-these-security-tips/"><u>Hacked Facebook? Act Fast with These Security Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/hiding-undesired-memories-on-facebook/"><u>Hiding Undesired Memories on Facebook</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-upgrade-your-logitech-c920-webcam-driver-on-windows-11108-latest-version-available-now/"><u>How to Upgrade Your Logitech C920 Webcam Driver on Windows 11/10/8 – Latest Version Available Now!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-honor-80-pro-straight-screen-edition-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Honor 80 Pro Straight Screen Edition Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/influence-misleads-on-covid-19-truths-and-fears/"><u>Influence Misleads on Covid-19 Truths and Fears</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-urges-step-back-from-screen-embrace-life/"><u>Instagram Urges: Step Back From Screen, Embrace Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-the-same-dont-update-how-to-preserve-your-whatsapp-usage/"><u>Keep the Same, Don’t Update: How to Preserve Your WhatsApp Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/leadership-elevation-assigning-a-prestigious-admin-role-on-fb/"><u>Leadership Elevation: Assigning a Prestigious Admin Role on FB</u></a></li>
+<li><a href="https://program-issues.techidaily.com/lost-ark-troubleshooting-solutions-for-overcoming-connection-errors/"><u>Lost Ark Troubleshooting: Solutions for Overcoming Connection Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friendships-past-records-on-fb/"><u>Navigating Friendships' Past Records on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-online-engagement-less-more-quality-time/"><u>Personalizing Your Online Engagement: Less, More Quality Time</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/prioritizing-visibility-a-guide-to-insta-highlights-perfection-for-2024/"><u>Prioritizing Visibility  A Guide to Insta Highlights Perfection for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/realtek-gbe-family-get-latest-updates-for-windows-10/"><u>Realtek GBE Family: Get Latest Updates for Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-unfriending-someone-from-fb/"><u>Reconsidering Ties: Unfriending Someone From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-exposure-to-facebook-reels/"><u>Reduce Exposure to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-the-auto-suggestions-on-social-platforms/"><u>Reject the Auto-Suggestions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-to-iconic-fb-cover-pics-revealed/"><u>Secrets to Iconic FB Cover Pics Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-stronger-teen-facebook-privacy-measures/"><u>Setting Up Stronger Teen Facebook Privacy Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-nurturing-professional-client-relations-on-fb/"><u>Social Media Mastery: Nurturing Professional Client Relations on FB</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/step-by-step-slow-motion-mastery-in-phantom-cameras/"><u>Step-by-Step Slow Motion Mastery in Phantom Cameras</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-a-compreenas-guide/"><u>Stop Fb Alerts & Messages: A Compreenas Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-shield-from-facebook-phishing-attempts/"><u>Strategies to Shield From Facebook Phishing Attempts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-and-their-enemies-governments-role-analyzed/"><u>Tech Titans and Their Enemies: Government's Role Analyzed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-whispers-predicting-facebooks-woes/"><u>The Silent Whispers Predicting Facebook's Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategy-for-departing-facebook-communities/"><u>The Strategy for Departing Facebook Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-long-standing-bonds-historical-facebook-views/"><u>Uncover Long-Standing Bonds: Historical Facebook Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-power-of-independent-messaging-services/"><u>Unlock the Power of Independent Messaging Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-world-or-illusion-debunking-metaverse-myths/"><u>Virtual World or Illusion? Debunking Metaverse Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-weigh-up-before-permanently-saying-goodbye-online/"><u>What to Weigh Up Before Permanently Saying Goodbye Online</u></a></li>
+</ul></div>

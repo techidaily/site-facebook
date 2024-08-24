@@ -1,7 +1,7 @@
 ---
 title: Battle Against Facebook’s Covert Watchers
-date: 2024-07-12T10:52:51.192Z
-updated: 2024-07-13T10:52:51.192Z
+date: 2024-08-23T02:05:44.707Z
+updated: 2024-08-24T02:05:44.707Z
 tags:
   - facebook
 categories:
@@ -39,6 +39,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
@@ -53,6 +56,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are [four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## What Does Facebook Know About You?
 
  Facebook tracking serves a single purpose: advertising. Advertising remains the largest source of revenue for Facebook. That's why collecting reams of data is essential for their business model, even after diversification into other areas of tech. After collecting your data for years, what does Facebook know about you?
@@ -77,6 +83,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<!-- affiliate ads end -->
 ## Why Is Facebook Tracking Me?
 
  Advertising and money. At this point, most internet users understand that online tracking is de rigueur. Each link is another opportunity for Facebook or another advertising company to track us.
@@ -91,6 +100,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
@@ -113,18 +125,30 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for [Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
 
 **Download** : NoScript for [Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### Privacy Badger
 
  Privacy Badger is one of the next best things to NoScript. Where NoScript is for techies (but worth learning, I might add), you could install PrivacyBadger on your Grandma's computer, knowing she'll be protected**and** able to book flights.
@@ -133,10 +157,16 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 **Download:** Privacy Badger for [Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Use a Privacy-Focused Alternative Browser
 
  If you are using Google's Chrome browser, you are being tracked. But you don't have to fear your browser tracking your online activity. There are [several privacy-focused browser alternatives](https://www.makeuseof.com/tag/2-anonymous-web-browsers-completely-private-secure/) you can use to stop Facebook tracking.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Epic Privacy Browser
 
 [Epic Privacy Browser](http://www.epicbrowser.com/) protects you from "600+ tracking attempts in an average browsing session" and can see lower-quoted prices for flights and other services. It also has an integrated VPN with servers in eight countries.
@@ -149,6 +179,9 @@ thumbnail: https://thmb.techidaily.com/416aeeb4188101320497d2ca164fd6a9ed87803b6
 
 **Download:** Tor Browser for Windows | macOS | Linux (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 ### Brave
 
 [Brave](https://brave.com/) is a Chromium-based browser with a complete focus on privacy and security. It features an interesting approach to whitelisting: adding tiny micro-payments for your favorite publications.
@@ -208,3 +241,45 @@ Image Credit: Sabphoto/Shutterstock
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-ultimate-guide-to-top-6-instagram-reel-enhancements/"><u>[New] 2024 Approved  The Ultimate Guide to Top 6 Instagram Reel Enhancements</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-amplify-engagement-unique-ig-questions-for-lives/"><u>[New] In 2024, Amplify Engagement  Unique IG Questions for Lives</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-discovering-the-1-songs-of-facebook-video-insights/"><u>[Updated] Discovering the #1 Songs of Facebook  Video Insights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-discreetly-explore-instagram-stories-with-us/"><u>[Updated] In 2024, Discreetly Explore Instagram Stories With Us</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-perfect-method-for-saving-camera-images-on-snapchat/"><u>[Updated] The Perfect Method for Saving Camera Images on Snapchat</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-utilizing-no-cost-countdown-efficient-time-management/"><u>[Updated] Utilizing No-Cost Countdown  Efficient Time Management</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-construct-a-homemade-google-vr-helmet-for-cost-effective-fun/"><u>2024 Approved  Construct a Homemade Google VR Helmet for Cost-Effective Fun</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-for-you-not-just-experts-claude-versus-gpt/"><u>AI for You, Not Just Experts: Claude Versus GPT</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-a1-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo A1 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-humor-responsible-facebook-interactions/"><u>Embracing Humor: Responsible Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-quality-connections-how-to-block-on-fb/"><u>Ensuring Quality Connections: How to Block on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-frontiers-in-social-commerce-on-facebook/"><u>Exploring New Frontiers in Social Commerce on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-new-audiovisual-platform-features/"><u>Facebook Unveils New Audiovisual Platform Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/friend-quotas-not-connections-prioritize-safety-online/"><u>Friend Quotas, Not Connections: Prioritize Safety Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-automatic-user-references-fb/"><u>How to Stop Automatic User References (FB)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-dive-into-digital-friendship-start-your-facebook-journey/"><u>In 2024, Dive Into Digital Friendship  Start Your Facebook Journey</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-xiaomi-redmi-note-12-pro-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Xiaomi Redmi Note 12 Pro 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-biden-announces-vaccination-drive-via-social-networks/"><u>Joe Biden Announces Vaccination Drive via Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-steps-to-reactivate-a-frozen-social-media-id-on-fb/"><u>Key Steps to Reactivate a Frozen Social Media ID on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-findings-social-platforms-detrimental/"><u>National Survey Findings: Social Platforms Detrimental</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-video-editing-on-mavericks-a-beginners-guide-to-pro-results-for-2024/"><u>New Video Editing on Mavericks A Beginners Guide to Pro Results for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-phishy-posts-with-smart-habits/"><u>Preventing Phishy Posts with Smart Habits</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-alert-top-social-shares-to-steer-clear-of/"><u>Privacy Alert! Top Social Shares to Steer Clear Of</u></a></li>
+<li><a href="https://facebook.techidaily.com/shadowban-explained-and-tactics-for-evasion/"><u>Shadowban Explained & Tactics for Evasion</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-process-for-sharing-spots-with-fb-friends/"><u>Stepwise Process for Sharing Spots with FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-approaches-to-interaction-on-social-networks/"><u>Subtle Approaches to Interaction on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-adding-meaningful-context-in-fb-images/"><u>Techniques for Adding Meaningful Context in FB Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anchor-of-asset-allocation-delving-into-cryptocurrencys-stablecoins/"><u>The Anchor of Asset Allocation: Delving Into Cryptocurrency's Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-producing-high-impact-videos-for-your-fans-on-facebook/"><u>The Complete Guide to Producing High-Impact Videos for Your Fans on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dawn-of-metas-enigmatic-ai-goliath/"><u>The Dawn of Meta's Enigmatic AI Goliath</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-of-facebooks-newsfeed-design/"><u>The Evolution of Facebook's Newsfeed Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ubiquitous-influence-of-facebook-today/"><u>The Ubiquitous Influence of Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/traps-in-transparency-when-ux-betrays-trust/"><u>Traps in Transparency: When UX Betrays Trust</u></a></li>
+<li><a href="https://fox-that.techidaily.com/turbocharge-your-iphones-safari-browser-top-4-tips-for-better-performance/"><u>Turbocharge Your iPhone's Safari Browser - Top 4 Tips for Better Performance!</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-added-value-of-facebook-gestures/"><u>Understanding the Added Value of Facebook Gestures</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-to-your-data-if-facebook-ever-dies/"><u>What Happens to Your Data if Facebook Ever Dies?</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-social-media-platform-is-safest/"><u>Which Social Media Platform Is Safest?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-phasing-out-facebooks-face-recognition-tech/"><u>Why Is Meta Phasing Out Facebook's Face Recognition Tech?</u></a></li>
+</ul></div>

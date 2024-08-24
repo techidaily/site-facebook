@@ -1,7 +1,7 @@
 ---
 title: $5 Million From FB Aims to Disrupt Journalism on Substack
-date: 2024-07-12T10:53:55.815Z
-updated: 2024-07-13T10:53:55.815Z
+date: 2024-08-23T02:04:43.198Z
+updated: 2024-08-24T02:04:43.198Z
 tags:
   - facebook
 categories:
@@ -58,3 +58,52 @@ thumbnail: https://thmb.techidaily.com/be81dbeaaee0382765b77cee6cb291299a5244c86
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-accelerate-access-funimates-download-demystified/"><u>[New] Accelerate Access  Funimate's Download Demystified</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-guide-to-trusted-sites-for-youtube-tones/"><u>[New] Comprehensive Guide to Trusted Sites for Youtube Tones</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-how-to-smoothly-view-youtube-videos-without-borders/"><u>[Updated] In 2024, How to Smoothly View YouTube Videos without Borders?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-auditory-alchemy-does-the-magic-voice-modifier-work-seek-alternates/"><u>2024 Approved  The Art of Auditory Alchemy  Does the Magic Voice Modifier Work? Seek Alternates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-unveiling-the-secrets-of-stardew-valley-emphasizing-its-jewel-ginger-island/"><u>2024 Approved  Unveiling the Secrets of Stardew Valley, Emphasizing Its Jewel - Ginger Island</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-tecno-camon-30-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/9-best-strategies-boosting-your-well-being-with-chatgpt/"><u>9 Best Strategies: Boosting Your Well-Being with ChatGPT</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-budget-friendly-flying-experience-with-the-syma-107g-rc-helicopter-in-depth-review/"><u>Best Budget-Friendly Flying Experience with the Syma 107G RC Helicopter: In-Depth Review</u></a></li>
+<li><a href="https://fox-that.techidaily.com/discover-6-common-factors-that-slow-down-iphones-and-tips-to-speed-them-up/"><u>Discover 6 Common Factors That Slow Down iPhones and Tips to Speed Them Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-after-deleting-from-recently-deleted-on-iphone-11-pro-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover deleted photos after deleting from Recently Deleted on iPhone 11 Pro | Stellar</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-12-mini-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 12 mini online without SIM Card?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-iphone-x-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your iPhone X Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-online-venues-for-elders-connections/"><u>Optimal Online Venues for Elders Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-as-a-digital-trendsetter/"><u>Rising as a Digital Trendsetter</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-continues-facebooks-rebuttal-to-the-end/"><u>The Evolution Continues - Facebook's Rebuttal to the End</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-in-facebooks-secret-talks/"><u>Trust in Facebooks Secret Talks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-conspiracies-the-whistleblowers-expose-of-fb-data/"><u>Unveiling Conspiracies: The Whistleblower's Expose of FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-dating-how-to-get-started/"><u>What Is Facebook Dating? How to Get Started</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

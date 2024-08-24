@@ -1,7 +1,7 @@
 ---
 title: "Become a Savvy Social Media User: Mastering Privacy & Security"
-date: 2024-07-12T10:50:21.898Z
-updated: 2024-07-13T10:50:21.898Z
+date: 2024-08-23T02:08:07.858Z
+updated: 2024-08-24T02:08:07.858Z
 tags:
   - facebook
 categories:
@@ -50,10 +50,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
 * Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 3. Profile and Tagging
 
 ![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
 
 * Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the [Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
@@ -62,10 +68,16 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
 * Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4. Public Posts
 
 ![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
 
 * The [Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
@@ -73,6 +85,9 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 * Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
 * If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5. Blocking
 
 ![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
@@ -88,6 +103,9 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 ![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
  Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
 
 * To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
@@ -117,3 +135,44 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-expand-your-online-realm-harnessing-youtube-insights-powerfully/"><u>[New] 2024 Approved  Expand Your Online Realm  Harnessing YouTube Insights Powerfully</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-11-easy-to-use-kids-videography-gear-for-splashy-scenes/"><u>[Updated] In 2024, Top 11 Easy-to-Use Kids' Videography Gear For Splashy Scenes</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-snapchat-blueprint-for-effective-marketing-for-2024/"><u>[Updated] The Snapchat Blueprint for Effective Marketing for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-picshots-magic-for-quick-photo-cohesion/"><u>2024 Approved  Explore Picshot’s Magic for Quick Photo Cohesion</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-approach-to-3d-text-in-photoediting/"><u>2024 Approved  Innovative Approach to 3D Text in PhotoEditing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-reveal-the-secrets-top-12-ways-to-bring-non-showing-fb-vids-into-view/"><u>2024 Approved  Reveal the Secrets  Top 12 Ways to Bring Non-Showing FB Vids Into View</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-tips-and-tricks-for-iphone-audio-enthusiasts/"><u>2024 Approved  Tips and Tricks for iPhone Audio Enthusiasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/3-sophisticated-social-media-scams-you-need-to-avoid/"><u>3 Sophisticated Social Media Scams You Need to Avoid</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/a-comprehensive-tutorial-on-windows-1011s-audio-upgrade/"><u>A Comprehensive Tutorial on Windows 10/11'S Audio Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/altering-fb-contact-details-steps-included/"><u>Altering FB Contact Details: Steps Included</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/beginners-path-to-screen-casting-with-apple-devices/"><u>Beginner’s Path to Screen Casting with Apple Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-direct-access-in-facebook-application/"><u>Blocking Direct Access in Facebook Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-safe-browsing-facebooks-privacy-and-security-blueprint/"><u>Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-redefined-6-revolutionary-reasons-to-experience-its-metaverse/"><u>Facebook Redefined: 6 Revolutionary Reasons to Experience Its Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-saga-the-top-5-user-failings-revealed/"><u>Facebook's Oversight Saga: The Top 5 User Failings Revealed</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/funicate-mastery-for-seamless-media-access-for-2024/"><u>Funicate Mastery for Seamless Media Access for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-xiaomi-redmi-note-12-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your Xiaomi Redmi Note 12 5G Is Unlocked</u></a></li>
+<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/improve-your-health-with-these-9-chatgpt-tips-and-techniques/"><u>Improve Your Health with These 9 ChatGPT Tips and Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-boosting-video-quality-hd-streaming-across-facebook/"><u>In 2024, Boosting Video Quality  HD Streaming Across Facebook</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-xiaomi-redmi-k70e-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Xiaomi Redmi K70E Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-benefits-and-reasons-of-multiple-profiles-on-one-facebook-account/"><u>Insight Into the Benefits and Reasons of Multiple Profiles on One Facebook Account</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-samsung-galaxy-a05-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Samsung Galaxy A05? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-your-personal-branding-on-social-media-with-fb/"><u>Optimizing Your Personal Branding on Social Media with FB</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pinterest-vid-lifting-the-top-free-online-tools-list/"><u>Pinterest Vid Lifting  The Top Free, Online Tools List</u></a></li>
+<li><a href="https://facebook.techidaily.com/ripls-tips-for-making-viral-social-media-content/"><u>Ripl's Tips for Making Viral Social Media Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-monitor-youth-activity-within-social-media-networks/"><u>Steps to Monitor Youth Activity Within Social Media Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-liking-a-guide-for-the-discreet-user/"><u>Strategic Liking: A Guide for the Discreet User</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-best-social-strategy-apps-for-post-synchronization/"><u>The 7 Best Social Strategy Apps for Post Synchronization</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-hidden-dangers-in-user-interface-traps/"><u>The Hidden Dangers in User Interface Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-next-digital-frontier-decoding-the-metaverse/"><u>The Next Digital Frontier: Decoding the Metaverse</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-pathway-to-stellar-visual-results-through-color-tuning-for-2024/"><u>The Pathway to Stellar Visual Results Through Color Tuning for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/trust-wanes-for-major-tech-firms-facebook-at-forefront-of-fears/"><u>Trust Wanes for Major Tech Firms; Facebook at Forefront of Fears</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-aftermath-social-media-deletion-realities/"><u>Understanding the Aftermath: Social Media Deletion Realities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-ray-ban-stories-on-facebook-what-can-you-expect/"><u>Unveiling Ray-Ban Stories on Facebook - What Can You Expect?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistle-blowers-say-facebook-clamps-honesty-in-ads/"><u>Whistle-Blowers Say Facebook Clamps Honesty in Ads</u></a></li>
+</ul></div>

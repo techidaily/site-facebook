@@ -1,7 +1,7 @@
 ---
 title: Immediate Stop to All Facebook Buzz
-date: 2024-07-12T10:39:22.999Z
-updated: 2024-07-13T10:39:22.999Z
+date: 2024-08-28T03:03:17.874Z
+updated: 2024-08-29T03:03:17.874Z
 tags:
   - facebook
 categories:
@@ -29,6 +29,9 @@ thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978
 
  That’s why people should turn off their notifications every couple of days to give themselves time to relax and refresh for the coming days. Releasing stress away from the screen can have a number of mental health and productivity benefits.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ### Better Concentration
 
  Let’s face it—we run to grab our mobile phone the second its screen brightens for a notification. This can be really distracting if you’re trying to work or study.
@@ -59,6 +62,9 @@ Users can block notifications from their desktops and mobile devices.
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
 
 Close
@@ -79,8 +85,14 @@ Close
 
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 Close
 
 1. Open**Settings** .
@@ -89,6 +101,9 @@ Close
 4. Navigate to**Notifications** . This list contains settings of how notifications appear on your phone.
 5. Toggle the tab to turn off**Show notifications,** which will revoke the app's access to display alerts. You can change them by revisiting the settings or changing**Where you receive notifications** from the Facebook app.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ### Blocking Desktop Notifications From Facebook
 
  Whether you are using [Windows or its free alternatives](http://www.makeuseof.com/tag/free-alternatives-to-windows-operating-systems/) , it is possible to mute notifications just by logging into your Facebook browser. Once logged in to your account, follow these steps for turning off your Facebook notifications on your desktop:
@@ -98,13 +113,23 @@ Close
 3. Select**Settings & Privacy** .  
 ![Facebook Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Settings-and-Privacy.jpg)
 4. From there, select**Settings** . It contains everything from [changing Facebook profile pictures](https://www.makeuseof.com/how-to-change-facebook-profile-picture/) to account deactivation.
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
 
@@ -137,3 +162,61 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-audiophiles-guide-to-the-finest-window-based-podcast-tools-8/"><u>[New] Audiophile's Guide to the Finest Window-Based Podcast Tools (#8)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-beginning-and-attending-zoom-meetings-for-android-users/"><u>[New] Beginning and Attending Zoom Meetings for Android Users</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-cutting-edge-video-recording-techniques-on-modern-win-11-devices/"><u>[New] Cutting-Edge Video Recording Techniques on Modern Win 11 Devices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-step-by-step-screen-record-your-win10-game-log/"><u>[New] Step-by-Step Screen Record  Your Win10 Game Log</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-optimizing-ppt-presentations-across-devices-for-google-meet/"><u>[Updated] 2024 Approved  Optimizing PPT Presentations Across Devices for Google Meet</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-establishing-group-communication-on-skype-windows-mac/"><u>[Updated] Establishing Group Communication on Skype (Windows, Mac)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-pristine-movie-trailer-curated-list/"><u>[Updated] In 2024, Pristine Movie Trailer Curated List</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-revolutionize-your-snapchat-experience-a-compendium-of-over-120-innovative-story-titles/"><u>[Updated] In 2024, Revolutionize Your Snapchat Experience  A Compendium of Over 120 Innovative Story Titles</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-screen-casting-features-in-vlc-examined/"><u>[Updated] In 2024, Screen Casting Features in VLC Examined</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-snapchat-voice-overhaul-two-efficient-ways-revealed/"><u>[Updated] Snapchat Voice Overhaul  Two Efficient Ways Revealed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-voice-memo-grab-and-examine-for-2024/"><u>[Updated] Voice Memo Grab & Examine for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-closer-look-at-your-news-source-what-does-fb-want-to-know/"><u>A Closer Look at Your News Source: What Does FB Want to Know?</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-novices-guide-to-changing-fb-photo/"><u>A Novice's Guide to Changing FB Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/activists-spark-star-rating-anger-drop-facebooks-app-ratings/"><u>Activists Spark Star Rating Anger, Drop Facebook's App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternatives-to-fb-leveraging-different-messengers/"><u>Alternatives to FB: Leveraging Different Messengers</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-poco-x6-pro-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Poco X6 Pro? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/auto-caption-generation-boost-engagement-in-your-fb-gallery/"><u>Auto-Caption Generation: Boost Engagement in Your FB Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-busting-10-common-facebook-myths/"><u>Behind the Scenes: Busting 10 Common Facebook Myths</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-fb-shadownet-with-off-facebook-activity-option/"><u>Blocking Fb ShadowNet with Off-Facebook Activity Option</u></a></li>
+<li><a href="https://facebook.techidaily.com/blueprinting-your-social-strategy-with-effective-group-formation-fb/"><u>Blueprinting Your Social Strategy with Effective Group Formation (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-mechanisms-behind-fbs-moderation-panel/"><u>Breaking Down the Mechanisms Behind FB's Moderation Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-communities-facebook-maps-new-societal-sections/"><u>Bridging Communities: Facebook Maps New Societal Sections</u></a></li>
+<li><a href="https://facebook.techidaily.com/bring-music-to-life-access-spotifys-miniplayer-via-facebook/"><u>Bring Music to Life: Access Spotify's Miniplayer via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ceo-to-examine-trumps-social-media-standing/"><u>CEO to Examine Trump's Social Media Standing</u></a></li>
+<li><a href="https://facebook.techidaily.com/client-acquisition-tactics-on-social-media-platforms/"><u>Client Acquisition Tactics on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/connect-the-components-of-online-identity-to-your-xbox/"><u>Connect The Components of Online Identity to Your Xbox</u></a></li>
+<li><a href="https://facebook.techidaily.com/connecting-virtuality-exploring-metaverse-through-facebook/"><u>Connecting Virtuality: Exploring Metaverse Through Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-thinking-social-medias-dislike-buttons/"><u>Critical Thinking: Social Media's 'Dislike' Buttons</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptocurrency-commercials-a-social-media-shift/"><u>Cryptocurrency Commercials: A Social Media Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-realm-of-digital-presence/"><u>Customizing Your Realm of Digital Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-ethics-in-action-correctly-banned-trump-but-temporarily/"><u>Cyber Ethics in Action: Correctly Banned Trump, But Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-recommended-facebook-posts/"><u>Decoding Recommended Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-social-media-algorithms-impact-and-influence-of-hash-tags-on-facebooks-ecosystem/"><u>Decoding Social Media Algorithms: Impact and Influence of Hash Tags on Facebook's Ecosystem</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-shadowbans-in-online-communities/"><u>Demystifying Shadowbans in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/dialogue-dynamics-dial-up-messengers-format-guide/"><u>Dialogue Dynamics Dial-Up: Messenger's Format Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-cupids-at-work-facebooks-novel-approach-to-matchmaking/"><u>Digital Cupids at Work: Facebook’s Novel Approach to Matchmaking</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/effective-solutions-for-palworld-stability-issues-and-avoiding-pc-freezes/"><u>Effective Solutions for Palworld Stability Issues and Avoiding PC Freezes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722969372923-get-the-latest-amd-rx-480-driver-version-instantly/"><u>Get the Latest AMD RX 480 Driver Version Instantly!</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149095879-guarding-your-digital-identity-no-random-connections-please/"><u>Guarding Your Digital Identity: No Random Connections, Please!</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-oppo-a56s-5g-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Oppo A56s 5G Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-android-developers-insider-take-scouting-the-leading-fb-video-extractors/"><u>In 2024, Android Developer's Insider Take  Scouting the Leading FB Video Extractors</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-vivo-v27-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Vivo V27 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-musical-mastery-in-micro-storytelling/"><u>In 2024, Musical Mastery in Micro Storytelling</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-motorola-moto-g04-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Motorola Moto G04 Phone? Unlock It Now</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-step-by-step-guide-to-brightening-images-post-capture/"><u>In 2024, Step-by-Step Guide to Brightening Images Post-Capture</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/master-the-world-of-computer-systems-with-insights-from-toms-technological-review/"><u>Master the World of Computer Systems with Insights From Tom's Technological Review</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-audio-hurdles-how-to-get-the-mic-working-on-cs-2/"><u>Overcoming Audio Hurdles: How to Get the Mic Working on CS 2</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150672275-panel-of-watchdogs-to-render-verdict-on-donald-trumps-fb-ban/"><u>Panel of Watchdogs to Render Verdict on Donald Trump's FB Ban.</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/samsungs-next-gen-marvel-discover-expected-features-and-specs-of-the-galaxy-s25-ultra-release/"><u>Samsung's Next-Gen Marvel: Discover Expected Features and Specs of the Galaxy S25 Ultra Release</u></a></li>
+<li><a href="https://driver-install.techidaily.com/seamless-data-handling-fixing-windows-and-samsung-drive-issues/"><u>Seamless Data Handling: Fixing Windows & Samsung Drive Issues</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-5-strategies-for-securing-your-pc-protecting-with-windows/"><u>Top 5 Strategies for Securing Your PC: Protecting with Windows</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-leading-external-dvd-writers-of-2024/"><u>Ultimate Guide: Leading External DVD Writers of 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153483748-unlock-cross-service-integration-move-your-fb-stories-swiftly/"><u>Unlock Cross-Service Integration: Move Your FB Stories Swiftly</u></a></li>
+</ul></div>

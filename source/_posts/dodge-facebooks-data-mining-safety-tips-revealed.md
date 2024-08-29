@@ -1,7 +1,7 @@
 ---
 title: "Dodge Facebook's Data Mining: Safety Tips Revealed"
-date: 2024-07-12T10:40:13.611Z
-updated: 2024-07-13T10:40:13.611Z
+date: 2024-08-28T03:02:01.321Z
+updated: 2024-08-29T03:02:01.321Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,9 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
@@ -45,6 +48,9 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
  Facebook owns several other major social sites and services. The largest of these are Instagram and WhatsApp, both giants in their own right. If you're using Instagram, Facebook is tracking your data. The image-sharing social media platform is a Facebook Product with all the tracking and data privacy issues you can imagine.
@@ -61,6 +67,9 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated [Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
@@ -91,12 +100,19 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your [Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -105,6 +121,10 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
@@ -112,12 +132,19 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 ### uBlock Origin
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for [Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
@@ -142,6 +169,9 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
 **Download:** Epic Privacy Browser for [Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ### Tor Browser
 
 [Tor](http://www.torproject.org/) is free anonymity software that usually runs as part of a modified Mozilla Firefox browser. It is well known as the home of darknet markets, dissidents, and other nefarious services. However, you can use it to stop trackers and keep your network traffic anonymous.
@@ -154,6 +184,9 @@ thumbnail: https://thmb.techidaily.com/1d09a35d2889f182293f6c4568acc826b5a70f4b0
 
 **Download** : Brave for Windows (64-bit) | Windows (32-bit) | macOS | Linux
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Advertising Opt-Outs and Disabling Third-Party Cookies
 
 Users can opt out of behavioral advertising using a regional tool.
@@ -207,3 +240,54 @@ Image Credit: Sabphoto/Shutterstock
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-transform-your-content-expert-tips-for-bokeh-on-social-media/"><u>[New] 2024 Approved  Transform Your Content  Expert Tips for Bokeh on Social Media</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-6-awesome-free-webcam-games-for-computer-for-2024/"><u>[New] 6 Awesome Free Webcam Games for Computer for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-compile-of-premier-iphone-camera-apps-for-pro-photographers/"><u>[New] Compile of Premier iPhone Camera Apps for Pro Photographers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlock-the-potential-of-youtube-videos-the-ultimate-chapter-addition-technique/"><u>[New] In 2024, Unlock the Potential of YouTube Videos  The Ultimate Chapter Addition Technique</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-syncing-scores-youtube-musics-role-in-multimedia-content/"><u>[New] Syncing Scores  YouTube Music's Role in Multimedia Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-educators-elite-selecting-the-ultimate-classroom-recorders-of-teaching/"><u>[Updated] 2024 Approved  Educators’ Elite  Selecting the Ultimate Classroom Recorders of Teaching</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-top-ways-to-preserve-and-log-youtube-live-streams/"><u>[Updated] 2024 Approved  Top Ways to Preserve and Log YouTube Live Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-headsets-a-new-hacked-account-reset-method/"><u>$300 Oculus Headsets, A New Hacked Account Reset Method</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-the-premier-yt-storytelling-list-to-watch-in-the-year-ahead/"><u>2024 Approved  The Premier YT Storytelling List to Watch in the Year Ahead</u></a></li>
+<li><a href="https://facebook.techidaily.com/9-reasons-why-social-media-is-actually-good-for-you/"><u>9 Reasons Why Social Media Is Actually Good for You</u></a></li>
+<li><a href="https://facebook.techidaily.com/are-dislike-options-necessary-online/"><u>Are Dislike Options Necessary Online?</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/beyond-popularity-youtube-earnings-for-1m-viewer-base/"><u>Beyond Popularity – YouTube Earnings for 1M Viewer Base</u></a></li>
+<li><a href="https://facebook.techidaily.com/brevity-and-impact-writing-memorable-facebook-narratives/"><u>Brevity and Impact: Writing Memorable Facebook Narratives</u></a></li>
+<li><a href="https://facebook.techidaily.com/complete-record-compilation-how-to-archive-your-facebook-life/"><u>Complete Record Compilation: How to Archive Your Facebook Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-interaction-with-external-fb-appswebsites/"><u>Enhancing Interaction with External FB Apps/Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/explanation-for-not-here-status-on-app-chats/"><u>Explanation for 'Not Here' Status on App Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-foundations-of-facebooks-operational-plan/"><u>Exploring the Foundations of Facebook's Operational Plan</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-policy-2023-politics-and-religion-out-of-sight/"><u>Facebook Policy 2023: Politics and Religion Out of Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-starts-rolling-out-its-new-neighborhoods-feature/"><u>Facebook Starts Rolling Out Its New Neighborhoods Feature</u></a></li>
+<li><a href="https://os-tips.techidaily.com/fenrir/"><u>Fenrir -</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-age-friendly-networking-spaces/"><u>Greatest Age-Friendly Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-multi-group-posts-for-greater-engagement/"><u>Harnessing the Power of Multi-Group Posts for Greater Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-and-remove-shortcuts-on-facebook/"><u>How to Add and Remove Shortcuts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/ignite-the-digital-dialogue-12-essential-techniques-for-facebook/"><u>Ignite the Digital Dialogue: 12 Essential Techniques for Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Tecno Pop 7 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-uncovering-the-top-4-social-shifts-online/"><u>Interactive Evolution: Uncovering the Top 4 Social Shifts Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-the-invisible-lines-in-online-social-networks/"><u>Interpreting the Invisible Lines in Online Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-reality-gain-or-loss-perspectives/"><u>Offline Reality: Gain or Loss Perspectives?</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-locations-unveiling-freelancer-openings/"><u>Prime Locations Unveiling Freelancer Openings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/reliability-and-warranty/"><u>Reliability and Warranty</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/reviving-your-screen-expert-tips-for-refreshing-any-samsung-television/"><u>Reviving Your Screen: Expert Tips For Refreshing Any Samsung Television</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-insights-busting-top-10-facebook-fables/"><u>Social Media Insights: Busting Top 10 Facebook Fables</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-solution-eliminating-the-error-code-31-on-windows/"><u>Step-by-Step Solution: Eliminating the Error Code 31 on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-undoing-deletion-of-facebook-statuses/"><u>Strategies for Undoing Deletion of Facebook Statuses</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-profile-a-comprehensive-guide/"><u>Tailoring Your Profile: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-event-design-and-promotion-on-facebook/"><u>The Essentials of Event Design & Promotion on Facebook</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-latest-on-sony-exploring-product-launches-and-developments-at-the-2024-state-of-play/"><u>The Latest on Sony - Exploring Product Launches and Developments at the 2024 State of Play</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-vast-majority-of-iphone-users-are-opting-out-of-app-tracking/"><u>The Vast Majority of iPhone Users Are Opting Out of App Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/through-a-screen-analyzing-modern-lifes-negative-effects/"><u>Through a Screen: Analyzing Modern Life's Negative Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-hubs-for-seeking-freelance-opportunities/"><u>Top 5 Hubs for Seeking Freelance Opportunities</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transformative-zooms-for-snapchat-photos-and-videos/"><u>Transformative Zooms for Snapchat Photos & Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-true-nature-of-metaverse-versus-vr-six-factors/"><u>Uncovering The True Nature of Metaverse Versus VR: Six Factors</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-misdirection-in-digital-consent/"><u>Understanding Misdirection in Digital Consent</u></a></li>
+<li><a href="https://facebook.techidaily.com/users-seek-sanctuary-from-iphones-tracks/"><u>Users Seek Sanctuary From iPhones’ Tracks</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionality-unhindered-without-agreeing-to-updated-privacy-terms/"><u>WhatsApp: Functionality Unhindered Without Agreeing to Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-2023-target-matters-in-the-e2e-encryption-schedule/"><u>Why Meta's 2023 Target Matters in the E2E Encryption Schedule</u></a></li>
+</ul></div>

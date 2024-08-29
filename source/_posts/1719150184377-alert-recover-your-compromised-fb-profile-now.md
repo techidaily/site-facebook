@@ -1,7 +1,7 @@
 ---
 title: "Alert: Recover Your Compromised FB Profile Now"
-date: 2024-07-12T10:44:10.772Z
-updated: 2024-07-13T10:44:10.772Z
+date: 2024-08-28T02:58:31.752Z
+updated: 2024-08-29T02:58:31.752Z
 tags:
   - facebook
 categories:
@@ -48,10 +48,16 @@ Other signs that your account may have been hacked include:
 
  If you spot any suspicious activity in your logins or have seen one or more of these other signs, you'll find what you need to do below.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What to Do If Your Facebook Account Was Hacked
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
 ### 1a. Change Your Facebook Password
 
  In case your Facebook hacker hasn't changed your password, you got lucky! Immediately update your password before you log out of suspicious sessions; you don't want to alert the hacker. If it's too late, head to step 1b.
@@ -60,6 +66,9 @@ Other signs that your account may have been hacked include:
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
 Do this only if you're sure you can log back in.
@@ -74,6 +83,9 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
@@ -92,6 +104,9 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -116,12 +131,23 @@ Do this only if you're sure you can log back in.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ## Improving Facebook's Privacy and Security Settings
 
  Once you're back in control, we highly recommend that you review your Facebook settings. Head to the Meta [Accounts Center](https://accountscenter.facebook.com/) and review the following points:
@@ -155,3 +181,70 @@ Do this only if you're sure you can log back in.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-building-blocks-of-a-well-structured-youtube-video/"><u>[New] 2024 Approved  Building Blocks of a Well-Structured YouTube Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-convenient-technique-winning-the-art-of-fish-dialogue-alteration/"><u>[New] Convenient Technique  Winning the Art of Fish Dialogue Alteration</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-unleashing-creativity-in-ar-a-comprehensive-guide-to-lut-tools/"><u>[New] Unleashing Creativity in AR  A Comprehensive Guide to LUT Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-your-path-to-uninterrupted-mobile-experience-with-these-7-apps/"><u>[New] Your Path to Uninterrupted Mobile Experience with These 7 Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-aquatic-videography-evolved-top-camcorders-of-the-year/"><u>[Updated] 2024 Approved  Aquatic Videography Evolved - Top Camcorders of the Year</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-crack-the-code-of-content-discovery-on-facebook/"><u>[Updated] 2024 Approved  Crack the Code of Content Discovery on Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-social-snippet-collection-mastery-efficient-method-for-downloading-animated-tweet-graphics/"><u>[Updated] 2024 Approved  Social Snippet Collection Mastery  Efficient Method for Downloading Animated Tweet Graphics</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-the-art-of-captioning-on-tiktok-5-essential-insights-for-enhanced-engagement/"><u>[Updated] 2024 Approved  The Art of Captioning on TikTok  5 Essential Insights for Enhanced Engagement</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-pcs-premier-ps3-clones-2023-edition/"><u>[Updated] In 2024, PC's Premier PS3 Clones - 2023 Edition</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-innovative-ways-to-leverage-zoom-for-fb-live-for-2024/"><u>[Updated] Innovative Ways to Leverage Zoom for FB Live for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-prototyping-perfection-the-best-vector-software-of-the-year-for-2024/"><u>[Updated] Prototyping Perfection  The Best Vector Software of the Year for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-quick-fix-from-raw-images-to-high-quality-youtube-thumbnails/"><u>[Updated] Quick Fix  From Raw Images To High-Quality YouTube Thumbnails</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-ultimate-360-eye-exploration-test/"><u>[Updated] Ultimate 360° Eye Exploration Test</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/about-motorola-frp-bypass-by-drfone-android/"><u>About Motorola FRP Bypass</u></a></li>
+<li><a href="https://win11.techidaily.com/beating-the-deadly-world-of-warcraft-fatality-windows-fix-guide/"><u>Beating the Deadly World of Warcraft Fatality: Windows Fix Guide</u></a></li>
+<li><a href="https://network-issues.techidaily.com/clear-visuals-and-high-quality-screen-win10-solution/"><u>Clear Visuals & High-Quality Screen - Win10 Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-security-with-updated-login-details-in-facebook/"><u>Enhance Security with Updated Login Details in Facebook</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/enhancing-the-battle-cry-solutions-to-fortnites-audio-glitches/"><u>Enhancing the Battle Cry: Solutions to Fortnite's Audio Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-no-one-is-forgotten-group-membership-inclusivity-on-fb/"><u>Ensuring No One Is Forgotten: Group Membership Inclusivity on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-working-to-clarify-its-rules-regarding-satire/"><u>Facebook Is Working to Clarify Its Rules Regarding Satire</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-disappearance-to-recurrence-the-instagram-paradox/"><u>From Disappearance to Recurrence: The Instagram Paradox</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-cyberquake-fb-whatsapp-and-instagram-offline/"><u>Global Cyberquake: FB, WhatsApp & Instagram Offline</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-redmi-note-12-4g-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi Redmi Note 12 4G Phone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-vivo-y100i-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-noise-free-ai-transcription-technology/"><u>In 2024, Noise-Free AI Transcription Technology</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-the-pathway-to-seamless-integration-of-voice-inputs-in-powerpoint-presentations/"><u>In 2024, The Pathway to Seamless Integration of Voice Inputs in PowerPoint Presentations</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazon-lunas-exceptional-cloud-gaming-performance/"><u>In-Depth Look at Amazon Luna's Exceptional Cloud Gaming Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-subtextual-cues-in-online-chats/"><u>Interpreting Subtextual Cues in Online Chats</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-gesture-based-interface-transforming-user-experience-on-facebook/"><u>Is Gesture-Based Interface Transforming User Experience on Facebook?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/mastering-total-war-saga-troy-overcoming-pc-performance-hiccups-and-crashes/"><u>Mastering TOTAL WAR SAGA: TROY - Overcoming PC Performance Hiccups & Crashes</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-story-removal-with-ease-on-facebook/"><u>Navigating Story Removal with Ease on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-digital-experience-less-customized-advertising/"><u>Optimize Digital Experience: Less Customized Advertising</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-itel-a60s-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Itel A60s Phone Now with These Tips</u></a></li>
+<li><a href="https://video-capture.techidaily.com/perpetual-display-documentation-firms-for-2024/"><u>Perpetual Display Documentation Firms for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-hackers-target-facebook-ratings-now-one-star-only/"><u>Pro-Palestinian Hackers Target Facebook Ratings - Now One Star Only</u></a></li>
+<li><a href="https://techidaily.com/repair-video-tool-repair-all-your-damaged-video-files-of-vivo-x100-pro-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>Repair Video Tool - Repair all your damaged video files of Vivo X100 Pro on Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelation-or-hoax-dissecting-60-minutes-findings/"><u>Revelation or Hoax?: Dissecting 60 Minutes' Findings</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-profile-on-facebook-activating-protection-system/"><u>Safeguarding Your Profile on Facebook: Activating Protection System</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-content-sharing-instagram-reels-on-your-facebook-wall/"><u>Seamless Content Sharing: Instagram Reels on Your Facebook Wall</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-process-with-facebooks-mobile-code-creator/"><u>Secure Login Process with Facebook's Mobile Code Creator</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-paradigm-shifts-exploring-4-media-induced-changes/"><u>Social Paradigm Shifts: Exploring 4 Media-Induced Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-here-are-9-reasons-to-keep-connected-online/"><u>Social Savvy? Here Are 9 Reasons to Keep Connected Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-shun-the-habit-of-constant-reel-consumption-on-fb/"><u>Steps to Shun the Habit of Constant Reel Consumption on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-connections-how-to-disconnect-specific-profiles/"><u>Streamlining Connections: How to Disconnect Specific Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegram-gains-momentum-when-facebook-disappears-for-hours/"><u>Telegram Gains Momentum When Facebook Disappears for Hours</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-impactful-tech-personalities-sparking-debate/"><u>The Biggest Impactful Tech Personalities Sparking Debate</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-evolution-from-previous-to-the-new-huawei-p10-model/"><u>The Evolution  From Previous to the New Huawei P10 Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-fashion-and-function-facebook-goes-from-digital-to-tangible/"><u>The Future of Fashion & Function: Facebook Goes From Digital to Tangible</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-history-and-function-of-vpns/"><u>The History and Function of VPNs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-reimagined-from-facebook-to-meta/"><u>The Social Fabric Reimagined: From Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-paradox-navigating-its-darker-impacts/"><u>The Social Media Paradox: Navigating Its Darker Impacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-selecting-the-perfect-fb-picture/"><u>Tips for Selecting the Perfect FB Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-champions-of-facebook/"><u>Today's Champions of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-revenue-strategies-for-fb-and-ig-success/"><u>Top 5 Revenue Strategies for FB & IG Success</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-pick-unlimited-valorant-sound-transformation-tool-free/"><u>Top Pick  Unlimited Valorant Sound Transformation Tool (Free)</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-transparency-in-retrospect-download-tutorial-for-fb-data/"><u>Total Transparency in Retrospect: Download Tutorial for FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/trusted-territories-are-verified-metals-or-blue-badges-superior/"><u>Trusted Territories: Are Verified Metals or Blue Badges Superior?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-the-implications-of-linking-on-facebook/"><u>Unravel the Implications of Linking on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-5-most-affecting-facebook-slip-ups/"><u>Unwrapping the 5 Most Affecting Facebook Slip-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-facebook-reimbursement-procedure/"><u>Unwrapping the Facebook Reimbursement Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-conversations-take-flight-with-facebooks-podcast-hub/"><u>Virtual Conversations Take Flight with Facebook’s Podcast Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-could-kill-the-dominant-social-platforms-metas-eu-gambit/"><u>What Could Kill the Dominant Social Platforms: Meta's EU Gambit</u></a></li>
+</ul></div>

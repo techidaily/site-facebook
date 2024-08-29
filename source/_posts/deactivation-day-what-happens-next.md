@@ -1,7 +1,7 @@
 ---
 title: "Deactivation Day: What Happens Next?"
-date: 2024-07-12T10:40:09.068Z
-updated: 2024-07-13T10:40:09.068Z
+date: 2024-08-28T03:01:56.638Z
+updated: 2024-08-29T03:01:56.638Z
 tags:
   - facebook
 categories:
@@ -45,12 +45,18 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
 
  How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
 
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can [complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -63,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
  What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
@@ -73,12 +82,18 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  So how do you know if someone has blocked you on Facebook or deactivated their account?
 
  Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
 
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can I Still Use Messenger Without Facebook?
 
  You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
@@ -121,6 +136,14 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that [you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
@@ -144,3 +167,41 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-top-8-best-zombie-games/"><u>[New] In 2024, Top 8 Best Zombie Games</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-easy-steps-to-decode-your-facebook-data/"><u>[Updated] 2024 Approved  Easy Steps to Decode Your Facebook Data</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-funny-frenzy-top-10-tweets/"><u>[Updated] Funny Frenzy  Top 10 Tweets</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-million-view-achievement-and-its-monetary-benefit-for-2024/"><u>[Updated] Million View Achievement and Its Monetary Benefit for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-studios-comprehensive-guide-to-video-post-production/"><u>[Updated] YouTube Studio's Comprehensive Guide to Video Post Production</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-investment-in-headsets-post-breach-user-data-recovery/"><u>$300 Investment in Headsets, Post-Breach User Data Recovery</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-unveiling-uavs-the-basics-of-drone-operations/"><u>2024 Approved  Unveiling UAVs  The Basics of Drone Operations</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessibility-guide-for-facebook-neighborhood-memberships/"><u>Accessibility Guide for Facebook Neighborhood Memberships</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-for-avoiding-deceptive-fb-links/"><u>Best Practices for Avoiding Deceptive FB Links</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722170159479-clarifying-authorship-in-ai-generated-works-a-guide-to-copyright-principles-and-ownership/"><u>Clarifying Authorship in AI-Generated Works: A Guide to Copyright Principles and Ownership</u></a></li>
+<li><a href="https://facebook.techidaily.com/controlling-direct-browser-within-fb-app/"><u>Controlling Direct Browser Within FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/cryptos-climb-in-online-advertising-landscape/"><u>Crypto's Climb in Online Advertising Landscape</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/elevate-your-experience-with-these-11-must-haves/"><u>Elevate Your Experience with These 11 Must-Haves</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-latest-the-mobility-driven-portal-go-model/"><u>Facebook's Latest: The Mobility-Driven Portal Go Model</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-chapter-nine-exciting-reasons-to-dive-into-the-metaverse/"><u>Facebook's Next Chapter: Nine Exciting Reasons to Dive Into the Metaverse</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-redmi-13c-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Redmi 13C 5G?</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-motorola-razr-40-ultra-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Motorola Razr 40 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-set-up-and-use-your-facebook-portal-tv-for-video-chats/"><u>How to Set Up and Use Your Facebook Portal TV for Video Chats</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-incorporating-jump-cuts-for-smoother-edits/"><u>In 2024, Incorporating Jump Cuts for Smoother Edits</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-connectivity-with-apps-and-websites/"><u>Navigating Facebook Connectivity with Apps & Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaking-trends-in-facebook-usage-metrics/"><u>Peaking Trends in Facebook Usage Metrics</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-poco-x6-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Poco X6 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-privacy-delete-fb-watch-logs-now/"><u>Securing Your Privacy: Delete FB Watch Logs Now</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/see-it-all-your-free-selection-of-50-youtube-banners-in-2024/"><u>See It All - Your Free Selection of 50 YouTube Banners, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-embedding-image-descriptors-in-fb-photos/"><u>Step-by-Step: Embedding Image Descriptors in Fb Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/sweet-release-from-social-media-shackles-deleting-your-company-page/"><u>Sweet Release From Social Media Shackles: Deleting Your Company Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tutorial-transforming-images-into-engaging-gifs/"><u>Tutorial  Transforming Images Into Engaging GIFs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-pivotal-news-moments-in-google/"><u>Unveiling the Pivotal News Moments in Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
+</ul></div>

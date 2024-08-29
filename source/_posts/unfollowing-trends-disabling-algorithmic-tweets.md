@@ -1,0 +1,238 @@
+---
+title: "Unfollowing Trends: Disabling Algorithmic Tweets"
+date: 2024-08-28T03:06:27.884Z
+updated: 2024-08-29T03:06:27.884Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Unfollowing Trends: Disabling Algorithmic Tweets"
+excerpt: "This Article Describes Unfollowing Trends: Disabling Algorithmic Tweets"
+keywords: Trend Unfollowing SEO,Disable Tweet Algos,Anti-Algorithm Tweeting,SEO,Algorithmic Tweets Avoidance,Twitter SEO,SEO for Non-Algorithm Tweets
+thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec2830801400ac767081505a0953.jpg
+---
+
+## Unfollowing Trends: Disabling Algorithmic Tweets
+
+ Social networks offer a stream of updates from your family and friends or people you follow. But the feed you see by default isn't chronological. Instead, the social networks try to figure out what you'd like to see first, and show that instead.
+
+ However, algorithmic feeds mean you'll miss some updates you might want to see. Which is why you should disable algorithmic them and enable chronological feeds instead. In this article, we show you how to do that on Twitter, Instagram, and Facebook.
+
+## What Are Algorithmic Feeds?
+
+ With algorithmic feeds, the social network algorithms are predicting what you should be reading. Rather than showing you all new posts in chronological order, you'll see what the social network predicts you want to see.
+
+ To achieve this, social media platforms take data from posts you've interacted with in the past, posts currently trending well, and sponsored posts. That's what the algorithm does.
+
+![A comparison between chronological and algorithmic feeds on Twitter.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Chronological-vs-Algorithmic-Feed-Example.jpg)
+
+ The amount of detail social media platforms can pull is immense, they even study how long you look at certain posts for!
+
+ By showing you these posts, each social media platform tries to get you to stay on the platform for longer. The longer you stay on the platform, the more ads it can show you, and the more money it can make. That's a fairly straightforward business model.
+
+ It's important to make the distinction that social media companies aren't strictly controlling what content you see. Each platform's algorithm was designed to show you relevant content and make the platform money. You can also[take advantage of the algorithm, such as on Instagram](http://www.makeuseof.com/instagram-algorithm-2021/) .
+
+ The algorithm will evolve by itself, and choose what posts to show you without any human oversight—there's nobody at any social media company choosing who sees what. While the platform creates the algorithm and gives it a goal, it can't choose the content.
+
+## The Pros of Algorithmic Feeds
+
+ There are some good intentions behind these algorithmic timelines, besides good business for the social media platform. Algorithmic feeds try to show you more of what they predict you'll like, and often it does a fairly good job. You may discover new content you wouldn't have otherwise seen.
+
+ Instagram estimates that users miss around 70 percent of their feed, which is especially painful for those trying to[maximize their Instagram exposure](http://www.makeuseof.com/maximize-your-instagram-exposure-2021/) . So, it makes sense to reorder the feed to put things you will like at the top.
+
+ This can be especially useful to catch up on notable events or posts from your favorite accounts when you haven't logged in for a while.
+
+ Algorithmic feeds won't cause you to miss out on any content. Both Twitter and Instagram have clarified that the algorithm only affects the order of the posts–it doesn't hide or delete any content. So, while posts considered interesting will be shown at the top, if you keep scrolling you'll still see every new post since you last used the app.
+
+## The Cons of Algorithmic Feeds
+
+ The biggest drawback of algorithmic feeds is that you might be looking at irrelevant content. Not-so-recent posts can crop up in an algorithmic feed, so they may no longer be relevant. For example, yesterday's news story might have been really popular on social media so appears in the feed, but it's not relevant anymore.
+
+ You're also dependent on the algorithm's intelligence. While algorithms can often predict what posts you'll like pretty well, it doesn't get things right all the time.
+
+ Also, you need to train the algorithm over time with your interactions on the app. If you've just signed up to a new social media platform, it won't know you very well. That's a good thing if you're trying to[reduce targeted ads on social media](http://www.makeuseof.com/reduce-targeted-ads-social-media/) , but not so good if you use algorithmic feeds.
+
+ A company having control over your timeline can be an issue. Facebook, for instance, already restricts how many times a brand's posts can appear in your News Feed. You might like the MakeUseOf Facebook page, but that doesn't mean you'll see all updates from it in your timeline.
+
+ Of course, the business model of social networks is dependent upon ads. Algorithmic feeds give social networks the power to insert ads in the right order on your timeline. With the information social media platforms have, these ads can be scarily relevant.
+
+ There's also one argument that social media platforms' algorithmic feeds can cause addiction to the apps.
+
+ One final blow comes to content creators and businesses. If you schedule posts at a certain time every day, there's no guarantee that your audience will see them at that time. This can particularly affect companies trying to run social media promotions.
+
+## How to Disable Twitter's Algorithmic Feed
+
+ Of the three social networks, Twitter undoubtedly offers the easiest way to switch from an algorithmic news feed to a chronological one. The process is exactly the same for both desktop and mobile devices.
+
+![Screenshot of the Latest Tweets option on Twitter's webpage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Latest-Tweets-Screenshot.jpg)
+
+1. Head to the**Home** section on Twitter.
+2. Tap the**Sparkle** icon in the top right-hand corner.
+3. Tap**See Latest Tweets Instead** to switch to a chronological feed. You can change this back at any point.
+4. Twitter will automatically refresh your feed to show tweets in a chronological order.
+
+![Screenshot of Twitter timeline on mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Mobile-Timeline-Screenshot.jpeg)
+
+![Screenshot of Latest Tweets option on Twitter mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Twitter-Mobile-Latest-Tweets-Screenshot.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Close
+
+## How to Change the Instagram Feed Order
+
+ Since Instagram switched to an algorithmic feed in 2017, the platform didn't offer any way to switch back to chronological order until 2022\. Instagram once again offers a chronological timeline option.
+
+To access the chronological timeline, follow these steps:
+
+1. Open the Instagram app.
+2. Tap the**Instagram logo** in the top-left corner.
+3. From the dropdown, select**Following** .
+4. This will open up a new feed for everyone you follow's posts in chronological order.
+
+![Screenshot of Instagram's Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Timeline-Screenshot-1.jpeg)
+
+![Screenshot of Instagram's Chronological Option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Chronological-Option-Screenshot-1.jpeg)
+
+![Screenshot of Instagram's Chronological Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Instagram-Chronological-Feed-1.jpeg)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Close
+
+ Of course, you can still view any Instagram account's posts and Stories in the most recent order by visiting their page. You can also set up a notification for any account so that Instagram notifies you when they upload a new Post, Story, or Live Video.
+
+ That can help you keep up with some favorites in a timely manner. Keeping up with only important notifications is a good way to[optimize your Instagram feed for better mental health](http://www.makeuseof.com/how-to-optimize-instagram-better-mental-health/) .
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## How to Disable Facebook's Algorithmic Feed
+
+ The first social network to go for an algorithmic feed, Facebook stuck with it for a while. But Facebook does give users the option to switch back to seeing posts in chronological order.
+
+ The option isn't easy to find, but it will switch your feed over. On desktop devices, follow these steps:
+
+1. Head to the**News Feed** section on Facebook.
+2. In the left-hand**Suggested** column, you may notice**Most Recent** immediately. Click it.
+3. If not, head to the bottom and click**See more** .
+4. Keep scrolling until you see**Most recent** . Click it.
+5. When you click on**Most recent** , your news feed will switch over to chronological order.
+
+![Screenshot of Facebook's Most Recent Timeline Setting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Most-Recent-Screenshot.jpg)
+
+ It's more or less the same process to switch over to mobile devices:
+
+1. Head to the**News Feed** section on Facebook.
+2. Tap on the**Menu** hamburger button in the bottom-left corner.
+3. Scroll down until you reach**See more** , just above the**Help & Support** tab.
+4. Scroll down a little further until you find**Most recent** .
+5. Once you tap**Most recent** , Facebook will take you to a separate News Feed in chronological order
+
+![Facebook-Change-Feed-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-1.PNG)
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Facebook-Change-Feed-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-2.PNG)
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Facebook-Change-Feed-3](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-Change-Feed-3.PNG)
+
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Close
+
+ It's worth noting that you'll have to choose this option each time you use Facebook. Unfortunately, the platform won't save your preference. While this is annoying, at least you get the option to change your feed order.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
+## Choose Your Social Feed Preferences
+
+ Whether you opt for a chronological timeline or an algorithmic feed, you've been given the choice regarding what content you get to see.
+
+ You can personalize your social media to show you posts in the order you'd like, and improve your overall experience on the platform.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-revamp-srt-to-subc-3-effective-techniques-unpacked/"><u>[New] 2024 Approved  Revamp SRT to SUBC  3 Effective Techniques Unpacked</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-the-cryptographers-guide-to-masked-recordings-for-2024/"><u>[New] The Cryptographer's Guide to Masked Recordings for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixel-perfect-photography-excelling-in-the-best-6-4k-dslrs/"><u>[Updated] Pixel Perfect Photography  Excelling in the Best 6 4K DSLRs</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-the-must-know-aspect-ratio-for-tweeting-videos/"><u>2024 Approved  The Must-Know Aspect Ratio for Tweeting Videos</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/best-5-ai-assistants-for-enhancing-text-generation-in-writing-projects/"><u>Best 5 AI Assistants for Enhancing Text Generation in Writing Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/cut-excessive-ad-content-tailoring-on-social-networks/"><u>Cut Excessive Ad Content Tailoring on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decline-to-share-your-digital-footprint-with-facebook/"><u>Decline to Share Your Digital Footprint with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-unwanted-page-following-from-facebook/"><u>Deleting Unwanted Page Following From Facebook</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/delving-into-the-features-of-rode-streamer-pro-x-could-this-be-the-answer-to-your-cinematic-challenges/"><u>Delving Into The Features Of Rode Streamer Pro X - Could This Be the Answer to Your Cinematic Challenges?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detective-work-finding-profile-connections-in-fb/"><u>Digital Detective Work: Finding Profile Connections in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/dynamic-stabilization-systems-for-iphoneandroiddslr/"><u>Dynamic Stabilization Systems for iPhone/Android/DSLR</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/establishing-clear-boundaries-for-young-social-networkers-on-fb/"><u>Establishing Clear Boundaries for Young Social Networkers on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-different-post-formats-for-optimal-social-media-reach/"><u>Exploring Different Post Formats for Optimal Social Media Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-disguised-threat-to-security/"><u>Facebook Quizzes: A Disguised Threat to Security?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-it-samsung-galaxy-f34-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Samsung Galaxy F34 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-google-pixel-8-pro-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Google Pixel 8 Pro Without the Home Button | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-xiaomi-redmi-note-12-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Xiaomi Redmi Note 12 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-isles-a-guide-to-the-leading-20-online-communities/"><u>Interactive Isles: A Guide to the Leading 20 Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/joint-endeavor-facebook-advances-rust-development/"><u>Joint Endeavor: Facebook Advances Rust Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-drops-integrates-on-instagramfacebook-with-new-initiative/"><u>Meta Drops Integrates on Instagram/Facebook with New Initiative</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-bring-your-invitations-to-life-top-video-maker-apps-for-mobile/"><u>New In 2024, Bring Your Invitations to Life Top Video Maker Apps for Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/opening-doors-to-facebooks-community-platforms/"><u>Opening Doors to Facebook's Community Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/professional-insights-for-better-gopro-recording/"><u>Professional Insights for Better GoPro Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/revise-your-facebook-age-and-birthday-today/"><u>Revise Your Facebook Age and Birthday Today</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/revolutionizing-facebook-advertising-through-creative-insight/"><u>Revolutionizing Facebook Advertising Through Creative Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-identity-authentication-by-meta/"><u>Social Identity Authentication by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-strategy-wisdom-the-ethics-of-like-and-share/"><u>Social Strategy Wisdom: The Ethics of Like & Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/start-a-secure-digital-footprint-meta-usa/"><u>Start a Secure Digital Footprint – Meta USA</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-misinformation-how-social-networks-are-evolving/"><u>Tackling Misinformation: How Social Networks Are Evolving</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-5-best-places-to-find-freelance-work/"><u>The 5 Best Places to Find Freelance Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanism-behind-facebooks-policy-enforcement/"><u>The Mechanism Behind Facebook's Policy Enforcement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quiet-life-without-constant-connectivity/"><u>The Quiet Life Without Constant Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-space-after-social-goodbyes/"><u>The Silent Space After Social Goodbyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-completely-removing-fb-alerts/"><u>Tips for Completely Removing Fb Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchain-yourself-avoid-being-tagged-in-photos/"><u>Unchain Yourself: Avoid Being Tagged in Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-secrets-of-fbs-curated-content/"><u>Unraveling the Secrets of Fb's Curated Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-help-center-and-what-can-you-use-it-for/"><u>What Is Facebook Help Center and What Can You Use It For?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
+<li><a href="https://facebook.techidaily.com/wiping-your-digital-history-from-facebook-scope/"><u>Wiping Your Digital History From Facebook Scope</u></a></li>
+</ul></div>

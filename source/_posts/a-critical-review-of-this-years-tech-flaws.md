@@ -1,7 +1,7 @@
 ---
 title: A Critical Review of This Year's Tech Flaws
-date: 2024-07-12T10:47:07.022Z
-updated: 2024-07-13T10:47:07.022Z
+date: 2024-08-28T02:55:34.531Z
+updated: 2024-08-29T02:55:34.531Z
 tags:
   - facebook
 categories:
@@ -47,6 +47,9 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when [Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
  The second major crypto flop of 2022 is the [FTX bankruptcy](https://www.makeuseof.com/what-is-going-on-binance-ftx/) . FTX was one of the biggest exchanges for digital currencies and derivatives. Still, a sudden liquidity crisis meant that the exchange could no longer provide the services it was known for. This led to a sell-off of assets and a massive decrease in trading volumes.
@@ -55,6 +58,9 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 ![green celsius graphic](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/green-celsius-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Image Credit: Satheesh Sankaran/[Flickr](https://www.flickr.com/photos/justanothercreativesoul/52455459544/in/)
 
  Like Celsius, BlockFi closed its doors after it could not meet its obligations to customers who had lent their money through the platform. 3AC made several large bets on specific cryptocurrencies, which ultimately didn't pan out, leaving them with huge losses they couldn't recover from.
@@ -63,6 +69,9 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ## 4\. Meta
 
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
@@ -75,10 +84,16 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -87,6 +102,9 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
  In response, Amazon carried out some restructuring. Amazon CEO [Andy Jassy released a note](https://www.aboutamazon.com/news/company-news/a-note-from-ceo-andy-jassy-about-role-eliminations) regarding role reductions in the face of uncertainties and economic difficulties. And although Jassy affirmed ample opportunities ahead for Alexa, at present, Alexa appears to be a failed project, especially with rumors about employees calling the voice assistant a wasted effort.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<!-- affiliate ads end -->
 ## 2023 Promises to Be Better Than 2022
 
  Like the buildup to 2022, tech enthusiasts anticipate better optimization, improvement, maintenance of integrity, and sustainability in the tech space in 2023\. However, this time, customers are less trusting in tech companies due to the mismanagement and failures of 2022.
@@ -112,3 +130,41 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-share-screen-on-facebook-live-for-2024/"><u>[New] How to Share Screen on Facebook Live for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-making-funny-photos-no-fees-involved/"><u>[New] Making Funny Photos  No Fees Involved</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-open-source-chill-beats/"><u>[New] Open Source Chill Beats</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-effortless-editing-in-obs-studio-with-top-5-hacks/"><u>[Updated] 2024 Approved  Effortless Editing in OBS Studio with Top 5 Hacks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-elite-circuit-simulators-best-of-the-best-for-2024/"><u>[Updated] Elite Circuit Simulators  Best of the Best for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-analysis-of-the-newest-generation-amazon-kindle-paperwhite-for-avid-readers/"><u>Detailed Analysis of the Newest Generation Amazon Kindle Paperwhite for Avid Readers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-self-representation-rename-your-facebook-identity/"><u>Elevating Self-Representation: Rename Your Facebook Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-in-virtual-reality-dialogues-via-fb-messenger-platform/"><u>Engage in Virtual Reality Dialogues via FB Messenger Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-5m-investment-seeks-to-outshine-substack-amongst-authors/"><u>FB's $5M Investment Seeks to Outshine Substack Amongst Authors</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-and-focus-the-dual-benefits-of-fb-groups/"><u>Friendship & Focus: The Dual Benefits of FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-facebooks-integrated-internet-access/"><u>Halt Facebook's Integrated Internet Access</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-honor-100-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-briskly-bounce-back-from-a-fb-pass-lock/"><u>How to Briskly Bounce Back From a FB Pass-Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/"><u>How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-creating-a-decreasing-volume-effect-in-audacity/"><u>In 2024, Creating a Decreasing Volume Effect in Audacity</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-nokia-c22-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Nokia C22 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-identifying-new-online-communities/"><u>Innovative Approaches for Identifying New Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-the-ghostly-side-of-digital-conversations/"><u>Insight Into the Ghostly Side of Digital Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-bidens-anti-covid-social-media-movement-explained/"><u>Joe Biden's Anti-COVID Social Media Movement Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-timeliness-to-boost-likes-and-shares-on-fb/"><u>Leveraging Timeliness to Boost Likes and Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-inferential-communication-fb-message-clues/"><u>Mastering Inferential Communication: FB Message Clues</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigational-insights-from-facebooks-revamped-ui/"><u>Navigational Insights From Facebook's Revamped UI</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-personal-info-a-comprehensive-fb-safety-manual/"><u>Protecting Personal Info: A Comprehensive FB Safety Manual</u></a></li>
+<li><a href="https://facebook.techidaily.com/recharge-methodically-incorporating-facebooks-daily-break-cues/"><u>Recharge Methodically: Incorporating Facebook's Daily Break Cues</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-faces-why-meta-kills-off-fbs-biometrics/"><u>Rethinking Faces: Why Meta Kills Off FB’s Biometrics</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/revive-your-memories-leading-iphone-image-recovery-programs-unpacked-and-explained/"><u>Revive Your Memories: Leading iPhone Image Recovery Programs Unpacked and Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/rift-investment-a-solution-for-hacked-user-credentials/"><u>Rift Investment: A Solution for Hacked User Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-updated-missing-screenshots-detected-in-messenger/"><u>Stay Updated: Missing Screenshots Detected in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-oversights-in-tech-news-you-need-to-know-about-now/"><u>The Biggest Oversights in Tech News You Need to Know About Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprehensive-guide-to-group-recognition-in-social-media/"><u>The Comprehensive Guide to Group Recognition in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unfulfilled-promises-of-social-media-five-times-facebook-failed-its-base/"><u>The Unfulfilled Promises of Social Media: Five Times Facebook Failed Its Base</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-back-finding-former-job-references-on-fb/"><u>Tracing Back: Finding Former Job References on FB</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-from-silence-to-sight-adding-images-to-your-music-playlist-creative-sound-design/"><u>Updated 2024 Approved From Silence to Sight Adding Images to Your Music Playlist Creative Sound Design</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof!</u></a></li>
+</ul></div>

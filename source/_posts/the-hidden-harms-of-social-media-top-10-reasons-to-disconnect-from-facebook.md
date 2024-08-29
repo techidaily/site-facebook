@@ -1,0 +1,192 @@
+---
+title: "The Hidden Harms of Social Media: Top 10 Reasons to Disconnect From Facebook"
+date: 2024-08-28T03:19:49.914Z
+updated: 2024-08-29T03:19:49.914Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes The Hidden Harms of Social Media: Top 10 Reasons to Disconnect From Facebook"
+excerpt: "This Article Describes The Hidden Harms of Social Media: Top 10 Reasons to Disconnect From Facebook"
+keywords: Social Media Risks,FB Disconnection Benefits,Harmful Social Platforms,Detox From Social Networking,Negative Social Effects,Reasons to Quit Facebook,Uncovering FB Dangers
+thumbnail: https://thmb.techidaily.com/ca9ebd9e5568d283ff74716c5b52278ddfb01bff412fbb14fb93882fc8d1dc09.jpg
+---
+
+## The Hidden Harms of Social Media: Top 10 Reasons to Disconnect From Facebook
+
+ Since its inception in 2004, Facebook has rapidly become a significant part of our lives. It has entertained us, reconnected us with lost friends, and even helped some of us lucky ones find our life partners.
+
+ However, most of us have a love and hate relationship with Facebook. It offers a lot but takes a lot too in various ways.
+
+ Here, we have compiled a list of reasons why it might finally be time for you to quit Facebook and try something new.
+
+## 1\. You Are the Product—Your Data and Your Privacy
+
+ Since its early days, Facebook's privacy policy has somehow managed to secure a place in controversies. That's because Meta, the company that owns and runs Facebook, uses you and your data as its primary product.
+
+ In early 2018, the company hit the headlines for its involvement in[the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-privacy-scandal-good/) . Mark Zuckerberg came under fire for letting the data analysis firm receive and retain the information of a large number of its users.
+
+ In other words, like many other online entities, Facebook uses your information to gain profits, which is a pretty questionable business model.
+
+## 2\. Businesses and Advertisers Are Its Primary Focus
+
+ This point is a continuation of the first one. If you are the product, there must be a buyer for it. And that's where businesses and advertisers come into the equation.
+
+ These buyers are the primary focus of this social media network. Facebook molds its features to suit the requirements of its clients rather than you, the user.
+
+ The social media giant goes to great lengths to track your online activities. It does so to display the relevant ads from its advertising partners.
+
+ This report by[BBC News](https://www.bbc.com/news/technology-46618582) in 2018 shows how Facebook allegedly shared your data with other tech companies. In short, the social network cares more about the business and advertisers than its users.
+
+## 3\. Facebook Has Misrepresented Its Data in the Past
+
+ A lot happened in 2018 that you might have missed. According to[CNBC](http://www.cnbc.com/2021/02/18/facebook-knew-ad-metrics-were-inflated-but-ignored-the-problem-lawsuit-claims.html) , a lawsuit against Facebook alleged that the company misquoted the numbers advertisers could reach through its ads program in order to make more money,
+
+ Facebook was fully aware of the number of people that it could reach. However, it chose to say nothing and kept making profits quietly.
+
+ Before that, back in 2016, Facebook admitted to overstating its video statistics for numerous years by not discounting three-second views from its figures, as reported by[The Drum](https://www.thedrum.com/news/2016/09/23/facebook-admits-it-overstated-average-video-view-times-between-60-80-two-years) . Naturally, the stakeholders involved were pretty unhappy about it.
+
+ The point is if Facebook is not focused on you and has a history of breaking the trust of its business partners, should you be trusting it?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+## 4\. Facebook Tracks Other App and Website Usage
+
+ Facebook's data tracking isn't just limited to WhatsApp, Instagram, and Facebook. It also tracks you as you use other apps and websites. This is evident because, as stated by[Inc.](http://www.inc.com/jason-aten/apples-ios-152-is-a-major-privacy-update-that-lets-you-see-how-apps-are-tracking-you-its-very-bad-news-for-facebook.html) , Apple's latest OS update could block this data tracking on its devices.
+
+ You must have experienced seeing ads for things you might have searched for in other apps on your phone. It is pretty common. There are ways to stop Facebook from doing so. However, do you really feel safe with someone spying on your every tap and click?
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. WhatsApp Shares Your Data With Facebook
+
+ As mentioned in the previous point, the threat to your privacy is no longer just limited to Facebook. In 2014, Facebook purchased WhatsApp.
+
+ In January 2021,[WhatsApp asked its users to accept new Terms of Service](https://www.makeuseof.com/whatsapp-forces-share-data-with-facebook/) , from which it is clear that the data on WhatsApp is no longer protected. Many of us switched to alternative messaging apps in the process.
+
+ The issue was related to WhatsApp sharing its data with Facebook. With these two most commonly used services joining hands in collecting your data, it is natural to feel threatened.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 6\. The Facebook Algorithm Promote Stories That Provoke a Reaction
+
+ Unlike the algorithms of other popular apps like TikTok, the suggestions you see for the content on Facebook are not always relevant to your activity. The company tampers with the recommendations by promoting posts that provoke reactions, regardless of whether the post is accurate.
+
+ If you're unaware of Facebook's algorithm, you will be shocked to learn some of the real-life consequences it has caused. According to[The Guardian](https://www.theguardian.com/technology/2021/oct/07/facebooks-role-in-myanmar-and-ethiopia-under-new-scrutiny) , the company was allegedly involved in worsening the conditions in Myanmar and Ethiopia.
+
+ Recently, a study revealed that posts with significant[political misinformation during the 2020 US Presidential election](http://www.makeuseof.com/study-facebook-election-misinformation/) performed the best on Facebook. Both of these examples show how Facebook's algorithm works to promote viral stuff rather than factual and moral content.
+
+## 7\. Its User Interface and Timeline Have Flaws
+
+ Facebook keeps on updating its timeline and UI for the web and its app. However, it still carries a lot of glitches and flaws, like something as simple as not being able to switch to a chronological feed.
+
+ The new web interface is under a great deal of scrutiny. Facebook has made it look like a bigger version of its smartphone UI. Here is a detailed article by[Search Engine Journal](http://www.searchenginejournal.com/facebook-design-hated/378881/#close) on how the company has screwed up the timeline and UI.
+
+ However, you cannot do much about it as it forces its design on you. In contrast, you can customize your timeline on other social networks to better suit your requirements. This lack of freedom is pretty debilitating.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+## 8\. You'll Finally Get Rid of Irrelevant Posts and Requests
+
+ Let's face it. Between the unknown contacts, liked pages, groups joined, game requests, and suggestions through Facebook's algorithm, you have to sift through a lot of irrelevant content to find something that you'd actually like to see.
+
+ It'd be nice to get rid of all that information overload. Unfortunately, quitting the social network altogether is the best way of doing so because irrelevant content is almost hardwired into Facebook's system.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+## 9\. Facebook Mostly Copies Features From Other Popular Apps
+
+ The social media giant has hardly innovated any new features in the past several years. And the ones it did introduce were "inspired" by other popular networks and apps.
+
+ Facebook has been called out for copying its competitors' features several times. Here are some instances where Facebook copied features:
+
+* "On this Day" is similar to the one on the app called Timehop.
+* Messenger Rooms introduced in 2020 was the exact copy of Zoom and Houseparty.
+* Pretty much every prominent feature from Snapchat that Facebook has "adapted."
+
+ These are just a few examples. In other words, what you like about Facebook isn't always Facebook's.
+
+## 10\. You Can Find Secure and Private Alternatives to Facebook
+
+ At this point, you might have made up your mind about quitting Facebook. But wait, are you worried that you will miss out on all the social trends and news and be unable to stay in touch with your actual friends?
+
+ You no longer need to worry about that as we have found some great social networks for you that are[secure and more private alternatives to Facebook](https://www.makeuseof.com/tag/facebook-alternatives/) . Check and test a couple of these platforms out. It might feel odd in the beginning, but give it time.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+## Take the Plunge and See How It Affects Your Life
+
+ If you find any of the above reasons compelling, take the plunge and say goodbye to Facebook. You could do it gradually or go cold turkey, whichever way you prefer.
+
+ And if you actually think about it, the idea of quitting something that has apparently become a necessity is both exciting and empowering.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-transaction-to-treasure-unlocking-your-facebook-video-archive/"><u>[New] 2024 Approved  From Transaction to Treasure  Unlocking Your Facebook Video Archive</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-insights-on-how-youtube-handles-uploaded-videos/"><u>[New] 2024 Approved  Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-understanding-youtubes-ad-free-experience-with-a-plan/"><u>[New] 2024 Approved  Understanding YouTube's Ad-Free Experience with a Plan</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-capturing-the-best-visuals-in-vlogs/"><u>[New] In 2024, Capturing the Best Visuals in Vlogs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-rated-desktops-for-peak-performance/"><u>[New] Top-Rated Desktops for Peak Performance</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-securing-sims-legacy-proven-strategies-for-documenting-virtual-escapades/"><u>[Updated] 2024 Approved  Securing Sims' Legacy  Proven Strategies for Documenting Virtual Escapades</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-best-for-broadcasting-is-obs-superior-to-twitch-studio/"><u>[Updated] Best for Broadcasting  Is OBS Superior to Twitch Studio?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-essential-guide-to-premium-cost-free-chat-apps-on-web/"><u>[Updated] Essential Guide to Premium, Cost-Free Chat Apps on Web</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-audience-favorites-outstanding-vr-gaming-with-google-cardboard/"><u>[Updated] In 2024, Audience Favorites  Outstanding VR Gaming with Google Cardboard</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/1717086801478-2024-approved-photography-tutorial-how-to-shoot-and-create-impressive-hdr-portraits/"><u>2024 Approved  Photography Tutorial_ How to Shoot and Create Impressive HDR Portraits</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/cropping-and-styling-tips-for-standout-instagram-videos-for-2024/"><u>Cropping and Styling Tips for Standout Instagram Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/effortless-visual-content-creation-for-instagram-users/"><u>Effortless Visual Content Creation for Instagram Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminate-unwanted-footprint-delete-your-facebook-watching-trails/"><u>Eliminate Unwanted Footprint: Delete Your Facebook Watching Trails</u></a></li>
+<li><a href="https://facebook.techidaily.com/emergency-guide-recovering-and-reinforcing-your-fb-security/"><u>Emergency Guide: Recovering & Reinforcing Your FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-league-stars-refuse-snapchat-facebook-over-abusive-comments/"><u>English League Stars Refuse Snapchat, Facebook Over Abusive Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-flips-the-script-with-weekend-live-selling/"><u>Facebook Flips the Script with Weekend Live-Selling</u></a></li>
+<li><a href="https://facebook.techidaily.com/governance-guild-prepares-to-dictate-trumps-status-on-fb/"><u>Governance Guild Prepares to Dictate Trump's Status on FB.</u></a></li>
+<li><a href="https://facebook.techidaily.com/governments-counteroffensive-against-monopolistic-tech-firms/"><u>Government's Counteroffensive Against Monopolistic Tech Firms</u></a></li>
+<li><a href="https://win-answers.techidaily.com/grand-theft-auto-v-update-fixes-resolving-the-d3d-graphics-initialization-error-errgfxd3dinit/"><u>Grand Theft Auto V Update Fixes: Resolving the D3D Graphics Initialization Error (ERR_GFX_D3D_INIT)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-erase-all-facebook-notification-sources/"><u>How to Erase All Facebook Notification Sources</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-hubs-to-explore-for-securing-freelance-roles/"><u>Ideal Hubs to Explore for Securing Freelance Roles</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-honor-90-lite-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Honor 90 Lite Phone When You Forget the Password</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-discovering-streamer-favorite-live-cam-technology/"><u>In 2024, Discovering Streamer-Favorite Live Cam Technology</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-vivo-x90s-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Vivo X90S Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-ray-ban-stories-via-facebook-what-to-expect/"><u>Introducing Ray-Ban Stories via Facebook: What to Expect</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-my-information-protected-or-leaked-in-online-communications/"><u>Is My Information Protected or Leaked in Online Communications?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-contact-list-exposed-in-a-facebook-sync-error/"><u>Is Your Contact List Exposed in a Facebook Sync Error?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-muting-fb-reels/"><u>Mastery Over Muting FB Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-vision-of-tomorrow-engineering-the-fastest-ai-machine-today/"><u>Meta's Vision of Tomorrow: Engineering the Fastest AI Machine Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-complexity-understanding-the-power-of-fb-followingunfollowing/"><u>Navigating Complexity: Understanding the Power of FB Following/Unfollowing</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-demystifying-clubhouse-understanding-the-social-networks-foundation-purpose-and-potential-impact/"><u>New 2024 Approved Demystifying Clubhouse Understanding the Social Networks Foundation, Purpose, and Potential Impact</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-fcp-vs-fce-a-side-by-side-comparison-of-video-editing-powerhouses/"><u>New 2024 Approved FCP vs FCE A Side-by-Side Comparison of Video Editing Powerhouses</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722973341279-quick-setup-of-your-xbox-controllers-with-updated-drivers-download-now/"><u>Quick Setup of Your Xbox Controllers with Updated Drivers - Download Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-social-media-groups-with-updated-guidelines/"><u>Revamping Social Media Groups with Updated Guidelines</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/seamlessly-download-igtv-for-iphoneandroid-users/"><u>Seamlessly Download IGTV for iPhone/Android Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-allure-of-ambiguity-examining-vague-online-conversations/"><u>The Allure of Ambiguity: Examining Vague Online Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-interaction-unveiling-six-transformative-facts-about-fbs-metaverse/"><u>The Future of Social Interaction: Unveiling Six Transformative Facts About FB's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-manual-merging-social-media-on-xbox-console/"><u>The Ultimate Manual: Merging Social Media on Xbox Console</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-digital-following/"><u>Understanding Your Digital Following</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-metamorphosis-from-vr-to-metaverse-6-core-distinctions/"><u>Unveiling the Metamorphosis From VR to Metaverse: 6 Core Distinctions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-to-the-latest-geforce-nvidia-210-drivers-for-improved-compatibility-on-windows-11-systems/"><u>Update to the Latest GeForce nVidia 210 Drivers for Improved Compatibility on Windows 11 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-how-to-recognize-fake-facebook-users/"><u>Virtual Vigilance: How to Recognize Fake Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-scrubbing-your-facebook-view-logs-is-smart/"><u>Why Scrubbing Your Facebook View Logs Is Smart</u></a></li>
+</ul></div>

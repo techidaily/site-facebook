@@ -1,0 +1,212 @@
+---
+title: Sharing Stories that Resonate with Crowds
+date: 2024-08-28T03:08:25.203Z
+updated: 2024-08-29T03:08:25.203Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Sharing Stories that Resonate with Crowds
+excerpt: This Article Describes Sharing Stories that Resonate with Crowds
+keywords: Storytelling Impact,Resonating Narratives,Engaging Audience,Popular Tales Share,Mass Appeal Stories,Crowd Connecting,Relatable Content
+thumbnail: https://thmb.techidaily.com/403ee604a3f16d045c6709201099032edd204086d93c80ae19bbdd0f525004e0.png
+---
+
+## Sharing Stories that Resonate with Crowds
+
+ What if you were paid thousands of dollars for a single Instagram photo? Or received money for a single Snapchat post? Welcome to the world of social media influencers.
+
+ If you're looking to become a social media influencer yourself, here are a few of the steps you should take.
+
+## 1\. Find Your Niche
+
+![man handpainting a bird](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/man-handpainting-a-bird.jpg)
+
+ Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/24903658488)
+
+ The biggest mistake a social media influencer can make is to try to be a jack-of-all-trades but end up the master of none. You may have a bunch of varied interests and areas of expertise, but you need to zero in on the one that you know the most about and make that your niche on social media.
+
+ You can post about something as popular as Indian food, or something as obscure as scrimshaw artwork. Stick to posting only about that niche—at least until you've grown a following.
+
+ Unless you came into the game already famous or with a large group of followers, posting about random, unrelated topics won't help you build a brand that companies would be interested in leveraging for ad space. Until you reach the stage where your fans feel personally connected to you and would be interested in anything and everything you post, avoid branching away from your niche.
+
+ If you still feel you can post knowledgeably about more than one niche, create entirely separate channels for the other niches. You can then add a link in your bio to your other channels so that interested users can follow the links and discover your other passions as well.
+
+## 2\. Focus on One or Two Forms of Media
+
+![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
+
+ There are a host of social media platforms available to you. Different social media niches may not always perform the same on every platform.
+
+ Jokes, short commentaries, and witty observations about the world do well on Twitter. Visually-oriented topics like fashion and artwork capture a lot of interest on Instagram. YouTube videos and podcasts allow you to create skits, long-form commentaries, and reactions to what's going on in the world to attract viewership. TikTok can often be a combination of all of the above.
+
+ Instead of trying to post content on every social media platform, choose one or two and build your following from there. It'll be easier to keep up with your audience when you only have to pay attention to one or two apps rather than four or five.
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. Quality Over Quantity, But Be Consistent
+
+ There are thousands of influencers in every popular niche, each competing for users' attention span. Your content needs to be unique, thoughtfully constructed—and most of all, consistent.
+
+ You should be posting content on a regular basis to keep your followers engaged. However, you shouldn't just post something to fill your required quota. Someone posting a thoughtful Instagram reel once a week will build a stronger following than someone posting something low-quality every single day.
+
+ Think about what posting schedule would work for you. If you can't post twice a week, that's perfectly fine! Post once a week, or even once every two weeks. Just make sure your content is helpful to your followers and let them know when they can expect new content regularly.
+
+ Instagram users should check out the best[ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
+
+## 4\. Network With Other Influencers
+
+![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
+
+ Being an influencer is a social game, and you absolutely cannot win it alone. Don't think of social media as only a place for you to talk about your niche to your followers. Think of it also as a place where you learn more about your own subject of interest from other influencers.
+
+ Every savvy influencer understands the importance of networking, so don't hesitate to reach out to others. Comment on and like their posts, subscribe to their pages, and even share their work where possible.
+
+ Showing support and interest in your fellow influencers adds a positive vibe to your channel and helps you make friends in the industry who can help your channel grow with future collaborations.
+
+## 5\. Engage With Your Following
+
+ Providing information to your followers is step one. Step two is interacting directly with your followers once they start responding to your posts. When you have fewer fans in the beginning, you can follow them back individually and communicate directly to establish rapport.
+
+ Once your following increases you can engage in group activities relating to your channel. Hold quizzes, polls, and competitions on your page, with some sort of a reward for the most engaged followers.
+
+ Once advertisers start coming to you with offers, it is your responsibility to advertise products that are actually relevant to your channel and can be of use to your followers. Posting about every random product that is offered to you will quickly lead to accusations of "selling out" and you potentially losing followers.
+
+ Treat your followers with respect, but be careful of crossing the threshold into developing[parasocial relationships](https://www.makeuseof.com/how-to-communicate-online-healthily/) .
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 6\. Advertise Your Channel
+
+![Woman recording herself on a mounted smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/woman-recording-herself-on-a-mounted-smartphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
+ Even the best social media channels are in a constant battle to put their channel in front of prospective followers. Some of the simplest ways you can advertise your channel include:
+
+* Requesting a shout-out from other popular influencers in your niche.
+* Paying AdWords to run a campaign promoting your channel.
+* Posting snippets from your main channel on other platforms and social media sites.
+* Adding hashtags to all your content for easy searchability.
+
+## 7\. Keep the Momentum Going With Fresh Ideas
+
+![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
+
+ Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/44222584482)
+
+ Once the hard part of gaining a decent following is over, next comes the even more difficult part of maintaining your viewership. Nothing kills a channel faster than stagnant content.
+
+ Maintaining a popular social media channel can often be a full-time job. Here are some methods to maintain momentum on your channel:
+
+* Avoid getting into a rut by posting the same kind of content over and over again.
+* Keep an eye on the latest trends relating to your niche by regularly reading blogs written by the best experts in your niche.
+* Brainstorm ideas for new activities related to your niche that you can participate in and talk about on your channel. For instance, many popular YouTubers have started doing reaction videos, and rack up tens of thousands of views simply filming their reaction to other videos.
+* Ask your followers for ideas on new additions to your channel. Find out what parts of your channel appeal to them the most, and expand on those themes.
+
+## 8\. Reach Out to Potential Sponsors
+
+ When your profile is worth some serious ad revenue, it's time to talk to the sponsors who would actually want to use your account to promote their products. Don't wait around for the advertisers to come to you.
+
+ Decide which product categories might appeal to your followers, and then Google the companies in those categories to find ones with great reputations. Once you've compiled a list of companies, find the social media accounts of the ones you feel would be interested in your channel.
+
+ Message the companies with information about your channel, your number of followers, and the latest user-engagement stats from your channel's analytics page. Be polite, professional, and honest about how you can help their business.
+
+ If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
+
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 9\. Create Trackable Goals
+
+![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+ As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
+
+ Think about what initial success would look like to you, and make one to three goals for yourself with a specific end date. For example, within six months, I want to have 500 followers and at least 10,000 views on my videos.
+
+ Then consider how you'll go about reaching and tracking that goal. For example, to gain followers and views, I will brainstorm ideas at the beginning of each month and post something new on Mondays and Fridays every week. Record the number of followers and views you have every week to help you assess how close you are to reaching your goal.
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Should You Become a Social Media Influencer?
+
+ Becoming a social media influencer can often start off as a side gig and ultimately become a full-time job. If you're passionate about your niche, creating content should come easy to you. It's okay to want to share information about your niche and also make some money while doing it, but the latter shouldn't be your main goal.
+
+ If you embark on the journey of becoming a social media influencer, it won't happen quickly. You'll need to commit yourself to your channel for the long haul and work at your account for months before seeing progress.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-elevating-brand-visibility-a-10-step-roadmap-to-exceptional-smm-skills/"><u>[New] 2024 Approved  Elevating Brand Visibility  A 10-Step Roadmap to Exceptional SMM Skills</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unveiling-top-freefire-strategies-on-youtube/"><u>[New] 2024 Approved  Unveiling Top FreeFire Strategies on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-scalable-and-stylish-type-in-ae-with-top-choices/"><u>[New] Scalable and Stylish Type in AE with Top Choices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-movie-recording-on-multiple-os/"><u>[Updated] 2024 Approved  A Step-by-Step Approach to Movie Recording on Multiple OS</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-exploring-dynamic-images-in-iphone-applications/"><u>[Updated] 2024 Approved  Exploring Dynamic Images in iPhone Applications</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-guide-to-video-editing-best-tools-for-short-forms/"><u>[Updated] In 2024, The Ultimate Guide to Video Editing  Best Tools for Short Forms</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastery-in-media-download-from-facebook-platforms/"><u>[Updated] Mastery in Media Download From Facebook Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/10-ultimate-planning-resources-for-social-media-shares/"><u>10 Ultimate Planning Resources for Social Media Shares</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-iphone-hdr-excellence-comprehensive-tutorial/"><u>2024 Approved  IPhone HDR Excellence  Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-rapid-periscope-livestream-optimization-methods/"><u>2024 Approved  Rapid Periscope Livestream Optimization Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/5-ways-to-limit-people-contacting-you-on-facebook/"><u>5 Ways to Limit People Contacting You on Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-realme-note-50-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Realme Note 50 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-persuasive-arguments-for-keeping-facebook-in-your-life/"><u>6 Persuasive Arguments for Keeping Facebook in Your Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-reasons-why-a-facebook-page-is-better-than-a-personal-profile-for-branding/"><u>8 Reasons Why a Facebook Page Is Better Than a Personal Profile for Branding</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-peek-into-the-sudden-breakdown-of-popular-platforms/"><u>A Peek Into the Sudden Breakdown of Popular Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/achieve-optimal-engagement-5-free-tactics-for-fb-post-scheduling/"><u>Achieve Optimal Engagement: 5 Free Tactics for FB Post Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/ad-head-carolyn-everson-quits-facebook/"><u>Ad Head Carolyn Everson Quits Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/analyzing-hack-frequency-on-platforms/"><u>Analyzing Hack Frequency on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-armistice-social-media-worldwide-standstill/"><u>App Armistice: Social Media Worldwide Standstill</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-case-should-you-rely-on-fb-events/"><u>Assessing the Case: Should You Rely on FB Events?</u></a></li>
+<li><a href="https://facebook.techidaily.com/attracting-prose-masters-fbs-strategic-5m-bet-on-journalist-platforms/"><u>Attracting Prose Masters: FB's Strategic $5M Bet on Journalist Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/bidens-digital-offensive-fb-tweet-snap-campaign-against-covid/"><u>Biden's Digital Offensive: Fb, Tweet, Snap Campaign Against COVID</u></a></li>
+<li><a href="https://facebook.techidaily.com/boost-fans-interest-with-these-free-fb-update-time-strategies/"><u>Boost Fans' Interest with These Free FB Update Time Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-income-5-must-try-fbig-methods/"><u>Boosting Income: 5 Must-Try FB/IG Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-user-engagement-with-fb-photo-descriptions/"><u>Boosting User Engagement with FB Photo Descriptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/breaking-down-the-mechanisms-behind-fbs-moderation-panel/"><u>Breaking Down the Mechanisms Behind FB's Moderation Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-gaps-facebook-and-instagram-now-tighter-linked/"><u>Bridging Gaps: Facebook & Instagram Now Tighter Linked</u></a></li>
+<li><a href="https://facebook.techidaily.com/building-brighter-connections-without-causing-harm/"><u>Building Brighter Connections Without Causing Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/charting-digital-footsteps-an-in-depth-look-at-every-fb-move-youve-made/"><u>Charting Digital Footsteps: An In-Depth Look at Every FB Move You've Made</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-quest-profiles-pages-and-facebook-group-links/"><u>Connectivity Quest: Profiles, Pages & Facebook Group Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/converting-virtual-memories-a-step-by-step-for-fb-download/"><u>Converting Virtual Memories: A Step-by-Step for FB Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-an-organized-facebook-profile/"><u>Crafting an Organized Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-content-that-resonates-increasing-fb-interactions/"><u>Crafting Content That Resonates: Increasing FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/critical-thinking-social-medias-dislike-buttons/"><u>Critical Thinking: Social Media's 'Dislike' Buttons</u></a></li>
+<li><a href="https://facebook.techidaily.com/crypto-marketing-the-next-big-thing-on-social-networks/"><u>Crypto Marketing: The Next Big Thing on Social Networks?</u></a></li>
+<li><a href="https://facebook.techidaily.com/customizing-your-realm-of-digital-presence/"><u>Customizing Your Realm of Digital Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-ethics-in-action-correctly-banned-trump-but-temporarily/"><u>Cyber Ethics in Action: Correctly Banned Trump, But Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154299278-elevate-your-secure-communication-experience-with-facebooks-new-features/"><u>Elevate Your Secure Communication Experience with Facebook's New Features</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-overcome-the-problem-of-stardew-valley-not-loading-properly/"><u>How to Overcome the Problem of Stardew Valley Not Loading Properly</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719153627799-initiating-stronger-privacy-facebooks-messenger-and-instagram-end-to-end-encryption-launched/"><u>Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-ultimate-guide-to-slow-motion-video-editing-top-10-software/"><u>New In 2024, The Ultimate Guide to Slow Motion Video Editing Top 10 Software</u></a></li>
+<li><a href="https://fox-that.techidaily.com/perfect-picture-quality-on-iphone-7-fixes-for-blurry-lens-dilemmas/"><u>Perfect Picture Quality on iPhone: 7 Fixes for Blurry Lens Dilemmas</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reliable-user-guide-to-fix-realme-11-proplus-running-slow-and-freezing-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reliable User Guide to Fix Realme 11 Pro+ Running Slow and Freezing | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/removing-obstacles-a-guide-to-pristine-visual-backgrounds-in-canva/"><u>Removing Obstacles  A Guide to Pristine Visual Backgrounds in Canva</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-by-step-telegram-web-setup-for-novices/"><u>Step-by-Step Telegram Web Setup for Novices</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-the-most-effective-wi-fi-expanders-for-this-year/"><u>Ultimate Guide to the Most Effective Wi-Fi Expanders for This Year</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-privacy-implications-when-interacting-with-chatgpt/"><u>Understanding Privacy Implications when Interacting with ChatGPT</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/unlock-retro-classics-on-android-choose-the-best-ps2-emulators-for-2024/"><u>Unlock Retro Classics on Android – Choose the Best PS2 Emulators for 2024</u></a></li>
+</ul></div>

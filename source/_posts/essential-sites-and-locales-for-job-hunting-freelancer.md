@@ -1,0 +1,226 @@
+---
+title: Essential Sites & Locales for Job Hunting (Freelancer)
+date: 2024-08-28T03:08:54.648Z
+updated: 2024-08-29T03:08:54.648Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Essential Sites & Locales for Job Hunting (Freelancer)
+excerpt: This Article Describes Essential Sites & Locales for Job Hunting (Freelancer)
+keywords: Job Hunt Freelancing,Freelancer Employment Sites,Top Freelance Job Websites,Freelancer Locales & Opportunities,Job Searching for Freelancers,Freelance Job Hunting Resources,Best Sites for Freelancer Employment
+thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5e7d77e30ca04d5bf449b804.jpg
+---
+
+## Essential Sites & Locales for Job Hunting (Freelancer)
+
+ Freelancing is a rewarding career and offers a degree of independence, all while doing something you love. When you're first starting out, finding work as a freelancer can feel daunting. You might find yourself completing low-paying gigs or working with annoying clients.
+
+ Luckily, there are plenty of places to find work. Although you may need to cut through the bad gigs initially, getting your foot in the door is essential.
+
+ Here is a selection of places that'll help you take the first steps on your journey to freelancing success, whether you're a writer, graphic designer, programmer, or something else.
+
+## 1. LinkedIn
+
+![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
+
+ As the go-to B2B social media network, you're probably not surprised to hear that LinkedIn is a great place to find freelance work.
+
+ Just like you can use the**Jobs** tab to search for full-time roles, the same is true for contracts and other gigs. To filter full-time jobs out, tick**Part-Time** ,**Other** ,**Contract** , and**Temporary** under**Job Type** .
+
+ Related:[Essential LinkedIn Profile Tips to Guarantee Success](https://www.makeuseof.com/tag/linkedin-profile-tips/)
+
+ But if you see a role advertised as full-time, don't hesitate to contact the job poster and see if they're open to freelancers. This is especially true if the job happens to be remote. They often won't be accepting freelancers, but it never hurts to try.
+
+ You can also use LinkedIn to find freelance work by using hashtags and keeping an eye out on your feed for people who may need your services.
+
+## 2\. Job Boards
+
+![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
+
+ A lot of new freelancers go straight to the likes of[Upwork](https://www.upwork.com/) ,[Freelancer.com](https://www.freelancer.com/) , and[Fiverr](https://www.fiverr.com/) . Those platforms are handy for building a portfolio, but you'll have to sift through many low-paying gigs to find the gems.
+
+ Plenty of other job boards exist for finding work. And often, they will compensate you much better. Again, though, there are some bad-paying clients—so you'll need to read descriptions carefully.
+
+Job boards that you can find great gigs on include:
+
+* [We Work Remotely](https://weworkremotely.com/) (mainly for full-time work, but some part-time jobs are on there too)
+* [ProBlogger](https://problogger.com/)
+* [FlexJobs](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU96315/https://www.flexjobs.com/)
+* [SolidGigs](https://solidgigs.com/)
+
+ You can also use bigger job boards like[Indeed](https://www.indeed.com/) and[Neuvoo](https://neuvoo.com/) . Sign up for their newsletters to get the best roles delivered to your inbox.
+
+## 3. Facebook Groups
+
+![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
+
+ Facebook can help you find pretty much anything, whether you're looking to buy from a local seller or meet like-minded people. And Facebook Groups are also beneficial when you're a freelancer.
+
+ To get the most out of Facebook Groups, you should join a mixture of Groups that are specifically for posting jobs, as well as Groups that are strictly for networking. Often, freelancers with too much work will offload some of their gigs to others via these means.
+
+ Here are some helpful Facebook groups to join if you’re a freelancer. Keep in mind that these groups are private, so you'll have to ask to join in order to become a member.
+
+* [Content Writing & Writers Work From Home](https://www.facebook.com/groups/contentWorkfromHome/)
+* [Vue.js for Hire](https://www.facebook.com/groups/vuejsforhire)
+* [Remote Work & Jobs for Digital Nomads](https://www.facebook.com/groups/remotework.digitalnomads/)
+
+## 4. Twitter
+
+![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Twitter is a popular platform for freelancers to connect with others on the same path as them. But beyond that, it's also a great place to find freelance work.
+
+ Related:[Essential Twitter Tips for Beginners](https://www.makeuseof.com/tag/twitter-tips-for-beginners/)
+
+ One way you can use Twitter to find freelance roles is by following accounts promoting freelance gigs. There are numerous accounts like this for all niches. Here are some that you should consider following:
+
+* [FreelanceWritingJobs](https://twitter.com/FreelanceWJ) (@FreelanceWJ)
+* [UK/EU Editorial Jobs](https://twitter.com/journalism%5Fjobs) (@journalism\_jobs)
+* [Mediabistro](https://twitter.com/Mediabistro) (@Mediabistro)
+
+ You can also find freelance jobs by using hashtags related to the service you offer. Granted, you may need to scroll through a lot of background noise (and spam)—but you'll be rewarded if you're persistent enough.
+
+ Both of these tips work if you don't have a Twitter account; you can just use the search bar to look for hashtags and profiles. Of course, though, you won't be able to follow accounts.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 5\. Emails
+
+![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
+
+ When you think of email pitches, chances are you're thinking of annoying salespeople. And yes, email pitches are sometimes irritating to receive. But they're only annoying if you make them that way.
+
+ Emailing companies you'd like to work with, or companies that you think would benefit from your services is a useful way to get your foot in the door. However, before doing this, it's wise to have a portfolio to show them—especially if you don’t know the other person.
+
+ With emailing, you have various options. The first is to send a letter of introduction. In this message, you simply state who you are, what you do, and how you feel you could add value to that company.
+
+ Letters of introduction are more of a long-term game. Rather than aiming to get work straight away, you're building rapport, so that company will keep you in mind if no openings currently exist.
+
+ If you're a writer, you can also send pitches through email. If you have a few article ideas that you think would look good on a company blog or magazine website, send a brief outline about your subject and why you think the piece would be interesting. Regardless of how you send emails, the key is to treat the recipient as a person.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<!-- affiliate ads end -->
+## Other Tips for Achieving Success as a Freelancer
+
+ In addition to the job-hunting methods that we outlined above, there are a few things you should keep in mind once you start getting serious about landing gigs.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Build Relationships
+
+![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
+
+ The phrase "it's not what you know, but who you know" is especially important in the world of freelancing. Often, the best roles are hidden. And if you don't have a strong network, your risks of faltering are higher.
+
+ If networking events sound like a nightmare to you, don't worry. You've got plenty of options for building your network. For example, you can:
+
+* Comment on other people's social media posts
+* Join groups on LinkedIn
+* Take part in channels on Slack
+
+ You don't necessarily need an extensive network; just a group of people you know well enough to help you.
+
+### Don't Drop Off When Things Are Going Well
+
+![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ The worst time to let down your guard is when things are going well in your freelance career—that is precisely when you might find that the tank begins to dry up.
+
+ While it's important not to burn yourself out, keeping the momentum going is a good idea. Even if you've got a healthy pool of clients, keep sending letters of introduction and networking with new people.
+
+ Related:[How to Grow Your Personal Brand on Social Media](https://www.makeuseof.com/tag/minimalist-guide-personal-branding-social-media/)
+
+ When you've got a steady base, you might want to focus more on your marketing, too. That way, you can start attracting clients rather than having to go out and get the work.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
+### Offer Free Value
+
+![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
+ For others to trust you enough to want to spend their money on you, you must provide free value first. But that doesn't mean you need to work for free for other clients (though in some cases, doing so can be worth it).
+
+ Offering free value simply means sharing your knowledge with the world. You can publish how-to posts on LinkedIn or blog regularly on your website.
+
+ You can get creative with this, too. For example, have you wanted to start a podcast or YouTube channel for a while? Sharing your skillset this way can help attract clients.
+
+## Freelancing Isn’t as Scary as You Think
+
+ Regardless of what some people may tell you, you can enjoy a successful and sustainable freelance career in your field. However, you need to put in the effort.
+
+ Diversify how you search for work and market yourself. In the meantime, focus on offering your insights and building your network. You'll eventually find yourself in a healthy position and may find that work starts coming to you (instead of the other way around).
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/uilding-a-successful-career-through-youtube-short-film-making/"><u>[New] Building a Successful Career Through YouTube Short Film-Making</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-step-by-step-for-youtube-trailers-in-filmora/"><u>[New] In 2024, Step-by-Step for YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pairing-videography-and-soundtrack-in-w11/"><u>[New] Pairing Videography and Soundtrack in W11</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-unlimited-outro-options-at-no-expense-online/"><u>[New] Unlimited Outro Options at No Expense Online</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-crafting-a-legacy-youtubers-playbook-for-success/"><u>[Updated] 2024 Approved  Crafting a Legacy  YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-close-up-filmmaking-tips-for-a-standout-videography-career/"><u>[Updated] Mastering Close-Up Filmmaking  Tips for a Standout Videography Career</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/discovering-the-ultimate-gopro-camera-max-or-hero-11-in-2024/"><u>Discovering The Ultimate GoPro Camera  Max or Hero 11, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-for-designing-events-on-facebook/"><u>Essential Steps for Designing Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-essential-elements-in-metas-new-privacy-rules/"><u>Exploring Essential Elements in Meta’s New Privacy Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-personalization-made-easy-with-4-proven-methods/"><u>Facebook Personalization Made Easy with 4 Proven Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-on-professional-relationships-and-dynamics/"><u>Facebook's Impact on Professional Relationships and Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-harvard-to-facebook-sheryls-journey/"><u>From Harvard to Facebook: Sheryl's Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/greatest-interactive-sites-for-seniors-online/"><u>Greatest Interactive Sites For Seniors Online</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guidance-for-fixing-not-signed-in-mistakes-with-apples-messaging-service-on-ios/"><u>Guidance for Fixing 'Not Signed In' Mistakes with Apple's Messaging Service on iOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resurrect-old-facebook-ties-post-block/"><u>How to Resurrect Old Facebook Ties Post-Block</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-the-digital-realm-some-secrets-are-better-left-offline/"><u>In the Digital Realm, Some Secrets Are Better Left Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-digital-reality-understanding-facebooks-vr-future/"><u>Navigating The Digital Reality: Understanding Facebook's VR Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-and-polish-your-facebook-page-rebranding-guide/"><u>Personalize & Polish: Your Facebook Page Rebranding Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/platforms-latest-step-harsher-penalties-for-deceptive-posting/"><u>Platform's Latest Step: Harsher Penalties for Deceptive Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-for-the-modern-office/"><u>Social Media Mastery for the Modern Office</u></a></li>
+<li><a href="https://win-able.techidaily.com/solutions-for-correcting-scanning-issues/"><u>Solutions for Correcting Scanning Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-to-managing-fb-connected-tools/"><u>Strategic Approach to Managing Fb Connected Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/swift-user-changeovers-on-social-media-platform-facebook/"><u>Swift User Changeovers on Social Media Platform Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-emergence-of-meta-charting-a-new-course-for-social-networking/"><u>The Emergence of Meta: Charting a New Course for Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-misunderstood-art-of-quantifying-digital-community-size/"><u>The Misunderstood Art of Quantifying Digital Community Size</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/transforming-libraries-into-e-readers/"><u>Transforming Libraries Into E-Readers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-your-potential-essential-business-meta-tools/"><u>Unleash Your Potential: Essential Business META Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-why-social-networking-sites-like-facebook-permit-more-than-one-profile-per-account/"><u>Unveiling Why Social Networking Sites Like Facebook Permit More Than One Profile per Account</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-harmonizing-without-spending-the-ultimate-selection-of-no-fee-audio-mixing-programs/"><u>Updated 2024 Approved Harmonizing Without Spending - The Ultimate Selection of No-Fee Audio Mixing Programs</u></a></li>
+<li><a href="https://facebook.techidaily.com/weathering-adversity-facebooks-impending-hurdles/"><u>Weathering Adversity: Facebook's Impending Hurdles</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-updating-your-privacy-habits-is-crucial-insights-from-facebooks-latest-changes/"><u>Why Updating Your Privacy Habits Is Crucial: Insights From Facebook's Latest Changes</u></a></li>
+</ul></div>

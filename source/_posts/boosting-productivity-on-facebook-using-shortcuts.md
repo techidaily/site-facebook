@@ -1,7 +1,7 @@
 ---
 title: Boosting Productivity on Facebook Using Shortcuts
-date: 2024-07-12T10:42:08.655Z
-updated: 2024-07-13T10:42:08.655Z
+date: 2024-08-28T02:59:43.740Z
+updated: 2024-08-29T02:59:43.740Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,9 @@ thumbnail: https://thmb.techidaily.com/1f7a28a8bb8145eaefcf7bd927fe30950467d63b1
 
  The first shortcut to the left is Home (the homepage), represented by a house icon. This is where you'll access your Newsfeed and see a bunch of recommended pages. This shortcut can't be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Friends
 ![facebook-app-friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-friends.JPEG)
 
@@ -39,6 +42,9 @@ thumbnail: https://thmb.techidaily.com/1f7a28a8bb8145eaefcf7bd927fe30950467d63b1
 
  There is a [difference between friend requests and followers](https://www.makeuseof.com/facebook-friends-followers-differences/) ; you will get notifications for both.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Profile
 ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
@@ -51,11 +57,20 @@ thumbnail: https://thmb.techidaily.com/1f7a28a8bb8145eaefcf7bd927fe30950467d63b1
 ### Menu
 ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Marketplace
 ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
  The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
  The Marketplace section comes with its own list of settings where you can filter through specific items. Listings will be based on your location by default, but you can change it.
@@ -66,14 +81,27 @@ thumbnail: https://thmb.techidaily.com/1f7a28a8bb8145eaefcf7bd927fe30950467d63b1
 
  You can easily [leave a Facebook Group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) if you end up not liking the content.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Watch
 ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Gaming
 ![facebook-app-gaming](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-gaming.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
 ### Feeds
@@ -98,6 +126,9 @@ To quickly hide Facebook shortcuts by long-pressing:
 
 ![facebook-app-menu-options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu-options.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
 
 ![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
@@ -117,6 +148,9 @@ To add or hide Facebook shortcuts via the settings:
 * **Available:** Selecting the Auto setting on a shortcut will let Facebook add, remove, or rearrange them automatically based on how frequently you use them.
 * **Hidden:** When you Hide a shortcut from the navigation bar, it gets put in this category.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Quickly Turn Notification Dots On and Off
 
  If you'd prefer not to see notification dots on your shortcut icons, you can disable them by long-pressing. It works the same as removing a shortcut by long-pressing in the first section above.
@@ -129,6 +163,9 @@ To disable and enable Facebook notification dots by long-pressing:
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Turn Notification Dots On and Off From the Settings
 
  You can also customize the notification dots from your Facebook settings.
@@ -147,6 +184,9 @@ To disable and enable Facebook notification dots from the settings:
 4. Select**Navigation bar > Manage notification dots** . You will be taken to a section where you can manage your shortcut notification dots preferences.
 5. Toggle the blue tabs on and off to enable or disable notification dots for a shortcut. Only the shortcuts that you currently have pinned to your navigation bar will appear here.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Customize Your Facebook Shortcuts
 
  Shortcuts are there to make navigation quick and convenient. But let's be real, they can also clog up your screen. Follow the above guide to choose which shortcuts you want to display, get rid of, and whether or not you want to see their notification dots.
@@ -170,3 +210,59 @@ To disable and enable Facebook notification dots from the settings:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-ranked-best-ipad-speech-to-text-programs-3/"><u>[New] In 2024, Ranked Best iPad Speech-to-Text Programs #3</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-binge-on-christmas-classics-enjoy-9-whole-film-flicks-no-charge/"><u>[Updated] In 2024, Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-chilly-cinematography-comprehensive-ice-cream-monitoring-tutorial/"><u>[Updated] In 2024, Chilly Cinematography  Comprehensive Ice Cream Monitoring Tutorial</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-initiating-seamless-zoom-gatherings-for-2024/"><u>[Updated] Initiating Seamless Zoom Gatherings for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-master-avi-gif-transformation-an-all-inclusive-guide-by-filmora/"><u>2024 Approved  Master AVI-GIF Transformation  An All-Inclusive Guide by Filmora</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pixtra-photo-editor-deep-dive/"><u>2024 Approved  Pixtra Photo Editor Deep Dive</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-starting-channels-right-youtube-equipment-101/"><u>2024 Approved  Starting Channels Right  YouTube Equipment 101</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-nokia-c02-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Nokia C02 by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/abridging-from-social-media-leave-facebook-on-android/"><u>Abridging From Social Media: Leave Facebook on Android</u></a></li>
+<li><a href="https://win11.techidaily.com/activating-emoji-15-support-in-windows-11/"><u>Activating Emoji 15 Support in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-past-blog-posts-vanish-over-time/"><u>Can Past Blog Posts Vanish Over Time?</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-facial-id-at-meta-but-why-uncover-the-story/"><u>Ending Facial ID at Meta, But Why? Uncover The Story.</u></a></li>
+<li><a href="https://facebook.techidaily.com/experimental-meta-drop-support-for-social-media-users/"><u>Experimental Meta Drop Support for Social Media Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-300-spendings-quest-headsets-in-cybersecurity-landscape/"><u>Exploring $300 Spendings: Quest Headsets in Cybersecurity Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-visual-identity-on-facebook/"><u>Fortifying Your Visual Identity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-and-saturday-are-now-for-live-bargain-hunting-at-fb/"><u>Friday and Saturday Are Now for Live Bargain Hunting at FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-will-fbcta-change-your-web-experience/"><u>How Will FBCTA Change Your Web Experience?</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-strangers-amongst-your-gadgets/"><u>Identifying Strangers Amongst Your Gadgets</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-samsung-galaxy-s24plus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Samsung Galaxy S24+ to iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-optimizing-posts-secrets-to-higher-page-rank/"><u>In 2024, Optimizing Posts  Secrets to Higher Page Rank</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-auto-captioning-for-faces-on-facebook/"><u>Mastering Auto-Captioning for Faces on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-magic-temporarily-secure-your-messages/"><u>Messenger’s Magic: Temporarily Secure Your Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-flips-the-script-with-trumps-accounts/"><u>Meta Flips the Script with Trump's Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-era-of-virtual-social-spaces/"><u>Navigating the New Era of Virtual Social Spaces</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-transform-your-videos-into-cinematic-masterpieces-with-fcpx/"><u>New 2024 Approved Transform Your Videos Into Cinematic Masterpieces with FCPX</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-one-left-behind-facebook-group-membership-shout-outs/"><u>No One Left Behind: Facebook Group Membership Shout-Outs</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-identity-without-partisanship-or-faiths-marks/"><u>Online Identity Without Partisanship or Faiths' Marks</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-facebooks-inaccessible-profile-issue/"><u>Overcoming Facebook's Inaccessible Profile Issue</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-page-reputation-banning-unsuitable-accounts-on-facebook/"><u>Protecting Page Reputation: Banning Unsuitable Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-digital-domain-from-facebook-spies/"><u>Reclaim Your Digital Domain From Facebook Spies</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnecting-on-fb-a-path-to-rekindled-bonds/"><u>Reconnecting on FB: A Path to Rekindled Bonds</u></a></li>
+<li><a href="https://facebook.techidaily.com/screenshare-your-sanctuary-stop-fb-notifications/"><u>Screenshare Your Sanctuary: Stop FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-process-with-facebooks-mobile-code-creator/"><u>Secure Login Process with Facebook's Mobile Code Creator</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-selection-curate-your-facebook-feed-with-ease/"><u>Simplified Selection - Curate Your Facebook Feed with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/six-visionaries-sparring-over-techs-future/"><u>Six Visionaries Sparring Over Tech's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-interaction-boost-crafting-fb-stories-polls/"><u>Social Interaction Boost: Crafting FB Stories Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-anonymous-on-social-media-fb-essential-privacy-tips-uncovered/"><u>Stay Anonymous on Social Media (FB): Essential Privacy Tips Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-the-process-of-posting-to-multiple-social-networks/"><u>Streamlining the Process of Posting to Multiple Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-digital-footprint-eliminating-unwanted-social-media-advertising/"><u>Tailoring Your Digital Footprint: Eliminating Unwanted Social Media Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balance-of-privacy-and-safety-removing-identifying-facial-information-from-facebook/"><u>The Balance of Privacy and Safety: Removing Identifying Facial Information From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-functionality-and-operation-of-sleep-mode-in-messenger-kids/"><u>The Functionality & Operation of Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-gatherers-guide-7-methods-for-social-synergy/"><u>The Gatherer's Guide: 7 Methods for Social Synergy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-impact-of-meta-ai-on-instagram-and-facebook-explored/"><u>The Impact of Meta AI on Instagram & Facebook Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-structure-and-public-accessibility-of-facebook-local-groups/"><u>The Structure and Public Accessibility of Facebook Local Groups</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-fixing-issues-with-your-non-responsive-laptop-trackpad/"><u>Troubleshooting Guide: Fixing Issues with Your Non-Responsive Laptop Trackpad</u></a></li>
+<li><a href="https://article-helps.techidaily.com/ultimate-visual-experience-eizos-4k-monitor-reviewed/"><u>Ultimate Visual Experience  EIZO's 4K Monitor Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-internal-blueprint/"><u>Understanding Facebook's Internal Blueprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebook-fakes-identify-these-14-common-scams/"><u>Unravel Facebook Fakes: Identify These 14 Common Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwanted-facebook-interactions-a-step-by-step-removal-guide/"><u>Unwanted Facebook Interactions: A Step-by-Step Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-conversations-take-flight-with-facebooks-podcast-hub/"><u>Virtual Conversations Take Flight with Facebook’s Podcast Hub</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Infinix Zero 30 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-weighing-out-social-media-sizes-doesnt-add-up/"><u>Why Weighing Out Social Media Sizes Doesn't Add Up</u></a></li>
+</ul></div>

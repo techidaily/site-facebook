@@ -1,0 +1,141 @@
+---
+title: "Privacy-Safe Path: Dodge These Invasive Applications"
+date: 2024-08-28T03:18:48.296Z
+updated: 2024-08-29T03:18:48.296Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Privacy-Safe Path: Dodge These Invasive Applications"
+excerpt: "This Article Describes Privacy-Safe Path: Dodge These Invasive Applications"
+keywords: Safe Privacy Methods,Invasive App Avoidance,Protect User Data,No Spy Apps,Secure Browsing Path,Resist Tracking Tools,Privacy-Conscious Choices
+thumbnail: https://thmb.techidaily.com/84aaf27f955a6ba5c37b777f8ab3f4dc75b3cebc10a8c5dcc535bfa16bc60ba0.jpg
+---
+
+## Privacy-Safe Path: Dodge These Invasive Applications
+
+ Mobile apps have made our lives much easier in many ways, and you don't even have to pay to use most of them. But everything comes with a price. "If something is free, you're the product," as the old adage goes.
+
+ When it comes to many popular apps, the product is indeed you, or rather your data: in other words, your privacy. Though not all apps are monetized via personal data collection and therefore invasive, it's certainly good to know which ones are the worst offenders. Here are some apps you should avoid if you're worried about your data.
+
+## 1\. Facebook (and Associated Apps)
+
+![Facebook messenger, Facebook, and Instagram logos are seen on a yellow background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-messenger-facebook-instagram.jpg)
+
+ Since its launch in 2004, Facebook has faced intense criticism over how it treats user privacy, suffered multiple large breaches, and found itself embroiled in more controversies than arguably any other Silicon Valley giant.
+
+ That Facebook is incredibly invasive and tracks users in more ways than one would imagine is no secret at this point, but other apps under the Meta umbrella are no better.
+
+ Messenger, Instagram, and Marketplace are all equally invasive. Though carefully-worded, Facebook's official[privacy policy](https://www.facebook.com/privacy/policy) reveals that the company tracks, among other things, users' contacts, calls and text messages, camera, microphone, internal storage, location, metadata, browser and device information, and even mouse movement.
+
+ Rumors that Facebook actually "spies" on people and[listens to their conversations](https://www.makeuseof.com/tag/your-smartphone-listening-or-coincidence/) without consent have been floating around for ages—you've probably casually mentioned an item or a product to a friend, only to see it advertised on Facebook moments later.
+
+ In reality, Facebook doesn't even need to actually spy on you. The company collects so much relevant data that it can predict, with decent accuracy, your next purchase and your future online behavior in general.
+
+ To put it simply, if you care about privacy in any capacity, you should not be using Facebook and associated apps.
+
+## 2\. Weather Apps
+
+![A graphic of a smartphone showing the weather is seen among clouds](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/weather-apps-privacy.jpg)
+
+ There's an app for everything nowadays, but few have proven as useful and reliable as weather apps. It's cloudy outside and you're wondering whether to bring an umbrella with you? Just check your weather app and you'll know what to do. Seems simple and straightforward enough.
+
+ But going back to the user being the product, weather apps are actually notorious for their data collection practices. For instance,[The New York Times](https://www.nytimes.com/wirecutter/blog/how-iphone-apps-track-you/) analyzed 20 popular weather apps to see how much user data they collect, and how.
+
+ Of the 20 apps the researchers looked at, 17 indicated in their privacy policies that they collect[user data for the purposes of advertising](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . Additionally, it turned out that 14 of them use location information to track devices—and location information is incredibly valuable to advertisers.
+
+ AccuWeather, one of the most popular apps of this kind, was caught in 2017 sending users' location data without permission. In fact, as[Zdnet](https://www.zdnet.com/article/accuweather-caught-sending-geo-location-data-even-when-denied-access/) reported at the time, it turned out that AccuWeather was sending location data to a third-party even with location sharing switched off.
+
+ AccuWeather also collects information from sensors on your device, which includes "gyroscopes, accelerometers, and altimeters that measure things like rotation, speed direction, and altitude."
+
+ So, what else does AccuWeather know about you? According to its[privacy statement](https://www.accuweather.com/en/privacy#:~:text=ACCUWEATHER%20SITES%2C%20AND%20THE%20PRODUCTS,under%2018%20years%20of%20age.) , as long as your location services are on, the app knows your exact GPS coordinates. However, the statement notes that even if you turn off location services, your phone "may automatically send or receive this other information as long as you have these other communications types enabled."
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. Dating Apps
+
+![Tinder logo is seen on a green background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/dating-apps-privacy.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ One[Stanford](https://web.stanford.edu/~mrosenfe/Rosenfeld%5Fet%5Fal%5FDisintermediating%5FFriends.pdf) study found that 39 percent of couples that got together in the United States in 2017 met online. It's safe to assume that number has only gone up since then, with[dating apps](https://www.makeuseof.com/tag/tired-of-tinder-seven-free-alternative-dating-apps/) such as Tinder, Hinge, eHarmony, and Bumble becoming more popular than ever.
+
+ If you're single and looking to meet someone, then dating apps are a great option, if not a necessity in this age of digitalization and pandemics. But are they a good idea if you care about protecting your privacy? In short, no.
+
+ By default, dating apps require you to disclose a lot of personal information you typically wouldn't be comfortable sharing with complete strangers, let alone shady mega-corporations. Your name, birthday, sexual orientation, pictures, phone number, and email address are usually required to even set up an account.
+
+ And if you want to find someone with similar interests, you'll probably connect your Spotify, Instagram, and Facebook accounts, write a personalized bio, maybe even reveal where you went to school or talk about your career. And naturally, you can't use a dating app without disclosing your location. What would be the point?
+
+ But this is just the tip of the iceberg when it comes to dating apps. According to the[Mozilla Foundation](https://foundation.mozilla.org/en/privacynotincluded/tinder/) , not only does Tinder collect personal user data, it also has a pretty terrible track record when it comes to protecting you from cybercriminals. For example, some 70,000 photos were scraped from the app in 2020 and ended up on a cybercrime forum.
+
+ Match Group, which owns Tinder and a number of similar popular dating apps, is pretty upfront in its privacy policy, which states that your personal information is shared between these apps. In other words, even if you've only signed up to Tinder, then Hinge, Match, and OKCupid also have your data.
+
+ In conclusion, you may stick out like a sore thumb among your friends if you choose to steer clear of dating apps, but at least you'll have your privacy.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+## Protecting Your Privacy in the Digital Space
+
+ Though it has granted us some anonymity, the internet has also made us the most surveilled population in history. As dystopian as that sounds, there are still steps the average person can take to protect their privacy online.
+
+ Nobody should have to read through pages of privacy policies before downloading an app, but doing basic research about a company, and tweaking permissions and similar settings can go a long way.
+
+ In general, it is always a good idea to limit what you share with other people online, double-check any link or file before clicking it, use strong passwords, and enable privacy settings on any app or device you use.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-comparative-analysis-of-best-win-driven-art-tools/"><u>[New] Comparative Analysis of Best Win-Driven Art Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-step-by-step-to-stardom-on-social-boost-your-instagram-fame-at-warp-speed-with-our-15-must-knows/"><u>[New] In 2024, Step-by-Step to Stardom on Social  Boost Your Instagram Fame at Warp Speed with Our 15 Must-Knows</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-instagram-tv-shutdown-procedure/"><u>[Updated] 2024 Approved  Instagram TV Shutdown Procedure</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/parative-analysis-of-youtubes-ownership-vs-cc-licenses/"><u>A Comparative Analysis of Youtube's Ownership Vs. CC Licenses</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/capture-memories-safely-explore-all-inclusive-free-and-charged-cloud-storage-solutions-for-2024/"><u>Capture Memories Safely  Explore All-Inclusive Free and Charged Cloud Storage Solutions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/declaring-safe-status-in-your-online-social-space/"><u>Declaring Safe Status in Your Online Social Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-gesture-interface-advantages/"><u>Decoding Facebook's Gesture Interface Advantages</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-fb-chat-emojis-and-glyphs-meanings/"><u>Decoding FB Chat Emojis & Glyphs Meanings</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-my-selection-in-fbs-custom-ads/"><u>Decoding My Selection in FB's Custom Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-sheryls-role-in-facebooks-evolution/"><u>Decoding Sheryl's Role in Facebook's Evolution</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-chamber-of-messages-essential-beginner-tricks/"><u>Decoding the Chamber of Messages: Essential Beginner Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-complexity-of-facebooks-operational-rules/"><u>Decoding the Complexity of Facebook's Operational Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/defining-boundaries-restricting-your-fb-contacts/"><u>Defining Boundaries: Restricting Your FB Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/defining-vagueposting-the-quest-for-engagement/"><u>Defining Vagueposting: The Quest for Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/deliberations-continue-expected-decision-from-platforms-oversight-board/"><u>Deliberations Continue: Expected Decision From Platform’s Oversight Board.</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-strategic-blueprint-layout/"><u>Demystifying Facebook’s Strategic Blueprint Layout</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-detects-illegal-photographs/"><u>Demystifying How PhotoDNA Detects Illegal Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/detaching-instagrams-footprint-from-fb-network/"><u>Detaching Instagram's Footprint From FB Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/detect-and-deter-the-top-14-scams-on-facebook-at-hand/"><u>Detect and Deter: The Top 14 Scams on Facebook at Hand</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discretion-dictate-evade-this-privacy-poachers-group/"><u>Digital Discretion Dictate: Evade This Privacy Poacher's Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/disabling-instant-gratification-avoiding-fb-reels/"><u>Disabling Instant Gratification: Avoiding Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-facebooks-chat-sounds-a-guide-to-soundmojis/"><u>Discover Facebook's Chat Sounds: A Guide to Soundmojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/do-smartphones-secretly-serve-up-targeted-advertisements/"><u>Do Smartphones Secretly Serve Up Targeted Advertisements?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dont-get-duped-by-these-14-recurring-facebook-swindles/"><u>Don't Get Duped by These 14 Recurring Facebook Swindles</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-court-challenge-to-big-technology-companies/"><u>Donald Trump's Court Challenge to Big Technology Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trumps-legal-standoff-with-g-f-t-over-free-speech/"><u>Donald Trump's Legal Standoff with G-F-T Over Free Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/e2ee-and-privacy-the-unveiling-date-of-facebook-messengers-encryption/"><u>E2EE & Privacy: The Unveiling Date of Facebook Messenger’s Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/easy-steps-to-update-birthdate-on-social-media/"><u>Easy Steps to Update Birthdate on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-navigation-through-diverse-facebook-profiles/"><u>Efficient Navigation Through Diverse Facebook Profiles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-50plus-best-text-effects-for-videographers/"><u>In 2024, 50+ Best Text Effects for Videographers</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>In 2024, How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/tech-giants-in-hot-water-as-prominent-figures-like-sarah-silverman-take-legal-action-against-openaimetas-ai-practices/"><u>Tech Giants in Hot Water as Prominent Figures Like Sarah Silverman Take Legal Action Against OpenAI/Meta's AI Practices</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/ye-artful-jargon-unlocking-pirate-slang-and-vocabulary/"><u>Ye Artful Jargon: Unlocking Pirate Slang and Vocabulary</u></a></li>
+</ul></div>

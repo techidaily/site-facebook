@@ -1,0 +1,181 @@
+---
+title: "Translating Iconography: The Meaning Behind Messenger's Visual Codes"
+date: 2024-08-28T03:19:20.933Z
+updated: 2024-08-29T03:19:20.933Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Translating Iconography: The Meaning Behind Messenger's Visual Codes"
+excerpt: "This Article Describes Translating Iconography: The Meaning Behind Messenger's Visual Codes"
+keywords: Iconic Messaging,Visual Communication,Symbolic Interpretation,Graphic Language Analysis,Cultural Semiotics,Iconography Translation,Messenger Imagery Meaning
+thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e527c0b15c86864ff7f2cf4ce.png
+---
+
+## Translating Iconography: The Meaning Behind Messenger's Visual Codes
+
+ The many icons and symbols used across Facebook Messenger can be pretty confusing. So, what do they all mean?
+
+ We've researched the most common icons and symbols on Facebook Messenger to find out what purpose they serve. Here's everything you need to know.
+
+## 1\. Open Blue Circle
+
+![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
+
+ The open blue circle Facebook Messenger icon means that your message is currently being sent.
+
+ If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
+
+## 2\. Open Blue Circle + Checkmark
+
+![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
+
+ The open blue circle with a checkmark means that your message has been delivered.
+
+ At this point, the recipient will see your message as soon as they open the Messenger app. But if they're not online, they may not be able to see it yet.
+
+## 3\. Filled Blue Circle + Check
+
+![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
+
+ A filled blue circle with a checkmark means that your message has been delivered.
+
+ While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
+
+## 4\. Red Triangle + Exclamation
+
+![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+ A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
+
+ A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+## 5\. Green Dot
+
+![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
+ A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
+
+ If you send a message to someone with a green dot next to their display picture, they're more likely to receive, read, and reply to your chat.
+
+ However, you can also[change which Facebook friends can see you online](https://www.makeuseof.com/tag/decide-which-facebook-friends-see-you-online-and-which-dont-the-easy-way/) , which hides the activity status green dot from certain users.
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
+## 6\. Blue Dot
+
+![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
+
+ A blue dot to the right of a chat indicates an unread message. The sender won't get a message read confirmation until you click the chat.
+
+ Opening a chat with a blue dot removes the dot and shows the sender that you've opened and read their message. This feature is also handy for quickly sorting and identifying messages you don't want to read.
+
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 7\. A Gray Crossed-Out Bell
+
+![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
+ The gray crossed bell to the right of a chat indicates that you've muted the chat. A muted person can send you messages,but you won't be notified that they've sent you a message.
+
+ You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
+
+## 8\. The Lock Icon
+
+![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
+
+## How to Know if Someone Saw Your Facebook Message
+
+![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
+
+ If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
+
+ You'll also see the word “Seen” displayed under a message that has been read, along with a timestamp to let you know when the recipient opened it.
+
+## Facebook Messenger Alternatives
+
+ Although many users have taken issue with Messenger's permission requirements, it remains one of the most-used messaging apps around. At the last count, it had over 1.3 billion active users, with 20 billion messages sent monthly. That means you'll almost always be able to contact the person you want to connect with.
+
+ Other popular alternatives to Messenger include WhatsApp, Viber, and Telegram. If you live in Asia, check out WeChat and Line. And remember, Messenger also works with Facebook's other major service, Instagram.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-experience-professional-facebook-profile-picture-design-with-these-tools/"><u>[New] 2024 Approved  Experience Professional Facebook Profile Picture Design with These Tools</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-all-about-camstudio-screen-recorder-efficiency-for-2024/"><u>[New] All About CamStudio Screen Recorder Efficiency for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/mplify-your-content-two-approaches-to-skyrocket-traffic-for-2024/"><u>[New] Amplify Your Content  Two Approaches to Skyrocket Traffic for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/evealing-youtubes-showcase-of-notable-user-comments/"><u>[New] Revealing YouTube's Showcase of Notable User Comments</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-sealed-snap-chronicles-an-experts-guidebook-for-2024/"><u>[New] The Sealed Snap Chronicles  An Expert's Guidebook for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-hilarity-highway-the-funniest-youtube-videos-on-twitter/"><u>[Updated] Hilarity Highway  The Funniest YouTube Videos on Twitter</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-guide-to-podcast-style-unboxing/"><u>[Updated] The Ultimate Guide to Podcast-Style Unboxing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-understanding-and-optimizing-your-social-media-videos-on-fb/"><u>[Updated] Understanding & Optimizing Your Social Media Videos on FB</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-honor-x9b-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Honor X9b? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-installation-tutorial-chatgpt-for-windows-users/"><u>Easy Installation Tutorial: ChatGPT for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-app-accessing-spotifys-music-library/"><u>Facebook App: Accessing Spotify's Music Library</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-office-insights-essential-workplace-wisdom/"><u>Facebook Office Insights: Essential Workplace Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-gateway-for-data-breaches/"><u>Facebook Quizzes: A Gateway for Data Breaches?</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-sighted-facebooks-covert-smartwatch-development/"><u>Future Sighted: Facebook’s Covert Smartwatch Development</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-your-hidden-messages-on-facebook-messenger/"><u>How to Find Your Hidden Messages on Facebook Messenger</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-xr-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone XR?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-game-on-for-gaiety-your-must-try-10/"><u>In 2024, Game On for Gaiety  Your Must-Try 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-multiple-social-media-logins-on-one-platform-fb/"><u>Mastering Multiple Social Media Logins on One Platform, FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-turn-off-algorithms-on-twitter-instagram-and-facebook/"><u>Mastering Social Media: Turn Off Algorithms on Twitter, Instagram, & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-anonymity-on-social-networking-fb/"><u>Mastering the Art of Anonymity on Social Networking (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategic-delay-defaulting-to-e2e-encryption/"><u>Meta's Strategic Delay: Defaulting to E2E Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-exploring-6-diverging-paradigms/"><u>Metaverse Vs. Virtual Reality: Exploring 6 Diverging Paradigms</u></a></li>
+<li><a href="https://facebook.techidaily.com/recalling-old-friendships-social-media-memories/"><u>Recalling Old Friendships: Social Media Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/severing-digital-ties-separating-instagram-from-facebook/"><u>Severing Digital Ties: Separating Instagram From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-unlocking-a-frozen-facebook-account/"><u>Strategies for Unlocking a Frozen Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/tackling-covid-19-rumors-strategies-for-social-media/"><u>Tackling COVID-19 Rumors: Strategies for Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-debates-starters/"><u>The Biggest Tech Debates Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-fight-for-freedom-trumps-legal-challenge-to-tech-firms/"><u>The Fight for Freedom: Trump's Legal Challenge to Tech Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-man-or-woman-behind-60-minutes-facebook-scoop/"><u>The Man or Woman Behind 60 Minutes' Facebook Scoop</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-deal-value-in-metas-verification/"><u>The Real Deal: Value in Meta's Verification</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-marketing-to-reach-more-users/"><u>Timing Your Marketing to Reach More Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-effective-facebook-navigation-addingremoving-links/"><u>Tips for Effective Facebook Navigation: Adding/Removing Links</u></a></li>
+</ul></div>

@@ -1,0 +1,179 @@
+---
+title: "Empowering Users: Transforming the Way You Handle Privacy on Facebook"
+date: 2024-08-28T03:14:08.611Z
+updated: 2024-08-29T03:14:08.611Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Empowering Users: Transforming the Way You Handle Privacy on Facebook"
+excerpt: "This Article Describes Empowering Users: Transforming the Way You Handle Privacy on Facebook"
+keywords: Facebook Privacy Control,Social Network User Empowerment,Handling Personal Data Safely,Protecting FB Privacy Settings,Enhancing Online Privacy on Fb,Safe FB Usage for Users,Improving Facebook Data Security
+thumbnail: https://thmb.techidaily.com/31fd63ab910fdd0bfef9c588934b4c990590f2025d46dff0a5963e90a62a92d8.jpg
+---
+
+## Empowering Users: Transforming the Way You Handle Privacy on Facebook
+
+ Over the years, Facebook has often been in the news for its less-than-stellar privacy posture and practices. To address this, the tech giant is changing how it presents its privacy policy to users.
+
+ To this end, it has launched a Privacy Center, a central location that now houses most of the information you need to know about your privacy and how its parent company Meta stores and uses your personal data.
+
+## How to Access the New Facebook Privacy Center
+
+ The new Privacy Center was announced in a[Facebook blog post](https://about.fb.com/news/2022/01/introducing-privacy-center/) on January 7, 2022.
+
+ The Privacy Center is currently in testing and only available to most US and other desktop users. If you happen to be in the limited test group, you'll find that it's easy to access Meta's new Privacy Center.
+
+Here's how:
+
+![Click on Security and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-1.png)
+
+1. Open Facebook on your computer and click on the**Account** dropdown button in the top-right corner.  
+![Click to Facebook Privacy Center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center.png)
+2. Click on**Settings and privacy** then click on**Privacy Center** .  
+![Facebook Privacy Center Security](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-3.png)  
+ This will take you to the Privacy Center home where you can further explore this new feature.
+
+ Can't find it? No worries, Facebook will roll out the Privacy Center feature to all users after the testing phase.
+
+## Facebook's Privacy Center at a Glance
+
+ The Facebook Privacy Center provides helpful information on five major categories, each containing specific information about Meta's privacy policy.
+
+ These categories are Security, Sharing, Collection, Use, and Ads, and are all accessible from the Privacy Center home.
+
+ You can also customize your Facebook and Instagram settings directly from the Privacy Center home tab by clicking on**Settings** just beneath**Other Policies** .
+
+ Under**Other Policies** , you can access Facebook's Cookies Policy and additional terms and policies by simply clicking on the drop-down button.
+
+ Related:[What Are The Facebook Papers Everyone Is Talking About](https://www.makeuseof.com/what-are-facebook-papers/)
+
+<!-- affiliate ads begin -->
+<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## How to Use Facebook's Privacy Center
+
+ To view Meta's privacy policy on sharing, for instance, simply access the Privacy Center on your computer, scroll down to**Sharing** and click on**Read more** .
+
+![Facebook Privacy Center click Sharing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/FB-Privacy-Center-4.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+ This will take you to the dedicated policy page where you can find detailed information about Meta's Sharing policy, review your current sharing settings, and control who can see what you share.
+
+ To review your Facebook, Instagram, or Messenger sharing settings, simply click on**Review your sharing settings** then select the app you'll like to check your settings in.
+
+![Facebook Privacy Center Sharing options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Facebook-Privacy-Center-Sharing-settings.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ This will take you away from the Privacy Center to a dedicated**Privacy checkup** page.
+
+ You can also learn more about how to clean up your profile, and how to respond to unknown friend requests and followers by clicking on the appropriate option.
+
+ To return to the main menu and explore other privacy settings, simply click on**Privacy Center home** , go to your preferred category and click**Read more** .
+
+ Related:[Why Meta Is Killing Facebook's Facial Recognition System](https://www.makeuseof.com/meta-killing-facebooks-facial-recognition-system/)
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
+## Why You Should Use Facebook's Privacy Center
+
+ If you have access to the Privacy Center, it may be worth your while to spend some time familiarizing yourself with how Meta handles and processes your data across its family of apps.
+
+ This is because your data you have every right to know exactly how Facebook plans to store and use the data it has on you and your social media activity.
+
+ You may especially want to concentrate on the Collection and Use categories. The former contains some important information about how Facebook collects your data, while the latter explains how Facebook uses the data it collects on you.
+
+ Ads is another important category to watch if you're concerned about ad targeting. Together, they form three of the most important privacy concerns that users have always had with Meta apps, especially Facebook.
+
+ Related:[Facebook Is Tracking You! Here's How to Stop It](https://www.makeuseof.com/tag/facebook-tracking-stop/)
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Protect Your Privacy
+
+ Your privacy is your right and protecting it is mostly your responsibility. You can use Facebook’s new Privacy Center to learn all you can about protecting it and having a say in how your personal data is managed.
+
+ Considering Facebook’s privacy history and its recent objections to iOS ad tracking changes, the new Privacy Center appears to be a small step in the right direction. We can only hope that it gets better.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-iphone-nightscape-techniques-unlocked/"><u>[New] IPhone Nightscape Techniques Unlocked</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-leading-2023-emulators-top-ps3-games-for-pc-for-2024/"><u>[New] Leading 2023 Emulators  Top PS3 Games for PC for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-secrets-of-facebook-cover-vids-for-aspiring-social-media-stars/"><u>[Updated] 2024 Approved  Secrets of Facebook Cover Vids for Aspiring Social Media Stars</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-network-security/"><u>[Updated] In 2024, Network Security</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-pushing-boundaries-exquisite-fluid-gaming-selections/"><u>[Updated] Pushing Boundaries  Exquisite Fluid Gaming Selections</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-enhance-your-photography-journey-adding-music-and-filters-in-windows-10-photos/"><u>2024 Approved  Enhance Your Photography Journey  Adding Music and Filters in Windows 10 Photos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-laughlinelab-picchuckleworkshop/"><u>2024 Approved  LaughLineLab  PicChuckleWorkshop</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/a-step-by-step-approach-for-creating-and-merging-stunning-hdr-photos-for-2024/"><u>A Step-by-Step Approach for Creating & Merging Stunning HDR Photos for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/decoding-ai-giants-the-palm-2-vs-gpt-4-breakdown/"><u>Decoding AI Giants: The PaLM 2 Vs. GPT-4 Breakdown</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-updated-drivers-for-hp-scanjet-printers-on-windows-os-windows-1087/"><u>Download Updated Drivers for HP Scanjet Printers on Windows OS (Windows 10/8/7)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experience-revolutionary-scanning-with-3dmakerpros-mole-3d-scanner-a-comprehensive-examination/"><u>Experience Revolutionary Scanning with 3DMakerPro's Mole 3D Scanner - A Comprehensive Examination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-brings-in-ray-bans-stories-exploring-the-features-and-cost/"><u>Facebook Brings In Ray-Bans Stories: Exploring the Features & Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-reveals-insightful-policies-at-new-center-launch/"><u>Facebook Reveals Insightful Policies at New Center Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-novel-approach-outshines-apple-with-user-centric-linkage-services/"><u>Facebook’s Novel Approach Outshines Apple with User-Centric Linkage Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-reboot-to-renaissance-instagrams-potential-return/"><u>From Reboot to Renaissance: Instagram's Potential Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/germanys-stand-on-privacy-no-more-facebook-snooping-on-whatsapp-users/"><u>Germany's Stand on Privacy: No More Facebook Snooping on WhatsApp Users</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-end-vision-booster-convert-with-clarity-for-2024/"><u>High-End Vision Booster  Convert with Clarity for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-not-to-utilize-fb-web-view-feature/"><u>How Not to Utilize FB Web View Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-secure-are-your-virtual-trails-on-meta-or-fb/"><u>How Secure Are Your Virtual Trails on Meta or FB?</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-it-oppo-k11x-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Oppo K11x Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-12-to-factory-settings-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Reset iPhone 12 to Factory Settings? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-stop-fifa-22-from-crashing-on-your-windows-computer/"><u>How to Stop FIFA 22 From Crashing on Your Windows Computer?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-zte-nubia-flip-5g-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On ZTE Nubia Flip 5G</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-acquiring-unmarked-visuals-for-your-business/"><u>In 2024, Acquiring Unmarked Visuals for Your Business</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-nubia-red-magic-8s-pro-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Nubia Red Magic 8S Pro Device SIM</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-overview-dji-inspire-1-reviewed/"><u>In 2024, The Ultimate Overview  DJI Inspire 1 Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencers-at-the-forefront-of-covid-19-mythology/"><u>Influencers at the Forefront of Covid-19 Mythology</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-virtual-reality-to-messaging-on-fb-platform/"><u>Introducing Virtual Reality to Messaging on FB Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/kid-safety-boost-revise-data-in-messenger-kids-app/"><u>Kid Safety Boost: Revise Data in Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-altered-by-like-culture-on-facebook/"><u>Life Altered by 'Like' Culture on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-security-with-two-factor-authentication-on-major-mail-providers/"><u>Maximizing Security with Two-Factor Authentication on Major Mail Providers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-us-officially-verified-sign-up-now/"><u>Meta US: Officially Verified Sign-Up Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/metavote-the-us-endorsement-initiative-launches/"><u>Metavote – The U.S. Endorsement Initiative Launches</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-and-resolving-top-11-social-media-faux-pas-on-facebook/"><u>Navigating & Resolving Top 11 Social Media Faux Pas on Facebook</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-editing-on-the-go-gopro-quik-review-and-pc-alternatives/"><u>New In 2024, Editing on the Go GoPro Quik Review and PC Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-on-trump-correct-action-with-time-limit/"><u>Platform Policy on Trump: Correct Action with Time Limit</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-fix-for-lost-login-reclaim-your-facebook-passcode/"><u>Quick Fix for Lost Login: Reclaim Your Facebook Passcode</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewable-revolution-complete-energy-for-fb/"><u>Renewable Revolution: Complete Energy for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/revising-your-profiles-birthday-on-facebook/"><u>Revising Your Profile's Birthday on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-storytelling-on-facebook-with-reels-and-rooms/"><u>Revolutionizing Storytelling on Facebook with Reels & Rooms?</u></a></li>
+<li><a href="https://facebook.techidaily.com/safe-sharing-strategy-social-media-tips-for-privacy-protection/"><u>Safe Sharing Strategy: Social Media Tips for Privacy Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-community-removal-on-social-media/"><u>Simplifying Community Removal on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/sounds-for-stories-using-facebooks-new-messenger-features/"><u>Sounds for Stories: Using Facebook's New Messenger Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-away-from-sensational-selfies-sharing-at-meta/"><u>Steering Away From Sensational Selfies Sharing at Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-random-account-termination-on-social-media/"><u>Steering Clear of Random Account Termination on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-success-selecting-an-expert-admin-for-facebook/"><u>Steering Success: Selecting an Expert Admin for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-retrieving-lost-facebook-credentials/"><u>Step-by-Step Guide to Retrieving Lost Facebook Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-is-now-facebookshift-into-meta-redefining-social-interaction/"><u>The Future Is Now: Facebook’shift Into 'Meta', Redefining Social Interaction</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tower-of-fantasy-pc-stability-issues-solutions-for-a-smoother-gaming-experience/"><u>Tower of Fantasy PC Stability Issues: Solutions for a Smoother Gaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-telegrams-upswing-when-fb-was-inaccessible/"><u>Understanding Telegram's Upswing When FB Was Inaccessible</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-ramifications-of-facebooks-oculus-go-decision/"><u>Understanding the Ramifications of Facebook's Oculus Go Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/unified-media-presence-transferring-instagram-reels-to-facebook-feed/"><u>Unified Media Presence: Transferring Instagram Reels to Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-syncopated-future-facebook-and-spotifys-boombox-dream/"><u>Unveiling the Syncopated Future: Facebook and Spotify's Boombox Dream</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-venues-identifying-the-top-20-social-sites-and-apps/"><u>Virtual Venues: Identifying the Top 20 Social Sites and Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-metaai-and-can-it-compete-with-other-chatbots/"><u>What Is MetaAI? And Can It Compete With Other Chatbots?</u></a></li>
+</ul></div>

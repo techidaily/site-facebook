@@ -1,7 +1,7 @@
 ---
 title: 3 Sources of Anxiety From Meta’s Ascendancy
-date: 2024-07-12T10:46:54.478Z
-updated: 2024-07-13T10:46:54.478Z
+date: 2024-08-28T02:55:47.381Z
+updated: 2024-08-29T02:55:47.381Z
 tags:
   - facebook
 categories:
@@ -55,6 +55,9 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
  However, Meta's privacy practices are particularly problematic. Meta stands out because of the nature of data it has access to. Based on its user base, the company is the single largest non-government collector of intrusive personal information in corporate history.
@@ -65,6 +68,9 @@ thumbnail: https://thmb.techidaily.com/4ad77a8ea715329fd3e5a5b2d2c2957ac59e62959
 
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 ​​​​​​
 
  From your music players, browsers, game apps, eBook readers to caller ID apps, most of the software installed on your device is probably sharing your data with Meta. This means the company can determine with frightening precision your taste in music, books, games, the websites you visit, what you do online, and how you interact with technology as a whole.
@@ -79,16 +85,28 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  You might be surprised just how much information Meta is getting on you.
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the [New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Stay Conscious of Meta's Influence
 
  Some have called for a breakup of Meta; others advocate for sterner policing of the company. Irrespective of the approach that presents a realistic solution to the problem, one thing is sure—Meta is getting too powerful, and we are all becoming victims in its lair.
@@ -116,3 +134,74 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-bypassing-hurdles-seamless-pc-file-integration-tips-and-tricks/"><u>[New] Bypassing Hurdles  Seamless PC File Integration Tips and Tricks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-file-transportation-hacks-efficient-ways-to-upload-on-pc/"><u>[New] File Transportation Hacks  Efficient Ways to Upload on PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-your-hauls-into-visual-stories/"><u>[New] Transform Your Hauls Into Visual Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-ultimate-free-fb-photovideo-maker-for-2024/"><u>[New] Ultimate Free FB Photo/Video Maker for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unveiling-the-secrets-to-successful-social-media-film-making/"><u>[Updated] 2024 Approved  Unveiling the Secrets to Successful Social Media Film Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-essential-tips-for-successful-youtube-broadcasts/"><u>[Updated] In 2024, Essential Tips for Successful YouTube Broadcasts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-mastering-online-meetings-with-these-budget-friendly-video-conferencing-services/"><u>[Updated] In 2024, Mastering Online Meetings with These Budget-Friendly Video Conferencing Services</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-precision-mixing-techniques-with-logics-audio-fading/"><u>[Updated] Precision Mixing Techniques with Logic's Audio Fading</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-hue-adjustments-making-your-gopro-footage-pop/"><u>2024 Approved  Hue Adjustments  Making Your GoPro Footage Pop</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-mac-techniques-to-edit-srt-files/"><u>2024 Approved  Step-by-Step Mac Techniques to Edit SRT Files</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/5-solutions-for-vivo-s18e-unlock-without-password-by-drfone-android/"><u>5 Solutions For Vivo S18e Unlock Without Password</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/complete-transfer-process-for-iphone-7-users-sync-files-with-your-mac-effortlessly/"><u>Complete Transfer Process for iPhone 7 Users: Sync Files with Your Mac Effortlessly</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/convert-and-store-webcam-footage-in-vlc-media/"><u>Convert & Store Webcam Footage in VLC Media</u></a></li>
+<li><a href="https://windows11.techidaily.com/decoding-the-complexity-of-wintoys-your-guide-to-a-versatile-tool/"><u>Decoding the Complexity of 'WinToys': Your Guide to a Versatile Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/english-footballers-withdraw-from-digital-platforms-amid-cyberbullying-concerns/"><u>English Footballers Withdraw From Digital Platforms Amid Cyberbullying Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-for-your-childs-messenger-kids-information/"><u>Ensuring Privacy for Your Child's Messenger Kids Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-meta-concepts-to-elevate-your-business-growth/"><u>Essential META Concepts to Elevate Your Business Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-the-expanded-experience-of-connectivity-with-xbox-marketplace/"><u>Explore the Expanded Experience of Connectivity with Xbox' Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-universe-explored-three-underlying-fears/"><u>Facebook Universe Explored: Three Underlying Fears</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-friends-recognition-unveiling-the-best-three-facebook-tag-methods/"><u>Fast Friends Recognition: Unveiling the Best Three Facebook Tag Methods</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/football-film-breakdown-premier-insights-on-youtube/"><u>Football Film Breakdown  Premier Insights on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-against-facebooks-digital-history-trap/"><u>Guard Against Facebook's Digital History Trap</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-account-recovery-users-turn-to-oculus-quest-investments/"><u>Hacked Account Recovery: Users Turn to Oculus Quest Investments</u></a></li>
+<li><a href="https://facebook.techidaily.com/hasty-account-handling-on-social-network-facebook/"><u>Hasty Account Handling on Social Network, Facebook</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-8-plus-to-zte-phones-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Data from Apple iPhone 8 Plus to ZTE Phones | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-hot-40i-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Hot 40i to Outlook | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-depth-guide-to-frozen-indulgence-capture-tech/"><u>In-Depth Guide to Frozen Indulgence Capture Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-the-optimal-solution-for-your-events-management/"><u>Is Facebook the Optimal Solution for Your Events Management?</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterful-messaging-your-guide-to-essential-social-media-acronyms-and-phrases/"><u>Masterful Messaging: Your Guide to Essential Social Media Acronyms and Phrases</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-understanding-and-utilizing-sleep-mode-feature/"><u>Mastering Messenger Kids: Understanding and Utilizing Sleep Mode Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-strategic-moves-spark-concern-over-european-tech-titans-future/"><u>Meta’s Strategic Moves Spark Concern Over European Tech Titans' Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-updated-privacy-practices-a-comprehensive-review/"><u>Meta's Updated Privacy Practices: A Comprehensive Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-unveiling-its-potential-versus-traditional-chatbots/"><u>MetaAI: Unveiling Its Potential Versus Traditional Chatbots</u></a></li>
+<li><a href="https://facebook.techidaily.com/mystery-mode-in-social-messaging-apps/"><u>Mystery Mode in Social Messaging Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-support-functions-explored/"><u>Navigating Facebook Support - Functions Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-through-adverse-headlines/"><u>Navigating Facebook Through Adverse Headlines</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-algorithm-for-higher-engagement-metrics/"><u>Navigating Facebook's Algorithm for Higher Engagement Metrics</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-peak-interaction-hours/"><u>Navigating Facebook's Peak Interaction Hours</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-the-most-suitable-chromebook-friendly-audio-editing-software-for-modern-musicians-top-8-list-updated-for-2024/"><u>New The Most Suitable Chromebook-Friendly Audio Editing Software for Modern Musicians (Top 8 List, Updated ) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-eavesdroppers-from-accessing-your-social-media/"><u>Prevent Eavesdroppers From Accessing Your Social Media</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/privacy-meets-innovation-connect-securely-through-duckduckgos-ai-powered-chat-options-featuring-gpt-technology/"><u>Privacy Meets Innovation: Connect Securely Through DuckDuckGo's AI-Powered Chat Options, Featuring GPT Technology</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pro-pilots-choice-the-top-5-drone-picks-of-the-year/"><u>Pro Pilot's Choice  The Top 5 Drone Picks of the Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-your-profile-the-art-of-creating-3d-photos-for-facebook/"><u>Revolutionizing Your Profile: The Art of Creating 3D Photos for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharp-sanctions-to-combat-falsehood-spreaders-on-fb/"><u>Sharp Sanctions to Combat Falsehood Spreaders on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-hidden-smartwatch-vision-revealed/"><u>Social Network's Hidden Smartwatch Vision Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-experiment-with-engaging-information-posts/"><u>Social Networks: Experiment with Engaging Information Posts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/steps-for-gradual-audio-dimming-with-lumafusion-for-2024/"><u>Steps for Gradual Audio Dimming with Lumafusion for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-disconnect-spotify-and-facebook-seamlessly/"><u>Steps to Disconnect Spotify and Facebook Seamlessly</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-v30-lite-5g-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo V30 Lite 5G Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/swiftly-clear-social-media-8-top-deletion-tools-and-strategies/"><u>Swiftly Clear Social Media: 8 Top Deletion Tools & Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-self-portraiture-creating-a-unique-facebook-cover-with-you/"><u>The Art of Self-Portraiture: Creating a Unique Facebook Cover with You</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-dawn-of-ai-pcs-can-your-new-2024-laptop-match-the-power-of-microsoft-copilotplus/"><u>The Dawn of 'AI PCs': Can Your New 2024 Laptop Match the Power of Microsoft Copilot+?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-way-to-manipulate-your-social-media-narrative-on-fb/"><u>The Easy Way to Manipulate Your Social Media Narrative on FB</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-genesis-of-smart-machines-diving-into-when-ai-was-first-conceived/"><u>The Genesis of Smart Machines: Diving Into When AI Was First Conceived</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-key-to-reaching-wider-audiences-on-fb-groups/"><u>The Key to Reaching Wider Audiences on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-top-5-mishaps-where-facebook-let-us-down/"><u>The Top 5 Mishaps Where Facebook Let Us Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-facebooks-open-policy-initiative-centre/"><u>The Unveiling of Facebook's Open Policy Initiative Centre</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-hardware-review-comprehensive-guide-and-insights/"><u>Tom's Hardware Review: Comprehensive Guide and Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/trustworthiness-inquiry-for-facebook-security-email-(securityfbcom)/"><u>Trustworthiness Inquiry for Facebook Security Email @<security@fb.com></u></a></li>
+<li><a href="https://facebook.techidaily.com/unplug-and-recharge-steps-to-drop-facebook/"><u>Unplug and Recharge: Steps to Drop Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-undisclosed-rules-behind-accepting-facebook-friends/"><u>Unveiling the Undisclosed Rules Behind Accepting Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/unverified-acquaintances-are-they-really-worth-the-risk/"><u>Unverified Acquaintances: Are They Really Worth the Risk?</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-top-5-quandale-dingle-voice-generators/"><u>Updated In 2024, Top 5 Quandale Dingle Voice Generators</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-horizons-understanding-facebooks-vision-for-the-metaverse/"><u>Virtual Horizons: Understanding Facebook's Vision for the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-stopping-pandemic-myths-from-spreading/"><u>Virtual Vigilance: Stopping Pandemic Myths From Spreading</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-last-login-on-fb-should-be-memorable-for-these-reasons/"><u>Your Last Login on FB Should Be Memorable for These Reasons</u></a></li>
+</ul></div>

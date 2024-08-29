@@ -1,7 +1,7 @@
 ---
 title: Can You Turn Off Facebook's In-App Browser? How It Works
-date: 2024-07-12T10:40:06.797Z
-updated: 2024-07-13T10:40:06.797Z
+date: 2024-08-28T03:01:54.367Z
+updated: 2024-08-29T03:01:54.367Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,11 @@ thumbnail: https://thmb.techidaily.com/77611f2e0e7b4b101c92af3b172df9c62d2c10715
 
  The Facebook app opens links in its built-in browser by default. But what if you want to use your own preferred browser app instead? Here's what you need to know about disabling Facebook's in-app browser.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ## Can You Disable Facebook's In-App Browser?
 
  Facebook used to give app users more control over the links they opened, allowing you to open most links in an external browser. However, when we tested the feature in 2024, we saw that this is no longer the case on both the Android and iOS apps.
@@ -36,6 +41,9 @@ thumbnail: https://thmb.techidaily.com/77611f2e0e7b4b101c92af3b172df9c62d2c10715
 
  So, while you can turn off Facebook's in-app browser for message links, other links will continue to open in the app's browser.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Turn Off Facebook's Mobile Browser
 
  Disabling Facebook's in-app browser is simple. However, the privacy setting to open up links externally only works for links sent in messages.
@@ -86,3 +94,44 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-command-attention-on-instagram-nine-paths-to-social-media-glory/"><u>[New] 2024 Approved  Command Attention on Instagram  Nine Paths to Social Media Glory</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-speech-to-text-efficient-conversion-techniques-for-microsoft-word-users/"><u>[New] 2024 Approved  Speech to Text  Efficient Conversion Techniques for Microsoft Word Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-break-free-from-fee-free-youtube-start-at-500plus-subscriber-level-for-2024/"><u>[New] Break Free From Fee-Free Youtube - Start at 500+ Subscriber Level for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-invisible-player-mastering-xbox-one-screenshots/"><u>[New] The Invisible Player  Mastering Xbox One Screenshots</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-screen-capture-contenders-a-comprehensive-review/"><u>[New] Top Screen Capture Contenders  A Comprehensive Review</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-enhancing-user-experience-strategic-placement-of-alerts-on-youtube-content/"><u>[Updated] 2024 Approved  Enhancing User Experience  Strategic Placement of Alerts on YouTube Content</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-sonic-storytelling-how-to-enhance-ig-stories-with-melodies/"><u>2024 Approved  Sonic Storytelling  How to Enhance IG Stories with Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-privacy-and-fun-managing-teenage-fb-accounts/"><u>Balancing Privacy and Fun: Managing Teenage FB Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/clarifying-what-counts-as-a-joke-on-fb/"><u>Clarifying What Counts as a Joke on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/debunking-myths-the-truth-about-facebook-user-counts/"><u>Debunking Myths: The Truth About Facebook User Counts</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-photodnas-role-in-fighting-fraud/"><u>Explaining PhotoDNA's Role in Fighting Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-puzzle-of-facebooks-re-branding-plans/"><u>Exploring the Puzzle of Facebook's Re-Branding Plans</u></a></li>
+<li><a href="https://facebook.techidaily.com/face-theft-head-on-immediate-steps-for-social-media-safety/"><u>Face Theft Head-On: Immediate Steps for Social Media Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-group-administrators-and-the-legal-storm-with-amazon/"><u>Facebook's Group Administrators and the Legal Storm with Amazon</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-news-feed-a-hub-for-targeted-business-promotions/"><u>Facebook's Upcoming News Feed: A Hub for Targeted Business Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/freelancers-ultimate-destination-list/"><u>Freelancer's Ultimate Destination List</u></a></li>
+<li><a href="https://facebook.techidaily.com/grasp-the-core-points-in-metas-revised-data-protection-plan/"><u>Grasp the Core Points in Meta's Revised Data Protection Plan</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-realme-gt-5-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Realme GT 5 Pro Phone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-crackling-sound-on-speakers-for-windows-11-and-7-users-resolved/"><u>How to Fix Crackling Sound on Speakers for Windows 11 & 7 Users – Resolved!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-facebook-group-more-popular/"><u>How to Make Your Facebook Group More Popular</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-websites-for-aging-demographics-socializing/"><u>Ideal Websites for Aging Demographics' Socializing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-impact-instagrams-latest-payment-avenues-explored/"><u>Maximize Your Impact: Instagram's Latest Payment Avenues Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-nuances-steering-clear-of-trading-traps-on-fb/"><u>Navigating Network Nuances: Steering Clear of Trading Traps on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-networked-lifetimes-on-fb/"><u>Navigating Through Networked Lifetimes on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/nullify-all-social-media-interruptions-by-fb/"><u>Nullify All Social Media Interruptions by FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-game-changer-could-facebook-ditch-giphys-services/"><u>Potential Game Changer: Could Facebook Ditch Giphy's Services?</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-connection-the-unveiling-of-facebooks-new-identity-meta/"><u>Rethinking Connection: The Unveiling of Facebook’s New Identity, Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-social-media-identity/"><u>Tailoring Your Social Media Identity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-coding-shaped-by-facebook-and-rust-alliance/"><u>The Future of Coding, Shaped by Facebook & Rust Alliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ideal-time-frame-for-fb-campaigns/"><u>The Ideal Time Frame for Fb Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-popularity-protocol-revitalizing-a-stagnant-fb-group/"><u>The Popularity Protocol: Revitalizing a Stagnant FB Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-real-scale-of-facebooks-user-exodus/"><u>The Real Scale of Facebook's User Exodus</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultra-lightning-top-speedy-android-apps/"><u>Ultra-Lightning: Top Speedy Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-potential-in-social-media-storytelling-via-facebook/"><u>Unlocking Your Potential in Social Media Storytelling via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/web-woes-facebook-and-friends-unavailable-today/"><u>Web Woes: Facebook & Friends Unavailable Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-new-facebook-writes-checks-with-every-streamed-tune/"><u>What's New: Facebook’ Writes Checks with Every Streamed Tune</u></a></li>
+</ul></div>

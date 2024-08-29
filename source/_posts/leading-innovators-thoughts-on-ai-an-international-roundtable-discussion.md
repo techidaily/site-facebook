@@ -1,0 +1,187 @@
+---
+title: "Leading Innovators' Thoughts on AI: An International Roundtable Discussion"
+date: 2024-08-28T03:19:27.282Z
+updated: 2024-08-29T03:19:27.282Z
+tags:
+  - chatgpt
+  - open-ai
+categories:
+  - openAI
+  - chatgpt
+description: "This Article Describes Leading Innovators' Thoughts on AI: An International Roundtable Discussion"
+excerpt: "This Article Describes Leading Innovators' Thoughts on AI: An International Roundtable Discussion"
+thumbnail: https://thmb.techidaily.com/fb9800d0908e1be810fcc7b3cec05fac87c5747d21be749110f5088c0bdb4490.jpg
+---
+
+## ChatGPT and Google Gemini Faceoff: Determining the Leading AI Conversationalist
+
+### Quick Links
+
+* [What Is Google's Gemini AI Model?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#what-is-google-39-s-gemini-ai-model)
+* [How to Use Google Gemini AI](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-to-use-google-gemini-ai)
+* [How Gemini Compares to GPT-3.5 and GPT-4](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#how-gemini-compares-to-gpt-3-5-and-gpt-4)
+* [Is Gemini Better than ChatGPT?](https://www.makeuseof.com/is-google-gemini-better-than-chatgpt/#is-gemini-better-than-chatgpt)
+
+### Key Takeaways
+
+* Google's AI model Gemini has three variants, Ultra, Pro, and Nano, focused on different tasks and complexity levels.
+* Gemini Ultra shows promising results on key AI benchmarks, but, as of December 2023, not available for public use. Google says it should be available in January of 2024.
+* Gemini Pro is available and while it performs quite well, it presently fails to dethrone GPT-4.
+
+ Google has consistently promised that its Gemini AI model would be better than OpenAI's GPT-4, the model that powers ChatGPT Plus. Now that Google Gemini has launched, we can finally put it to the test and see how Gemini compares to GPT-4.
+
+ When Google launched Bard in March 2023, there were many reasons to be excited. Finally, OpenAI's ChatGPT monopoly would be broken, and we'd get worthy competition.
+
+ But Bard was never the AI titan people hoped for, and GPT-4 remains the dominant generative AI chat bot platform. Now, Google's Gemini is here—but is the long-awaited AI model better than ChatGPT?
+
+## What Is Google's Gemini AI Model?
+
+[Gemini is Google's most capable generative AI model](https://www.makeuseof.com/what-is-googles-ai-project-gemini/) , able to understand and operate across different data formats, including text, audio, image, and video. It is Google's attempt to create a unified AI model drawing capabilities from its most capable AI technologies. Gemini will be available in three variants:
+
+1. **Gemini Ultra:** The largest and most capable variant designed to handle highly complex tasks.
+2. **Gemini Pro:** The best model for scaling and delivering high performance across a wide range of tasks, but less capable than Ultra.
+3. **Gemini Nano:** The most efficient model designed for on-device task deployment. For example, developers can use Gemini Nano to build mobile apps or integrated systems, bringing powerful AI into the mobile space.
+
+ On its official blog,[The Keyword](https://blog.google/technology/ai/google-gemini-ai/) , Google says Gemini Ultra outperforms the state-of-the-art in several benchmarks. Google claims Gemini Ultra beats the industry-leading GPT-4 in several key benchmarks.
+
+ With an unprecedented 90.0% score on the rigorous MMLU benchmark, Google says Gemini Ultra is the first model to surpass human-level performance on this multifaceted test spanning 57 subjects.
+
+![google gemini ai data comparing to open ai gpt4 model](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/google-gemini-ai-data-comparing-to-open-ai-gpt4-model.jpg)
+
+[Google](https://blog.google/technology/ai/google-gemini-ai/#performance)
+
+ Gemini Ultra can also understand, explain, and generate high-quality code in some of the world's most popular programming languages, including Go, JavaScript, Python, Java, and C++. On paper, these are all great results. But these are all benchmarks, and benchmarks do not always tell the whole story. So, how well does Gemini perform in real-world tasks?
+
+## How to Use Google Gemini AI
+
+ Of the three variants of the Gemini AI model, you can start using Gemini Pro right now. Gemini Pro is currently available on Google's Bard chatbot. To use Gemini Pro with Bard, head to[bard.google.com](http://bard.google.com/chat) and sign in with your Google account.
+
+ Google says that Gemini Ultra will roll out in January 2024, so we've had to settle for testing Gemini Pro against ChatGPT for now.
+
+## How Gemini Compares to GPT-3.5 and GPT-4
+
+ When any new AI model is launched, it is tested against OpenAI's GPT AI models, which are generally accepted as the state-of-the-art model other models should be held up against. So, using Bard and ChatGPT, we tested Gemini's ability in math, creative writing, code generation, and accurately processing image inputs.
+
+ Starting with the easiest math question we could think of, we asked both chatbots to solve:**\-1 x -1 x -1** .
+
+ Bard went first. We repeated the question twice, all coming back with wrong answers. We did get the answer on the third attempt, but that doesn't count.
+
+![Bard answers Math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-answers-math-question.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+We tried ChatGPT running on GPT-3.5\. The first trial got it right.
+
+![ChatGPT answers math question](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-answers-math-question.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
+ To test Gemini's image interpretation abilities, we tasked it with interpreting some popular memes. It declined, saying it can't interpret images with people in it. ChatGPT, running GPT-4V, was willing and able to do so flawlessly.
+
+ We tried another attempt at making it interpret an image while testing its problem-solving and coding ability. We gave Bard, running Gemini Pro, a screenshot and asked it to interpret and write HTML and CSS code to replicate the screenshot.
+
+Here's the source screenshot.
+
+![screenshot of Chatbase chatbot creator](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/screenshot-to-replicate.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Below is Gemini Pro's attempt to interpret and replicate the screenshot using HTML and CSS.
+
+![results of screenshot replication by Bard](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-bard.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+ And here's GPT-4's attempt at replicating the screenshot. The result is not surprising, considering GPT-4 has historically been strong at coding. We've previously demonstrated[using GPT-4 to build a web app from scratch](https://www.makeuseof.com/chatgpt-how-build-web-app/) .
+
+![results of screenshot replication by ChatGPT](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/results-of-screenshot-replication-by-chatgpt.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
+ We asked Gemini Pro to create a poem about Tesla (the electric vehicle car brand). It showed marginal improvements from previous tests we've done in the past. Here's the result:
+
+![Bard running Gemini Pro writes a poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/bard-writes-peom.jpg)
+
+ At this point, we thought comparing the results against GPT-3.5 rather than the supercharged GPT-4 would be more appropriate. So, we asked ChatGPT running GPT-3.5 to create a similar poem.
+
+![ChatGPT writes poem](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/12/chatgpt-writes-poem.jpg)
+
+ It may be a personal choice, but Gemini Pro's take on this seems better. But we'll let you be the judge.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Is Gemini Better than ChatGPT?
+
+ Before Google launched Bard, we thought it'd be the ChatGPT competition we had been waiting for—it wasn't. Now, Gemini is here, and so far, Gemini Pro doesn't seem like the model to give ChatGPT the knockout punch.
+
+ Google says Gemini Ultra is going to be much better. We truly hope it is, and that it meets or exceeds the claims made in the Gemini Ultra announcement. But until we see and test the best version of Google's generative AI tool, we won't know if it can unseat other AI model competitors. As it stands, GPT-4 remains the undisputed AI model champion.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevating-your-instagram-video-game-to-go-global/"><u>[Updated] In 2024, Elevating Your Instagram Video Game to Go Global</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-top-10-games-like-ghost-of-tsushima/"><u>2024 Approved  Top 10 Games Like Ghost of Tsushima</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-your-video-their-feast-how-to-craft-gifs-from-vimeo-videos/"><u>2024 Approved  Your Video, Their Feast  How to Craft GIFs From Vimeo Videos</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accelerate-your-youtube-watch-on-chrome-windows/"><u>Accelerate Your YouTube Watch on Chrome Windows</u></a></li>
+<li><a href="https://extra-information.techidaily.com/balancing-frameworks-for-engaging-visual-media-for-2024/"><u>Balancing Frameworks for Engaging Visual Media for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-secure-communication-incorrances-of-2fa-in-mail-applications/"><u>Embracing Secure Communication: Incorrances of 2FA in Mail Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-visibility-profile-pics-that-attract-more-engagement/"><u>Enhancing Your Online Visibility: Profile Pics That Attract More Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/excluding-political-and-religious-discussions-in-social-media/"><u>Excluding Political & Religious Discussions in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-an-audio-hub-for-podcasts-live-audio-rooms-and-more/"><u>Facebook Launches an Audio Hub for Podcasts, Live Audio Rooms, and More</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-enhanced-control-over-oculus-go-the-what-and-why-for-users/"><u>Facebook's Enhanced Control Over Oculus Go: The What and Why for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-eco-journey-entirely-powered-by-sustainable-energy/"><u>FB's Eco-Journey: Entirely Powered by Sustainable Energy</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/fixes-and-solutions-resolving-metro-exodus-pc-crash-issues/"><u>Fixes & Solutions: Resolving Metro Exodus PC Crash Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-contrast-rich-interface-on-facebook-app/"><u>Guide to Contrast-Rich Interface on Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-decide-what-to-allow/"><u>How Does Facebook Decide What to Allow?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-secure-is-my-info-on-social-media-platforms-like-fb/"><u>How Secure Is My Info on Social Media Platforms Like FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-prepare-for-a-social-media-shutdown-8-tips-for-fb-users/"><u>How to Prepare for a Social Media Shutdown: 8 Tips for FB Users</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Huawei Nova Y91? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-tecno-pova-5-pro-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your Tecno Pova 5 Pro to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-how-to-keep-your-virtual-talks-on-record/"><u>In 2024, How to Keep Your Virtual Talks on Record</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-gionee-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Gionee Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-fujitsu-scansnap-ix1400-perfect-selection-for-small-business-and-personal-office-environments/"><u>In-Depth Look at the Fujitsu ScanSnap iX1400: Perfect Selection for Small Business and Personal Office Environments</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-info-the-one-whistleblowing-to-fbs-secret-life/"><u>Inside Info: The One Whistleblowing to FB's Secret Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-shadowbanning-how-to-stay-undetected/"><u>Inside Shadowbanning: How to Stay Undetected</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-approaches-to-restore-deactivated-facebook-id/"><u>Key Approaches to Restore Deactivated Facebook ID</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-of-identity-shift-on-social-networks-via-photo-change/"><u>Mastery of Identity Shift on Social Networks via Photo Change</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-the-steam-refund-policy-a-comprehensive-guide-for-gamers/"><u>Navigating the Steam Refund Policy: A Comprehensive Guide for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-messenger-kids-sleep-mode-for-smoother-experience/"><u>Navigating Through Messenger Kids' Sleep Mode for Smoother Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-gen-listening-experience-unveiled-by-facebook/"><u>Next-Gen Listening Experience Unveiled by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/rank-your-social-sites-today/"><u>Rank Your Social Sites Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelations-of-a-digital-watchmaker-facebooks-undisclosed-device/"><u>Revelations of a Digital Watchmaker: Facebook's Undisclosed Device</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-connectivity-downloading-zexmtes-universal-bluetooth-adapter-drivers-for-windows-11-8-and-more/"><u>Seamless Connectivity: Downloading Zexmte's Universal Bluetooth Adapter Drivers for Windows 11, 8 & More!</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-space-what-not-to-post-in-the-online-world/"><u>Secure Your Space: What Not to Post in the Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-your-social-space-with-fb-restrictions/"><u>Simplifying Your Social Space with Fb Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-fabric-revised-exploring-the-top-4-platform-induced-metamorphoses/"><u>Social Fabric Revised: Exploring the Top 4 Platform-Induced Metamorphoses</u></a></li>
+<li><a href="https://win11.techidaily.com/speak-up-troubleshooting-and-fixing-microphone-errors-on-microsoft-powered-google-meet/"><u>Speak Up! Troubleshooting and Fixing Microphone Errors on Microsoft-Powered Google Meet</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-vivo-t2-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Vivo T2 5G FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-digital-conversations-a-guide-to-a-prolific-facebook-clan/"><u>Thriving in Digital Conversations: A Guide to a Prolific Facebook Clan</u></a></li>
+<li><a href="https://facebook.techidaily.com/timing-your-social-media-posts-effectively/"><u>Timing Your Social Media Posts Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-chat-vibes-with-fbs-messenger-sounds/"><u>Transform Your Chat Vibes with FB's Messenger Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-unscheduled-sign-off-on-networking-sites/"><u>Troubleshooting Unscheduled Sign-Off on Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-imposters-tips-for-true-facebook-detectives/"><u>Unveiling Internet Imposters: Tips for True-Facebook Detectives</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-delays-implementation-of-updated-privacy-agreement/"><u>WhatsApp Delays Implementation of Updated Privacy Agreement</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-oppo-a1-5g-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Oppo A1 5G | Dr.fone</u></a></li>
+</ul></div>

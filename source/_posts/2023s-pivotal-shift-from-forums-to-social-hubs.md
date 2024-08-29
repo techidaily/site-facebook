@@ -1,7 +1,7 @@
 ---
 title: 2023'S Pivotal Shift From Forums to Social Hubs
-date: 2024-07-12T10:44:42.047Z
-updated: 2024-07-13T10:44:42.047Z
+date: 2024-08-28T02:58:00.763Z
+updated: 2024-08-29T02:58:00.763Z
 tags:
   - facebook
 categories:
@@ -33,32 +33,50 @@ thumbnail: https://thmb.techidaily.com/a9af59315aea8cc232d9e9df37ddf4fb252ec7cdb
 
  The fast-moving nature, mixed media types (text, image, and video), and design principle of scrolling through a "timeline" encourage you to "catch up" are all examples of social media trying to keep you on the platform for longer. On a forum, you have many subsections—each with their own threads. They tend to be a bit more narrow in focus and long-form and predominately text-based, which is easier to pull yourself out of because it takes more sustained focus to navigate.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Forums Seem Outdated
 
  Forums have been a part of the web for over two decades, so it's no surprise if you find them outdated. In many areas of life, not just technology, people tend to gravitate toward the newest thing. With social media becoming the dominant form of communication years ago, forums will fade further into obscurity as time goes on.
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Apps Are More User-Friendly
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though [social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## 6\. The Rise of Facebook Groups
 
  Facebook Groups are extremely popular, with over [1.8 billion people using them monthly](https://www.searchenginejournal.com/1-8-billion-people-use-facebook-groups-every-month/397109/) . It's no surprise; they are well-designed and make it simple to keep up with conversations. As they are typically narrowly focused on a certain subject, it means that you can get information or conversation on specific subjects without even having to leave the Facebook app.
 
  While you may find that it's still harder to find older conversations on Facebook Groups than on a forum, the accessibility that they offer is undeniable. No other social media really has a competing feature, with LinkedIn Groups often littered with self-promotion, non-moderated conversations, and a lack of presence compared to Facebook Groups. This, combined with the popularity of Facebook's platform on the whole, means that their Groups feature is extremely popular—and these were also big reasons that online forums fell by the wayside over the past decade.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Social Media Is the Current-Day Online Forum
 
  While you can still find active online forums and perhaps even miss them if you used them back in their glory days, it's fairly clear that social media has dominated the way we talk to each other online for many years.
@@ -84,3 +102,47 @@ thumbnail: https://thmb.techidaily.com/a9af59315aea8cc232d9e9df37ddf4fb252ec7cdb
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-surpass-your-competition-effective-youtube-seo-tips/"><u>[New] 2024 Approved  Surpass Your Competition  Effective YouTube SEO Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-full-vision-media-the-smart-mcn-selection-process/"><u>[New] Full Vision Media  The Smart MCN Selection Process</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-smooth-transitions-the-ultimate-guide-for-audio-editors/"><u>[New] In 2024, Smooth Transitions  The Ultimate Guide for Audio Editors</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-undead-uprising-a-comprehensive-list-of-favorites/"><u>[Updated] 2024 Approved  Undead Uprising  A Comprehensive List of Favorites</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-bring-out-canons-best-enjoy-10-free-luts-and-beyond-selection/"><u>[Updated] Bring Out Canon's Best  Enjoy 10 Free LUTs and Beyond Selection</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-in-search-of-the-best-fps-experience-ever/"><u>[Updated] In 2024, In Search of the Best FPS Experience Ever</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-boost-your-photo-skills-with-these-top-pixlr-tricks/"><u>2024 Approved  Boost Your Photo Skills with These Top Pixlr Tricks</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/beginning-basics-the-ultimate-guide-to-starting-a-reviews-centric-youtube-channel-for-2024/"><u>Beginning Basics  The Ultimate Guide to Starting a Reviews-Centric YouTube Channel for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cant-play-mp4-files-on-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/demystifying-vpns-understanding-their-role-in-protecting-your-digital-life/"><u>Demystifying VPNs: Understanding Their Role in Protecting Your Digital Life</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-login-attempt-success-rate-on-facebook-code-fix/"><u>Enhancing Login Attempt Success Rate on Facebook (Code Fix)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/enhancing-video-aesthetics-with-bb-and-lc-overlays-on-facebook-for-2024/"><u>Enhancing Video Aesthetics with BB and LC Overlays on Facebook for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-takes-aim-at-misinformation-issues-stricter-fines/"><u>FB Takes Aim at Misinformation, Issues Stricter Fines</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/find-out-the-best-8-youtube-engagement-tools-for-2024/"><u>Find Out  The Best 8 Youtube Engagement Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustle-your-guide-to-evasion-strategies/"><u>High-Tech Hustle: Your Guide to Evasion Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-amazon-and-10k-groups-are-at-odds-over-admins/"><u>How Amazon and 10K Groups Are at Odds Over Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-apply-dark-aesthetics-on-facebook/"><u>How to Apply Dark Aesthetics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-secure-digital-community-spaces/"><u>Identifying Secure Digital Community Spaces</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-samsung-galaxy-m54-5g-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Samsung Galaxy M54 5G?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-efficient-timelapse-recording-via-ipad/"><u>In 2024, Efficient Timelapse Recording via iPad</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-effortlessly-blur-your-conference-backgrounds-on-teams/"><u>In 2024, Effortlessly Blur Your Conference Backgrounds on Teams</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-from-iphone-xs-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account From iPhone XS?</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-into-photodna-process-for-identifying-forged-images/"><u>Insight Into PhotoDNA: Process for Identifying Forged Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebook-platforms-for-hiring/"><u>Leveraging Facebook Platforms for Hiring</u></a></li>
+<li><a href="https://win-forum.techidaily.com/leveraging-popular-social-media-channels-for-business-growth-facebook-twitter-instagram-youtube/"><u>Leveraging Popular Social Media Channels for Business Growth - Facebook, Twitter, Instagram, YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/multi-platform-marketing-distribute-instagram-reels-to-facebook/"><u>Multi-Platform Marketing: Distribute Instagram Reels to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-silence-is-fb-offline/"><u>Navigating Social Media Silence - Is FB Offline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ethics-enforcement-properly-ban-trump-but-for-how-long/"><u>Online Ethics Enforcement: Properly Ban Trump, But for How Long?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-connection-meta-the-next-chapter-of-facebooks-journey/"><u>Reimagining Connection: Meta - The Next Chapter of Facebook's Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-facebook-space-against-unwanted-surveillinas/"><u>Secure Your Facebook Space Against Unwanted Surveillinas</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-digital-identity-with-facebooks-safety-tools/"><u>Securing Your Digital Identity with Facebook’s Safety Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-social-media-archiving-to-mask-facebook-footprints/"><u>Silent Social Media: Archiving to Mask Facebook Footprints</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-guide-resolving-a-non-responsive-mouse-issue-on-your-pc/"><u>Step-by-Step Guide: Resolving a Non-Responsive Mouse Issue on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-a-click-managing-your-online-impact/"><u>The Power of a Click: Managing Your Online Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-science-of-photodna-detecting-counterfeit-images/"><u>The Science of PhotoDNA: Detecting Counterfeit Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-verification-mechanism/"><u>Unveiling Facebook's Verification Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-believes-social-networks-outweigh-benefits/"><u>US Believes: Social Networks Outweigh Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-protects-you-more-meta-or-facebook-for-virtual-escapades/"><u>Who Protects You More? Meta or Facebook for Virtual Escapades?</u></a></li>
+</ul></div>

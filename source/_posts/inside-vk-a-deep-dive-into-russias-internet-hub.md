@@ -1,0 +1,193 @@
+---
+title: "Inside VK: A Deep Dive Into Russia's Internet Hub"
+date: 2024-08-28T03:06:07.797Z
+updated: 2024-08-29T03:06:07.797Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Inside VK: A Deep Dive Into Russia's Internet Hub"
+excerpt: "This Article Describes Inside VK: A Deep Dive Into Russia's Internet Hub"
+keywords: Russia Internet Hub,VK Deep Dive,Russian Online Space,Inside VK,VK Exploration,Digital Russia Hub,In-Depth VK Analysis
+thumbnail: https://thmb.techidaily.com/81c13ca843b69bc230707726fcf630e171a8ad9a8fe460d7f27ac14f30c5db39.jpg
+---
+
+## Inside VK: A Deep Dive Into Russia's Internet Hub
+
+ Normally, when we think of social media, we think of Facebook—after all, it's linked to pretty much everything in our lives, from Uber rides to voice calls to money transfers. If you live in Russia, however, you're more likely to think first of vk.com, also known as VKontakte. It's one of the top Russian social networks; anybody whose anybody uses it.
+
+ There is very little to read about VK in the western world, making the site something of a mystery to those outside of the loop. If you've never heard of VK before, you're about to get an earful.
+
+## 1\. VK Is the Most Popular Social Media Website in Russia
+
+![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
+
+ Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
+
+ With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
+
+ According to[Alexa](https://www.alexa.com/topsites/countries/RU) , VK is the third most-visited site in Russia, right behind Google and YouTube; the site's daily mobile audience peaks at nearly 45 million visitors on average.
+
+## 2\. VK is More Popular With Young Users
+
+![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
+
+ Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
+
+ The majority of VK users are between the ages of 25 to 34\. This is an interesting demographic wedge to be dialed into, given that Facebook's users are mostly ages 35 and up.
+
+Some potential explanations for this difference include:
+
+* VK's focus on sharing audio and video files between friends.
+* The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
+* The popularity of the social media site Odnoklassniki with older Russian adults.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## 3\. VK Offers a Lot In Terms of Profile Creation
+
+ Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
+
+ This is not the case on VK—in fact, the site's profile-creation aspect is honestly more granular than anything we've ever seen on any social media site, period.
+
+![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
+
+ To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
+
+ This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
+
+ This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
+
+## 4\. VK Has a Complicated Political History
+
+ Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
+
+ Many activist groups at odds with the Russian establishment used the platform frequently, both as ordinary users and as a means to advance their causes. When asked to permanently ban these groups and individuals, Durov refused.
+
+ Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+## 5\. Russian Users Believe VK is Better than Facebook
+
+ Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
+
+ It's not just that VK is more commonly used in Russia, either. According to one study courtesy of[Germany's Henrich Heine University](https://www.phil-fak.uni-duesseldorf.de/fileadmin/Redaktion/Institute/Informationswissenschaft/heck/Baran%5F%5F%5FStock%5FVkontakte.pdf) , VK users consider it to be the superior choice, with levels of indicated value twice as high as those asserted in favor of other social media brands. VK was considered to be more enjoyable and fun, easier to use, and more trustworthy overall by participants.
+
+ Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
+
+## 6\. VK Has Suffered Major Security Breaches
+
+ In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
+
+ Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+## 7\. The Most Common Password on VK is "123456"
+
+ One insight gleaned from the breach described above is that[the most common password on VK is "123456"](https://www.makeuseof.com/tag/7-password-mistakes-will-likely-get-hacked/) . If you're guilty of that, change your password now.
+
+ Many of these stolen passwords were stored in plaintext by VK, allowing some pioneering academics to crunch the numbers after the big spill. They found that over 700,000 people used the password "123456" and another 400,000 used "123456789".
+
+ Other popular passwords included "qwerty," "1111111," and "123321".
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+## 8\. VK's Website Design Rarely Changes
+
+![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
+
+<!-- affiliate ads begin -->
+<span id="1997795">
+					<video width="250" height="250" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
+
+ Related:[How to Get the Old Facebook Layout Back... It's Easy!](https://www.makeuseof.com/how-to-get-old-facebook-layout-back/)
+
+ Facebook users are more than familiar with the feeling of waking up and logging onto a totally different website than they did the day before. VK is much more content to maintain a familiar site design. VK designers give the following reason for their design choices:
+
+> We like minimalism and simplicity. This is the way that is \[sic\] looked in the beginning, and this is the way that it looks now.
+
+ It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## There's a World Outside of Facebook
+
+ VK is a streamlined and serene experience, far from the ones that we're familiar with, all punctuated by the out-loud-and-proud stylings of TikTokers and Instagram influencers dying to make a name for themselves.
+
+ If you've got friends in Russia or Ukraine, this site is a great way to connect. Even if you don't, the brand's legacy offers westerners an uncanny glimpse through the looking glass. We could have sworn that we were staring at a circa 2014 Facebook splash page immediately after logging on.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-mastering-igtv-strategies-for-uploading-horizontal-videos/"><u>[New] Mastering IGTV  Strategies for Uploading Horizontal Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-metaverse-journeys-top-10-films-that-bring-alien-worlds-to-life/"><u>[New] Metaverse Journeys  Top 10 Films That Bring Alien Worlds to Life</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-new-wave-of-virtual-reality-finger-tech-for-2024/"><u>[New] The New Wave of Virtual Reality Finger Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-an-easy-to-follow-guide-adding-youtube-playlists-to-your-online-platform/"><u>[Updated] 2024 Approved  An Easy-to-Follow Guide  Adding YouTube Playlists to Your Online Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-culinary-craftsmanship-innovative-naming-for-food-shows/"><u>[Updated] 2024 Approved  Culinary Craftsmanship  Innovative Naming for Food Shows</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-for-a-share-of-the-facebook-settlement/"><u>A Step-by-Step Approach for a Share of the Facebook Settlement</u></a></li>
+<li><a href="https://facebook.techidaily.com/balancing-curiosity-and-compliance-downloading-fb-videos-wisely/"><u>Balancing Curiosity and Compliance: Downloading FB Videos Wisely</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-facebooks-feed-how-to-make-it-yours/"><u>Decoding Facebook's Feed: How to Make It Yours</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-revelations-from-a-no-snap-break/"><u>Digital Detox: Revelations From a No-Snap Break</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-metas-new-privacy-standards-and-impact/"><u>Dissecting Meta's New Privacy Standards and Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-evolution-understanding-the-role-of-news-on-facebook/"><u>Engaging Evolution: Understanding the Role of News on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-move-monetized-a-corporate-reality/"><u>Every Move Monetized: A Corporate Reality</u></a></li>
+<li><a href="https://facebook.techidaily.com/high-tech-hustlers-defending-your-digital-self/"><u>High-Tech Hustlers: Defending Your Digital Self</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-motorola-g24-power-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Motorola G24 Power Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-comments-on-your-facebook-posts/"><u>How to Delete Comments on Your Facebook Posts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-mix-fold-3-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi Mix Fold 3 Phone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-samsung-galaxy-m14-4g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Samsung Galaxy M14 4G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-hurdlehop-pausevidsnapshot/"><u>In 2024, HurdleHop PauseVidSnapshot</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-connectivity-for-companionship-on-facebook/"><u>Leveraging Connectivity for Companionship on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-eliminating-online-track-record-on-facebook/"><u>Master the Art of Eliminating Online Track Record on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/merging-social-media-and-chat-apps-the-whatsapp-facebook-nexus/"><u>Merging Social Media & Chat Apps: The WhatsApp-Facebook Nexus</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-online-condemnation/"><u>Navigating the World of Online Condemnation</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-echo-chambranle-how-networking-unites-people/"><u>Online Echo Chambranle: How Networking Unites People</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-tech-future-with-facebook-and-rust-fusion/"><u>Pioneering Tech Future with Facebook and Rust Fusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-digital-life-a-hands-on-approach-to-fb-downloads/"><u>Preserve Your Digital Life: A Hands-On Approach to FB Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-behind-decs-instagram-conversations-ending/"><u>Reasons Behind Dec’s Instagram Conversations Ending</u></a></li>
+<li><a href="https://facebook.techidaily.com/reestablishing-contact-post-blockage-on-fb/"><u>Reestablishing Contact Post-Blockage on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-governance-right-to-suspend-trump-temporarily/"><u>Social Media Governance: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-relief-7-ways-to-ease-the-overload/"><u>Social Media Relief: 7 Ways to Ease the Overload</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/specifications-and-features/"><u>Specifications and Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-strategies-with-8-powerful-crowdflower-capabilities/"><u>Streamline Strategies with 8 Powerful CrowdFlower Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147418245-taking-a-leap-in-privacy-protection-facebook-unveils-stronger-security-for-instagram-dms-and-messenger-calls/"><u>Taking a Leap in Privacy Protection: Facebook Unveils Stronger Security for Instagram DMs and Messenger Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-back-your-privacy-from-facebooks-watchfulness/"><u>Taking Back Your Privacy From Facebook's Watchfulness</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-content-how-to-disable-auto-feed-suggestions/"><u>Unseen Content: How to Disable Auto-Feed Suggestions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-a-new-self-the-art-of-changing-your-fb-photo/"><u>Unveiling a New Self: The Art of Changing Your FB Photo</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-video-editing-on-chromebook-top-recommendations-for-2024/"><u>Updated Video Editing on Chromebook Top Recommendations for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-windows-10-video-editing-software-the-best-imovie-alternatives/"><u>Updated Windows 10 Video Editing Software The Best iMovie Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-in-verification-leveraging-facebooks-advanced-moderation-mechanisms/"><u>Virtual Vigilance in Verification: Leveraging Facebook's Advanced Moderation Mechanisms</u></a></li>
+</ul></div>

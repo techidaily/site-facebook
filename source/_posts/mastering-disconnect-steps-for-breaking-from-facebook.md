@@ -1,0 +1,222 @@
+---
+title: "Mastering Disconnect: Steps for Breaking From Facebook"
+date: 2024-08-28T03:09:26.639Z
+updated: 2024-08-29T03:09:26.639Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Mastering Disconnect: Steps for Breaking From Facebook"
+excerpt: "This Article Describes Mastering Disconnect: Steps for Breaking From Facebook"
+keywords: Break Facebook Addiction,End Facebook Use,Ditch Social Media,Disconnecting Techniques,Quit Facebook Steps,Leave Facebook Tips,Free From Facebook Habits
+thumbnail: https://thmb.techidaily.com/5b0ce9c020094ad31bdc87530c31e032109184ed98794f1ba27d0b681ad3c785.jpg
+---
+
+## Mastering Disconnect: Steps for Breaking From Facebook
+
+ When we talk about breaks, most people confuse it with the conventional art of taking breaks from work or family, but some people also need to take a break from social media, at least for a while.
+
+ How can something designed for entertainment become frustrating? Believe it or not, apps like Facebook can be pretty addictive, which leads to people feeling unwanted burdens and stress. You could also just find that the platform has become tiresome.
+
+ The only solution is to take a break and leave Facebook for a while. Here is a guide to everything you need to know about taking a break from Facebook.
+
+## Temporarily Deactivating Your Facebook Account: How It Works
+
+ Deactivating a Facebook account means that it becomes inactive and unavailable for use. As opposed to deleting your account, deactivation is temporary so can be used to take a break from the platform.
+
+ During the deactivation process, Facebook requests an estimated time for when you wish to come back. Choose the time you have in mind, or leave it to manual reactivation. There is no limit to how often you deactivate and activate your Facebook account. Similarly, you can also keep it deactivated for as long as you wish. Your account won’t be re-activated unless you do it yourself.
+
+ Facebook also gives users the option to log out instead of complete deactivation, but you will receive email notifications, and people can find and tag you in Facebook content. This is not a recommended practice, especially for those wanting a break from Facebook. Users who plan to take a permanent break by account deletion can log back within 30 days to stop the process.
+
+ In addition, the following things happen when you deactivate your Facebook account...
+
+### No Visibility
+
+ Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
+
+ Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
+
+### No Notifications
+
+ If you deactivate your Facebook account, you won’t be receiving Facebook notifications anymore.
+
+ You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
+### Adjusted Messages and Comments
+
+ After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
+
+ Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
+
+## How to Deactivate Your Facebook Account
+
+ Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Via Mobile
+
+ If you are using a mobile, follow this method to deactivate your Facebook account.
+
+![Go to Settings and Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Go-to-Settings-and-Privacy.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+![Personal and account information](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-and-account-information.JPG)
+
+![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Close
+
+1. Open Facebook on your mobile browser.
+2. Tap**Menu** on the bottom right of the screen to open a list of features and settings offered by Facebook.
+3. Go to**Settings & Privacy** and then choose**Settings** .
+4. From**Account** , go to**Personal and account information** .
+5. Next, tap the**Access and Control** option. It covers everything from your Facebook memorialization settings to deactivation and deletion options.
+
+1. Select**Deactivation and Deletion** to choose between both. There is a difference between[deactivating and deleting your Facebook account](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) . To take a temporary break, choose**Deactivate Account** .
+2. Tap**Continue to Account Deactivation** .
+3. Re-enter your Facebook password and press**Continue** .
+4. Facebook asks its users to pick a reason why they are leaving. Choose whatever fits best, or write a customized message. Tap**Continue** when you are done.
+5. Facebook will ask you to take a break by logging out or deciding to deactivate. Scroll down to see the deactivation menu.
+6. Under**Reactivating Your Account** , choose the time when you wish to come back.
+7. Next, change your Group, Messenger, and Information settings. Also, check the box that says**opt-out of receiving future notifications from Facebook** to completely cut off any form of social engagement.
+8. Tap**Deactivate My Account** , and Facebook will automatically log you out.
+
+**Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Via Desktop
+
+ To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
+
+1. After logging in, you will be directed to your Facebook Home page.
+2. Scroll and click your display picture in the top right corner of your screen. A drop-down menu will open with several features and settings.
+3. Click**Settings & Privacy** to open a new menu and select**Settings** .  
+![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
+4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
+![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
+5. Scroll down to**Deactivation and Deletion** and press**View** .
+
+1. In this section, you can deactivate or delete your account. Select the**Deactivate Account** option, and tap**Continue to Account Deactivation** .  
+![Deactivation and deletion of Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account-desktop.jpg)
+2. Enter your password and tap**Continue** .
+3. Choose a reason why you want to deactivate your account. Facebook also offers the option to**Transfer Your Information** and**Reason for Leaving** .  
+![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
+4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
+5. Select**Deactivate** , and you’ll be logged out of Facebook.  
+![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
+
+ You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
+
+## How to Reactivate Your Facebook Account
+
+ After a while, you might feel relaxed enough to resume your activities on Facebook. Users who deactivate their Facebook account have the option to reactivate it.
+
+ You will get all your data and messages back on Facebook. Reactivating your Facebook account is quite simple. It will automatically reactivate at the given time you select while deactivating your account.
+
+ You can also log back in whenever you feel like it. Accounts that have been put for permanent deletion can be restored as well if the person logs in before the period is over.
+
+## Give Your Mind a Break by Deactivating Facebook
+
+ Your experience on Facebook can be a bit too engaging and time-consuming. You might need to take a break from your intense browsing sessions and just relax.
+
+ Deactivating your Facebook account is a great way to avoid distracting notifications. You can deactivate your Facebook account from your mobile and desktop.
+
+ There is no limit to how many times you deactivate your account. Simply set your desired account reactivation time, or come back whenever you want.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-harmonizing-content-with-ig-beats/"><u>[New] In 2024, Harmonizing Content with IG Beats</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-showcase-excellence-with-these-essential-thumbnail-fonts/"><u>[Updated] 2024 Approved  Showcase Excellence with These Essential Thumbnail Fonts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-igtv-techniques-seamlessly-transforming-vlogs-for-maximum-views/"><u>[Updated] IGTV Techniques  Seamlessly Transforming Vlogs for Maximum Views</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-instant-movie-magician/"><u>2024 Approved  Instant Movie Magician</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1715860416435-2024-approved-utilizing-internal-screen-recording-on-huaweis-mate-1020-and-p-models-p20-p10/"><u>2024 Approved  Utilizing Internal Screen Recording on Huawei's Mate 10/20 & P Models (P20, P10).</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comparing-roku-devices-express-and-stick-showdown-explained/"><u>Comparing Roku Devices: Express and Stick Showdown Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-messaging-experience-with-new-sounds-on-messenger/"><u>Elevating Messaging Experience with New Sounds on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-facespace-without-warning-heres-how-to-return/"><u>Exiting Facespace Without Warning? Here's How to Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-aid-platform-what-it-provides-you-with/"><u>Facebook's Aid Platform: What It Provides You With</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-social-sweep-effective-tools-to-manage-your-online-communities/"><u>Facebook's Social Sweep: Effective Tools to Manage Your Online Communities</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fast-track-your-pcs-scsi-capabilities/"><u>Fast-Track Your PC's SCSI Capabilities</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/harnessing-ai-in-blockchain-explore-these-8-essential-crypto-communication-tools/"><u>Harnessing AI in Blockchain: Explore These 8 Essential Crypto Communication Tools</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/high-quality-1-ranked-4k-laptops-for-gaming/"><u>High-Quality  #1 Ranked 4K Laptops for Gaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-subdued-visuals-for-facebook/"><u>How to Activate Subdued Visuals for Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-mdm-from-iphone-xs-without-a-computer-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove MDM from iPhone XS without a computer?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-track-imei-number-of-realme-10t-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Realme 10T 5G Through Google Earth?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-tecno-spark-10-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Tecno Spark 10 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nokia-xr21-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nokia XR21 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-quickly-crafting-a-facebook-collage-a-step-by-step-guide/"><u>In 2024, Quickly Crafting a Facebook Collage  A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-reducing-camera-movement-in-post-processing-necessary/"><u>In 2024, Reducing Camera Movement in Post-Processing  Necessary?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-snapshot-strategies-maintaining-consistent-snapstreaks/"><u>In 2024, Snapshot Strategies  Maintaining Consistent Snapstreaks</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-chromatic-chameleons-playbook-for-masters/"><u>In 2024, The Chromatic Chameleon's Playbook for Masters</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-user-preference-shifts-against-tracking/"><u>IPhone User Preference Shifts Against Tracking</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-key-meta-tools-to-succeed-in-your-business/"><u>Leverage Key META Tools to Succeed in Your Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-without-the-social-network-a-data-tale/"><u>Life without The Social Network: A Data Tale</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/macos-dvd-to-iso-transformation-a-comprehensive-tutorial/"><u>MacOS DVD to ISO Transformation: A Comprehensive Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-or-fiction-separating-fact-from-beliefs/"><u>Metaverse or Fiction: Separating Fact From Beliefs</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-new-ways-transporting-fb-stories-and-notebooks-effortlessly/"><u>Navigate New Ways: Transporting FB Stories & Notebooks Effortlessly.</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-network-strives-for-authenticity-with-new-fb-penalties/"><u>Online Network Strives for Authenticity with New FB Penalties</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-visuals-vault-assembling-your-artistic-facebook-display/"><u>Online Visuals Vault: Assembling Your Artistic Facebook Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-verification-codes-in-login-process-facebook/"><u>Overcoming Blocked Verification Codes in Login Process (Facebook)</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-digital-space-delete-old-fb-watch-data/"><u>Reclaim Digital Space: Delete Old FB Watch Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/retracing-steps-my-initial-leap-into-social-media/"><u>Retracing Steps: My Initial Leap Into Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-profile-on-facebook-with-mtfc/"><u>Safeguarding Your Profile on Facebook with MTFC</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-profile-identities-no-extremist-viewpoints-allowed/"><u>Securing Profile Identities: No Extremist Viewpoints Allowed</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-evolution-facebooks-new-approach-to-business-marketing/"><u>Social Media Evolution: Facebook's New Approach to Business Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-fortunes-5-innovative-revenue-ideas-for-ig-and-facebook/"><u>Social Media Fortunes: 5 Innovative Revenue Ideas for IG & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/society-transformed-7-benefits-from-social-networking/"><u>Society Transformed: 7 Benefits From Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-disbanding-your-facebook-group/"><u>Steps for Disbanding Your Facebook Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-a-conflict-free-group-disengagement/"><u>Strategies for a Conflict-Free Group Disengagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/techniques-for-controlling-your-newsfeed-diet-fb-reels/"><u>Techniques for Controlling Your Newsfeed Diet - Fb Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-8-critical-moves-before-ending-your-fb-journey/"><u>The 8 Critical Moves Before Ending Your FB Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-efficiently-managing-friends-list-on-facebook/"><u>The Art of Efficiently Managing Friends List on Facebook</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-beginners-path-to-a-unique-youtube-url-for-2024/"><u>The Beginner's Path to a Unique YouTube URL for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-downward-spiral-of-facebooks-active-users/"><u>The Downward Spiral of Facebook's Active Users</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-unbeatable-deal-on-lgs-24lh4830-affordable-entertainment-and-reliability-combined/"><u>The Unbeatable Deal on LG's 24LH4830: Affordable Entertainment and Reliability Combined</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unveiling-of-metaverse-risks-and-realities/"><u>The Unveiling of Metaverse - Risks and Realities</u></a></li>
+<li><a href="https://facebook.techidaily.com/update-alert-simplify-how-you-engage-on-facebook-feed/"><u>Update Alert! Simplify How You Engage on Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-moving-away-from-biometrics-in-fb/"><u>Why Is Meta Moving Away From Biometrics in FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-pausing-your-insta-addiction-is-better-for-you/"><u>Why Pausing Your Insta Addiction Is Better for You</u></a></li>
+<li><a href="https://extra-information.techidaily.com/winning-strategies-elevating-win11-zoom-experience/"><u>Winning Strategies  Elevating Win11 Zoom Experience</u></a></li>
+</ul></div>

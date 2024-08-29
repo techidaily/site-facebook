@@ -1,7 +1,7 @@
 ---
 title: Limiting Friends' Access to Online Presence
-date: 2024-07-12T10:40:29.199Z
-updated: 2024-07-13T10:40:29.199Z
+date: 2024-08-28T03:02:16.660Z
+updated: 2024-08-29T03:02:16.660Z
 tags:
   - facebook
 categories:
@@ -69,10 +69,28 @@ thumbnail: https://thmb.techidaily.com/0aeedb6f0e08290ddfa4945f77d0426cb986cac7f
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
 1. Select the Messenger icon at the top right of your Facebook home screen.
@@ -86,6 +104,9 @@ Close
 
  You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -105,12 +126,18 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
+<!-- affiliate ads end -->
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
@@ -136,3 +163,52 @@ This is different from a full Facebook block.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-10-ways-to-optimize-instagram-highlights-for-your-business-for-2024/"><u>[New] 10 Ways to Optimize Instagram Highlights for Your Business for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-game-away-your-worries-the-coolest-titles/"><u>[New] Game Away Your Worries  The Coolest Titles</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-quantum-quadrants-cinematic-frontiers/"><u>[New] Quantum Quadrants  Cinematic Frontiers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-snap-it-up-innovative-ig-images-that-inspire/"><u>[New] Snap It Up! Innovative IG Images That Inspire</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-songcutter-pro-turning-tamil-tracks-into-call-alerts/"><u>[New] SongCutter Pro  Turning Tamil Tracks Into Call Alerts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-quieting-audible-outputs-a-windowsmac-guide/"><u>[Updated] Quieting Audible Outputs  A Windows/Mac Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-unveiling-the-secret-seeing-popular-youtube-reactions/"><u>2024 Approved  Unveiling the Secret  Seeing Popular YouTube Reactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-top-tools-to-keep-your-social-calendar-on-track/"><u>8 Top Tools to Keep Your Social Calendar on Track</u></a></li>
+<li><a href="https://facebook.techidaily.com/accessing-and-operating-facebooks-inbuilt-protection/"><u>Accessing and Operating Facebook's Inbuilt Protection</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-decline-a-new-era-for-iphone-privacy/"><u>App Tracking Decline: A New Era for iPhone Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-practices-safe-digital-connections/"><u>Best Practices: Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/best-websites-that-foster-elder-engagement/"><u>Best Websites That Foster Elder Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-consumers-trust-their-smartphones-with-privacy-intact/"><u>Can Consumers Trust Their Smartphones With Privacy Intact?</u></a></li>
+<li><a href="https://facebook.techidaily.com/cultivating-a-dynamic-social-media-space-with-ripl/"><u>Cultivating a Dynamic Social Media Space with Ripl</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-friend-management-for-optimal-online-experience-on-facebook/"><u>Effective Friend Management for Optimal Online Experience on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-everyday-exchange-typographic-techniques/"><u>Elevate Your Everyday Exchange: Typographic Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-secure-mail-validity-is-securityfb-legit/"><u>Facebook Secure Mail Validity: Is @Security@fb Legit?</u></a></li>
+<li><a href="https://facebook.techidaily.com/forget-not-your-fb-views-how-to-wipe-history/"><u>Forget Not Your FB Views: How to Wipe History</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-13-pro-to-other-iphone-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 Pro To Other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-stop-to-all-facebook-buzz/"><u>Immediate Stop to All Facebook Buzz</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-13t-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi 13T Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-selective-slideshow-software-for-xrxsx-models/"><u>In 2024, Selective Slideshow Software for Xr/XS/X Models</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-vivo-y36i-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Vivo Y36i</u></a></li>
+<li><a href="https://facebook.techidaily.com/learn-lives-through-interactive-messenger-polls/"><u>Learn Lives Through Interactive Messenger Polls</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/maximizing-productivity-with-reimagined-windows-11-widgets/"><u>Maximizing Productivity with Reimagined Windows 11 Widgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/next-update-brings-no-surprises-no-oculus-quest-3/"><u>Next Update Brings No Surprises, No Oculus Quest 3</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-reality-on-facebook-after-a-hiccup/"><u>Revive Your Reality on Facebook After a Hiccup</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-and-savvy-suggestions-for-virtual-banter-online/"><u>Smart & Savvy Suggestions for Virtual Banter Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-in-the-virtual-realm-8-methods-to-connect/"><u>Social Synergy in the Virtual Realm: 8 Methods to Connect</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-synergy-hide-your-fb-networking/"><u>Subtle Synergy: Hide Your FB Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
+<li><a href="https://some-skills.techidaily.com/thankful-views-complete-outro-template-library-for-2024/"><u>Thankful Views  Complete Outro Template Library for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-best-ispoofer-alternative-to-try-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>The Best iSpoofer Alternative to Try On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dynamics-of-facebooks-acceptance-criteria/"><u>The Dynamics of Facebook’s Acceptance Criteria</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-performance-curve-of-a-centrifugal-pump-is-essential-for-selecting-the-right-pump-for-a-specific-application-based-on-required-head-and-flow-rate/"><u>The Performance Curve of a Centrifugal Pump Is Essential for Selecting the Right Pump for a Specific Application Based on Required Head and Flow Rate.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-platform-puzzle-where-to-foster-group-connections/"><u>The Social Platform Puzzle: Where to Foster Group Connections?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-cost-10-dangers-of-digital-networking/"><u>The Unseen Cost: 10 Dangers of Digital Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-tracer-first-entry-into-facebook-world/"><u>Timeline Tracer: First Entry Into Facebook World</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-tecno-camon-20-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-on-iphone-14-plus-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server On iPhone 14 Plus</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/unlock-smart-note-management-via-mematic/"><u>Unlock Smart Note Management via Mematic</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-brand-visibility-with-instagram-reels-and-facebook-stickers/"><u>Unlocking Brand Visibility with Instagram Reels & Facebook Stickers</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-split-screen-video-editing-made-easy-free-online-and-offline-solutions/"><u>Updated 2024 Approved Split Screen Video Editing Made Easy Free Online and Offline Solutions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/watermarking-essentials-the-hottest-apps-reviewed/"><u>Watermarking Essentials - The Hottest Apps Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-mastodon-really/"><u>What Is Mastodon Really?</u></a></li>
+</ul></div>

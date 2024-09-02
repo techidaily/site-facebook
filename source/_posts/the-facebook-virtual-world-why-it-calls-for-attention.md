@@ -1,7 +1,7 @@
 ---
 title: The Facebook Virtual World - Why It Calls for Attention
-date: 2024-07-12T10:39:45.133Z
-updated: 2024-07-13T10:39:45.133Z
+date: 2024-09-01T03:35:58.748Z
+updated: 2024-09-02T03:35:58.748Z
 tags:
   - facebook
 categories:
@@ -54,9 +54,15 @@ thumbnail: https://thmb.techidaily.com/b2c741db963ad00df201883adf5f82b0b65621c38
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be [giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 2\. Another Digital Addiction for Gen Z
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
  With its considerable user base, Meta is a major culprit in letting this happen. An investigative series in the [Wall Street Journal](https://www.wsj.com/articles/the-facebook-files-11631713039) shows that a huge percentage of young Facebook users are aware of their addiction to its products, but feel trapped and unable to reduce their usage.
@@ -69,9 +75,15 @@ thumbnail: https://thmb.techidaily.com/b2c741db963ad00df201883adf5f82b0b65621c38
 
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. A Dangerous Monopoly
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Meta already enjoys a significant [monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
  The metaverse promises to be an all-encompassing next phase for the internet. A lot of what isn't really possible to do on the internet today—dancing, singing, working out—could make sense with the metaverse.
@@ -82,6 +94,9 @@ thumbnail: https://thmb.techidaily.com/b2c741db963ad00df201883adf5f82b0b65621c38
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meta's Vision of the Metaverse
 
  While many people believe that no single entity will be able to maintain significant control of the metaverse, Big Tech has different ideas. Companies like Meta do not thrive in decentralization. Meta's vision of the metaverse isn't exactly the user-controlled world the larger public envisions; it's an immersive version of its current products and ecosystem.
@@ -109,3 +124,67 @@ thumbnail: https://thmb.techidaily.com/b2c741db963ad00df201883adf5f82b0b65621c38
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-earning-insights-average-adsense-earning-for-every-1000-youtube-views-for-2024/"><u>[New] Earning Insights  Average AdSense Earning for Every 1,000 YouTube Views for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-flying-into-photography-discovering-the-dji-spark-advantage/"><u>[New] Flying Into Photography  Discovering the DJI Spark Advantage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-for-entrepreneurs-how-to-register-as-a-biz-page/"><u>[New] Instagram for Entrepreneurs  How to Register as a Biz Page</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ocial-signals-and-their-role-in-youtube-popularity-for-2024/"><u>[New] Social Signals and Their Role in YouTube Popularity for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-step-by-step-instructions-for-picking-background-scores-for-vlogs-for-2024/"><u>[New] Step-by-Step Instructions for Picking Background Scores for Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-guide-to-making-money-on-youtube-average-required-views/"><u>[Updated] 2024 Approved  The Ultimate Guide to Making Money on YouTube  Average Required Views</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expressive-element-enhancers/"><u>[Updated] Expressive Element Enhancers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-flavorful-frames-stepwise-food-film-making-for-2024/"><u>[Updated] Flavorful Frames  Stepwise Food Film-Making for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-overcome-instagrams-story-upload-issues/"><u>[Updated] In 2024, Overcome Instagram's Story Upload Issues</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-amplify-and-illuminate-online-videos-with-these-5-aids/"><u>2024 Approved  Amplify and Illuminate Online Videos with These 5 Aids</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-is-aurora-hdr-setting-photography-trends/"><u>2024 Approved  Is Aurora HDR Setting Photography Trends?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/alps-pointing-device-driver/"><u>Alps Pointing Device Driver</u></a></li>
+<li><a href="https://fox-http.techidaily.com/beacon-of-ringtone-richness-online-for-2024/"><u>Beacon of Ringtone Richness Online for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/bypass-reset-motorola-phone-screen-passcode-pattern-pin-by-drfone-android-unlock-android-unlock/"><u>Bypass/Reset Motorola Phone Screen Passcode/Pattern/Pin</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1723001676149-cold-war-stuck-at-boot-up-heres-how-to-launch-into-action-across-devices/"><u>Cold War Stuck at Boot-Up? Here’s How to Launch Into Action Across Devices</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/dub-like-a-pro-top-6-video-dubbing-apps-for-android-and-ios/"><u>Dub Like a Pro Top 6 Video Dubbing Apps for Android and iOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-prior-bondings-on-the-social-network/"><u>Examining Prior Bondings on the Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-most-trending-videos-in-your-feed/"><u>Explore Most Trending Videos in Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-subtextual-innuendoes-in-messenger-correspondence/"><u>Exploring Subtextual Innuendoes in Messenger Correspondence</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-prompts-users-with-new-ideas-on-information-dissemination/"><u>Facebook Prompts Users with New Ideas on Information Dissemination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-security-compromise-what-to-watch-out-for/"><u>Facebook Security Compromise: What to Watch Out For</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-innovation-to-imposition-government-strikes-back-on-big-tech/"><u>From Innovation to Imposition: Government Strikes Back on Big Tech</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-motorola-moto-g14withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Motorola Moto G14with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resurrect-discarded-facebook-group-memberships/"><u>How to Resurrect Discarded Facebook Group Memberships</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-htc-u23-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of HTC U23 Pro Without PUK Codes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-from-your-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID from Your iPhone 14 Plus?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-xr-properly-drfone-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone XR Properly | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-x50-gt-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor X50 GT Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-bidens-cure-via-snap-fb-twitters-the-story/"><u>Joe Biden's Cure via SNAP, FB, Twitters: The Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-trade-key-business-meta-tools/"><u>Master Your Trade: Key Business Meta Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-why-your-fears-are-justified/"><u>Meta: Why Your Fears Are Justified</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-content-moderation-insights-into-fbs-tribunal/"><u>Navigating Content Moderation: Insights Into FB's Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-maze-your-essential-security-guidebook/"><u>Navigating Facebook's Maze: Your Essential Security Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/nine-methods-to-reset-and-secure-fb-password/"><u>Nine Methods to Reset and Secure Fb Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/notice-missing-photos-in-digital-dialogues-messenger/"><u>Notice Missing Photos in Digital Dialogues, Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-digital-footprint-on-facebook/"><u>Personalizing Your Digital Footprint on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-locations-to-scout-for-freelancer-roles/"><u>Premier Locations to Scout for Freelancer Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-interaction-exploring-metaverse-landscapes/"><u>Redefining Interaction: Exploring Metaverse Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinventing-connections-the-enduring-appeal-of-facebooks-features/"><u>Reinventing Connections: The Enduring Appeal of Facebook's Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-spotifys-social-linkage-with-facebook-here/"><u>Remove Spotify's Social Linkage with Facebook Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamless-transition-of-user-identities-facebook-naming-change-guide/"><u>Seamless Transition of User Identities: Facebook Naming Change Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-revealed-attracting-professionals-as-clients-via-fb/"><u>Secrets Revealed: Attracting Professionals as Clients via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-sleepwalkers-examining-blackouts/"><u>Social Network Sleepwalkers: Examining Blackouts</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-retrieving-lost-images-from-an-iphoneipad/"><u>Step-by-Step Guide: Retrieving Lost Images From an iPhone/iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-powerhouse-of-marketing-top-8-benefits-for-business-pages-vs-individuals/"><u>The Powerhouse of Marketing: Top 8 Benefits for Business Pages vs Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-mirage-uncovering-its-darker-impact-on-users/"><u>The Social Media Mirage: Uncovering Its Darker Impact on Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/tighten-control-over-personalized-ad-delivery-in-social-sites/"><u>Tighten Control Over Personalized Ad Delivery in Social Sites</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-apple-iphone-11-pro-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with Apple iPhone 11 Pro Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-deactivation-on-ice-at-facebook-oversight/"><u>Trump Deactivation on Ice at Facebook Oversight</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-technique-for-removing-online-broadcasts/"><u>Unlocking the Technique for Removing Online Broadcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-messages-alert-service-for-messenger-users/"><u>Unseen Messages Alert Service for Messenger Users</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-top-glitch-video-editing-software-for-windows-and-mac-free-and-paid-options/"><u>Updated In 2024, Top Glitch Video Editing Software for Windows and Mac Free and Paid Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/utilizing-personal-safety-settings-on-facebook/"><u>Utilizing Personal Safety Settings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-fbs-oversight-board-govern/"><u>What Does FB’s Oversight Board Govern?</u></a></li>
+<li><a href="https://facebook.techidaily.com/whispered-ban-for-fb-users-practicing-genuine-business-tactics/"><u>Whispered Ban for FB Users Practicing Genuine Business Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-covid-battle-fund-enhanced-by-5m-from-facebook/"><u>WHO's COVID Battle Fund Enhanced by $5M From Facebook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-might-not-see-whats-popular-on-facebook/"><u>Why You Might Not See What's Popular on Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-itel-a70-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-definitive-guide-to-overcoming-common-social-media-challenges-on-fb/"><u>Your Definitive Guide to Overcoming Common Social Media Challenges on FB</u></a></li>
+</ul></div>

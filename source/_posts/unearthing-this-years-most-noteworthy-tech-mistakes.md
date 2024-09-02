@@ -1,7 +1,7 @@
 ---
 title: Unearthing This Year's Most Noteworthy Tech Mistakes
-date: 2024-07-12T10:38:51.540Z
-updated: 2024-07-13T10:38:51.540Z
+date: 2024-09-01T03:37:18.490Z
+updated: 2024-09-02T03:37:18.490Z
 tags:
   - facebook
 categories:
@@ -41,9 +41,15 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
  This Twitter takeover has proven to be an unmitigated disaster and a cautionary tale for anyone considering a similar venture. Musk's ambitious plan will likely be remembered as one of the biggest tech failures of 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Bankruptcy Filings and Crashes in the Crypto Sphere
 ![line graph showing downward trend](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/graph-36929.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
  It was a wild year in the cryptocurrency market in 2022, with bankruptcies, crashes, and market instability as the year's theme. The first and biggest shock to the cryptocurrency market came when [Terra Luna/USD crashed](https://www.makeuseof.com/why-has-terras-luna-price-crashed/) , wiping nearly all of its value. Many analysts had touted the coin as an emerging asset class, but when it plunged, it took many other digital assets with it, leading to widespread market instability.
 
  The second major crypto flop of 2022 is the [FTX bankruptcy](https://www.makeuseof.com/what-is-going-on-binance-ftx/) . FTX was one of the biggest exchanges for digital currencies and derivatives. Still, a sudden liquidity crisis meant that the exchange could no longer provide the services it was known for. This led to a sell-off of assets and a massive decrease in trading volumes.
@@ -60,9 +66,16 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
  These events have been an important lesson for investors and developers alike: nothing is guaranteed in this highly volatile market, and caution should always be exercised when investing in digital currencies.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## 4\. Meta
 ![Meta homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Meta-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Meta saw some of the steepest declines in 2022\. For the first time since its inception, the company saw revenue drops in the second quarter of 2022\. Based on [Meta's 2022 Q3 earnings report](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2022/q3/Meta-09.30.2022-Exhibit-99.1-FINAL.pdf) \[PDF\], the company plunged 46% to earn $5.6 billion from operations against $10.4 billion in Q3 2021.
 
  This decline is a result of Meta facing stiff competition and several high-profile scandals, including employers opposing some of the company's practices. Also, the company's audacious plan to launch the metaverse has been a flop so far.
@@ -71,9 +84,15 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
  Meta has spent billions of dollars and tons of resources on this ambitious initiative, but it doesn't appear that people are interested. In the past, Meta (then Facebook) dominated headlines with record-breaking revenue, but in 2022, it trended on the crash of tech stock and layoffs.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## 5\. Amazon Alexa
 ![Amazon Halo Rise with Alexa](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Screen-Shot-2022-10-21-at-101710-PM.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
  Despite being one of the [most popular voice assistants](https://www.makeuseof.com/siri-vs-alexa-vs-google-smarter-answering-questions/) on the market, Alexa has had a troubling 2022\. Amazon's voice assistant has reportedly been reduced to only being used for trivial commands like playing music or asking about the weather. And several media reports, primarily based on a [Business Insider report](https://www.businessinsider.com/amazon-alexa-job-layoffs-rise-and-fall-2022-11) , claim that Alexa is on track to lose billions for Amazon.
 
  The company is said to utilize a business model that only actualizes earnings when people use their devices rather than when they buy them. As a result, as the applications of Alexa reduced, so did its income. And several customer reviews have further worsened the issue.
@@ -107,3 +126,46 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-music-sticker-how-to-get-the-music-sticker-on-instagram/"><u>[New] 2024 Approved  Instagram Music Sticker  How to Get the Music Sticker on Instagram</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-slow-motion-mastery-in-snapchat-tips-and-tricks-for-2024/"><u>[New] Slow Motion Mastery in Snapchat  Tips & Tricks for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-record-and-share-every-victory-in-obs-for-2024/"><u>[Updated] Record & Share Every Victory in OBS for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-syma-x5c-exploration-top-choice-for-novice-aerial-enthusiasts/"><u>[Updated] Syma X5C Exploration  Top Choice for Novice Aerial Enthusiasts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-examining-if-reviewers-get-payed/"><u>2024 Approved  Examining if Reviewers Get Payed</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-development-standards-facebook-partners-with-rust/"><u>Elevating Development Standards: Facebook Partners with Rust</u></a></li>
+<li><a href="https://facebook.techidaily.com/eluding-eyes-friend-list-anonymity-tips/"><u>Eluding Eyes: Friend List Anonymity Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/expatry-at-a-crossroads-the-good-and-the-bad-of-online-networks/"><u>Expatry at a Crossroads – The Good and The Bad of Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-exit-strategy-for-unforeseen-account-termination/"><u>Facebook Exit Strategy for Unforeseen Account Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-invisible-contributions-facebook-groups-guide/"><u>Facilitating Invisible Contributions: Facebook Groups Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-effortless-deletion-of-social-media-updates/"><u>Guide to Effortless Deletion of Social Media Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-a-clutter-free-space-with-facebook-integrated-tools/"><u>How to Keep a Clutter-Free Space with Facebook Integrated Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-apple-iphone-15-plus-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your Apple iPhone 15 Plus?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-fb-photo-description-tips/"><u>Instructional Guide: FB Photo Description Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-vr-creators-industrys-pioneers-for-2024/"><u>Leading VR Creators  Industry's Pioneers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ring-audio-and-visual-quality-in-youtube-videos-for-2024/"><u>Mastering Audio & Visual Quality in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-key-elements-of-fb-cover-pics/"><u>Maximizing Engagement: Key Elements of FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-timeline-shifted-full-encryption-pushed-to-2023/"><u>Meta's Timeline Shifted: Full Encryption Pushed to 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-sheryls-tenure-at-facebook/"><u>Navigating Success: Sheryl's Tenure at Facebook</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-video-formatting-made-easy-change-shape-size-and-aspect-ratio/"><u>New In 2024, Video Formatting Made Easy Change Shape, Size, and Aspect Ratio</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-engage-utilizing-your-social-media-profile-in-whatsapp/"><u>Personalize, Engage: Utilizing Your Social Media Profile in WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/picture-perfect-panoramas-creating-a-facebook-photo-mosaic/"><u>Picture Perfect Panoramas: Creating a Facebook Photo Mosaic</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-sight-concealing-posts-with-archive-function/"><u>Privacy in Sight: Concealing Posts with Archive Function</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-honor-70-lite-5g-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Honor 70 Lite 5G has been deleted.</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-former-facebook-interactions/"><u>Retrieving Former Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-rules-understanding-the-intricacies-of-fb-acquaintanceship/"><u>Secret Rules: Understanding the Intricacies of FB Acquaintanceship</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-the-7-step-approach-to-fb-management/"><u>Simplify: The 7-Step Approach to FB Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-pillar-why-facebook-is-indispensable/"><u>Social Media's Pillar: Why Facebook Is Indispensable</u></a></li>
+<li><a href="https://facebook.techidaily.com/solve-your-facebook-dilemmas-addressing-11-common-issues/"><u>Solve Your FaceBook Dilemmas: Addressing 11 Common Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-facebook-and-friends-down-for-a-day/"><u>Tech Turmoil: Facebook & Friends Down for a Day</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/the-most-engaged-twitters-most-watched-videos-for-2024/"><u>The Most Engaged  Twitter's Most Watched Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-struggle-against-the-permanence-of-fb-suggests/"><u>The Struggle Against the Permanence of FB Suggests</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-investors-in-the-social-platform/"><u>Today's Investors in the Social Platform</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-8-essential-mobile-apps-for-savvy-travelers/"><u>Top 8 Essential Mobile Apps for Savvy Travelers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/trending-upward-amplifying-your-youtube-audience-for-2024/"><u>Trending Upward  Amplifying Your YouTube Audience for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-idt-high-definition-codec-driver-issues-on-windows-11/"><u>Troubleshooting IDT High Definition Codec Driver Issues on Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-preferences-facebooks-upcoming-news-feed-study/"><u>Unveiling Preferences: Facebook's Upcoming News Feed Study</u></a></li>
+</ul></div>

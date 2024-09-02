@@ -1,7 +1,7 @@
 ---
 title: How to Evade Facebook's Watchful Eye
-date: 2024-07-12T10:37:17.644Z
-updated: 2024-07-13T10:37:17.644Z
+date: 2024-09-01T03:37:54.797Z
+updated: 2024-09-02T03:37:54.797Z
 tags:
   - facebook
 categories:
@@ -45,6 +45,9 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
  Facebook owns several other major social sites and services. The largest of these are Instagram and WhatsApp, both giants in their own right. If you're using Instagram, Facebook is tracking your data. The image-sharing social media platform is a Facebook Product with all the tracking and data privacy issues you can imagine.
@@ -67,16 +70,30 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
+
+ Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
+
+ DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
+ PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the [Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can [share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Facebook Tracks Users, Even Without an Account
 
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Is Facebook Tracking Me?
 
  Advertising and money. At this point, most internet users understand that online tracking is de rigueur. Each link is another opportunity for Facebook or another advertising company to track us.
@@ -91,12 +108,24 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Change Facebook Ad Preferences
 
  One of the first things you can do is change your [Facebook Ad Preferences](http://www.facebook.com/ads/preferences/) .
@@ -109,9 +138,15 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ### uBlock Origin
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
@@ -124,6 +159,9 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 **Download** : NoScript for [Firefox](https://addons.mozilla.org/en-GB/firefox/addon/noscript/) (Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Privacy Badger
 
  Privacy Badger is one of the next best things to NoScript. Where NoScript is for techies (but worth learning, I might add), you could install PrivacyBadger on your Grandma's computer, knowing she'll be protected**and** able to book flights.
@@ -168,6 +206,9 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
@@ -207,3 +248,39 @@ Image Credit: Sabphoto/Shutterstock
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-vlog-editing-essentials-utilizing-jump-cuts-rightly/"><u>[New] 2024 Approved  Vlog Editing Essentials  Utilizing Jump Cuts Rightly</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-all-star-software-selecting-best-bdr-players-for-pcmac/"><u>[New] All-Star Software  Selecting Best BDR Players for PC/Mac</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-enhance-motion-capture-choose-wisely-among-gear/"><u>[New] Enhance Motion Capture - Choose Wisely Among Gear</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-ultimate-guide-to-kinemasters-android-gameplay/"><u>[Updated] 2024 Approved  The Ultimate Guide to KineMaster's Android Gameplay</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-harmonizing-content-and-sound-in-instagram-reels-for-2024/"><u>[Updated] Harmonizing Content & Sound in Instagram Reels for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-revamped-podcast-chats-attracting-true-fans/"><u>[Updated] Revamped Podcast Chats  Attracting True Fans</u></a></li>
+<li><a href="https://facebook.techidaily.com/budget-friendly-but-flawed-a-closer-look-at-the-mobvoi-ticwatch-e2-review/"><u>Budget-Friendly but Flawed: A Closer Look at the Mobvoi TicWatch E2 Review</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comparing-samsung-galaxy-watch-active-2-to-its-predecessor-upgraded-connections-better-controls-and-advanced-insights/"><u>Comparing Samsung Galaxy Watch Active 2 to Its Predecessor - Upgraded Connections, Better Controls, and Advanced Insights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/te-your-youtube-presence-with-custom-animated-subscription-buttons-in-filmora-for-2024/"><u>Elevate Your YouTube Presence with Custom Animated Subscription Buttons in Filmora for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-meta-strategies-4-success-boosters/"><u>Essential META Strategies: 4 Success-Boosters</u></a></li>
+<li><a href="https://facebook.techidaily.com/expected-changes-on-facebook-new-reels-and-rooms-for-stories-panel/"><u>Expected Changes on Facebook: New Reels and Rooms for Stories Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-5m-push-for-new-media-landscape-in-authorship-and-publishing/"><u>Facebook's $5M Push for New Media Landscape in Authorship and Publishing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-g22-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia G22 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-samsung-galaxy-a54-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Samsung Galaxy A54 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-groups-including-every-member-on-facebook/"><u>Maximizing Groups: Including Every Member on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-now-offers-interactive-3d-virtual-spaces/"><u>Messenger Now Offers Interactive 3D Virtual Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-safety-measures-against-pandemic-related-hoaxes/"><u>Online Safety Measures Against Pandemic-Related Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinterest-and-reddits-invisible-data-monitoring-maintains-usability/"><u>Pinterest & Reddit's Invisible Data Monitoring Maintains Usability</u></a></li>
+<li><a href="https://facebook.techidaily.com/promoting-accuracy-social-sites-standing-against-covid-19-fallacies/"><u>Promoting Accuracy: Social Sites Standing Against COVID-19 Fallacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/refining-your-facebook-presence-for-success/"><u>Refining Your Facebook Presence for Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-interaction-facebooks-new-audio-capabilities/"><u>Revolutionizing Interaction: Facebook's New Audio Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-transient-conversations-in-fb-messenger/"><u>Secrets of Transient Conversations in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-online-presence-fb-tutorial/"><u>Securing Your Online Presence: FB Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-social-platforms-removing-instagram-linkage-to-fb/"><u>Separating Social Platforms: Removing Instagram Linkage to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattered-stars-pal-activists-impacting-facebook-ratings/"><u>Shattered Stars: Pal-Activists Impacting Facebook Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-anonymous-interaction-on-platforms/"><u>The Art of Anonymous Interaction on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/tip-list-for-keeping-personal-info-safe-on-fb/"><u>Tip List for Keeping Personal Info Safe on FB</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-4-pitfalls-in-leveraging-chatgpt-for-crafting-your-content/"><u>Top 4 Pitfalls in Leveraging ChatGPT for Crafting Your Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-utilities-for-marketing-professionals/"><u>Top 8 CrowdFlower Utilities for Marketing Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-significance-of-leaked-facebook-data/"><u>Understanding The Significance of Leaked Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearth-friendship-saga-journey-through-fb-timeline/"><u>Unearth Friendship Saga: Journey Through FB Timeline</u></a></li>
+</ul></div>

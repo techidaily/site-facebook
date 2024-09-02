@@ -1,7 +1,7 @@
 ---
 title: "Essential Steps to Fortify Accounts Using 2FA: Gmail & Beyond"
-date: 2024-07-12T10:34:58.858Z
-updated: 2024-07-13T10:34:58.858Z
+date: 2024-09-01T03:40:00.061Z
+updated: 2024-09-02T03:40:00.061Z
 tags:
   - facebook
 categories:
@@ -34,12 +34,18 @@ thumbnail: https://thmb.techidaily.com/5eac549bf0074d54dd4b3414ac1cd5ccda2e57524
 ### Google Prompt
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your [Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 ### Authenticator App
@@ -57,9 +63,15 @@ thumbnail: https://thmb.techidaily.com/5eac549bf0074d54dd4b3414ac1cd5ccda2e57524
 
  Each time you log in to your Google Account, you must provide the six-digit Google Authenticator code. If you don't have the code, you cannot access your account.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Microsoft Outlook
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
  To lock down your Outlook.com account, visit [your Microsoft account page](https://redirect.viglink.com?key=0d8d9af05d1abe663696ac39935d3f6b&u=https%3A%2F%2Faccount.microsoft.com%2Faccount%2FAccount) , select the**Security** tab, followed by**Advanced** **Security Options** . Under the**Two-step Verification** header, select**Turn on two-step verification** , then hit**Next** to proceed.
@@ -79,6 +91,9 @@ thumbnail: https://thmb.techidaily.com/5eac549bf0074d54dd4b3414ac1cd5ccda2e57524
 ## How to Set Up 2FA on Facebook
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your [Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
@@ -88,6 +103,18 @@ Locking your Facebook account is as important as your email address.
 ## How to Set Up 2FA on Twitter
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
  Head to your [Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
@@ -103,12 +130,18 @@ Locking your Facebook account is as important as your email address.
 
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Amazon
 
  Your Amazon account is another that requires serious security. If someone accesses your Amazon account, they can spend as if they were you. (Amazon does have additional security checks for new delivery addresses, but you shouldn't rely on that.)
 
  Head to your **Amazon Account Settings > Login & Security > Two-Step Verification (2SV) Settings.** Under Two-Step Verification (2SV) Settings, select**Edit > Get Started** . You can use SMS or an authenticator app. If you choose the latter, scan the QR code using the Authenticator app and follow the Amazon instructions.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 ## Switching On Two-Factor Authentication Is Worth It
 
  It takes a minute or two to set up 2FA security on all of your accounts. Of course, the accounts on this list aren't exhaustive. But you now understand how the 2FA process works, why 2FA is essential, and where you might find the settings in your other online accounts.
@@ -132,3 +165,63 @@ Locking your Facebook account is as important as your email address.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-achieving-clear-dialogue-in-google-hangouts/"><u>[New] Achieving Clear Dialogue in Google Hangouts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-charting-a-course-through-youtubes-copyright-maze-for-2024/"><u>[New] Charting a Course Through YouTube's Copyright Maze for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-essential-tiktok-gamers-you-cant-miss/"><u>[New] Essential TikTok Gamers You Can't Miss</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-art-of-film-capturing-essential-camera-movements-for-novices/"><u>[New] In 2024, The Art of Film Capturing  Essential Camera Movements for Novices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-capturing-creativity-android-photography-guide/"><u>[Updated] Capturing Creativity  Android Photography Guide</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-rapid-routines-easy-iphone-media-sharing/"><u>[Updated] In 2024, Rapid Routines  Easy iPhone Media Sharing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-the-comprehensive-affinity-guide-banishing-backgrounds-with-ease/"><u>[Updated] In 2024, The Comprehensive Affinity Guide  Banishing Backgrounds with Ease</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-beginning-conversations-in-the-cloud-mastering-zoom-on-android-phones/"><u>2024 Approved  Beginning Conversations in the Cloud  Mastering Zoom on Android Phones</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-upgrade-webcam-videos-with-simple-editing-techniques/"><u>2024 Approved  Upgrade WebCam Videos with Simple Editing Techniques</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/k-into-the-heart-of-youtubes-video-operations-for-2024/"><u>A Peek Into the Heart of YouTube's Video Operations for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/alternatives-to-nero-expertly-skip-copyright-restrictions-on-mac-for-legal-media-creation/"><u>Alternatives to Nero: Expertly Skip Copyright Restrictions on Mac for Legal Media Creation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/boosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>Boosting Engagement  Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-battery-powered-google-nest-doorbell-analysis/"><u>Comprehensive Battery Powered Google Nest Doorbell Analysis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/deciphering-bandicams-latest-2023-capabilities-for-2024/"><u>Deciphering Bandicam's Latest 2023 Capabilities for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-techniques-for-common-marketplace-cons-in-facebook-trade/"><u>Evasion Techniques for Common Marketplace Cons in Facebook Trade</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-envisions-wearable-with-dual-camera-capabilities-rumor-says/"><u>Facebook Envisions Wearable with Dual Camera Capabilities, Rumor Says</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-enhancements-set-to-transform-user-experience/"><u>Facebook's Chat Enhancements Set to Transform User Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-embrace-facebooks-latest-dating-service/"><u>How to Embrace Facebook's Latest Dating Service</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/how-to-make-a-thumbnail-for-your-youtube-free-easily/"><u>How to Make a Thumbnail for Your YouTube Free Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-manage-your-facebook-friend-list-wisely/"><u>How To Manage Your Facebook Friend List Wisely</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-overcome-steam-hitches-continuous-freeze-ups/"><u>How to Overcome Steam Hitches: Continuous Freeze-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/hush-the-chatter-removing-comments-from-social-media-feeds/"><u>Hush the Chatter: Removing Comments From Social Media Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-prime-moments-in-online-marketing/"><u>Identifying Prime Moments in Online Marketing</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-procedure-to-set-self-as-safe-on-fb/"><u>Identifying the Procedure to Set Self as Safe on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-strategies-for-maximizing-your-twitter-archive/"><u>In 2024, Strategies for Maximizing Your Twitter Archive</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-tailoring-your-youtube-videography-with-powerful-wm-maker-skills/"><u>In 2024, Tailoring Your YouTube Videography with Powerful WM Maker Skills</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-digital-platforms-into-company-culture/"><u>Integrating Digital Platforms Into Company Culture</u></a></li>
+<li><a href="https://games-able.techidaily.com/invisible-players-reducing-game-footprints/"><u>Invisible Players: Reducing Game Footprints</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-update-the-hidden-menace-to-facebook/"><u>IOS 14.5 Update: The Hidden Menace to Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-phones-data-collection-designed-for-demand-prediction/"><u>Is Your Phone's Data Collection Designed for Demand Prediction?</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-insights-into-facebooks-visibility-controls/"><u>Key Insights Into Facebook's Visibility Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-places-to-embark-on-a-freelancing-quest/"><u>Leading Places to Embark on a Freelancing Quest</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-facebook-timing-with-these-five-budget-friendly-techniques/"><u>Master the Art of Facebook Timing with These Five Budget-Friendly Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-undisclosed-strategy-sustains-cost-free-chatting-experience/"><u>Messenger's Undisclosed Strategy Sustains Cost-Free Chatting Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/music-meets-messenger-exploring-facebooks-next-big-move-with-spotify/"><u>Music Meets Messenger: Exploring Facebook's Next Big Move with Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-notables-the-top-4-shifts-in-online-societies/"><u>Networking Notables: The Top 4 Shifts in Online Societies</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-information-influx-what-will-users-say-about-fb-news/"><u>Optimizing Information Influx: What Will Users Say About FB News?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/perfecting-onestream-broadcasts-essential-strategies-explored/"><u>Perfecting OneStream Broadcasts  Essential Strategies Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-privacy-settings-for-fb-friends/"><u>Personalizing Privacy Settings for FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-blackout-alert-fb-wa-insta-offline-today/"><u>Platform Blackout Alert: FB, WA, Insta Offline Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/prioritizing-offline-over-onscreen-less-time-more-life/"><u>Prioritizing Offline Over Onscreen: Less Time, More Life</u></a></li>
+<li><a href="https://win-dash.techidaily.com/resolving-common-errors-with-the-samsung-universal-print-driver-for-windows-users/"><u>Resolving Common Errors with the Samsung Universal Print Driver for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-your-social-media-account-without-old-credentials/"><u>Reviving Your Social Media Account without Old Credentials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/seamless-sync-incorporating-songs-into-videos-using-your-iphone/"><u>Seamless Sync  Incorporating Songs Into Videos Using Your iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-for-the-savvy-employee-insights-and-strategies/"><u>Social Sites for the Savvy Employee: Insights & Strategies</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamline-your-connection-windows-driver-for-tp-link-device/"><u>Streamline Your Connection: Windows Driver for TP Link Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-growth-expectations-of-facebooks-physical-retail-presence/"><u>The Unseen Growth: Expectations of Facebook's Physical Retail Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/timely-tips-discover-5-free-methods-to-improve-fb-update-schedules/"><u>Timely Tips: Discover 5 Free Methods to Improve FB Update Schedules</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-factors-contributing-to-social-media-drop-off-phenomenon/"><u>Top 4 Factors Contributing to Social Media Drop-Off Phenomenon</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-lack-of-security-token-sending-by-facebook/"><u>Troubleshooting Lack of Security Token Sending by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-becomes-of-our-stored-memories-post-fb/"><u>What Becomes Of Our Stored Memories Post-FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-these-certain-ads-on-my-fb-feed/"><u>Why Are These Certain Ads on My Fb Feed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-business-cant-afford-to-ignore-these-6-benefits-from-facebook/"><u>Why Your Business Can’t Afford to Ignore These 6 Benefits From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/workplace-from-facebook-all-you-need-to-know/"><u>Workplace From Facebook: All You Need to Know</u></a></li>
+</ul></div>

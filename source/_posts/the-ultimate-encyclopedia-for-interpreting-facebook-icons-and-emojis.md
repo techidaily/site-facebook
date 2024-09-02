@@ -1,0 +1,259 @@
+---
+title: The Ultimate Encyclopedia for Interpreting Facebook Icons and Emojis
+date: 2024-09-01T03:42:09.929Z
+updated: 2024-09-02T03:42:09.929Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes The Ultimate Encyclopedia for Interpreting Facebook Icons and Emojis
+excerpt: This Article Describes The Ultimate Encyclopedia for Interpreting Facebook Icons and Emojis
+keywords: Facebook Icon Guidebook,Encyclomojicon Explained,Deciphering FB Emoji Meanings,Ultimate FB Icons Decoder,Understanding FB Symbols,Comprehensive FB Emoji Reference,Facebook Icon and Emoji Interpretation
+thumbnail: https://thmb.techidaily.com/7ac27936311540a3f6119be289d1db9f62edf4aff3e40a9a411ddbf297922d42.png
+---
+
+## The Ultimate Encyclopedia for Interpreting Facebook Icons and Emojis
+
+ Facebook's symbols aren't always easy to understand, particularly for newcomers. The sheer number of symbols to choose from on Facebook can be overwhelming.
+
+ In this article, we take a look at what all of these symbols mean, from the Like button to others you'll come across—such as icons on Facebook menus and symbols for your status update.
+
+## Social Facebook Symbols
+
+ The following are some of the more common Facebook icons for social interactions. Most people who use Facebook regularly will recognize them fairly easily.
+
+### Facebook Reaction Icons
+
+ One of the most central images in the Facebook brand is the famous "Like" icon. You can like anything on the site that you can comment on. Just click this button to let everyone know.
+
+ Facebook has expanded the**Like** button to include other symbols or reactions, including Love, Care, Haha, Wow, Sad, and Angry. These symbols express how the post makes you feel.
+
+![Reaction Icons on Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/reaction-icons-on-facebook-post.jpg)
+
+ To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
+
+### Create Post Symbols
+
+ Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
+
+ Below the text field in your**Create post** feature on a browser, you'll see a few initial symbols. There will be an icon to add a photo or video to your post, an icon to create a live video, and an icon to add a feeling or activity. The mobile app only offers photos and videos as a quick option.
+
+![Create Facebook Post Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/create-facebook-post-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
+ Once in the**Create post** window, there are a lot more icons to navigate. Besides the options already mentioned, there's an icon to tag friends in your post, a check-in feature that adds a location to your post, a flag icon that shares life events, and an ellipsis button for more features.
+
+![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
+ Hitting**More** shows the rest of the options that you have when creating a post on Facebook. This includes GIFs and raising money on the website. On mobile, you also get icons for music, the camera, and your post's background color.
+
+![More Tools for Creating a Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/more-tools-for-creating-a-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+ On the**Create post** window, you're also able to add emojis with the convenient**Emoji** icon nearby. The**Feeling/activity** button offers even more ways to share your emotions.
+
+ Hit this button to access two long lists of emojis under two categories. The first tab is titled**Feelings** and contains emojis to express the emotions driving your post.
+
+![Feelings Emojis for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/feelings-emojis-for-facebook-post.jpg)
+
+ The options in**Activities** are a bit more interesting as you can specify what you're doing. Clicking on any of these reveals more symbols for your post.
+
+![Activities Icons for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/activities-icons-for-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+ While you can only choose one feeling or activity to sit alongside your name on the post, the range of options here is honestly impressive and can benefit more than your personal posts.
+
+ If[Facebook's whitelisting feature](https://www.makeuseof.com/what-is-facebook-whitelisting/) interests you, for example, exploring this list of Facebook symbols and their meanings can give you ideas on how to promote different brands.
+
+ Some of the most important icons when creating a post on Facebook are in your**Post audience** window, accessible from the button right under your name on the post.
+
+![Symbols for Post Audience Facebook Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/symbols-for-post-audience-facebook-options.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
+What do these Facebook symbols mean?
+
+* **Globe (Public)** : Make your posts visible to anyone on the internet.
+* **Two people (Friends)** : All of your friends can see your posts.
+* **Two people, one faded (Friends except)** : Block specific friends from seeing your posts.
+* **One person (Specific friends)** : Show your posts to only certain friends.
+* **Lock (Only me)** : Only you can see the post.
+* **Gear (Custom)** : Add or remove friends or friends lists who can see the post.
+
+ It's very easy to customize the privacy of every Facebook post. There are limits, however. Explore Facebook's notification symbols and meanings all you want, but[seeing who viewed your Facebook profile](https://www.makeuseof.com/tag/can-really-see-viewed-facebook-profile/) is still a no-go. Even so, you have plenty of options to play with.
+
+ Another icon that might interest you when posting on your mobile device is a button with Instagram's logo on it. Toggle this feature to share your post on that platform, too.
+
+ All-in-all, creating a Facebook post comes with a great many symbols and tools, but the above are the most essential.
+
+## Icons When Managing Facebook Posts
+
+ It's also important to consider the symbols that show up alongside posts when you click the**Ellipsis** button in the upper right corner of a post window.
+
+ You'll have different options available to you depending on where the post is and who posted it.
+
+ In the example below of a post shared by the Facebook account's owner, we've got the following choices:
+
+* **Pin post** : This lets you pin this post to the top of your profile as the first one that people see.
+* **Save post** : This saves the post to a hidden collection that only you have access to.
+* **Edit post** : This lets you edit your post, add media, or change the text.
+* **Edit audience** : Change who can see this post.
+* **Turn off notifications** : Silence the notifications coming in from this post.
+* **Turn off translations** : This disables Facebook's translation feature.
+* **Edit date** : You can change the date and time of the post with this option.
+* **Move to archive** : This removes the post from your timeline without deleting it entirely.
+* **Move to Recycle bin** : The post will no longer be on your wall; Facebook deletes these Trashed posts automatically after thirty days.
+
+![Facebook Post Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-post-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
+ Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
+
+## Facebook Navigation Symbols
+
+ There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and[try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
+
+### Facebook Menu Icons
+
+ On the right side of this toolbar, you'll notice three buttons. The first pulls out a menu where you can find friends, search local events, create posts, stories, pages, or ads, and do a host of other things.
+
+![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+ The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
+
+![Chats Icon and Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/chats-icon-and-tools-on-facebook.jpg)
+
+ The**bell icon** is where you can view your Facebook notifications, broken into two filters:**All** and**Unread** . The**More** button contains icons for marking everything as read, adjusting settings, and opening a notifications window.
+
+![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
+
+ At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
+
+### Facebook Navigation Icons
+
+ These next Facebook symbols will be well-known to regular Facebook users. If you click on the**Home** tab, you'll see dozens of icons on the left side.
+
+ This is Facebook's main navigation area. Your options include but aren't limited to:
+
+* **Friends** : Connect with others that you may know on Facebook.
+* **Events** : Find events near you to attend.
+* **Marketplace** : Buy or sell products.
+* **Pages** : Browse pages for your favorite brands, hobbies, and celebs.
+* **Ads Manager** : Organize your ad campaigns.
+
+![Icons on Facebook's Navigation Sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/icons-on-facebook-s-navigation-sidebar.jpg)
+
+ Didn't realize you could do so much on Facebook? We're barely getting started. Hit**See More** for everything this sidebar has to offer, such as:
+
+* **Ad Centre** : Create and view your page adverts.
+* **Blood Donations** : Volunteer as a blood donor.
+* **Climate Science Center** : News and posts on ecology.
+* **Crisis Response** : News and services for crises.
+* **Fundraisers** : The GoFundMe of Facebook.
+
+* **Gaming video** : Watch live gaming on Facebook.
+* **Groups** : Find groups to join on Facebook.
+* **Live Videos** : Where all of those Facebook Live videos on your feed come from.
+* **Memories** : Go back in time and see what you posted years ago.
+* **Messenger** : Facebook's Messenger app.
+
+* **Most recent** **feeds** : Check out what you've seen and interacted with recently.
+* **News** : Catch up on news reports.
+* **Play games** : Some games that you can play on Facebook.
+* **Meta Quest** : A VR experience in the world of social media.
+* **Recent ad activity** : See ads you interacted with.
+* **Saved** : View your collection of Saved Facebook posts.
+
+ Spend time trying out Facebook's icons, buttons, and tabs to understand the platform's full capabilities. You can go from[downloading your entire Facebook history](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to[boosting your business with Meta tools](https://www.makeuseof.com/meta-business-tools/) .
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Symbols on Facebook: Explained
+
+ Once you know what all of these Facebook symbols mean, it's clear that this social network is good for much more than just scrolling mindlessly.
+
+ The best way to explore everything available on Facebook is to start searching. The second best way? Just hover over or click buttons. What are these icons next to names on Facebook? What do these hidden tabs do?
+
+ This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-high-fidelity-screen-capture-suite-review-march-2023/"><u>[New] In 2024, High-Fidelity Screen Capture Suite Review – March 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ropel-your-youtube-journey-breakthroughs-at-the-500-subscriber-mark/"><u>[New] Propel Your YouTube Journey  Breakthroughs at the 500-Subscriber Mark</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-craftsmanship-in-action-macs-5-elite-snipping-applications/"><u>[Updated] Craftsmanship in Action  Mac's 5 Elite Snipping Applications</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-first-row-leisure-10-alternatives-to-sports/"><u>[Updated] First Row Leisure  10 Alternatives to Sports</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-crescendo-of-creativity-the-best-matched-music-for-every-video-format/"><u>2024 Approved Crescendo of Creativity The Best Matched Music for Every Video Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-prior-bondings-on-the-social-network/"><u>Examining Prior Bondings on the Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/explore-most-trending-videos-in-your-feed/"><u>Explore Most Trending Videos in Your Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-fbcta-and-its-broader-effects/"><u>Exploring FBCTA and Its Broader Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-innovation-to-imposition-government-strikes-back-on-big-tech/"><u>From Innovation to Imposition: Government Strikes Back on Big Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-mundane-to-memorable-transforming-your-facebook-history/"><u>From Mundane to Memorable: Transforming Your Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-social-media-platform-like-facebook-justify-permitting-multiplicity-in-user-identity/"><u>How Does Social Media Platform Like Facebook Justify Permitting Multiplicity in User Identity?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-with-my-infinix-note-30-vip-by-stellar-video-repair-mobile-video-repair/"><u>How to fix videos not playing with my Infinix Note 30 VIP?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-resurrect-discarded-facebook-group-memberships/"><u>How to Resurrect Discarded Facebook Group Memberships</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-complete-fixes-to-solve-apple-iphone-15-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>In 2024, Complete Fixes To Solve Apple iPhone 15 Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-iphone-12-pro-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your iPhone 12 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-an-avatar-with-personal-touch-on-fb/"><u>Initiating an Avatar with Personal Touch on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-social-media-legacy-irreversible/"><u>Is Social Media Legacy Irreversible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/joe-bidens-cure-via-snap-fb-twitters-the-story/"><u>Joe Biden's Cure via SNAP, FB, Twitters: The Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-trade-key-business-meta-tools/"><u>Master Your Trade: Key Business Meta Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-complete-unsubscription-from-facebook/"><u>Mastering Complete Unsubscription From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-why-your-fears-are-justified/"><u>Meta: Why Your Fears Are Justified</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondly-a-recommended-route-by-google-for-linguistic-success/"><u>Mondly - A Recommended Route by Google for Linguistic Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-content-moderation-insights-into-fbs-tribunal/"><u>Navigating Content Moderation: Insights Into FB's Tribunal</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebooks-maze-your-essential-security-guidebook/"><u>Navigating Facebook's Maze: Your Essential Security Guidebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-the-tide-of-disenchanted-users-online/"><u>Navigating Through the Tide of Disenchanted Users Online</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-discover-the-top-10-android-video-editing-apps-free-and-paid/"><u>New Discover the Top 10 Android Video Editing Apps Free and Paid</u></a></li>
+<li><a href="https://facebook.techidaily.com/notice-missing-photos-in-digital-dialogues-messenger/"><u>Notice Missing Photos in Digital Dialogues, Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-digital-footprint-on-facebook/"><u>Personalizing Your Digital Footprint on Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pioneering-stability-mighty-three-legged-support/"><u>Pioneering Stability, Mighty Three-Legged Support</u></a></li>
+<li><a href="https://facebook.techidaily.com/premier-locations-to-scout-for-freelancer-roles/"><u>Premier Locations to Scout for Freelancer Roles</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-hackers-disrupt-facebooks-star-system/"><u>Pro-Palestinian Hackers Disrupt Facebook's Star System</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-interaction-exploring-metaverse-landscapes/"><u>Redefining Interaction: Exploring Metaverse Landscapes</u></a></li>
+<li><a href="https://facebook.techidaily.com/remove-spotifys-social-linkage-with-facebook-here/"><u>Remove Spotify's Social Linkage with Facebook Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-revealed-attracting-professionals-as-clients-via-fb/"><u>Secrets Revealed: Attracting Professionals as Clients via FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-spendback-a-guide-to-claiming-e-commerce-recoins/"><u>Secure Your Social Spendback: A Guide to Claiming E-Commerce Recoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-tweaking-your-kiddos-messenger-settings/"><u>Step-by-Step: Tweaking Your Kiddo's Messenger Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-hd-media-effective-facebook-mobile-sharing/"><u>Streamline HD Media: Effective Facebook Mobile Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-social-media-marketing-to-individual-preferences/"><u>Streamline Social Media Marketing to Individual Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-firms-content-moderation-under-legal-scrutiny/"><u>Tech Firms' Content Moderation Under Legal Scrutiny</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-powerhouse-of-marketing-top-8-benefits-for-business-pages-vs-individuals/"><u>The Powerhouse of Marketing: Top 8 Benefits for Business Pages vs Individuals</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-of-the-tale-dispelling-common-social-media-misconceptions/"><u>The Truth of the Tale: Dispelling Common Social Media Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwelcome-visitor-alert-detecting-facebook-security-issues/"><u>Unwelcome Visitor Alert: Detecting Facebook Security Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/whos-covid-battle-fund-enhanced-by-5m-from-facebook/"><u>WHO's COVID Battle Fund Enhanced by $5M From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-might-not-see-whats-popular-on-facebook/"><u>Why You Might Not See What's Popular on Facebook</u></a></li>
+</ul></div>

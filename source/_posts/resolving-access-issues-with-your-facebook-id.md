@@ -1,7 +1,7 @@
 ---
 title: Resolving Access Issues with Your Facebook ID
-date: 2024-07-12T10:36:22.345Z
-updated: 2024-07-13T10:36:22.345Z
+date: 2024-09-01T03:39:12.288Z
+updated: 2024-09-02T03:39:12.288Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,10 @@ To change your password:
 
  If you couldn't find a device where you were still logged into Facebook, proceed with the following recovery options.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ### Recover Your Account From Its Profile Page
 
  Use this option if you can access your profile from the account of a Facebook friend. This could be a friend or family member. Note that it will require logging out of the other account.
@@ -46,6 +50,9 @@ To change your password:
 
 ![Find Support or Report Profile option to recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Support-or-Report-Profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  From the next menu, select the appropriate option, in this case**Something else > Recover this account** .
 
 ![Facebook Recover This Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-recover-this-account.jpg)
@@ -56,6 +63,18 @@ To change your password:
 
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Option 2: Find and Recover Your Account With Contact Details
 
  If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the [Facebook recovery page](https://www.facebook.com/login/identify/) .
@@ -64,6 +83,9 @@ To change your password:
 
 ![Facebook Find Your Account menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Your-Account.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
  Once you have successfully managed to identify your account, you will see a summary of your profile. Before you proceed, carefully check if this really is your account and if you still have access to the email address or phone number listed. You may be able to choose between email or phone recovery.
 
 ![Facebook Reset Your Password With Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-reset-your-password-with-code.jpg)
@@ -80,6 +102,9 @@ To change your password:
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Log Back Into Your Facebook Account
 
  If you managed to regain access to your account, and if you suspect that [your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
@@ -102,10 +127,16 @@ To change your password:
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Click the**No longer have access to these?** link to start a new recovery process.
 
 ![Facebook Lost Access Recovery Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-lost-access-recovery-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
@@ -114,6 +145,10 @@ To change your password:
 
  You won't get back into your account immediately. First, you have to upload your ID to confirm it's really you who's trying to recover the account. Once you've done that, wait until Facebook gets in touch to confirm your ID verification. Be patient.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
 ## 4\. Report Your Hacked Facebook Account
 
  In the event that your account was hacked and is posting spam while you can no longer access it, you should report your Facebook account as compromised on [Facebook.com/hacked](http://www.facebook.com/hacked) .
@@ -126,6 +161,9 @@ To change your password:
 
  This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the [Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Confirm Your Identity With Facebook
 
  If all of Facebook's automated account recovery methods have failed, your last hope is Facebook support itself. Facebook has a [Help Center page](https://www.facebook.com/help/contact/183000765122339) that lets you confirm your identity.
@@ -140,6 +178,9 @@ To change your password:
 
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## If All Else Fails, Create a New Facebook Profile
 
  Over the past few years, we have received countless messages from people who weren't able to recover their Facebook accounts, even after going through all of these steps, one by one. Usually, their contact information was outdated, the recovery codes Facebook provided didn't work, or the company would never respond to verify their identity. And at that point, you're out of options.
@@ -165,3 +206,47 @@ To change your password:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-how-to-save-top-cloud-providers-rates-for-2024/"><u>[New] How to Save  Top Cloud Providers' Rates for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-leveraging-video-cropping-to-maximize-instagram-reach-for-2024/"><u>[New] Leveraging Video Cropping to Maximize Instagram Reach for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-gastronomic-genius-ideal-culinary-network-name-strategies-for-2024/"><u>[Updated] Gastronomic Genius  Ideal Culinary Network Name Strategies for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-securing-smooth-timelines-to-avoid-frame-drops-in-obs/"><u>2024 Approved  Securing Smooth Timelines to Avoid Frame Drops in OBS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elite-psd-fill-and-stroke-effects/"><u>Elite PSD Fill & Stroke Effects</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-to-repair-internet-connections-using-ethernet-on-pcs-running-windows-11-or-7/"><u>Expert Tips to Repair Internet Connections Using Ethernet on PCs Running Windows 11 or 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-in-the-professional-arena-key-tips-and-tricks/"><u>Facebook in the Professional Arena: Key Tips & Tricks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-lenovo-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Lenovo FRP Locks</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-overcome-frozen-notification-bars-and-posts/"><u>How to Overcome Frozen Notification Bars & Posts</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/htcs-masterpiece-in-vr-the-immersive-experience/"><u>HTC's Masterpiece in VR  The Immersive Experience</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-complete-understanding-of-srt-covering-everything-important/"><u>In 2024, Complete Understanding of SRT, Covering Everything Important</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-seamless-sound-selecting-4-websites-for-ringtones/"><u>In 2024, Seamless Sound  Selecting 4 Websites for Ringtones</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-digital-revolution-facebooks-new-identity/"><u>Inside the Digital Revolution: Facebook's New Identity</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/mac-hd-formatting-guide-a-video-walkthrough/"><u>Mac HD Formatting Guide: A Video Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-untagging-on-social-networks/"><u>Mastering the Art of Untagging on Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-image-impact-alt-text-strategies-for-facebook/"><u>Maximizing Image Impact: Alt-Text Strategies for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-suitable-social-platforms-for-seniors/"><u>Most Suitable Social Platforms For Seniors</u></a></li>
+<li><a href="https://facebook.techidaily.com/off-the-grid-erase-facebook-from-android-screen/"><u>Off the Grid: Erase Facebook From Android Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-facebook-web-view-in-the-app/"><u>Preventing Facebook Web View in the App</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-safe-path-dodge-these-invasive-applications/"><u>Privacy-Safe Path: Dodge These Invasive Applications</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-online-the-process-of-altering-your-name-on-facebook/"><u>Rebranding Online: The Process of Altering Your Name on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalizing-relationships-without-politics-in-sight/"><u>Revitalizing Relationships Without Politics in Sight</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-braces-for-a-cryptocurrency-commercial-surge/"><u>Social Media Braces for a Cryptocurrency Commercial Surge</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-showdown-tiktok-vs-the-giant-facebook/"><u>Social Media Showdown: TikTok Vs. The Giant, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-metas-delayed-rollout-of-end-to-end-encryption/"><u>The Case for Meta’s Delayed Rollout of End-to-End Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-process-to-disband-a-digital-fellowship/"><u>The Essential Process to Disband a Digital Fellowship</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mechanics-of-entry-into-facebooks-localized-spaces/"><u>The Mechanics of Entry Into Facebook's Localized Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-defense-against-hackers-employing-2fa-in-gmail-outlook-and-more/"><u>The Ultimate Defense Against Hackers: Employing 2FA in Gmail, Outlook & More</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-of-trends-for-fb-timeline-images/"><u>The Ultimate List of Trends for Fb Timeline Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ups-and-downs-of-life-with-facebook/"><u>The Ups and Downs of Life with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-whos-included-in-your-fb-blocked-list/"><u>Tracing Who's Included in Your FB Blocked List</u></a></li>
+<li><a href="https://facebook.techidaily.com/ultimate-collection-free-apps-for-social-media-control/"><u>Ultimate Collection: FREE Apps for Social Media Control</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-what-youve-watched-on-facebook-lately/"><u>Uncovering What You've Watched on Facebook Lately</u></a></li>
+<li><a href="https://facebook.techidaily.com/unhook-spotify-from-your-fb-account-now/"><u>Unhook Spotify From Your FB Account Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-creative-wealth-the-intersection-of-meta-reels-and-remunerations/"><u>Unlocking Creative Wealth: The Intersection of Meta, Reels & Remunerations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-facebooks-reason-for-multiple-personas-under-one-account/"><u>Unraveling Facebook's Reason for Multiple Personas Under One Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/welcome-to-metavetted-accounting-in-the-states/"><u>Welcome to Metavetted Accounting in the States</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-makes-a-good-facebook-home-device/"><u>What Makes a Good Facebook Home Device?</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-the-majority-in-facebook/"><u>Who Holds the Majority in Facebook?</u></a></li>
+</ul></div>

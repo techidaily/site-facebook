@@ -1,0 +1,239 @@
+---
+title: Key Sites for Procuring Freelance Positions
+date: 2024-09-01T03:46:20.322Z
+updated: 2024-09-02T03:46:20.322Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Key Sites for Procuring Freelance Positions
+excerpt: This Article Describes Key Sites for Procuring Freelance Positions
+keywords: Freelance Jobs Online,Online Freelancer Platforms,Gig Economy Job Sites,Professional Freelancing Websites,Remote Work Platforms,Freelancer Recruitment Websites,Online Freelance Marketplaces
+thumbnail: https://thmb.techidaily.com/9f78d218ca56a8e977ac9c156c6d3df029b653f49542887406f9b6531aa186a8.jpg
+---
+
+## Key Sites for Procuring Freelance Positions
+
+ Freelancing is a rewarding career and offers a degree of independence, all while doing something you love. When you're first starting out, finding work as a freelancer can feel daunting. You might find yourself completing low-paying gigs or working with annoying clients.
+
+ Luckily, there are plenty of places to find work. Although you may need to cut through the bad gigs initially, getting your foot in the door is essential.
+
+ Here is a selection of places that'll help you take the first steps on your journey to freelancing success, whether you're a writer, graphic designer, programmer, or something else.
+
+## 1. LinkedIn
+
+![job search filters on linkedin](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/linkedin-job-search.png)
+
+ As the go-to B2B social media network, you're probably not surprised to hear that LinkedIn is a great place to find freelance work.
+
+ Just like you can use the**Jobs** tab to search for full-time roles, the same is true for contracts and other gigs. To filter full-time jobs out, tick**Part-Time** ,**Other** ,**Contract** , and**Temporary** under**Job Type** .
+
+ Related:[Essential LinkedIn Profile Tips to Guarantee Success](https://www.makeuseof.com/tag/linkedin-profile-tips/)
+
+ But if you see a role advertised as full-time, don't hesitate to contact the job poster and see if they're open to freelancers. This is especially true if the job happens to be remote. They often won't be accepting freelancers, but it never hurts to try.
+
+ You can also use LinkedIn to find freelance work by using hashtags and keeping an eye out on your feed for people who may need your services.
+
+## 2\. Job Boards
+
+![We Work Remotely website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/we-work-from-home-website.jpg)
+
+ A lot of new freelancers go straight to the likes of[Upwork](https://www.upwork.com/) ,[Freelancer.com](https://www.freelancer.com/) , and[Fiverr](https://www.fiverr.com/) . Those platforms are handy for building a portfolio, but you'll have to sift through many low-paying gigs to find the gems.
+
+ Plenty of other job boards exist for finding work. And often, they will compensate you much better. Again, though, there are some bad-paying clients—so you'll need to read descriptions carefully.
+
+Job boards that you can find great gigs on include:
+
+* [We Work Remotely](https://weworkremotely.com/) (mainly for full-time work, but some part-time jobs are on there too)
+* [ProBlogger](https://problogger.com/)
+* [FlexJobs](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU96315/https://www.flexjobs.com/)
+* [SolidGigs](https://solidgigs.com/)
+
+ You can also use bigger job boards like[Indeed](https://www.indeed.com/) and[Neuvoo](https://neuvoo.com/) . Sign up for their newsletters to get the best roles delivered to your inbox.
+
+## 3. Facebook Groups
+
+![Vue.js developers Facebook Group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/vuejs-developers-facebook-group.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
+ Facebook can help you find pretty much anything, whether you're looking to buy from a local seller or meet like-minded people. And Facebook Groups are also beneficial when you're a freelancer.
+
+ To get the most out of Facebook Groups, you should join a mixture of Groups that are specifically for posting jobs, as well as Groups that are strictly for networking. Often, freelancers with too much work will offload some of their gigs to others via these means.
+
+ Here are some helpful Facebook groups to join if you’re a freelancer. Keep in mind that these groups are private, so you'll have to ask to join in order to become a member.
+
+* [Content Writing & Writers Work From Home](https://www.facebook.com/groups/contentWorkfromHome/)
+* [Vue.js for Hire](https://www.facebook.com/groups/vuejsforhire)
+* [Remote Work & Jobs for Digital Nomads](https://www.facebook.com/groups/remotework.digitalnomads/)
+
+## 4. Twitter
+
+![Twitter for freelance jobs](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/twitter-freelance-jobs.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
+ Twitter is a popular platform for freelancers to connect with others on the same path as them. But beyond that, it's also a great place to find freelance work.
+
+ Related:[Essential Twitter Tips for Beginners](https://www.makeuseof.com/tag/twitter-tips-for-beginners/)
+
+ One way you can use Twitter to find freelance roles is by following accounts promoting freelance gigs. There are numerous accounts like this for all niches. Here are some that you should consider following:
+
+* [FreelanceWritingJobs](https://twitter.com/FreelanceWJ) (@FreelanceWJ)
+* [UK/EU Editorial Jobs](https://twitter.com/journalism%5Fjobs) (@journalism\_jobs)
+* [Mediabistro](https://twitter.com/Mediabistro) (@Mediabistro)
+
+ You can also find freelance jobs by using hashtags related to the service you offer. Granted, you may need to scroll through a lot of background noise (and spam)—but you'll be rewarded if you're persistent enough.
+
+ Both of these tips work if you don't have a Twitter account; you can just use the search bar to look for hashtags and profiles. Of course, though, you won't be able to follow accounts.
+
+## 5\. Emails
+
+![A computer screen with coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/computer-screen-with-coffee.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
+</a>
+<!-- affiliate ads end -->
+ When you think of email pitches, chances are you're thinking of annoying salespeople. And yes, email pitches are sometimes irritating to receive. But they're only annoying if you make them that way.
+
+ Emailing companies you'd like to work with, or companies that you think would benefit from your services is a useful way to get your foot in the door. However, before doing this, it's wise to have a portfolio to show them—especially if you don’t know the other person.
+
+ With emailing, you have various options. The first is to send a letter of introduction. In this message, you simply state who you are, what you do, and how you feel you could add value to that company.
+
+ Letters of introduction are more of a long-term game. Rather than aiming to get work straight away, you're building rapport, so that company will keep you in mind if no openings currently exist.
+
+ If you're a writer, you can also send pitches through email. If you have a few article ideas that you think would look good on a company blog or magazine website, send a brief outline about your subject and why you think the piece would be interesting. Regardless of how you send emails, the key is to treat the recipient as a person.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+## Other Tips for Achieving Success as a Freelancer
+
+ In addition to the job-hunting methods that we outlined above, there are a few things you should keep in mind once you start getting serious about landing gigs.
+
+### Build Relationships
+
+![People shaking hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/people-shaking-hands.jpg)
+
+ The phrase "it's not what you know, but who you know" is especially important in the world of freelancing. Often, the best roles are hidden. And if you don't have a strong network, your risks of faltering are higher.
+
+ If networking events sound like a nightmare to you, don't worry. You've got plenty of options for building your network. For example, you can:
+
+* Comment on other people's social media posts
+* Join groups on LinkedIn
+* Take part in channels on Slack
+
+ You don't necessarily need an extensive network; just a group of people you know well enough to help you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Don't Drop Off When Things Are Going Well
+
+![A person using a laptop on the floor](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-using-a-laptop-on-floor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ The worst time to let down your guard is when things are going well in your freelance career—that is precisely when you might find that the tank begins to dry up.
+
+ While it's important not to burn yourself out, keeping the momentum going is a good idea. Even if you've got a healthy pool of clients, keep sending letters of introduction and networking with new people.
+
+ Related:[How to Grow Your Personal Brand on Social Media](https://www.makeuseof.com/tag/minimalist-guide-personal-branding-social-media/)
+
+ When you've got a steady base, you might want to focus more on your marketing, too. That way, you can start attracting clients rather than having to go out and get the work.
+
+### Offer Free Value
+
+![A person making a podcast](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/person-making-podcast.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ For others to trust you enough to want to spend their money on you, you must provide free value first. But that doesn't mean you need to work for free for other clients (though in some cases, doing so can be worth it).
+
+ Offering free value simply means sharing your knowledge with the world. You can publish how-to posts on LinkedIn or blog regularly on your website.
+
+ You can get creative with this, too. For example, have you wanted to start a podcast or YouTube channel for a while? Sharing your skillset this way can help attract clients.
+
+## Freelancing Isn’t as Scary as You Think
+
+ Regardless of what some people may tell you, you can enjoy a successful and sustainable freelance career in your field. However, you need to put in the effort.
+
+ Diversify how you search for work and market yourself. In the meantime, focus on offering your insights and building your network. You'll eventually find yourself in a healthy position and may find that work starts coming to you (instead of the other way around).
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-snapshots-of-life-compreenasive-guide-to-capturing-the-journey-of-playing-sims-4/"><u>[New] 2024 Approved  Snapshots of Life  Compreenasive Guide to Capturing the Journey of Playing Sims 4</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-masterful-descriptions-for-impactful-podcast-intros-for-2024/"><u>[New] Masterful Descriptions for Impactful Podcast Intros for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-undead-uprising-your-essential-compilation-of-zombie-gaming-for-2024/"><u>[Updated] Undead Uprising  Your Essential Compilation of Zombie Gaming for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-list-of-20-magic-words-for-marketing/"><u>2024 Approved  The Ultimate List of 20 Magic Words for Marketing</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/desktop-adventures-await-with-pokemon-unite-get-started-here/"><u>Desktop Adventures Await with Pokémon Unite - Get Started Here</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/distance-doesnt-matter-advanced-podcast-capturing-for-2024/"><u>Distance Doesn't Matter  Advanced Podcast Capturing for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-development-standards-facebook-partners-with-rust/"><u>Elevating Development Standards: Facebook Partners with Rust</u></a></li>
+<li><a href="https://facebook.techidaily.com/eluding-eyes-friend-list-anonymity-tips/"><u>Eluding Eyes: Friend List Anonymity Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-moderation-facebook-introduces-sophisticated-solutions/"><u>Enhancing Moderation: Facebook Introduces Sophisticated Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/expatry-at-a-crossroads-the-good-and-the-bad-of-online-networks/"><u>Expatry at a Crossroads – The Good and The Bad of Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-exit-strategy-for-unforeseen-account-termination/"><u>Facebook Exit Strategy for Unforeseen Account Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-enhancements-set-to-transform-user-experience/"><u>Facebook's Chat Enhancements Set to Transform User Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dawn-in-my-digital-history/"><u>Facebook's Dawn in My Digital History</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-launches-quirky-shopping-live-events-each-friday/"><u>FB Launches Quirky Shopping Live Events Each Friday</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-acer-screen-software-updates-downloaded-here/"><u>Get Your Acer Screen Software Updates Downloaded Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-effortless-deletion-of-social-media-updates/"><u>Guide to Effortless Deletion of Social Media Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-a-clutter-free-space-with-facebook-integrated-tools/"><u>How to Keep a Clutter-Free Space with Facebook Integrated Tools</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-vivo-y27s-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Vivo Y27s.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-excel-document-online-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Sign a Excel document online</u></a></li>
+<li><a href="https://facebook.techidaily.com/hush-the-chatter-removing-comments-from-social-media-feeds/"><u>Hush the Chatter: Removing Comments From Social Media Feeds</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On HTC U23 Pro | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-x-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone X online without jailbreak</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-civi-3-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Civi 3 Phone with Broken Screen</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-merge-moments-seamlessly-from-tiktok-to-facebook/"><u>In 2024, Merge Moments Seamlessly  From TikTok, To Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-permanent-exclusion-from-facebook-services/"><u>Initiating Permanent Exclusion From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneous-description-of-content-on-social-media-platforms/"><u>Instantaneous Description of Content on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-fb-photo-description-tips/"><u>Instructional Guide: FB Photo Description Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-unveils-a-major-obstacle-for-facebook-analytics/"><u>IOS 14.5 Unveils a Major Obstacle for Facebook Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-key-elements-of-fb-cover-pics/"><u>Maximizing Engagement: Key Elements of FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-timeline-shifted-full-encryption-pushed-to-2023/"><u>Meta's Timeline Shifted: Full Encryption Pushed to 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-sheryls-tenure-at-facebook/"><u>Navigating Success: Sheryl's Tenure at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-networking-places-for-older-users/"><u>Optimal Networking Places for Older Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/picture-perfect-panoramas-creating-a-facebook-photo-mosaic/"><u>Picture Perfect Panoramas: Creating a Facebook Photo Mosaic</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-blackout-alert-fb-wa-insta-offline-today/"><u>Platform Blackout Alert: FB, WA, Insta Offline Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-sight-concealing-posts-with-archive-function/"><u>Privacy in Sight: Concealing Posts with Archive Function</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-in-less-individual-focused-ad-campaigns/"><u>Reel In Less Individual-Focused Ad Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-former-facebook-interactions/"><u>Retrieving Former Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/secret-rules-understanding-the-intricacies-of-fb-acquaintanceship/"><u>Secret Rules: Understanding the Intricacies of FB Acquaintanceship</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-online-persona-understanding-these-9-breach-indicators/"><u>Securing Your Online Persona: Understanding These 9 Breach Indicators</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/smart-choices-which-voice-assistant-fits-you-best-alexa-or-google/"><u>Smart Choices: Which Voice Assistant Fits You Best, Alexa or Google?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-hiatus-taking-a-break-from-facebook-friends/"><u>Social Hiatus: Taking a Break From Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/solve-your-facebook-dilemmas-addressing-11-common-issues/"><u>Solve Your FaceBook Dilemmas: Addressing 11 Common Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-facebook-and-friends-down-for-a-day/"><u>Tech Turmoil: Facebook & Friends Down for a Day</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-heart-of-video-editing-filmoras-favorites-for-2024/"><u>The Heart of Video Editing  Filmora's Favorites for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-to-ensure-clear-messaging-in-multilingual-facebook-posts/"><u>Tips to Ensure Clear Messaging in Multilingual Facebook Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-investors-in-the-social-platform/"><u>Today's Investors in the Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-lack-of-security-token-sending-by-facebook/"><u>Troubleshooting Lack of Security Token Sending by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-webs-weaknesses-social-media-drawbacks/"><u>Unraveling the Web's Weaknesses: Social Media Drawbacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-these-certain-ads-on-my-fb-feed/"><u>Why Are These Certain Ads on My Fb Feed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-trump-return-to-the-blue-feed/"><u>Will Trump Return to the Blue Feed?</u></a></li>
+</ul></div>

@@ -1,0 +1,183 @@
+---
+title: "From Friendster to Meta: Facebook's Revolutionary Path"
+date: 2024-09-01T03:41:38.122Z
+updated: 2024-09-02T03:41:38.122Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes From Friendster to Meta: Facebook's Revolutionary Path"
+excerpt: "This Article Describes From Friendster to Meta: Facebook's Revolutionary Path"
+keywords: From Friendster To Meta,Facebook's Evolution,Social Media Transition,Platform Growth Trajectory,Redefining Connectivity,Digital Network Shift,Revolutionary Social Path
+thumbnail: https://thmb.techidaily.com/0d605cbff29d9fac95ea636e3f1dc6722b73dcac2e7b43e02dacf71b94afcc8e.jpg
+---
+
+## From Friendster to Meta: Facebook's Revolutionary Path
+
+ Facebook, the world's biggest social media site, celebrated its 19th birthday in 2023\. Over the years, both the platform and the company (now-rebranded to Meta) have grown exponentially and been part of several controversies.
+
+ Here, we'll take a look at the evolution of the American tech giant, from its humble beginnings in 2004 to its steps into the metaverse today.
+
+## 2004–2006: The Origin Story of Facebook
+
+![facebook logo zuckerberg feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-logo-zuckerberg-feature.jpg)
+
+ Mark Zuckerberg and his friends came up with an idea for a new website that connects all Harvard students. Their inspiration? Harvard's online student directory's "Face books." The technical insights came from his previous project Facemash—a "hot or not" website that compared female Harvard students side by side.
+
+ On February 4, 2004, Zuckerberg launched "TheFacebook" with his friends (they eventually dropped "The" in 2005). In the beginning, only Harvard students were allowed to create profiles on the site. But later, the site expanded to allow students from other colleges, with its user count reaching one million by September 2004.
+
+ Seeing this, the Winklevoss twins sued Zuckerberg, claiming he stole their idea for the social networking site. The twins had previously hired him to build their website ConnectU (formerly HarvardConnection), which would be based on the same concept. However, instead of helping them, Zuckerberg allegedly used the idea to build Facebook.
+
+ By December 2005, Facebook had six million users. It also had several new features, including the infamous Facebook Wall and News Feed. In April 2006, Facebook was out on mobile, and in September, they made the platform available to everyone on the internet of age 13 or above.
+
+## 2007–2009: The Inception of the Facebook Like Button
+
+![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-data.jpg)
+
+ With its global accessibility, Facebook jumped from 20 million users in April 2007 to 50 million users in October. Besides people, Facebook also pulled in companies and had around 100,000 business pages by the end of the same year.
+
+ In February 2008, the Facebook-Winklevoss lawsuit settled with Zuckerberg paying the twins a settlement of $65 million in cash and Facebook stock. Later, in July, the platform released its mobile app on iOS.
+
+ Soon after, Facebook added more features to its website and the app, including Chat, Pages, Facebook Ads, and video support. But the most significant of them was the infamous Like button, introduced in February 2009.
+
+## 2010–2012: Facebook Goes Public
+
+![Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-messenger.jpg)
+
+ After the advent of the Like button, Facebook made several changes to the platform. It improved the tagging of people in photos, liking comments, and the home page. Later, it launched new features like Facebook Places, Groups, Timeline, and Video calling.
+
+ By July 2010, Facebook had more than 500 million active users. And in November, it became the third-largest web company valued at a whopping $41 billion. Later, in August 2011, Facebook launched Messenger—a dedicated instant messaging app.
+
+ In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
+
+## 2013–2015: Facebook Enters New Territories
+
+![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
+
+ Image Credit: Temitiman/[Shutterstock](https://www.shutterstock.com/image-photo/magelang-central-java-indonesia-april-29-1383449651)
+
+ Soon after the IPO, investors accused Facebook of misleading them about its true state while revealing the truth to only a few handpicked clients. This resulted in over 40 lawsuits and a $35 million settlement.
+
+ In 2013, Facebook became a Fortune 500 company; this milestone clarified how popular the company has truly become. The same year, the company launched new features, like Videos and Direct on Instagram.
+
+ On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
+
+## 2016–2018: Controversies and Scandals
+
+![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
+ Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
+
+ To counter this, the platform introduced a new feature that allowed users to flag fake posts and pledged to improve the algorithm, but these efforts barely made any difference. The same year, Facebook also launched Reactions which allowed users to select from several emojis alongside the Like button.
+
+ In 2017, despite trying hard to restore its image, Facebook kept facing trouble with several reports of posts containing abuse, harassment, and hate speech. These were a wake-up call for the company to set up better regulatory measures.
+
+ The troubles continued in 2018 after a massive data breach involving a British consulting firm, Cambridge Analytica. Cambridge Analytica extracted the personal info of around 87 million Facebook users via an app called "This Is Your Digital Life."[The Facebook data was used to further Trump's position](https://www.makeuseof.com/tag/facebook-data-influence-elections/) in the 2016 US presidential elections.
+
+ The scandal led Zuckerberg and Facebook COO Sheryl Sandberg to testify before Congress. And the company paid a fine of £500,000 to the UK's Information Commissioner's Office for its part in the scandal.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
+## 2019–2021: Rebranding to Meta Backfires
+
+![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
+ Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
+
+ Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
+
+ In 2020, the company acquired GIPHY for $400 million and launched WhatsApp Payments, Instagram Reels, and other upgrades to its subsidiaries. But again, it became the talk of the town when it[changed WhatsApp's privacy policy](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) in February 2021\. The new privacy policy included sharing WhatsApp users' data with Facebook.
+
+ Unsurprisingly, this led a chunk of users to switch to other apps. However, barely affected by this, Facebook realized a peak market value of $1 trillion on June 28, 2021\. In October, a[global outage of Facebook, WhatsApp, and Instagram](https://www.makeuseof.com/facebook-whatsapp-instagram-down-right-now/) resulted in a loss of $6 billion.
+
+ Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 2022 and Beyond: Layoffs, Chaos, and Recovery
+
+![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
+ Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
+
+ Fast-forward to 2022, and Meta has already spent billions of dollars trying to build the metaverse and make its VR headsets as technologically advanced as possible—all while eroding more than 70% of its stock value amid a global recession.
+
+What comes next? Massive layoffs.
+
+ We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
+
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Meta Is in a Rough Place, But When Is It Not?
+
+ Despite the rebranding and a new vision, Meta is not free from its past. It continues to face countless difficulties in the form of technical, legal, ethical, and social issues.
+
+ But operating in challenging environments is not new for the company, and it's likely to continue recovering and growing regardless of its controversies and plunging into new territories. Only time will tell how fast it is actually able to do that, though.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-accelerate-with-these-key-windows-10-tricks/"><u>[New] Accelerate with These Key Windows 10 Tricks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-conquering-export-errors-for-srt-in-premiere-pro/"><u>[New] In 2024, Conquering Export Errors for SRT in Premiere Pro</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-youtube-to-webm-top-tier-conversion-applications-reviewed/"><u>[New] YouTube to WebM  Top-Tier Conversion Applications Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-a-step-by-step-approach-for-flawless-instagrams-for-2024/"><u>[Updated] A Step-by-Step Approach for Flawless Instagrams for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-level-up-your-screen-shots-the-experts-approach-to-ps4-capture/"><u>[Updated] In 2024, Level Up Your Screen Shots  The Expert's Approach to PS4 Capture</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-navigating-a-world-of-videos-made-easy-with-vidas-aid/"><u>2024 Approved  Navigating a World of Videos Made Easy with Vida's Aid</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-nokia-g22-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Nokia G22 FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-sites-and-locales-for-job-hunting-freelancer/"><u>Essential Sites & Locales for Job Hunting (Freelancer)</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-efficiency-and-security-trade-offs-in-social-app-sign-ups-via-facebook/"><u>Examining the Efficiency & Security Trade-Offs in Social App Sign-Ups via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-twitter-will-both-stream-wnba-games-this-season/"><u>Facebook and Twitter Will Both Stream WNBA Games This Season</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-crafting-new-audio-centric-interactions/"><u>Facebook Crafting New Audio-Centric Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/fraudsters-on-social-media-the-cloning-menace/"><u>Fraudsters on Social Media: The Cloning Menace</u></a></li>
+<li><a href="https://facebook.techidaily.com/fundamentals-of-hashtag-marketing-does-it-work-within-facebooks-social-fabric/"><u>Fundamentals of #Hashtag Marketing: Does It Work Within Facebook's Social Fabric?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ng-exposure-cost-effective-promotion-hacks-for-youtubers-for-2024/"><u>Gaining Exposure  Cost-Effective Promotion Hacks for YouTubers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-public-user-references-on-facebook/"><u>How to Avoid Public User References on Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Simulate GPS Movement in AR games On Apple iPhone 13 mini? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-a-threefold-approach-to-crafting-advertising-content-that-resonates-on-fb/"><u>In 2024, A Threefold Approach to Crafting Advertising Content that Resonates on FB</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-10-pro-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 10 Pro Bootloader Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactions-reimagined-unveiling-the-four-pivotal-socio-media-revolutions/"><u>Interactions Reimagined: Unveiling the Four Pivotal Socio-Media Revolutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/notification-service-identifying-disappeared-messages-on-messenger/"><u>Notification Service: Identifying Disappeared Messages on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-identity-redefined-politics-and-religion-on-the-decline/"><u>Online Identity Redefined: Politics & Religion on the Decline</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-friends-right-to-see-you-active/"><u>Optimize Friends' Right to See You Active</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/photographic-prose-ios-and-androids-best-caption-creators/"><u>Photographic Prose  IOS & Android's Best Caption Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneers-pushing-boundaries-triggering-discord/"><u>Pioneers Pushing Boundaries, Triggering Discord</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-focus-delete-facebook-tags-quickly/"><u>Privacy in Focus: Delete Facebook Tags Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-mobile-payments-facebooks-unique-subscriber-tie-ups-explored/"><u>Revolutionizing Mobile Payments: Facebook's Unique Subscriber Tie-Ups Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/separate-accounts-simpler-life-remove-instagram-from-fb/"><u>Separate Accounts, Simpler Life: Remove Instagram From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-identity-shift-with-an-updated-facebook-graphic/"><u>Simplifying Identity Shift with an Updated Facebook Graphic</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-silver-linings-top-9-reasons-for-connection/"><u>Social Media's Silver Linings: Top 9 Reasons for Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-a-second-round-at-instagrams-table/"><u>The Case for a Second-Round at Instagram's Table</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dilemma-is-linking-accounts-via-facebook-login-safe-and-practical/"><u>The Dilemma: Is Linking Accounts Via Facebook Login Safe & Practical?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-favored-social-network-again-post-code/"><u>Unlocking Your Favored Social Network Again Post Code</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-benefits-8-reasons-to-prefer-a-business-facebook-ppage/"><u>Unveiling the Benefits: 8 Reasons to Prefer a Business Facebook Ppage</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-the-three-countries-where-facebooks-illegal/"><u>What Are the Three Countries Where Facebook's Illegal?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-allows-a-person-to-maintain-separate-profiles-under-one-id/"><u>Why Facebook Allows a Person to Maintain Separate Profiles Under One ID?</u></a></li>
+</ul></div>

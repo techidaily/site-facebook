@@ -1,0 +1,184 @@
+---
+title: "Enhancing Your Online Presence: Facebook's Security Wisdom"
+date: 2024-09-01T03:51:11.568Z
+updated: 2024-09-02T03:51:11.568Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Enhancing Your Online Presence: Facebook's Security Wisdom"
+excerpt: "This Article Describes Enhancing Your Online Presence: Facebook's Security Wisdom"
+keywords: Online Presence Boosting,Facebook Security Tips,Enhance Social Media Safety,Protecting Your FB Account,Social Network Defense Guide,Secure FB Profile Use,Improve Internet Security
+thumbnail: https://thmb.techidaily.com/151e2edee1a0284cef5f2216fc95a6d76e6031c7de10b21fb5cd31a56d669f73.jpg
+---
+
+## Enhancing Your Online Presence: Facebook's Security Wisdom
+
+ When social media started building traction in the early 2000s, privacy was less of a concern due to the limitations of social media platforms, and perhaps because fewer people had access to the internet. Nowadays, thanks to security breaches and data leaks, we're all very aware that our digital privacy is volatile.
+
+ With the vast amount of information available on your Facebook profile, it's important to protect your privacy against identity theft, hackers, and people who may want to gain access to your account. By limiting personal data accessible by others, you can protect yourself and those around you.
+
+ To help you out, we've put together a checklist of steps you can take to lock down your Facebook profile. We've separated these by the different sections found within[Facebook's settings page](https://www.facebook.com/settings/) .
+
+**FREE DOWNLOAD:** This cheat sheet is available as a downloadable PDF from our distribution partner, TradePub. You will have to complete a short form to access it for the first time only. Download the[Ultimate Facebook Privacy and Security Checklist Cheat Sheet](https://makeuseof.tradepub.com/c/pubRD.mpl?secure=1&sr=pp&%5Ft=pp:&qf=w%5Fmakc252&ch=CSPFBPSS) .
+
+## 1. Security and Login
+
+![facebook login screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-login-screen.jpg)
+
+ Image Credit: Poring Studio/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-20-june-2019-facebook-1433132015)
+
+* Under the[Security and login](https://www.facebook.com/settings?tab=security) tab, check the**Where you're logged in** section to identify which devices you have logged into Facebook. If you see a browser or device you don't recognize, select the**three dots** next to it and choose**Log out** . If you notice anything suspicious, select**Not you?** .
+* If you believe someone might have access to your Facebook, navigate to the**Login** section of**Security and login** , then select**Change password** . You should[create a difficult to guess passphrase](https://www.makeuseof.com/tag/password-tools-create-strong-passphrases/) , not the same as any you've had before (include upper and lowercase letters, numbers, and special characters).
+* Don't want to save your login information? If someone else has access to your computer or devices, you can decide to not save your login information by editing the**Save your login information** option. Here you can remove an account or remove saved information from other devices.
+* To tighten your security even further, you can add[two-factor authentication](https://www.facebook.com/security/2fac/setup/intro/) to your Facebook account. You can use an authentication app, receive an SMS message, or security key when logging in from an unrecognized browser or device.
+* Be made aware of any[unrecognized Facebook login attempts](https://www.makeuseof.com/tag/check-accessing-facebook-account/) by option to**Get alerts about unrecognized logins** under the**Setting up extra security** section.
+
+## 2. Privacy
+
+![facebook privacy settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-settings-screen.jpg)
+
+ Image Credit: pixinoo/[Shutterstock](https://www.shutterstock.com/image-photo/houilles-france-april-10-2018hand-holding-1066441847)
+
+* You should ensure that the visibility of your current and future posts match your expectations. You can do this by visiting the[Privacy](https://www.facebook.com/settings?tab=privacy) tab and navigating to**Your activity** . Future posts can be set to public, friends, friends except, only me, or specific friends.
+* The activity section also allows you to review any posts or images you've been tagged in. You can accept or reject the tags by viewing the**Activity Log** .
+* If you would prefer people not to[view any of your past posts on Facebook](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) , you can choose to**limit the audience for old posts on your timeline** . This means any previous public posts or those you've shared with friends of friends will be limited to friends only.
+* Privacy doesn't just stop at your own information. You can limit the audience who sees the people, pages, and lists you follow. The same options apply here as they do for future posts.
+* Locking down your Facebook security can make it difficult for people to find you, but you can adjust the settings in the**How people can find and contact you** section. Here, you can allow everyone to send you friend requests, or only friends of friends.
+* If people can't find you via Facebook search using your name, they may be able to search for you by using the email address or phone number you provided when you signed up. You can remove this option by selecting**Only me** , or limit this to friends or friends of friends.
+* To ensure your Facebook profile cannot be found via search engines, select**No** under the **Do you want search engines outside Facebook to link to your profile** section.
+* Don't want to be hassled by strangers via Facebook Messenger? You can decide whether chats are received or filtered to message requests by adjusting your**Potential connections** and**Other people** in the**How you get message requests** settings.
+
+## 3. Profile and Tagging
+
+![facebook profile on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-profile-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
+ Image Credit: Alexey Boldin/[Shutterstock](https://www.shutterstock.com/image-photo/facebook-timeline-user-profile-on-apple-293731805)
+
+* Although you can review your tagged posts and photos elsewhere, you're able to adjust the global settings for these under the[Profile and tagging](https://www.facebook.com/settings?tab=timeline) tab. Here you can decide who can post on your profile.
+* Once someone has posted something, it's possible that posts on your profile by other people (friends, friends of friends, friends except, specific friends, and everyone) can be viewed. Be sure to set the audience to decide who can view posts by others on your profile.
+* If you want to further customize your profile settings, you can **hide comments containing certain words from your profile** by adding words, phrases, or emojis. This means the comments containing these words will remain visible only to those who wrote them, and their friends.
+* Allowing friends to tag you in photos or posts can be managed in the**Tagging** section. Here, you can limit who sees the posts you're tagged in, as well as the audience of the post.
+* Not sure whether you're happy with what you've been tagged in? You can review posts that you're tagged in or tags that people add to your posts under the**Reviewing** section.
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+## 4. Public Posts
+
+![reacting to facebook post on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/reacting-to-facebook-post-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Image Credit: Wachiwit/[Shutterstock](https://www.shutterstock.com/image-photo/bangkok-thailand-march-27-2018-facebook-1058022389)
+
+* The[Public posts](https://www.facebook.com/settings?tab=followers) tab in Facebook settings allows you to decide who can follow you (including your posts, stories, and reels). This information can either be shared publicly or with your friends only.
+* Once you've made a public post, you can adjust the audience that can comment on your posts. However, it's worth noting that if you limit this to friends, their friends may still be able to comment.
+* Some information on Facebook is always public, like your cover photos, profile pictures, and featured photos. You can manage who can like or comment on these, including public, friends of friends, or friends only.
+* If you've commented or been tagged in a public group post that is then shared outside of Facebook, you may want to disable previews so that your username and profile picture isn't displayed. This can be done through the**Off-Facebook previews** option.
+
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5. Blocking
+
+![facebook logo with no entry symbol](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-logo-with-no-entry-symbol.jpg)
+
+ Image Credit: Paparacy/[Shutterstock](https://www.shutterstock.com/image-photo/moscow-russia-april-19-2018-logo-1071882503)
+
+* Adding people to your restricted list on Facebook via the[Blocking](https://www.facebook.com/settings?tab=blocking) tab means they'll remain your friend on Facebook, but won't be able to see the posts you share with your friends only.
+* If you want to[block a user on Facebook](https://www.makeuseof.com/check-blocked-friends-facebook/) from seeing your timeline, tagging you, adding you as a friend, or even having a conversation with you, you can add them to your blocked list.
+* To block someone from your Facebook and Facebook Messenger, you can add them to your**Block messages** list. You'll need to ensure you block their profile on Facebook too.
+* Nuisance apps you don't want to receive notifications for? Using the**Block app invites** and**Block apps** options, you can stop invites from certain people to apps, or stop notifications from specific apps altogether.
+
+## 6\. Quick Tips
+
+![facebook privacy checkup](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-privacy-checkup.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Image Credit: AngieYeoh/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-13-2018-facebook-1067739068)
+
+* To ensure your privacy settings are up-to-date, you should run Facebook's Privacy Checkup under**Settings & Privacy** . This is a short overview of your existing settings showing you who can see what you share, how people find you, and more.
+* Under**General Settings** , you should make sure your name and contact details are accurate. If you lose access to your account and need to prove your identity, you'll have to be able to confirm your details.
+* Don't want Facebook to know where you are? Check the**Location** tab and turn off location history for your mobile devices.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Be Facebook Privacy Aware
+
+ By cleaning up past posts, being mindful of who sees your photos, and restricting access to your personal data, you can create a secure online presence on Facebook and other social media outlets. It's worthwhile reviewing these settings periodically to ensure that everything is as locked as you want it to be.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-cutting-edge-filmmaking-on-your-ios-device/"><u>[New] 2024 Approved  Cutting-Edge Filmmaking on Your iOS Device</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-channeling-success-the-personal-brand-strategy-for-youtubers-for-2024/"><u>[New] Channeling Success  The Personal Brand Strategy for YouTubers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-instagram-growth-strategy-handbook/"><u>[New] In 2024, The Instagram Growth Strategy Handbook</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-studio-editor-unveiled-ultimate-editing-companion-for-2024/"><u>[Updated] YouTube Studio Editor Unveiled  Ultimate Editing Companion for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/coexisting-screen-data-gathering/"><u>Coexisting Screen Data Gathering</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-advice-on-refreshing-your-audiophiles-sound-stage-cleaner-speakers-better-quality/"><u>Expert Advice on Refreshing Your Audiophile's Sound Stage - Cleaner Speakers, Better Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/extension-on-whatsapps-revised-terms-implementation-date/"><u>Extension on WhatsApp's Revised Terms Implementation Date</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-your-frozen-facebook-page/"><u>Fixing Your Frozen Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-avoid-pitfalls-in-facebooks-marketplace-space/"><u>How to Avoid Pitfalls in Facebook's Marketplace Space</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-enhance-visual-quality-with-lut-filters-in-obs-for-2024/"><u>How to Enhance Visual Quality with LUT Filters in OBS for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-14-pro-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 14 Pro Without a Passcode</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-itel-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Itel A05s | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/incorporating-chatgpt-into-your-writing-routine-successfully/"><u>Incorporating ChatGPT Into Your Writing Routine Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-digital-diet-a-pathway-to-wellness/"><u>Instagram's Digital Diet: A Pathway to Wellness?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-facts-alive-facebook-amps-up-against-hoaxes/"><u>Keeping Facts Alive: Facebook Amps Up Against Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-messages-potential-identity-swap/"><u>Masked Messages: Potential Identity Swap</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/master-multi-screen-setup-how-to-hook-up-both-monitors-to-your-notebook/"><u>Master Multi-Screen Setup: How To Hook Up Both Monitors to Your Notebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-social-screen-configuring-the-facebook-portal-tv/"><u>Master Your Social Screen: Configuring the Facebook Portal TV</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-windows-11-a-step-by-step-upgrade-guide/"><u>Mastering Windows 11  A Step-by-Step Upgrade Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-connectivity-with-smart-fb-followingunfollowing/"><u>Maximizing Connectivity with Smart FB Following/Unfollowing</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-direct-instagram-securement-delayed-till-2022/"><u>Messenger, Direct Instagram Securement Delayed 'Till 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-delete-disapproved-post-replies/"><u>Navigating the Nuances: Delete Disapproved Post Replies</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-in-2024-create-stunning-animations-best-android-and-iphone-apps-free/"><u>New In 2024, Create Stunning Animations Best Android and iPhone Apps (Free)</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalize-your-music-via-spotify-mini-on-facebook/"><u>Personalize Your Music via Spotify Mini on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/phoney-pages-identifying-social-swindlers/"><u>Phoney Pages: Identifying Social Swindlers</u></a></li>
+<li><a href="https://techidaily.com/repair-office-2023-files-word-excel-and-powerpointon-windows-by-stellar-guide/"><u>Repair Office 2023 Files (Word, Excel and PowerPoint)on Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-as-a-digital-trendsetter/"><u>Rising as a Digital Trendsetter</u></a></li>
+<li><a href="https://facebook.techidaily.com/room-ready-rookies-a-guide-to-effective-room-use/"><u>Room-Ready Rookies: A Guide to Effective Room Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-supervision-optimizing-your-engagement-via-new-fb-moderation-techniques/"><u>Social Synergy Supervision: Optimizing Your Engagement via New FB Moderation Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-internet-engagement-a-guide-to-lessen-facebook-activity/"><u>Streamlining Internet Engagement: A Guide to Lessen Facebook Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-evolution-continues-facebooks-rebuttal-to-the-end/"><u>The Evolution Continues - Facebook's Rebuttal to the End</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-guide-to-digital-grief-handling-facebook-profiles-of-the-deceased/"><u>The Guide to Digital Grief: Handling Facebook Profiles of the Deceased</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-step-by-step-blueprint-to-banishing-your-fb-brand-online/"><u>The Step-By-Step Blueprint to Banishing Your FB Brand Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-path-to-compromised-data-security/"><u>The Veiled Path to Compromised Data Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-effortless-changes-to-boost-your-facebook-usage/"><u>Top 10 Effortless Changes to Boost Your Facebook Usage</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-bug-fixes-in-phasmophobia-released-now/"><u>Top Bug Fixes in Phasmophobia Released Now!</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-why-chatgpt-no-longer-accepts-new-memberships-and-when-to-anticipate-a-comeback/"><u>Understanding Why ChatGPT No Longer Accepts New Memberships and When to Anticipate a Comeback?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-birthday-reminders-in-your-fb-timeline/"><u>Unearthing Birthday Reminders in Your FB Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocked-facebook-offers-complete-control-of-oculus-go-to-devices/"><u>Unlocked: Facebook Offers Complete Control of Oculus Go to Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-social-connections-start-with-facebook-dating/"><u>Unlocking Social Connections: Start with Facebook Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-the-latest-facebook-interface-overhaul/"><u>Unpacking the Latest Facebook Interface Overhaul</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-legality-of-upload-photographs/"><u>Unraveling the Legality of Upload Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-conspiracies-the-whistleblowers-expose-of-fb-data/"><u>Unveiling Conspiracies: The Whistleblower's Expose of FB Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-facebook-dating-how-to-get-started/"><u>What Is Facebook Dating? How to Get Started</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-behind-a-fake-fb-presence/"><u>What Lies Behind a Fake FB Presence?</u></a></li>
+</ul></div>

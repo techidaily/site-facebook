@@ -1,7 +1,7 @@
 ---
 title: Stop the Watchful Eyes of Facebook
-date: 2024-07-12T10:36:27.991Z
-updated: 2024-07-13T10:36:27.991Z
+date: 2024-09-01T03:39:18.605Z
+updated: 2024-09-02T03:39:18.605Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,11 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
@@ -61,12 +66,18 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
  The system in 2021 has changed somewhat, with Facebook's information about ad preferences and topics more shrowded. In the following image, you can see the updated [Ad Preferences page](http://www.facebook.com/ads/preferences/) and the various settings now available to you. Handily, you can now use the**Audience Based Advertising** page to see the pages tracking your profile and using your information to advertise to you.
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the [Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can [share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
@@ -105,10 +116,16 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### uBlock Origin
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
@@ -118,6 +135,9 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
 **Download:** uBlock Origin for [Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### NoScript
 
  NoScript is highly recommended but can be a steep learning curve. Your internet that works everywhere might suddenly be completely broken because of the blocked scripts. So while your privacy will be excellent, you might struggle to book flights, or even watch a video without tweaking your script settings. In that sense, it is highly customizable.
@@ -142,12 +162,19 @@ thumbnail: https://thmb.techidaily.com/830a114fa27984f8d212144f3dee11f785f5b8b66
 
 **Download:** Epic Privacy Browser for [Windows](https://cdn.epicbrowser.com/epicsetup.exe) |[macOS](https://cdn.epicbrowser.com/epic%5Fv71.0.3579.98.dmg) (Both Free)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Tor Browser
 
 [Tor](http://www.torproject.org/) is free anonymity software that usually runs as part of a modified Mozilla Firefox browser. It is well known as the home of darknet markets, dissidents, and other nefarious services. However, you can use it to stop trackers and keep your network traffic anonymous.
 
 **Download:** Tor Browser for Windows | macOS | Linux (All Free)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Brave
 
 [Brave](https://brave.com/) is a Chromium-based browser with a complete focus on privacy and security. It features an interesting approach to whitelisting: adding tiny micro-payments for your favorite publications.
@@ -168,12 +195,18 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
 
 **Download:** Cookie AutoDelete for [Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) |[Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Should You Block Facebook Tracking?
 
 Facebook tracking serves one purpose: Facebook advertising.
@@ -207,3 +240,39 @@ Image Credit: Sabphoto/Shutterstock
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-navigating-networks-generating-social-media-sensations-for-2024/"><u>[New] Navigating Networks  Generating Social Media Sensations for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-subscriber-youtube-connection-maximizing-engagement/"><u>[New] The Subscriber-YouTube Connection  Maximizing Engagement</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unveiling-8-best-tools-for-youtube-to-avi-conversion/"><u>[Updated] Unveiling 8 Best Tools for YouTube to AVI Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/budget-friendly-but-flawed-a-closer-look-at-the-mobvoi-ticwatch-e2-review/"><u>Budget-Friendly but Flawed: A Closer Look at the Mobvoi TicWatch E2 Review</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/enhance-info-blocks-templates-for-youtube-titles-for-2024/"><u>Enhance Info Blocks  Templates for YouTube Titles for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-meta-strategies-4-success-boosters/"><u>Essential META Strategies: 4 Success-Boosters</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/essential-strategies-for-capturing-starlit-self-portraits-for-2024/"><u>Essential Strategies for Capturing Starlit Self-Portraits for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expected-changes-on-facebook-new-reels-and-rooms-for-stories-panel/"><u>Expected Changes on Facebook: New Reels and Rooms for Stories Panel</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-hidden-messengers-in-digital-communication/"><u>Exploring Hidden Messengers in Digital Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-5m-push-for-new-media-landscape-in-authorship-and-publishing/"><u>Facebook's $5M Push for New Media Landscape in Authorship and Publishing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/high-quality-inexpensive-countdown-apps-for-2024/"><u>High-Quality Inexpensive Countdown Apps for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-scouting-the-superior-18-video-recorders-for-seamless-streams/"><u>In 2024, Scouting the Superior 18 Video Recorders for Seamless Streams</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-groups-including-every-member-on-facebook/"><u>Maximizing Groups: Including Every Member on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-now-offers-interactive-3d-virtual-spaces/"><u>Messenger Now Offers Interactive 3D Virtual Spaces</u></a></li>
+<li><a href="https://extra-information.techidaily.com/navigating-new-frontiers-a-guide-to-metaverse-promotion/"><u>Navigating New Frontiers  A Guide to Metaverse Promotion</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/next-level-vr-tools-top-8-selection-for-2024/"><u>Next-Level VR Tools  Top 8 Selection for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-safety-measures-against-pandemic-related-hoaxes/"><u>Online Safety Measures Against Pandemic-Related Hoaxes</u></a></li>
+<li><a href="https://facebook.techidaily.com/pinterest-and-reddits-invisible-data-monitoring-maintains-usability/"><u>Pinterest & Reddit's Invisible Data Monitoring Maintains Usability</u></a></li>
+<li><a href="https://facebook.techidaily.com/promoting-accuracy-social-sites-standing-against-covid-19-fallacies/"><u>Promoting Accuracy: Social Sites Standing Against COVID-19 Fallacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/refining-your-facebook-presence-for-success/"><u>Refining Your Facebook Presence for Success</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-graphic-driver-problems-with-cyberpunk-2077-on-pc-a-guide-for-windows-10/"><u>Resolving Graphic Driver Problems with Cyberpunk 2077 on PC: A Guide for Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-interaction-facebooks-new-audio-capabilities/"><u>Revolutionizing Interaction: Facebook's New Audio Capabilities</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/seamless-streaming-to-mp3-top-10-online-audio-tools/"><u>Seamless Streaming to Mp3  Top 10 Online Audio Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-of-transient-conversations-in-fb-messenger/"><u>Secrets of Transient Conversations in FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/separating-social-platforms-removing-instagram-linkage-to-fb/"><u>Separating Social Platforms: Removing Instagram Linkage to FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/shattered-stars-pal-activists-impacting-facebook-ratings/"><u>Shattered Stars: Pal-Activists Impacting Facebook Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-anonymous-interaction-on-platforms/"><u>The Art of Anonymous Interaction on Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-definitive-list-of-topical-tips-for-fb-security/"><u>The Definitive List of Topical Tips for FB Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/tip-list-for-keeping-personal-info-safe-on-fb/"><u>Tip List for Keeping Personal Info Safe on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-significance-of-leaked-facebook-data/"><u>Understanding The Significance of Leaked Facebook Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearth-friendship-saga-journey-through-fb-timeline/"><u>Unearth Friendship Saga: Journey Through FB Timeline</u></a></li>
+</ul></div>

@@ -1,0 +1,193 @@
+---
+title: "Gaining Control: Integrate Key Admins Into Your Pages"
+date: 2024-09-01T03:51:49.408Z
+updated: 2024-09-02T03:51:49.408Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Gaining Control: Integrate Key Admins Into Your Pages"
+excerpt: "This Article Describes Gaining Control: Integrate Key Admins Into Your Pages"
+keywords: Admin Page Integration,Gain Control Access,Admin Authority Management,Executive Page Ownership,Leadership in Admins,Key Admin Inclusion,Expertise in Pages
+thumbnail: https://thmb.techidaily.com/84dab43ab035d91cb56a4eae408b40758af9a9a2b096c95f61afee80ed15090c.jpg
+---
+
+## Gaining Control: Integrate Key Admins Into Your Pages
+
+ There are many ways to make your Facebook page as efficient as possible. Delegating responsibilities by adding another admin can be a major help as you won’t need to manage everything yourself.
+
+ Here’s how to make someone an admin on your Facebook page, but also what you need to know about what happens when you assign the role to another user's account...
+
+## What a New Admin Means for Your Facebook Page
+
+ When you create a Facebook page, you’re automatically its administrator, which lets you control everything on it. Among other things, you can add buttons, create ads, respond to comments, post from Instagram to Facebook, and assign page roles.
+
+You actually have five roles to choose from on a Facebook page:
+
+* Admin
+* Editor
+* Moderator
+* Advertiser
+* Analyst
+
+ Related:[How to Verify Your Facebook Business Page](https://www.makeuseof.com/verify-facebook-business-page/)
+
+ Each can use certain features on the page with the admin at the top of the hierarchy and in charge of all functions. In other words, adding a Facebook administrator is a big deal.
+
+ Make sure your new admin is reliable and someone you're comfortable working with. You don’t want to clash or end up being kicked off the page.
+
+ Choosing the right people for the different roles ensures the page’s smooth performance and security.
+
+## How to Add an Admin to Your Facebook Page on Browser
+
+ If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
+### 1\. Go to Your Facebook Page
+
+ Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
+
+ Scroll down to**Settings** , where you can customize features on a deeper level.
+
+![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
+
+### 2\. Click on Settings
+
+ Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
+
+ In terms of how to make someone an admin on your Facebook page, you need to visit the**Page roles** tab on the**Page settings** menu.
+
+![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
+### 3\. Click on Page Roles
+
+ The**Page roles** tab is all about assembling your team. If you want to know exactly what each role can access, read[Facebook’s](https://www.facebook.com/help/289207354498410) [guide](http://www.facebook.com/help/289207354498410) carefully before making any decisive moves.
+
+ When you’re sure you want a new admin for your Facebook page and you have someone ready for the role, go to the**Assign a new Page role** section.
+
+### 4\. Assign a New Page Administrator
+
+ Firstly, you need the person’s Facebook name or email address. Put either one in the available field and choose a role for them from the toggle bar—in this case**Admin** .
+
+ To help with the process, you get a brief description under the field detailing what each role can do on the page.
+
+ Finally, click the**Add** button. Your pending team member appears under**Existing Page roles** and gets a notification about their new status. If they accept, the change becomes official.
+
+![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
+### 5\. Edit an Admin’s Page Role to Remove Them
+
+ If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
+
+ This opens a window where you can change their role or delete them completely from your team. To add someone else as an admin, just go through Facebook’s role assigning process again.
+
+![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
+## How to Add an Admin to Your Facebook Page on Mobile
+
+ The steps for assigning a new page admin role on Facebook are the same on mobile, except that the dashboard and buttons differ slightly from the browser-based system.
+
+Android and iOS platforms differ slightly as well.
+
+ Related:[Here's What Facebook's New Page Labels Mean](https://www.makeuseof.com/what-facebook-new-page-labels-mean/)
+
+![Facebook Page Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-page-settings.png)
+
+![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
+![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Close
+
+ Either way, go to**Settings > Page Roles > Add Person to Page** .
+
+The app usually asks for your password to reach the final steps.
+
+ Also, there’s a glitch to keep in mind: you can change yourself from admin into another role, but you can’t switch it back.
+
+## Learn How to Manage Your Facebook Communities and Boost Interaction
+
+ Adding an admin to your Facebook page or group is not only the only way to improve, especially when it comes to creating great communities and running them to perfection.
+
+ There are several measures you can take to keep members happy, safe, and active, like enabling anonymous posting, setting firm rules, and monitoring the situation with your team’s help. All-in-all, good cooperation and communication are key.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/-comprehensive-tutorial-for-transforming-vids-into-dollars/"><u>[New] A Comprehensive Tutorial for Transforming Vids Into Dollars</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-from-setup-to-screening-wirecasts-role-in-facebook-streaming/"><u>[New] In 2024, From Setup to Screening  Wirecast’s Role in Facebook Streaming</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-multiplying-joy-sharing-a-pile-of-photos-and-videos-with-instagram/"><u>[Updated] 2024 Approved  Multiplying Joy  Sharing a Pile of Photos & Videos with Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-elite-visualization-suite-for-win-11-users/"><u>[Updated] Elite Visualization Suite for Win 11 Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mastering-social-media-top-10-ingenious-igtv-methods-for-brands/"><u>[Updated] In 2024, Mastering Social Media  Top 10 Ingenious IGTV Methods for Brands</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-time-lapse-magic-a-samsung-photo-guide-for-2024/"><u>[Updated] Time-Lapse Magic  A Samsung Photo Guide for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/boost-viewers-interaction-via-youtube-cards/"><u>Boost Viewers Interaction via YouTube Cards</u></a></li>
+<li><a href="https://facebook.techidaily.com/endgame-irreversible-termination-of-your-facebook-account/"><u>Endgame: Irreversible Termination of Your Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-legends-excise-snapchat-twitter-for-mental-health/"><u>England's Football Legends Excise Snapchat, Twitter for Mental Health</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tips-for-overcoming-top-11-facebook-glitches/"><u>Essential Tips for Overcoming Top 11 Facebook Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/expand-your-audience-with-multilingual-content-on-facebook/"><u>Expand Your Audience with Multilingual Content on Facebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-techniques-in-creating-timelapses-on-black-hero5-for-2024/"><u>Expert Techniques in Creating Timelapses on Black Hero5 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/googles-major-stories-of-the-year-a-review/"><u>Google’s Major Stories of the Year: A Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-vivo-s17e-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Vivo S17e</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-v30-pro-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo V30 Pro Phone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-virtual-sessions-a-compreayer-to-using-zoom-in-windows-10/"><u>In 2024, Mastering Virtual Sessions  A Compreayer to Using Zoom in Windows 10</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-testing-of-asus-rt-ac88u-does-it-deliver-for-gamers/"><u>In-Depth Testing of Asus RT-AC88U - Does It Deliver for Gamers?</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-2045-a-dream-of-a-renewed-iconic-app/"><u>Instagram 2045: A Dream of a Renewed Iconic App</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-reels-now-featuring-branded-content-trials/"><u>Instagram’s Reels Now Featuring Branded Content Trials</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/learn-to-leverage-kinemasters-features-for-maximum-gaming-fun-then-compare-for-2024/"><u>Learn to Leverage KineMaster's Features for Maximum Gaming Fun, Then Compare for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-ripl-for-high-engagement-smm-content/"><u>Leveraging Ripl for High-Engagement SMM Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-milestones-six-intriguing-facebook-updates/"><u>Metaverse Milestones: Six Intriguing Facebook Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/misleading-interfaces-and-your-data-vulnerability/"><u>Misleading Interfaces and Your Data Vulnerability</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/missing-network-printer-how-to-restore-visibility/"><u>Missing Network Printer - How to Restore Visibility</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/prime-locations-to-find-rich-text-enhancements-for-2024/"><u>Prime Locations to Find Rich Text Enhancements for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reinvent-your-brand-on-facebook-focus-on-nameurl/"><u>Reinvent Your Brand on Facebook: Focus on Name/URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewing-perspectives-the-journey-away-from-fb/"><u>Renewing Perspectives: The Journey Away From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-yourself-the-list-of-sharing-no-goes-on-social-platforms/"><u>Secure Yourself: The List of Sharing No-Goes on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/shutting-down-integrated-facebook-navigation/"><u>Shutting Down Integrated Facebook Navigation</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-instructions-revoking-a-social-media-post/"><u>Step-by-Step Instructions: Revoking a Social Media Post</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-vivo-y56-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Vivo Y56 5G FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-privacy-to-the-next-level-facebooks-messenger-and-instagram-now-have-encrypted-conversations/"><u>Taking Privacy to the Next Level: Facebook's Messenger and Instagram Now Have Encrypted Conversations.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-to-understand-for-better-control-over-your-data-with-facebook/"><u>The Essentials to Understand for Better Control Over Your Data with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-mysterious-manifestation-of-acceptance-on-fb-friends/"><u>The Mysterious Manifestation of Acceptance on FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-perfect-moment-to-overhaul-facebook-image/"><u>The Perfect Moment to Overhaul Facebook Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-shaping-of-our-world-the-case-of-facebook/"><u>The Social Media Shaping of Our World: The Case of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-sites-designed-for-elders-engagement/"><u>Top 5 Sites Designed for Elders' Engagement</u></a></li>
+<li><a href="https://program-issues.techidaily.com/unlocking-access-to-avatar-frontiers-of-pandora-steps-to-overcome-initialization-problems/"><u>Unlocking Access to Avatar: Frontiers of Pandora - Steps to Overcome Initialization Problems</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unveiling-the-secrets-of-aether-comprehensive-insight-and-membership-processes/"><u>Unveiling the Secrets of Aether: Comprehensive Insight and Membership Processes</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-to-our-memories-in-fbs-absence/"><u>What Happens to Our Memories in FB's Absence?</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Spotify Accessibility Within the Comfort of Facebook
-date: 2024-09-01T03:55:45.539Z
-updated: 2024-09-02T03:55:45.539Z
+date: 2024-09-05T09:31:22.910Z
+updated: 2024-09-06T09:31:22.910Z
 tags:
   - facebook
 categories:
@@ -19,14 +19,32 @@ thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f7
 
  We're going to explain what the Spotify miniplayer is, how to use it, and what features premium and free users get while using the feature on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is the Spotify Miniplayer?
 
 ![Spotify Miniplayer screen example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Before the Spotify miniplayer, sharing songs from Spotify directly to Facebook had a bit of an issue. Instead of being able to listen to the shared music in your Facebook app, you would automatically be taken to the Spotify app.
 
  Those days are over as Spotify has created a way for you to listen to any shared song in the Facebook app. You can scroll through your news feed and navigate throughout the app while still being able to listen to your music.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Who Can Use the Spotify Miniplayer?
 
  Anyone with a Spotify account is able to use the miniplayer. The features you have will depend on[the Spotify subscription that you have](https://www.makeuseof.com/tag/which-spotify-subscription-is-best/) .
@@ -36,14 +54,26 @@ thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f7
  Premium users will enjoy free rein when using their Spotify miniplayer. The feature offers full control over playability and which songs you listen to. There are also no ads interjected between tunes for premium users.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Use the Spotify Miniplayer on Facebook
 
 ![Using Spotify Miniplayer on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/spotify-miniplayer-example.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Once you find a shared track in your news feed, click the track to listen like you normally would.
 
@@ -54,7 +84,10 @@ thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f7
  If you're concerned about what is being shared between Spotify and Facebook, there are ways you can[limit the amount of data that Facebook shares with Spotify](https://www.makeuseof.com/stop-facebook-sharing-data-with-spotify/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Listen to Spotify Using the Facebook App
 

@@ -1,7 +1,7 @@
 ---
 title: "From Restricted to Total Freedom: The Impact of Facebook's Oculus Go Decision"
-date: 2024-09-01T03:56:47.428Z
-updated: 2024-09-02T03:56:47.428Z
+date: 2024-09-05T09:31:22.054Z
+updated: 2024-09-06T09:31:22.054Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,28 @@ keywords: Oculus Go Unrestricted Access,Virtual Reality Freedom Boost,Social Med
 thumbnail: https://thmb.techidaily.com/1ba8434482e5a95a933047ceef5f17b18e8ca4e1285ed40b4bdaada044e82ad5.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## From Restricted to Total Freedom: The Impact of Facebook's Oculus Go Decision
 
  Recently, developer and consulting CTO behind Oculus VR—John Carmack—confirmed that the Oculus Go would get an unlocked OS build that can get full root access. Even though it may sound confusing, this is great news for Go users. Here's what you need to know.
 
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Oculus Go Is Getting Unlocked Root Access
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-top-buttons.jpg)
@@ -27,10 +45,22 @@ thumbnail: https://thmb.techidaily.com/1ba8434482e5a95a933047ceef5f17b18e8ca4e12
 
  Related:[How to Introduce Older People to VR](https://www.makeuseof.com/how-to-introduce-older-people-vr/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Does This Mean to Oculus Go Users?
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/05/oculus-go-kai-use.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The Oculus Go was first introduced back in 2018, and critics considered it a low-end VR headset primarily for media consumption. Facebook first dropped the Oculus Go from the enterprise website back in January 2020, and then it altogether discontinued it in June 2020\. Afterward, as of last December, the Oculus Go couldn't update apps anymore or accept new apps in its Go store.
 
  Giving the Oculus Go full Root Access will provide users with more control over their VR headsets. This means that users could change the home interface and even install new apps that developers design for the Go. What's more is that, as Carmack puts it, any Oculus Go system will be able to update to the final software version even after Facebook has shut the servers down.
@@ -38,7 +68,10 @@ thumbnail: https://thmb.techidaily.com/1ba8434482e5a95a933047ceef5f17b18e8ca4e12
  The Oculus Go's root access represents many possibilities for the community as a whole. It will basically get rid of many of the limitations the headset currently has. And it opens the door for many other opportunities, like using external hardware with the Go. Of course, this will also depend on what the developers are willing to do for the Oculus Go once root access is available.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is Root Access the Future of Oculus?
 
@@ -47,7 +80,10 @@ thumbnail: https://thmb.techidaily.com/1ba8434482e5a95a933047ceef5f17b18e8ca4e12
  Related:[Things You Must Do When You First Get an Oculus Quest 2](https://www.makeuseof.com/things-must-do-when-first-get-oculus-quest-2/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Time to Play the Waiting Game
 

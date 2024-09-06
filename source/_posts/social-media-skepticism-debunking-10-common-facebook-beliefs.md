@@ -1,7 +1,7 @@
 ---
 title: "Social Media Skepticism: Debunking 10 Common Facebook Beliefs"
-date: 2024-09-01T03:57:15.751Z
-updated: 2024-09-02T03:57:15.751Z
+date: 2024-09-05T09:31:21.668Z
+updated: 2024-09-06T09:31:21.668Z
 tags:
   - facebook
 categories:
@@ -19,10 +19,28 @@ thumbnail: https://thmb.techidaily.com/1b4d426689bd18514a96cb95968cc5a755b1ea7a2
 
 Let's bust some common Facebook myths that are floating around.
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. People Can See Who Viewed Their Profile
 
 ![A phone with Facebook logo laying next to scrabble letters spelling out social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/social-media-for-socialization.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Pixabay free image
 
  No one can see who viewed their profile, and that's final. There is no Facebook trick that can do that, no app which will magically show you how your ex is stalking you, and no way to find out if the creepy guy from HR is endlessly clicking through your photos.
@@ -33,27 +51,45 @@ Pixabay free image
 
 > "No, Facebook doesn't tell people that you've seen their profile. Third-party apps also can't provide this functionality. Facebook also wants your help in dealing with apps that are scamming people by claiming they have this ability. So if you come across anything that claims to offer this, please report the app."
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Facebook Messages From My Friends Are Safe to Click
 
 ![woman in a christmas sweater holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-christmas-sweater.jpg)
 
  Your friends would never want to harm you, and you're right about that. Unfortunately, online miscreants try to take advantage of this trust. Sometimes, you'll get a weird message from your friend asking you to click a link. Don't do it![Facebook scams are becoming all too common](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , so you need to exercise the same precautions here as you would elsewhere on the internet. If you have received a message from a friend with a link, before you click it, ask them whether they intended to send that to you. If it's a public post, go through the comments and see if anyone has warned that this is a hoax or a virus.
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Facebook Is Going to Charge You Money
 
 ![Cybersecurity measures of sites with payment methods](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Cybersecurity-measures-of-sites-with-payment-methods.jpg)
 
  Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Facebook Owns My Photos and Sells Them for Ads
 
 ![Young woman using her smartphone and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(7).jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Another rumor claimed that Facebook is selling your photos to advertisers. But Facebook explicitly states: "No, we don't sell your information. Instead, based on the information we have, advertisers and other partners pay us to show you personalized ads on the Facebook family of apps and technologies."
 
@@ -67,33 +103,47 @@ Pixabay free image
 
 ![Woman's hand handling a phone with a cup of coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/My-project-(4)-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  When it comes to content ownership on Facebook, there are some things you need to know. Facebook is a place where you can post and share content, however, you need to make sure that the content you post is yours. If you post other people's content without their permission, you could be infringing copyright.
 
  In other words, don't share content you don't own or have a right to share. You can use a[Rights Manager](https://www.facebook.com/formedia/tools/rights-manager) to protect your own intellectual property if you are a content creator.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ## 6\. It's Easy to Quit Facebook
 
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53).jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  There are so many[privacy benefits of deleting social media accounts](https://www.makeuseof.com/privacy-benefits-deleting-social-media-accounts/) . While one option to keep Facebook away from using your data is to just quit Facebook, you'll be surprised how difficult it is to delete your account. Facebook has an entire help section on deactivating and deleting accounts, but it's still not as simple as that!
 
  For starters, even if you[tell Facebook to delete your account](https://www.makeuseof.com/tag/delete-facebook-account/) , it doesn't happen immediately. You will have to wait at least 30 days and Facebook says that deleting every single instance of you from its social network might take months. It also says that, "Some information, like messages you sent to friends, may still be visible to them after you delete your account."
 
  You'll also need to manually disconnect any app you have connected to Facebook, uninstall the Facebook app from your phone and tablet, as well as clear out your browser history.
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. If I Don't Use Facebook, It Doesn't Know Anything About Me
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
@@ -102,7 +152,10 @@ Pixabay free image
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 8\. Facebook Is Getting a Dislike Button
 
@@ -114,15 +167,16 @@ Pixabay free image
 
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
 
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
  Have you ever seen a message saying that if you are not using your account, it will be deleted? The message goes on to ask you to prove you're active by copy-pasting that message or downloading something, otherwise your account will be deleted. There is a high chance that what you received was spam.
 
  Once upon a time, Facebook did announce that it will be removing Likes to Business Pages from inactive accounts. This was misinterpreted as "Facebook is removing inactive accounts".
@@ -135,9 +189,6 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
 
  There are only two instances where Facebook will actually require ID proof from you,[according to its Help Centre](https://www.facebook.com/help/314201258613998/) :
@@ -147,6 +198,12 @@ DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations 
 
  This means that any message you are seeing inside Facebook about proving your ID is a scam, and your photo ID is going to someone with malicious intent, not to Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Don't Believe Facebook Myths
 
  You can protect yourself from a lot of Facebook myths if you understand how they work. For anything else, check if it has been mentioned on some sites where people report scams and malicious internet activities.

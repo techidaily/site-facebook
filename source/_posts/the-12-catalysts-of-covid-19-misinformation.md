@@ -1,7 +1,7 @@
 ---
 title: The 12 Catalysts of Covid-19 Misinformation
-date: 2024-09-01T03:56:07.833Z
-updated: 2024-09-02T03:56:07.833Z
+date: 2024-09-05T09:31:22.605Z
+updated: 2024-09-06T09:31:22.605Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Covid-19 Misinformation Catalysts,Fact-Checking During COVID-19 Pandem
 thumbnail: https://thmb.techidaily.com/c2342fb5e25c5a967555cf815791bd2b9698b049e69b2eb389ba72dc308a7ad2.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The 12 Catalysts of Covid-19 Misinformation
 
  With all the misleading and false information about the pandemic going around on social media, you would expect that hundreds or thousands of people are responsible for the spread across the internet's most popular platforms.
 
 But what if, in reality, there are only 12 prime suspects?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## CCDH Claims COVID-19 Hoaxes and Lies on Social Media Are Mostly Thanks to Only a Dozen People
 
  According to a [research report](https://252f2edd-1c8b-49f5-9bb2-cb57bb47e4ba.filesusr.com/ugd/f4d9b9%5Fb7cedc0553604720b7137f8663366ee5.pdf) \[PDF\] from The[Center for Countering Digital Hate](https://www.counterhate.com/) (CCDH), most COVID-19 and vaccine misinformation on Facebook, Twitter, and Instagram is spread by 12 influencers dubbed the "Disinformation Dozen."
@@ -40,6 +52,12 @@ But what if, in reality, there are only 12 prime suspects?
 
  Even though the Disinformation Dozen has reportedly violated the Facebook, Instagram, and Twitter terms of service agreements on numerous occasions, only three of the 12 influencers have been removed from just one platform.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Are Social Media Platforms Doing Enough to Fight Misinformation?
 
  The CCDH says that the best way to combat the spread of harmful information is to de-platform repeat offenders that have big audiences. Have Facebook, Instagram, and Twitter been doing that? Well... kind of.
@@ -120,7 +138,3 @@ But what if, in reality, there are only 12 prime suspects?
 <li><a href="https://driver-error.techidaily.com/step-by-step-solutions-for-unresponsive-wireless-keyboards-on-pcs-with-windows-os/"><u>Step-by-Step Solutions for Unresponsive Wireless Keyboards on PCs with Windows OS</u></a></li>
 <li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-unleash-your-creativity-top-highlight-video-editors-for-desktop-and-mobile-devices/"><u>Updated 2024 Approved Unleash Your Creativity Top Highlight Video Editors for Desktop and Mobile Devices</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Will Deleting Facial Recognition Data Affect Facebook Users' Security?
-date: 2024-09-01T03:57:10.412Z
-updated: 2024-09-02T03:57:10.412Z
+date: 2024-09-05T09:31:21.750Z
+updated: 2024-09-06T09:31:21.750Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Facial Recog Data Impact,FB User Security Risks,Data Deletion Conseque
 thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816dfbd913fea0d2186dd349bdd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Will Deleting Facial Recognition Data Affect Facebook Users' Security?
 
  Facebook recently attracted attention due to the announcement of its new parent company name, Meta. Long-term plans include creating a virtual world called a "metaverse" where people and brands interact. However, other changes will happen much sooner, such as the end of the Facebook facial recognition feature.
@@ -23,10 +29,22 @@ thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816d
 
 ![A woman sitting at desk in front of a laptop while holding a phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/woman-in-front-of-laptop-holding-phone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook used facial recognition for several purposes. For example, the technology helped generate image descriptions for people who are blind or visually impaired, helping them to know if a college classmate or co-worker was in a picture.
 
  There’s also a longtime Facebook feature that gave users automatic notifications when friends posted photos featuring them. Similarly, it suggested who people should tag when uploading photos. Facial recognition worked in the background in those cases.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What’s Changing With Facebook Facial Recognition?
 
  The most significant part of Facebook’s move away from facial recognition is that it will delete the identifying[templates of more than a billion](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) people who’d agreed to use the site’s service. The total figure represents more than one-third of Facebook’s users.
@@ -34,7 +52,10 @@ thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816d
  This means image descriptions created for the blind and visually impaired will no longer include people’s names. Additionally, people won’t see automatic tagging options when uploading photos or videos.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Will Facebook Still Use Facial Recognition?
 
@@ -44,9 +65,6 @@ thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816d
 
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Will This Change Affect Facebook’s Public Perception?
 
  Numerous damaging allegations about Facebook’s algorithms and how they encourage engagement have put the company in the spotlight for all the wrong reasons.
@@ -62,14 +80,20 @@ thumbnail: https://thmb.techidaily.com/d8bc1833c243f47afb83a105ed80a45f4c9ab816d
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## No Major Security Improvements Here
 
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 

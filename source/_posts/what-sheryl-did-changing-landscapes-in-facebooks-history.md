@@ -1,7 +1,7 @@
 ---
 title: "What Sheryl Did: Changing Landscapes in Facebook's History"
-date: 2024-09-01T03:57:23.525Z
-updated: 2024-09-02T03:57:23.525Z
+date: 2024-09-05T09:31:21.532Z
+updated: 2024-09-06T09:31:21.532Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Facebook's Evolution,Social Media Transformation,Sheryl Sandberg’s I
 thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec122694d578843a25c7f44c71.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Sheryl Did: Changing Landscapes in Facebook's History
 
  Meta is often in the media for controversial reasons. However, its top executives have typically stuck it out and remained loyal to the business, regardless of the criticism they've faced.
@@ -31,10 +37,28 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
  Sandberg will officially step down in the Fall of 2022\. She will be replaced by Javier Olivan, Meta's former chief growth officer, who helped to expand Facebook internationally.
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Brief History of Sheryl Sandberg's Role at Facebook
 
 ![Facebook and Meta logos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/facebook-meta-rebrand.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Sandberg joined Facebook in its infancy stage back in 2008\. That's four years after the social network was founded by Harvard students Chris Hughes, Dustin Moskovitz, Andrew McCollum, Eduardo Saverin, and Mark Zuckerberg.
 
  Upon joining, she was tasked with giving the business more structure as an experienced member of the group. As a result of her efforts, she is credited with helping to build Meta into the multi-billion-dollar business it has become.
@@ -45,6 +69,12 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
 ![President Trump Delivering Remarks in New Orleans](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/trump-at-ideag.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Tia Dufour/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:TrumpAmericanFarmBureau%2719.jpg)
 
  Despite the denial, a whistleblower revealed in 2018 that Cambridge Analytica, a consulting firm working for Trump,[obtained the personal data of millions of Facebook users](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and used it for political ads. Sandberg acknowledged that Facebook had known about the privacy breach for a few years but did not act on it.
@@ -57,15 +87,15 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
 
  If you're concerned by these reports and how algorithms control what you see,[you can disable these algorithmic feeds on Facebook, Instagram, and Twitter](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why Sheryl Sandberg Is Leaving Meta
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  While Sandberg didn't share her reasons for leaving Meta, some speculate that the previous controversial events involving Facebook have driven a wedge between the former COO and Mark Zuckerberg. Even though the two leaders have not shown any signs of tension publicly, it may have played a role in Sandberg eventually leaving the company.
 
@@ -74,7 +104,10 @@ thumbnail: https://thmb.techidaily.com/6889b29c9a1ca37c06d96850359e16ed975462ec1
  Regardless, both Zuckerberg and Sandberg have shown the utmost diplomacy in their public announcements of Sandberg's departure. The pair sang each other's praises for the impact they've had on each other's professional and personal lives.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## What's Next for Sheryl Sandberg?
 

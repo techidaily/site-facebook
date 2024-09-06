@@ -1,7 +1,7 @@
 ---
 title: What's Changing in the Landscape of U.S. Antitrust
-date: 2024-07-12T10:34:37.278Z
-updated: 2024-07-13T10:34:37.278Z
+date: 2024-09-05T09:22:39.400Z
+updated: 2024-09-06T09:22:39.400Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,12 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 ### 1\. The American Choice and Innovation Online Act
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
  Those intimately involved with the platform's operation will no longer be able to use their behind-the-scenes edge to their own gain. Practices that prevent smaller brands from gaining traction will also be targeted under this section.
@@ -60,6 +66,18 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 
  Related:[The Most Polarizing Figures in Big Tech](https://www.makeuseof.com/most-polarizing-figures-in-tech/)
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. The Ending Platform Monopolies Act
 
  Much like the first, this bill involves companies who sell products in marketplaces that they own and operate from the back-end. However, the Ending Platform Monopolies Act hones in on one key area: products sold on the marketplace, by the marketplace itself.
@@ -70,6 +88,12 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -80,9 +104,27 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Finally, we come to the economic backing to make it all happen.
 
  Comically prefaced with twenty-five lines of numerical amendment, this last bill explains how the government intends to finance this initiative without relying on taxpayers. It also specifies that the filing fees for larger transactions conducted under these laws will be higher than those imposed on smaller transactions.
@@ -95,6 +137,12 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
@@ -120,3 +168,36 @@ Finally, we come to the economic backing to make it all happen.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-step-by-step-to-craft-flawless-yt-thumbnails/"><u>[New] 2024 Approved  Step-by-Step to Craft Flawless YT Thumbnails</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-the-essential-guide-to-best-10-gratis-srt-transformers/"><u>[New] 2024 Approved  The Essential Guide to Best 10 Gratis SRT Transformers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-the-tricks-to-recording-and-screencasting-your-youtube-views-without-cash/"><u>[New] In 2024, Discover The Tricks to Recording & Screencasting Your YouTube Views without Cash</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-gamers-paradise-our-candidate-7-best-fps-titles/"><u>[Updated] In 2024, Gamer's Paradise  Our Candidate 7 Best FPS Titles</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-optimizing-live-recording-with-chromebooks-and-hp/"><u>[Updated] Optimizing Live Recording with Chromebooks & HP</u></a></li>
+<li><a href="https://facebook.techidaily.com/exiting-a-group-on-facebook-essential-steps-revealed/"><u>Exiting a Group on Facebook – Essential Steps Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/extract-your-entire-social-footprint-downloading-facebook-content/"><u>Extract Your Entire Social Footprint: Downloading Facebook Content</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mov-movies-on-galaxy-a15-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Failed to play MOV movies on Galaxy A15 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-linkedins-tracking-makes-networking-effortless-and-free/"><u>How LinkedIn’s Tracking Makes Networking Effortless and Free</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-formulating-final-fact-finding-flourishes/"><u>In 2024, Formulating Final Fact-Finding Flourishes</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/inexpensive-pcs-mastering-best-obs-arrangements-for-2024/"><u>Inexpensive PCs  Mastering Best OBS Arrangements for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/interface-innovation-tracing-facebooks-evolution-into-meta/"><u>Interface Innovation: Tracing Facebook's Evolution Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-platforms-for-mass-reach/"><u>Leveraging Platforms for Mass Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-fb-events-benefits-vs-drawbacks/"><u>Navigating FB Events: Benefits vs Drawbacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-marketplace-with-confidence-and-caution/"><u>Navigating the Marketplace with Confidence and Caution</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-features-on-the-horizon-for-facebooks-stories-panel/"><u>New Features on the Horizon for Facebook's Stories Panel?</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcome-the-obstruction-in-your-online-social-networking/"><u>Overcome the Obstruction in Your Online Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-blocked-facebook-messagesposts-load-issues/"><u>Overcoming Blocked Facebook Messages/Posts Load Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalization-of-social-media-details-on-fb/"><u>Personalization of Social Media Details on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-removed-facebook-shares-techniques-and-tips/"><u>Retrieving Removed Facebook Shares: Techniques and Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-data-against-facebook-quiz-traps/"><u>Safeguarding Your Data Against Facebook Quiz Traps</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/sharing-tactics-igtv-for-a-larger-fb-audience-for-2024/"><u>Sharing Tactics  IGTV for a Larger FB Audience for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-the-social-spotlight-crafting-a-cover-photo-with-yourself-at-its-center/"><u>Step Into the Social Spotlight: Crafting a Cover Photo With Yourself at Its Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-avoiding-intrusive-social-media-popups/"><u>Strategies for Avoiding Intrusive Social Media Popups</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-social-fb-twt-streaming-nba-games/"><u>The Power of Social: FB, Twt Streaming NBA Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-scale-of-power-governments-vs-techs-mighty-empire/"><u>The Scale of Power: Governments Vs. Tech's Mighty Empire</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-smart-dictionary-for-social-network-savvy-users/"><u>The Ultimate SMART Dictionary for Social Network Savvy Users</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/tips-and-tricks-for-editing-your-way-to-greatness-in-facebook-reels-for-2024/"><u>Tips and Tricks for Editing Your Way to Greatness in Facebook Reels for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwinding-the-facebook-tiktok-rivalry-with-reel-innovation/"><u>Unwinding the Facebook-TikTok Rivalry with Reel Innovation</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Meta Drops NFT Support on Instagram and Facebook After Short Trial
-date: 2024-09-01T03:58:02.496Z
-updated: 2024-09-02T03:58:02.496Z
+date: 2024-09-05T09:31:20.944Z
+updated: 2024-09-06T09:31:20.944Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,34 @@ keywords: Meta NFT Support,Meta Social Media Integration,NFT Acceptance by Meta,
 thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1916f6c8fc284b58583f1b79.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meta Drops NFT Support on Instagram and Facebook After Short Trial
 
  Before it has even truly begun, Meta has announced that it will end its NFT tools on Instagram and Facebook.The revelation, made by Meta commerce and fintech lead Stephane Kasriel, comes as a surprise given Facebook's pivot to Meta in recognition of its new focus on the metaverse.
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meta Is "Winding Down" NFTs on Instagram and Facebook
 
  On 13 March 2023, Stephane Kasriel revealed that Meta was moving its focus from NFTs to other areas of focus where the company can make an impact.
@@ -25,6 +49,12 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 
  Meta rolled out[NFT sales for Instagram creators in November 2022](https://www.makeuseof.com/meta-pushes-instagram-nfts-who-is-buying/) , so its quick retraction and change of direction won't do much to inspire confidence in the social media giant's other metaverse and Web3 plans.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What's Next for Meta, Crypto, and the Metaverse?
 
  Meta's move has caught the crypto world by surprise. While the initial rollout of NFTs on Instagram and Facebook was limited, it aligned with Meta's long-term vision of leading the world in metaverse services.
@@ -123,7 +153,3 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 <li><a href="https://facebook.techidaily.com/vanished-image-warnings-chat-snip-alerts-for-messenger/"><u>Vanished Image Warnings: Chat Snip Alerts for Messenger</u></a></li>
 <li><a href="https://facebook.techidaily.com/your-data-in-the-silent-spaces-beyond-fb/"><u>Your Data in the Silent Spaces Beyond FB</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Guidelines to Ponder Prior to Unfollowing Online Worlds
-date: 2024-09-01T03:58:14.431Z
-updated: 2024-09-02T03:58:14.431Z
+date: 2024-09-05T09:31:20.783Z
+updated: 2024-09-06T09:31:20.783Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Unfollow Wisdom Guide,Before Disconnect,Social Media Caution,Digital R
 thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e24ab3ca2d1256f5edd3745fb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Guidelines to Ponder Prior to Unfollowing Online Worlds
 
  For many of us, social media is an integral part of our day-to-day lives. Instagram is our visual diary, TikTok keeps us entertained, and Facebook is that old friend we enjoy catching up with from time to time. These platforms keep us plugged in, yet they can make us feel so disconnected at the same time.
@@ -27,6 +33,12 @@ thumbnail: https://thmb.techidaily.com/80bf249edf159410e9b0aa240c01664195ceb40e2
 
 ![Deactivating TikTok Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-tiktok-account-settings-page-1.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Deactivating Twitter Account Settings Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/deactivating-twitter-account-settings-page.JPEG)
 
 Close
@@ -39,21 +51,42 @@ Close
 
  When deactivating, remember that some platforms will permanently delete your account after a specific time period. For example, you can only stay deactivated for 30 days on X (Twitter) before your account gets deleted.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Delete the App
 
 ![Long-Pressing on Facebook App to Bring Up Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/long-press-to-bring-up-options-for-facebook-app.JPEG)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Deleting Facebook App Confirmation Pop-Up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/delete-facebook-app-confirmation-pop-up.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  If deactivating feels too dramatic, you can always delete the app instead. This way, you'll get the same effect of deactivation—but your account remains unchanged.
 
  There's also no limit as to how many times you can uninstall and reinstall an app should you keep changing your mind. Whereas with deactivation, there's a waiting period on some platforms before you can deactivate again if you have back-and-forth contemplations.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## 3\. Stop Doomscrolling
 
 ![Screen Time Setting on TikTok](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screen-time-setting-on-tiktok.JPEG)
@@ -61,7 +94,10 @@ Close
 ![Time Spent Setting on Instagram](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/time-spent-setting-on-instagram-1.JPEG)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -77,6 +113,12 @@ Close
 
 ![Person Using Laptop and Taking Notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/person-using-laptop-and-taking-notes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Even if deleting your social media accounts is a good decision for your personal life, consider whether it's a smart move for your professional life.
 
  Lacking an online presence might affect your chances of being considered for a new job. It could be interpreted as deficient networking skills or being out of touch.
@@ -93,13 +135,22 @@ Close
 
  Our advice is to own up to what you've said instead by admitting you were wrong, apologizing, and demonstrating that you've learned and improved. If people are aware of your problematic posts, and you delete your account upon getting called out, it will only give the impression that you have no intention of truly taking accountability.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ## 6\. Make a Final Post
 
 ![Draft for Farewell Post About Deleting Social Media Accounts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/farewell-draft-for-deleting-social-media-account.JPEG)
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If you're still dead set on deleting your accounts, compose a final post to inform your mutuals that you'll be leaving. You can use the same draft on all your social media accounts, depending on how many characters are allowed per post.
 
  Posting this will ensure that no one worries over your sudden disappearance, and it will also give you a sense of closure. However, only post once you're certain that you want to delete the account. You might feel a little embarrassed if you announce your departure only to come back a few days later.
@@ -109,7 +160,10 @@ Close
 ![Download Your Data Option on Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-download-data-option.JPEG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Download Data Option on TikTok App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/tiktok-download-data-option.JPEG)
 
@@ -122,14 +176,20 @@ Close
  If you're not sure how to do it, see our guides on[how to download your TikTok data](https://www.makeuseof.com/how-to-download-your-tiktok-data/) ,[how to download your Twitter data](https://www.makeuseof.com/how-to-download-your-twitter-data/) , and[how to download all your Instagram photos](https://www.makeuseof.com/tag/download-save-instagram-photos/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 8\. Make a Contact List
 
 ![Spreadsheet on Black an grey Laptop on wooden desk with womans hands typing. around desk is a black notebook, coffee on saucer and sunglasses](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/spreadsheet-on-laptop-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Some people are only connected through social media, and when your account is gone, you won't have a means of contacting them anymore.
 
@@ -137,6 +197,12 @@ Close
 
  But should there be someone you'd like to keep in touch with, having their contact details ensures you won't have to spend hours trying to find them after your account is gone.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. Update Your Login Information on Sites That Use Social Login
 
 ![Sign Up Options for Canva on Desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/canva-sign-up-options-page-on-desktop.jpeg)
@@ -147,33 +213,37 @@ Close
 
  Take note of all the sites and apps where you used the social login feature, and change it to something else that you still have access to.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ## 10\. Prepare for FOMO
 
 ![Sad Person Scrolling on Phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/sad-person-using-phone.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The FOMO will be real, especially if you've succumbed to the grips of short-form content like Reels and TikToks.
 
  If you're deleting your accounts with the intention of quitting social media for good, you're going to need a distraction. Otherwise, you'll find yourself making new accounts to get back in the loop. Try picking up a hobby that doesn't involve the use of your phone, or focus on[building healthier habits in your personal life](https://www.makeuseof.com/5-minute-healthy-habits/) .
 
  If you're deleting your accounts in preparation for a fresh start with new accounts, you might still miss the old ones. Your recommendations will be entirely different once starting over since it'll take a while for the algorithm to learn what you're interested in. This change can be frustrating, and you might still experience FOMO.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## 11\. You Will Be Disconnected
 
 ![Man With Hand Covering Face Against Yellow Background With the Words Disconnected Projected](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/man-against-yellow-background-with-words.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Disconnecting from the chaos of society isn't necessarily a bad thing. But, how much disconnection is healthy?
 
@@ -181,9 +251,6 @@ Close
 
  Given how dependent socialization and communication have become on social media, giving it up could result in a bit of social alienation. It might be worth ensuring your real-life connections are reliable before cutting off the digital ones.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Key Takeaways
 
 * Consider deactivating your social media accounts first to see if it brings any positive changes to your life before permanently deleting them.

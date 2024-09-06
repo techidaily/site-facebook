@@ -1,7 +1,7 @@
 ---
 title: Premier League Withdrawal From Social Networking Against Hate Speech
-date: 2024-09-01T03:57:54.509Z
-updated: 2024-09-02T03:57:54.509Z
+date: 2024-09-05T09:31:21.071Z
+updated: 2024-09-06T09:31:21.071Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Premier League Anti-Hate Speech Policies,Football Leagues Addressing O
 thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163bbbccbbc666c03d517f249c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Premier League Withdrawal From Social Networking Against Hate Speech
 
  The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Top English Soccer Teams Take a Social Media Stand
 
  The social media blackout will commence from Friday, 30 April, through to Monday, 3 May, taking place over a busy weekend for English soccer.
@@ -43,6 +55,12 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -131,16 +149,3 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 <li><a href="https://facebook.techidaily.com/why-you-might-not-see-whats-popular-on-facebook/"><u>Why You Might Not See What's Popular on Facebook</u></a></li>
 <li><a href="https://facebook.techidaily.com/your-definitive-guide-to-overcoming-common-social-media-challenges-on-fb/"><u>Your Definitive Guide to Overcoming Common Social Media Challenges on FB</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

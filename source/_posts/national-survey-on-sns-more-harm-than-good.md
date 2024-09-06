@@ -1,7 +1,7 @@
 ---
 title: "National Survey on SNS: More Harm Than Good"
-date: 2024-09-01T03:56:40.736Z
-updated: 2024-09-02T03:56:40.736Z
+date: 2024-09-05T09:31:22.146Z
+updated: 2024-09-06T09:31:22.146Z
 tags:
   - facebook
 categories:
@@ -13,18 +13,36 @@ keywords: Social Networking Services Impact,SNS Usage Effects Study,Online Socia
 thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e621a133942b5008a80266cd9.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## National Survey on SNS: More Harm Than Good
 
  The COVID-19 pandemic has made the power of social media a lot more obvious. Almost everyone that can be on the internet is on the internet, because it's the safest gateway to get your social fix.
 
  Social media may have more cons than pros though, and folks are still using it despite that possibility.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## US Adults Use Social Media Despite Believing It Divides People
 
  A nationwide poll conducted by[NBC News](https://www.nbcnews.com/politics/meet-the-press/poll-nearly-two-thirds-americans-say-social-media-platforms-are-n1266773) shows that most Americans use social media at every day, despite their belief that such platforms (e.g. Facebook, Twitter, TikTok, etc.) do more to divide people than unify them.
 
 ![A bunch of social media apps on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/social-media-apps-on-phone.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  66 percent of adults in the US use social media once a day or more, leaving 33 percent that do not (virtually unchanged from the results of the past two years).
 
  At the same time, 64 percent of Americans also think that social media platforms are tearing people apart. This is still true even if you look within specific demographics:
@@ -39,6 +57,12 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Does Social Media Affect Your Life?
 
  The same poll also asked Americans how social media affects their quality of life. 49 percent say social media makes their lives better, while 37 percent say it makes their lives worse.
@@ -49,10 +73,25 @@ thumbnail: https://thmb.techidaily.com/d00d489dab3eb54e89c3ca7ade1be65a3363127e6
 
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Help Make Social Media Great Again
 

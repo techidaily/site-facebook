@@ -1,7 +1,7 @@
 ---
 title: FB Protocol for Self-Safe Marking
-date: 2024-09-01T03:57:28.474Z
-updated: 2024-09-02T03:57:28.474Z
+date: 2024-09-05T09:31:21.466Z
+updated: 2024-09-06T09:31:21.466Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Self-Marking Safety FB,Safe Self-Protocol FB,FB Self-Security Prot,Sel
 thumbnail: https://thmb.techidaily.com/a29b3ac6ca9f187aecdc1d4dbdad5d59450793de0cab9f35e7f80c9b2a8a933d.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FB Protocol for Self-Safe Marking
 
  One of the positive things about social media is that it makes it easier for a person to quickly tell everyone in their network that they’re safe after a disaster.
@@ -25,6 +31,12 @@ The process is the same whether using a mobile or desktop device.
 
 ![facebook crisis response page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-crisis-response-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Go to[Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
 2. You’ll then see a list of active crises, including ones potentially affecting people you know.
 3. Click on the**Learn More** button for the relevant crisis.
@@ -33,6 +45,12 @@ The process is the same whether using a mobile or desktop device.
 
 ![safety check note facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/safety-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook uses your location data to show the crises most likely to affect you. However, in some cases, such as when traveling, it may be necessary to mark yourself as safe regarding an event outside where you usually reside.
 
  If this is the case, you’ll see a message asking if you’re in the affected area after clicking the**Learn More** button for a particular event. Answering**Yes** makes the Safety Check banner appear.
@@ -43,6 +61,12 @@ The process is the same whether using a mobile or desktop device.
 
 ![crisis safety check page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/crisis-safety-check-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook is not the only tech brand to become involved in disaster-related tech. For example, Google developed a system that sends earthquake alerts to people in California who have Android phones.
 
  Read more:[Common Facebook Problems and Errors (And How to Fix Them)](https://www.makeuseof.com/tag/fix-facebook-problems-errors/)
@@ -54,6 +78,12 @@ The process is the same whether using a mobile or desktop device.
 1. Select the**More** arrow and choose**Not marked as safe yet** .  
 ![friends not marked as safe yet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/friends-not-marked-as-safe-yet.jpg)
 2. Alternatively, use the**Search for friends** box under the**Friends in the area** heading.  
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
 3. Provided you have Facebook friends in the affected area, you’ll see an**Ask If Safe** button next to their name.
 
@@ -62,7 +92,10 @@ The process is the same whether using a mobile or desktop device.
  Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Good Intentions Can Backfire
 
@@ -72,9 +105,6 @@ The process is the same whether using a mobile or desktop device.
 
  It could also cause unnecessary worry among Facebook users. This is especially true if the person near the crisis doesn't use Facebook often and doesn't respond to requests to mark themselves as safe.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Facebook Safety Check: Is It Worth Using?
 
  The next time you see a safety check notification pop up on Facebook, think carefully about responding to it.

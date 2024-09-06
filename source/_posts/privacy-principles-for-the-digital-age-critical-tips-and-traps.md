@@ -1,7 +1,7 @@
 ---
 title: "Privacy Principles for the Digital Age: Critical Tips & Traps"
-date: 2024-09-01T03:57:37.055Z
-updated: 2024-09-02T03:57:37.055Z
+date: 2024-09-05T09:31:21.346Z
+updated: 2024-09-06T09:31:21.346Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,12 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  While a lot of people worry about what social media companies do with your data, the reality is that most of us give away more information than we realize. Let's consider some important kinds of information you should never share on social media to protect your privacy and safety.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Travel Plans
 
 ![Facebook Leaving for Vacation post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Leaving-Vacation.png)
@@ -33,9 +39,6 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ## 2\. Location Data
 
  Social apps use geolocation (from your IP address or phone's GPS function) to let you tag your posts with where you're at. Before you post, check to see if the site adds your location data automatically and disable that before posting. Most of the time, there's no reason to share your location with everyone who can see the post.
@@ -45,7 +48,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  This caution also extends to your physical address or phone numbers. You should never share your address or phone number in a public channel, as there's no telling who could get hold of the information.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Personally-Identifying Information
 
@@ -56,7 +62,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Personal Complaints and Rants
 
@@ -68,6 +77,12 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  Note that many companies offer customer service on social media, so this doesn't apply to getting help with a legitimate complaint. You should still be courteous in these situations, though.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Self-Incriminating Evidence
 
  While getting in trouble over a poorly-worded joke or incendiary comment you make on social media is bad enough, it's something else entirely to break the law and leave the evidence on social media for all to see.
@@ -79,7 +94,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 6\. Expensive New Purchases
 
@@ -94,7 +112,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 ![Facebook Advice post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/04/Facebook-Advice.png)
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  We've all seen people ask for homesickness remedies or legal advice on social media. No matter how sure of yourself you might be, it's in everyone's best interest (including your own) that you don't give medical or legal advice to people over social media. This is true even if you're a doctor or lawyer.
 
@@ -112,15 +133,18 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. Privileged Inside Information
 
  It's an easy mistake to accidentally post private information on a public channel. However, you should be careful about exposing insider information on social media. If you're aware of protected details at your job, don't share those anywhere, especially online.
 
  Talking about someone who's going to be laid off next week, your company's strategy for the new year, and other insider info could get you in big trouble. This also goes for your family; don't post sensitive deals about your family goings-on that other people don't need to be privy to. If it's not your own news, don't share it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10\. Anything You Don't Want to Make Public
 
  This is a bit of a catch-all for anything not covered above. If there's one rule that you should live by on social media, it's this: never post anything that you wouldn't want the whole world to see.
@@ -129,6 +153,18 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What You Shouldn't Share Online
 
  While social media can be a fun way to share with friends you don't see in person, sharing online has many downsides compared to talking in person. It's easy to overshare, not realize the audience that could see your posts, or make other mistakes.

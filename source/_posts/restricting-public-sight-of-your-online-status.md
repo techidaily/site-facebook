@@ -1,7 +1,7 @@
 ---
 title: Restricting Public Sight of Your Online Status
-date: 2024-09-01T03:53:47.167Z
-updated: 2024-09-02T03:53:47.167Z
+date: 2024-09-05T09:31:24.644Z
+updated: 2024-09-06T09:31:24.645Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: Limit Online Visibility,Hide Online Presence,Privacy on Social Network
 thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00caea55a88bfd5d394c85530ff.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Restricting Public Sight of Your Online Status
 
  Facebook is quite open about its goals: the company dreams of a world in which everyone is connected at all times. Perhaps that's why it's so difficult to appear offline on Facebook. The very idea of "offline" or "invisible" is the antithesis of everything the social network believes in.
@@ -45,6 +57,18 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
 
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Change Who Can See You Online on Facebook (Web)
 
  To alter the specific people who can see you online on Facebook, you should adjust your Active Status settings on the browser version of the platform. If you really don't want people to see you online, we recommend switching off your Active Status on the website as well as the app.
@@ -60,8 +84,10 @@ thumbnail: https://thmb.techidaily.com/d04592384de68d589b01721c4dc554252c1ab00ca
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Switch Off Facebook Online Status Completely
 
@@ -74,15 +100,33 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
 1. Select the Messenger icon at the top right of your Facebook home screen.
@@ -96,9 +140,6 @@ Close
 
  You can also[switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -119,7 +160,10 @@ This is different from a full Facebook block.
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
@@ -127,9 +171,6 @@ This is different from a full Facebook block.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.

@@ -1,7 +1,7 @@
 ---
 title: "Insight Into PhotoDNA: Image Comparison Process"
-date: 2024-09-01T03:58:34.999Z
-updated: 2024-09-02T03:58:34.999Z
+date: 2024-09-05T09:31:20.479Z
+updated: 2024-09-06T09:31:20.479Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: PhotoDNA Insights,Image Matching Tech,Digital Photo ID,PhotoComparison
 thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b903378f876b3f4cc7ee4fa520.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Insight Into PhotoDNA: Image Comparison Process
 
  The internet has made many things easier, from keeping in touch with friends and family to getting a job and even working remotely. The benefits of this connected system of computers are immense, but there's a downside too.
@@ -21,6 +33,12 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -52,7 +70,10 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does PhotoDNA Use Facial Recognition?
 
@@ -67,15 +88,20 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
@@ -84,7 +110,10 @@ thumbnail: https://thmb.techidaily.com/3c1c5ccae26de82b5c27b74337e4224665d5a7b90
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does PhotoDNA Make the Internet Safer?
 

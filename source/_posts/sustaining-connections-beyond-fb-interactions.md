@@ -1,7 +1,7 @@
 ---
 title: Sustaining Connections Beyond FB Interactions
-date: 2024-09-01T03:57:50.539Z
-updated: 2024-09-02T03:57:50.539Z
+date: 2024-09-05T09:31:21.140Z
+updated: 2024-09-06T09:31:21.140Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Connection Sustainability,Non-Facebook Bonds,Alternative Socializing,D
 thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a8ac533f579ade7f75a2ecaa.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Sustaining Connections Beyond FB Interactions
 
  Facebook has endured several scandals over the years, and these invariably concern the privacy and security of its users. This led to the #DeleteFacebook campaign, and you might have been tempted to delete Facebook as a result.
@@ -23,12 +29,30 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 ![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
 
  Deactivation is for people who aren't certain they want to leave Facebook forever. If you just want to take a sabbatical from social media, deactivation is a good option, although it's not the only one. You could merely ignore Facebook without deactivating it, but that depends on how tempted you'll be to return.
 
  Deleting Facebook is more permanent. It's a decision that you shouldn't take lightly. If you delete your account, you can't come back and expect any of your data to still be intact. There is a way to start again, but we'll return to that later on.
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can People Search for Me if I Deactivate Facebook?
 
  People can still search for you, but your profile shouldn't show up—that is, in theory.
@@ -42,15 +66,15 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  Otherwise, it takes 90 days for Facebook to remove information on a deleted account from its servers. Some details will still exist, but any personal identifiers will disappear. You'll become a statistic.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does My Profile Completely Disappear if I Deactivate Facebook?
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
 
  How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
@@ -58,7 +82,10 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Do My Comments Disappear if I Deactivate Facebook?
 
@@ -72,6 +99,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
  What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
@@ -82,9 +115,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
  So how do you know if someone has blocked you on Facebook or deactivated their account?
 
  Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
@@ -103,9 +133,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Can People See My Messages if I Deactivate Facebook?
 
  Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
@@ -124,6 +151,12 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Happens to Tagged Photos After Deactivating Facebook?
 
  Because Facebook has saved your data for your potential return, tags in pictures will still exist. However, those tags will convert to plain text. No one can link those images to a profile. This is also true of any other posts you're tagged in. To reiterate, your profile isn't visible to anyone.
@@ -136,9 +169,6 @@ thumbnail: https://thmb.techidaily.com/264e08da433495c55cd3d8de7fab0afb684fb451a
 
  Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Should You Deactivate or Delete Facebook?
 
  If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.

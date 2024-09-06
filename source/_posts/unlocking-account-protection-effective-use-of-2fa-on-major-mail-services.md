@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Account Protection: Effective Use of 2FA on Major Mail Services"
-date: 2024-09-01T03:58:03.820Z
-updated: 2024-09-02T03:58:03.820Z
+date: 2024-09-05T09:31:20.929Z
+updated: 2024-09-06T09:31:20.929Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Email Security with 2FA,2FA for Safe Mailing,Protect Emails Securely,M
 thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6aad583a53288672db7b6ce02.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unlocking Account Protection: Effective Use of 2FA on Major Mail Services
 
  Two-factor authentication (2FA) is a hot topic, and for a good reason. 2FA provides an additional layer of security for your online account by requiring a second login token on a separate device. A password for your password, in a sense.
 
  2FA works differently depending on the online account you are using. 2FA also carries slightly different names in some places, too. So, here is your short guide to enabling 2FA, in its various guises, on a host of online accounts.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Does 2FA Work?
 
  Two-factor authentication works by locking your account with two separate "factors." In this case, a factor is "something you know" (e.g., password), "something you have" (e.g., phone), or "something you are" (e.g., fingerprint). You have the best protection by combing two of these factors.
@@ -27,30 +39,45 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
 
  Check out our article on the[pros and cons of different 2FA methods](https://www.makeuseof.com/tag/pros-cons-2fa-types-methods/) for a more in-depth look at the system.
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up 2FA on Gmail and Google
 
  Your Google accounts can use several different 2FA schemes, such is the search giant's commitment to securing your accounts.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Google Prompt
 
 ![google 2fa second device prompt message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-second-device-prompt-message.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
  The first is through the newer Google Prompt system. Instead of sending a one-time code, you receive a Google Prompt on your separate device. You simply unlock your phone and tap**Yes** to unlock your account.
 
  Head to your[Google Account](https://myaccount.google.com) , select**Security** , and then under the**Signing in to Google** header, select**2-Step Verification.** You will have to sign into your account again using your current password. Then select**Try It Now** to send a Google Prompt message to your listed device.
 
 ![google 2fa options list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/google-2fa-options-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Once you accept the Google Prompt, you will meet another screen asking if you want to turn on 2-Step Verification. (Some users may meet a screen asking them to confirm their mobile number using an SMS; do this, then continue.) Select**Turn On** .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Authenticator App
 
@@ -72,10 +99,6 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
 
 ![microsoft outlook two factor auth settings-1](<https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/microsoft> outlook two factor auth settings-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
  In this instance, you are looking at Microsoft's Outlook.com service rather than the desktop Outlook client. The Outlook desktop client has other forms of security,[such as password-protecting your Outlook PST file](https://www.makeuseof.com/tag/tricks-outlook-microsoft-account-secure/) . However, 2FA isn't currently available.
 
  To lock down your Outlook.com account, visit[your Microsoft account page](https://redirect.viglink.com?key=0d8d9af05d1abe663696ac39935d3f6b&u=https%3A%2F%2Faccount.microsoft.com%2Faccount%2FAccount) , select the**Security** tab, followed by**Advanced** **Security Options** . Under the**Two-step Verification** header, select**Turn on two-step verification** , then hit**Next** to proceed.
@@ -86,9 +109,6 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
 
 **Note:** There are[other excellent 2FA authentication apps](https://www.makeuseof.com/tag/5-best-alternatives-google-authenticator/) out there.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Apple and iCloud
 
  Apple's 2FA is very Apple-centric. In that, you won't be using the Google Authenticator app or any other app for that matter. That said, the Apple 2FA process works very well and only takes a moment or two to set up.
@@ -99,6 +119,12 @@ thumbnail: https://thmb.techidaily.com/860b3898b4af7e1c1dc6c593b5d2eb5997c8c8e6a
 
 ![facebook two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Locking your Facebook account is as important as your email address.
 
  To enable 2FA, head to your[Facebook Security Settings](https://www.facebook.com/settings?tab=security) page. Next, select**Use two-factor authentication** , then**Get started** . You have three options: Text message, Authentication app, or the newest addition, a Security key. You can select whichever option suits you.
@@ -109,21 +135,27 @@ Locking your Facebook account is as important as your email address.
 
 ![twitter two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/twitter-two-factor-auth-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Twitter supports third-party authenticator apps, so you can use Google Authenticator to secure your account.
 
  Head to your[Twitter account settings](https://twitter.com/settings/account) , then under the**Security** header, select**Login Verification** . You can turn on SMS 2FA by entering your phone number and then entering the code. If your Twitter account isn't already using SMS verification, you must turn this on before enabling a third-party authentication app.
 
  Once you turn on Login Verification, head back to the same menu and select**Review your login verification methods** , then select**Mobile security app > Set up** . Scan the QR code using the Authenticator app and follow the Twitter instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Set Up 2FA on Instagram
 
 ![instagram two factor auth settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/instagram-two-factor-auth-settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Instagram 2FA comes in two forms: an SMS code or using an authentication app. Instagram added the latter in 2018 to boost account security, and the set up is very easy.
 
@@ -132,7 +164,10 @@ Locking your Facebook account is as important as your email address.
  If you select "Authentication App," the Instagram app will automatically detect your installed authentication app and send a login code. For instance, your Instagram account would automatically appear in the Google Authenticator app on your phone. However, by extension, the app authentication option cannot be turned on using the desktop version, which is disappointing.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Set Up 2FA on Amazon
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's Vision of a Virtual World – Unpacking Three Issues
-date: 2024-09-01T03:57:13.040Z
-updated: 2024-09-02T03:57:13.040Z
+date: 2024-09-05T09:31:21.714Z
+updated: 2024-09-06T09:31:21.714Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Facebook Virtual World Vision,Virtual Reality Social Platform,Facebook
 thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac511baa83e275b6c8c17d904.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Vision of a Virtual World – Unpacking Three Issues
 
  Every once in a while, new technology arrives to disrupt the status quo. And while these moments are exciting, they bring new worries along with them too.
 
  Facebook is leading the charge to the metaverse, but you shouldn't get too excited yet. As great as the metaverse sounds, it has several potential consequences to carefully consider.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook and the Metaverse
 
  When it comes to disruptive technologies, the pioneers often end up on top. Few companies understand this as much as Facebook, as the multi-billion-dollar tech behemoth owes much of its success to its pioneering status in social media.
@@ -29,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  This heightens concerns that a few tech giants will monopolize the metaverse (just as they're doing with Web 2.0), rather than fulfilling the popular utopian[vision of a metaverse](https://www.makeuseof.com/what-is-the-metaverse/) powered by a decentralized ecosystem.
 
  Although the metaverse is still in its early days, it's important to highlight[the problems Big Tech poses](https://www.makeuseof.com/what-is-big-tech-and-why-is-the-government-trying-to-break-it-up-/) before it becomes irreversible.
@@ -39,6 +57,18 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
@@ -55,15 +85,15 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
  Perhaps even scarier is the fact that Meta has a dark history of sharing this kind of data with other companies. In principle, this means your data, with as intrusive as collection might get, could end up just about anywhere. A Meta-led metaverse means we'll be[giving Big Tech our private data](https://www.makeuseof.com/what-is-surveillance-capitalism/) to sell or use to an even greater degree.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Another Digital Addiction for Gen Z
 
 ![Mixed Reality gaming machine](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-tima-miroshnichenko-6498772.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Social media can be addictive, especially for young users. It is already hurting people's mental health. As society gets more immersed in the digital world, it could become even more detached from the physical.
 
@@ -78,15 +108,15 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
  The metaverse promises to be an all-encompassing next phase for the internet. A lot of what isn't really possible to do on the internet today—dancing, singing, working out—could make sense with the metaverse.
@@ -97,9 +127,6 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta's Vision of the Metaverse
 
  While many people believe that no single entity will be able to maintain significant control of the metaverse, Big Tech has different ideas. Companies like Meta do not thrive in decentralization. Meta's vision of the metaverse isn't exactly the user-controlled world the larger public envisions; it's an immersive version of its current products and ecosystem.

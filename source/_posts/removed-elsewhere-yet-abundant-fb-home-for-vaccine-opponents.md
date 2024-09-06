@@ -1,7 +1,7 @@
 ---
 title: "Removed Elsewhere Yet Abundant: FB Home for Vaccine Opponents"
-date: 2024-09-01T03:56:30.109Z
-updated: 2024-09-02T03:56:30.109Z
+date: 2024-09-05T09:31:22.304Z
+updated: 2024-09-06T09:31:22.304Z
 tags:
   - facebook
 categories:
@@ -13,18 +13,36 @@ keywords: Vaccine Debate,Social Media Impact on Public Health,Vaccine Misinforma
 thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf3958002401b8a3af1db05343b435b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Removed Elsewhere Yet Abundant: FB Home for Vaccine Opponents
 
  There aren't any major social media platforms right now that are completely free of misinformation. All of them, unfortunately, are currently struggling with regulating posts with misleading or false info—and Facebook seems have it the worst by far.
 
  There's a heated debate online as to whether that's the result of the platform's negligence or just an overwhelming volume of policy-violating posts. Whatever you think the truth is, it's clear that Facebook is far from done with dealing with the problem.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Removes One Anti-Vax Profile Frame, but Leaves the Rest Up
 
 [CNBC News](https://www.cnbc.com/2021/05/14/facebook-races-to-remove-anti-vaccine-profile-picture-frames.html) has noticed something peculiar on Mark Zuckerberg's big blue social network: even though Facebook has banned COVID-19 and vaccine misinformation, there are a number of profile picture borders with anti-vax messages available to use.
 
 ![Anti-vax frames on Facebook as spotted by CNBC News](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-anti-vax-frames.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The news network reportedly reached out to Facebook about one frame that said, in all capital letters, "My immune system is better than the \[image of a syringe\]."
 
  A Facebook spokesperson was kind enough to confirm that the border violated the platform's policies and that it had been removed, but that's apparently where the rule enforcement ended.
@@ -35,8 +53,26 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
 ![Facebook app in App Store on iPad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/facebook-on-ipad.png)
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The company also did not detail how long the frame had been active, nor how many users viewed/used it. So, it's very possible that hundreds—maybe even thousands—of users have been exposed to the potentially harmful message it promotes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook vs. Pandemic Misinformation
 
  It's become pretty normal to see the words "Facebook" and "misinformation" in the same headline. Surely that's something that the team behind the platform wants to change, but their approach needs to either get smarter or get more aggressive for that to happen.
@@ -120,7 +156,3 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 <li><a href="https://facebook-clips.techidaily.com/in-2024-social-media-ingenuity-how-to-develop-captivating-facebook-slideshows/"><u>In 2024, Social Media Ingenuity  How to Develop Captivating Facebook SlideShows</u></a></li>
 <li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Infinix Zero 30 5G | Dr.fone</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

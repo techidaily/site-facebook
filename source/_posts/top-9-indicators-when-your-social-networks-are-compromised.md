@@ -1,7 +1,7 @@
 ---
 title: "Top 9 Indicators: When Your Social Networks Are Compromised"
-date: 2024-09-01T03:56:11.708Z
-updated: 2024-09-02T03:56:11.708Z
+date: 2024-09-05T09:31:22.562Z
+updated: 2024-09-06T09:31:22.562Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Social Network Security,Account Breach Signals,Online Identity Theft,C
 thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f6abc800d81cd69169ce6a1c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Top 9 Indicators: When Your Social Networks Are Compromised
 
  Keeping our data safe online is one of the hardest things in this digital age. No matter how secure social media platforms are and how carefully you follow the guidelines, people still fall for scams and get their accounts hacked.
 
  Therefore, it is imperative to know the signs that indicate that one of your social media accounts has been hacked to take the necessary measures in time. In this article, we will discuss some of these signs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Your Password Has Been Changed
 
 ![Facebook Showing that Password Has Been Changed Previously](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/1-Facebook-Showing-that-Password-Has-Been-Changed-Previously-1.jpg)
@@ -36,7 +48,16 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
  You are at a greater risk of being hacked if you are an admin of popular pages or your account is highly popular.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Your Contacts Reporting Unusual Messages
 
@@ -47,14 +68,20 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
  If you notice such activity, that's another clear indication that someone has accessed your account without your knowledge. Furthermore, a hacker might have deleted messages your friends complained about receiving from your end if you couldn't locate them. So, do take precautions in such a situation as well.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Logins From Remote Locations
 
 ![Random Logins on Facebook Login History](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/3-Random-Logins-on-Facebook-Login-History.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  The majority of social media platforms keep track of your login history. So, in case a hacker gains access to your account, you'll see your account being accessed from a place you've never physically been to before.
 
@@ -81,7 +108,10 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 ![facebook unusual login email](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-unusual-login.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  If you have activated the extra security layer to receive alerts about unauthorized logins, most social media networks like Facebook, Twitter, etc., will notify you if an unauthorized device attempts to access your account.
 
@@ -89,18 +119,12 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 
  Moreover, if you receive an email asking you to change your password or verify your OTP, it's good to check your account login history to see if someone has worked their way around and logged into your account.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 8\. Signed Up for Subscriptions and Unusual Purchases
 
  You should be cautious if you see some unusual subscription purchases, such as signing up for LinkedIn premium, without your knowledge. You should also check for apps or websites you signed up for using your account but don't remember doing so.
 
  Additionally, if you see someone selling or buying items in groups or marketplaces, sending super chats, or contacting influencers for promotion, someone else could be using your account.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## 9\. Suspicious Activity in Your Ad Manager
 
  Hackers may also try to access your profile to take advantage of your ad manager. You may see campaigns running for promoting pages or selling products, with random credit cards added as payment methods, which confirms that hackers have accessed your account.
@@ -113,6 +137,12 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 
  In addition, you should keep an eye out for random achievements posted from your profile, check-ins at unexpected events and places, or any other similar changes in your profile.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Social Media Accounts Get Hacked and How to Avoid It
 
  The following are possible reasons why your social media account might be hacked:
@@ -128,6 +158,12 @@ thumbnail: https://thmb.techidaily.com/0f5e0d66222e22041fd69d85c280c4d0b12cd9d4f
 
  Besides all that, know the[basic dos and don'ts while browsing the internet](http://www.makeuseof.com/internet-safety-dos-and-donts/) to ensure your online safety.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Know the Signs and Protect Your Social Media Accounts
 
  Hopefully, you now know to spot all signs of hacked social media accounts. Keep an eye out for these signs and when you notice them, take the necessary steps to protect your accounts.

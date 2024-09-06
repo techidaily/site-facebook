@@ -1,7 +1,7 @@
 ---
 title: Steps to Vanish Your Searched Items From Facebook
-date: 2024-09-01T03:58:25.984Z
-updated: 2024-09-02T03:58:25.984Z
+date: 2024-09-05T09:31:20.614Z
+updated: 2024-09-06T09:31:20.614Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,30 @@ keywords: Erase Facebook Search,Vanish FB Finds,Remove FB Item Search,Delete Fac
 thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe159d0540d6af07a4de02f4f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Steps to Vanish Your Searched Items From Facebook
 
  Like most online platforms, Facebook is saving your entire search history, but you can easily delete individual searches or wipe your entire search history from your phone or browser.
 
  Much has been written about just how much Facebook knows about you. With its ever-evolving privacy settings, it can be hard to figure out where to go to find the settings you want. Clearing your search history is certainly no exception.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Clear Your Facebook Search History
 
  If you tend to visit Facebook in a browser, you can wipe your search history by the following methods.
@@ -31,11 +49,14 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 2. Here, you will see the recent searches. To delete individual searches, you can simply click on the**cross icon** beside them.  
 ![facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-search-1.jpg)
 3. Alternatively, click on**Edit** . Doing so takes you to the activity log.
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 4. To wipe the entire search history, click on**Clear searches** . For deleting only a single search, click on the**three-dot icon** and then**Delete** .
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. From Your Profile Page
 
  You can also delete the search history by going to the activity log from your profile page.
@@ -45,20 +66,29 @@ thumbnail: https://thmb.techidaily.com/e246634d5da34f177363476939043c1e6f3469bbe
 ![Facebook profile activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-profile-activity-log.jpg)
 3. In the menu on the left, beside**Logged actions and other activity** , click the**down arrow** .
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 4. When the menu expands to show all filters, click**Search history** .
 5. You'll see a full chronological list of everything you've searched for on Facebook. You can delete individual searches by clicking the**three-dot** button next to the entry and clicking**Delete** .  
 ![activity log Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/activity-log-facebook.jpg)
 6. You can also wipe your entire search history in one go by clicking the**Clear searches** button located in the top-right corner.
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  From the activity log, you can also[delete your old Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , interactions, and watch history.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Clear Your Facebook Search History on Mobile
 

@@ -1,7 +1,7 @@
 ---
 title: The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google
-date: 2024-09-01T03:58:22.696Z
-updated: 2024-09-02T03:58:22.696Z
+date: 2024-09-05T09:31:20.664Z
+updated: 2024-09-06T09:31:20.664Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,28 @@ keywords: Deceptive Online Content,Facebook's Social Responsibility,Google Conte
 thumbnail: https://thmb.techidaily.com/66f3a5314b7f0b6f994f976b66c33a57ff0466854aa08d5996bdfaffcb47f66d.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Need for Increased Vigilance Against Deceptive Online Content by Facebook & Google
 
  According to a report by consumer watchdog Which?, big tech companies such as Facebook and Google aren't doing enough to prevent scam advertisements on their platforms.
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scam Ads Are Rarely Removed Even After Being Reported
 
  The report by[Which?](https://press.which.co.uk/whichpressreleases/google-and-facebook-failing-to-remove-online-scam-adverts-reported-by-victims-which-finds/) laid out some statistics that show how little these companies are doing to remove scam adverts from their platforms.
@@ -33,6 +51,12 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -124,7 +148,3 @@ Facebook further stated:
 <li><a href="https://facebook.techidaily.com/what-drives-the-desire-to-reinvent-instagram/"><u>What Drives the Desire to Reinvent Instagram?</u></a></li>
 <li><a href="https://facebook.techidaily.com/zuckerberg-announces-cross-device-whatsapp-functionality/"><u>Zuckerberg Announces Cross-Device WhatsApp Functionality</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->

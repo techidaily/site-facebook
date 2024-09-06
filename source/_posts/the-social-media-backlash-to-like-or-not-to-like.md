@@ -1,7 +1,7 @@
 ---
 title: "The Social Media Backlash: To Like or Not to Like?"
-date: 2024-09-01T03:55:31.776Z
-updated: 2024-09-02T03:55:31.776Z
+date: 2024-09-05T09:31:23.092Z
+updated: 2024-09-06T09:31:23.092Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,28 @@ keywords: Social Media Impact,Online Reputation Risk,Liking Behaviors Analysis,D
 thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74d68e3b5f340250f5652e1ee.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Social Media Backlash: To Like or Not to Like?
 
  Is there a place for dislike buttons in social media as we know it today? Do dislikes even serve a purpose? When examining the most prominent social media platforms widely used today, you get mixed results.Facebook and Instagram do not have a dislike button. Reddit has a downvote button, and YouTube a dislike one. Twitter doesn't have a dislike button, but that could change soon as it ran a test allowing some users to downvote.Let's examine some pros and cons to platforms and their dislike button.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Pros to the Dislike Button Hiding Its Numbers
 
  YouTube recently made waves when it decided to hide the dislike count. The dislike button is still there and visible. You can click it and dislike a video. However, the number of dislikes is hidden. You only see the[number of likes](https://www.makeuseof.com/are-likes-essential-for-social-media/) .
@@ -38,7 +56,10 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
  Also, the creators of the videos garnering the dislikes can still see their number in their analytics. It's the viewers who have no concept of the number.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Less Stress When Posting
 
@@ -54,9 +75,6 @@ thumbnail: https://thmb.techidaily.com/2b68f106433b091c014f2083746f9820ace97ab74
 
 ![person reaching for likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/person-reaching-for-likes.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
  Working off of the previous point, not seeing the number of dislikes on the videos you choose to share with the world can be good for your mental health, in general.
 
  Stress and anxiety don't only occur at the point of posting. Rather, they can plague every step of your YouTube experience. Sure, you can be nervous to click "post" on your video, but those nerves can be with you when you check on the video later on, too.
@@ -69,17 +87,26 @@ What's more, it goes beyond affecting only the poster.
 
  By hiding the dislikes number, YouTube essentially spares both the creator and their fan base of the stress, anxiety, and all the other negative emotions that can arise from being the victim of a hate campaign.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cons to the Dislike Button Hiding Its Numbers
 
  Let's talk about the negatives that follow the action of hiding the dislikes number on posts.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### You Can't Discern Helpfulness
 
 ![how to video on youtube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/how-to-video.png)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  By having the dislikes hidden, you can't tell if a video is helpful or not with a glance.
 
  A lot of people go on YouTube to look for tutorials, guides, and examples of how to do certain things. When you find a video that seems to give you what you're looking for, checking out the number of dislikes can be actually helpful.
@@ -89,7 +116,10 @@ What's more, it goes beyond affecting only the poster.
  By hiding dislikes, YouTube essentially took that practical trick away, and now you can't tell if a video is good or bad off the bat.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### You Can't Tell if It's Worth Seeing
 
@@ -102,7 +132,10 @@ What's more, it goes beyond affecting only the poster.
  Many YouTube viewers use the like-to-dislike ratio to decide whether to watch a video or move on to another. When you can't use that ratio to make your judgment, you might get duped into watching something that wastes your time.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is It the Right Move to Have or Hide Dislikes?
 
@@ -111,7 +144,10 @@ What's more, it goes beyond affecting only the poster.
  Does it make sense to have a dislike button, remove it, or hide the count? Let's look at two examples: Twitter and Reddit.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Does It Make Sense for the Platform at All?
 

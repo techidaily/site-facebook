@@ -1,0 +1,144 @@
+---
+title: Premier League Players Pledge No More Social Networking for Harassment Purposes
+date: 2024-09-05T09:37:34.723Z
+updated: 2024-09-06T09:37:34.723Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Premier League Players Pledge No More Social Networking for Harassment Purposes
+excerpt: This Article Describes Premier League Players Pledge No More Social Networking for Harassment Purposes
+keywords: Premier League Anti-Harassment,Professional Sports Social Etiquette,Footballers' Pledge Against Online Harassment,Elite Sportsmen Social Media Responsibility,Sports Personalities Stand Against Harassment Online,Athlete Conduct, Social Networking Restrictions,Sports Figures Pledge to End Online Bullying
+thumbnail: https://thmb.techidaily.com/d04a298cb4efeef55fca68d7eaf14aa0f3c43f69fcef497082e91bf17afd4582.jpg
+---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Premier League Players Pledge No More Social Networking for Harassment Purposes
+
+ The English Premier League, English Football League, and Women's Super League are joining forces to complete a four-day social media blackout.
+
+ England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## The Top English Soccer Teams Take a Social Media Stand
+
+ The social media blackout will commence from Friday, 30 April, through to Monday, 3 May, taking place over a busy weekend for English soccer.
+
+ As part of the boycott, teams up and down the English soccer pyramid will collectively go dark across Facebook, Twitter, Instagram, and other social media accounts. At its core, the boycott signifies the collective anger towards social media platforms and their lack of action against the toxic abuse some players face week in, week out.
+
+ Throughout the 2020/2021 season, racism and other toxic abuse have become a weekly occurrence. Social media platforms make it easier than ever to contact specific players directly, and for some, it's an easy way to abuse players with little chance of punitive measures.
+
+ Anonymous accounts make it easy to hide, while for social media companies, blocking every account and every message is digital whack-a-mole.
+
+ Teams, players, managers, and The FA believe that the only way social media platforms will step up protection and increase the difficulty for toxic individuals to levy abuse at players is to hit them where it hurts.
+
+ Related: [What Is Cyberbullying and How Can You Deal With It?](https://www.makeuseof.com/what-is-cyberbullying/)
+
+ Several professional soccer players (and ex-pros) have left social media platforms altogether after growing tired of the ongoing abuse and lack of action.
+
+[The FA's official statement](https://www.thefa.com/news/2021/apr/24/english-football-social-media-boycott-20210424) urges the UK government to take further action against social media companies to enable regulators to take a stronger stance when platforms are the mouthpiece for abusive, racist, and toxic behavior.
+
+ Edleen John, The FA's director of international relations, corporate affairs, and co-partner for equality, diversity and inclusion, said:
+
+> This needs to change quickly, and we continue to urge social media companies to act now to address this. We will not stop talking about this issue and will continue to work with government in ensuring that the Online Safety Bill gives sufficient regulatory and supervisory powers to Ofcom. Social media companies need to be held accountable if they continue to fall short of their moral and social responsibilities to address this endemic problem.
+
+ For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## The Social Media Abuse of Soccer Stars Is Ongoing
+
+ In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
+
+> The language used is debasing, often threatening and illegal. It causes distress to the recipients and the vast majority of people who abhor racism, sexism and discrimination of any kind. We have had many meetings with your executives over the years but the reality is your platforms remain havens for abuse. Your inaction has created the belief in the minds of the anonymous perpetrators that they are beyond reach.
+
+ The letter continues, explaining how the soccer clubs would like social media platforms to better moderate content, especially against high-profile individuals.
+
+ Talk of moderation on social media platforms usually revolves around better filtering and post analysis and robust account verification.
+
+ Related: [The Negative Effects of Social Media on People and Users](https://www.makeuseof.com/tag/negative-effects-social-media/)
+
+ Given the issues facing the latter, such as distrust of social media platforms, privacy breaches, data leaks, and more, social media platforms such as Facebook and Twitter are likely to push more resources into analytical tools before requiring mandatory identification verification before opening a new account.
+
+ Additional regulation to block abusive content is an excellent step forward, but many users will draw the line at uploading official identification to use a social media platform.
+
+ Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-efficient-tools-seamless-extraction-of-vimeo-media/"><u>[New] Efficient Tools  Seamless Extraction of Vimeo Media</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-kinetic-illustration-101-core-skills-and-concepts/"><u>[New] In 2024, Kinetic Illustration 101  Core Skills & Concepts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-spotifys-ultimate-playlist-guide/"><u>[New] Spotify's Ultimate Playlist Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-guide-to-your-unique-tiktok-hash-code-for-2024/"><u>[New] The Ultimate Guide to Your Unique TikTok Hash Code for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-accelerate-creativity-in-photo-editing-using-pixlr/"><u>[Updated] Accelerate Creativity in Photo Editing Using Pixlr</u></a></li>
+<li><a href="https://facebook.techidaily.com/300-oculus-rifts-users-gain-access-post-hack/"><u>$300 Oculus Rifts, Users' Gain Access Post-Hack</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-maximizing-the-impact-of-outdoor-videos-live-streams-via-periscopefacebook/"><u>2024 Approved  Maximizing the Impact of Outdoor Videos  Live Streams via Periscope/Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/8-best-practices-for-swiftly-deleting-offensive-content/"><u>8 Best Practices for Swiftly Deleting Offensive Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-guide-to-fb-avatar-inclusion-in-whatsapp-discussions/"><u>A Guide to FB Avatar Inclusion in WhatsApp Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-step-by-step-strategy-to-remove-users-on-facebook/"><u>A Step-by-Step Strategy to Remove Users on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/abolish-all-fb-push-notifications/"><u>Abolish All FB Push Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/amazon-accuses-10000-group-leaders-of-misconduct-on-social-media/"><u>Amazon Accuses 10,000 Group Leaders of Misconduct on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/apples-alternative-vision-not-embracing-metaverse-now/"><u>Apple’s Alternative Vision: Not Embracing Metaverse Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-facebooks-embedded-surfing-options/"><u>Avoiding Facebook's Embedded Surfing Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152115012-awaiting-the-call-facebook-orders-ruling-on-prohibited-access/"><u>Awaiting the Call: Facebook Orders Ruling on Prohibited Access.</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-sensationalism-a-realistic-assessment-of-fb-dossiers/"><u>Beyond Sensationalism: A Realistic Assessment of FB Dossiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/big-techs-battlefield-us-antitrust-law-adjustments/"><u>Big Tech's Battlefield: U.S. Antitrust Law Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/blocking-dates-on-facebooks-nostalgic-moments/"><u>Blocking Dates on Facebook's Nostalgic Moments</u></a></li>
+<li><a href="https://facebook.techidaily.com/boosting-work-related-prospects-with-savvy-facebook-techniques/"><u>Boosting Work-Related Prospects with Savvy Facebook Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/brace-for-impact-expecting-troubled-news-on-fb/"><u>Brace for Impact: Expecting Troubled News on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/bridging-the-virtual-divide-8-ways-to-connect-digitally/"><u>Bridging the Virtual Divide: 8 Ways to Connect Digitally</u></a></li>
+<li><a href="https://facebook.techidaily.com/can-securityfacebookmailcom-be-trusted-for-fb-safety/"><u>Can Security@facebookmail.com Be Trusted for FB Safety?</u></a></li>
+<li><a href="https://facebook.techidaily.com/capture-facebook-media-a-comprehensive-guide/"><u>Capture Facebook Media: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/choosing-a-trusted-virtual-gathering-place/"><u>Choosing a Trusted Virtual Gathering Place</u></a></li>
+<li><a href="https://facebook.techidaily.com/comparing-the-latest-facebook-portable-gadgets/"><u>Comparing the Latest Facebook Portable Gadgets</u></a></li>
+<li><a href="https://facebook.techidaily.com/comprehensive-deletion-protocols-for-social-media-clans/"><u>Comprehensive Deletion Protocols for Social Media Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152295566-connect-more-effortlessly-transferring-posts-and-notes-among-major-sites/"><u>Connect More, Effortlessly: Transferring Posts & Notes Among Major Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectors-guide-to-facebooks-emerging-zones/"><u>Connectors' Guide to Facebook’s Emerging Zones</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-compelling-online-story-with-your-business-profile-on-facebook/"><u>Crafting a Compelling Online Story with Your Business Profile on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-private-visual-footprint-on-facebook/"><u>Crafting a Private Visual Footprint on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/creating-an-impactful-fb-profile-photograph/"><u>Creating an Impactful FB Profile Photograph</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719152839748-heres-what-facebooks-new-page-labels-mean/"><u>Here's What Facebook's New Page Labels Mean</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-techniques-to-develop-engaging-vlogger-conversations/"><u>In 2024, Techniques to Develop Engaging Vlogger Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719147188934-preparing-for-the-decision-facebooks-oversight-court-on-trump/"><u>Preparing for the Decision: Facebook's Oversight Court on Trump.</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150018154-unlocking-private-chats-new-end-to-end-encryption-rollout-by-facebook-for-direct-and-call-services/"><u>Unlocking Private Chats: New End-to-End Encryption Rollout by Facebook for Direct & Call Services.</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-effortless-video-rotation-discover-the-top-10-online-tools-for-2024/"><u>Updated Effortless Video Rotation Discover the Top 10 Online Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/windows-premier-video-conferencing-apps-5-1/"><u>Windows' Premier Video Conferencing Apps #5-#1</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/your-path-to-advanced-interactions-with-new-chatgpt-extensions/"><u>Your Path to Advanced Interactions with New ChatGPT Extensions</u></a></li>
+</ul></div>

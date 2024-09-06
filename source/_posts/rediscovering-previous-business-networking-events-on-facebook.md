@@ -1,7 +1,7 @@
 ---
 title: Rediscovering Previous Business Networking Events on Facebook
-date: 2024-09-01T03:57:57.173Z
-updated: 2024-09-02T03:57:57.173Z
+date: 2024-09-05T09:31:21.034Z
+updated: 2024-09-06T09:31:21.034Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,18 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
  So, let's look at the built-in methods that you can use to find old posts on Facebook.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Find Old Posts on Facebook
 
  You can go about this in four ways, the first two of which work great for searching through your or someone else's timeline. The other two focus mainly on finding posts on your timeline only. These methods include using the default search function, searching on your timeline, using timeline filters, and using the Activity Log.
@@ -39,6 +51,12 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
 ![Facebook posts search result by year](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-posts-search-result-by-year.jpg)
@@ -49,6 +67,12 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
  While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
@@ -56,7 +80,10 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 2\. Using the Search Option on the Facebook Timeline
 
@@ -65,13 +92,13 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 ![The Search Option On the Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/the-search-option-on-the-facebook-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Using Filters on the Timeline
 
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
@@ -89,21 +116,29 @@ thumbnail: https://thmb.techidaily.com/4f0baa4676690f713a7c64c49fa175c4aff67762b
 ![Accessing the Activity Log In Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/accessing-the-activity-log-in-your-facebook-timeline-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
 ![Different options to find old posts through Facebook Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/different-options-to-find-old-posts-through-facebook-activity-log.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  As you can see, a sidebar menu on the left lets you filter the log with**Your Activity Across Facebook** ,**Personal Information** ,**Connections** , and more. Each of these options has a bunch of sub-menus to refine the Activity Log further, but your posts are mostly under**Your Activity Across Facebook** . You can even search through your Activity Log if you still can't find the post you need.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easily Search for Old Facebook Posts
 
  Using one of the methods mentioned above will help you find the post or photo you're looking for whether it is on the timeline or something you liked or commented on. To recap, let's list which method you should use in a specific scenario.

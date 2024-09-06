@@ -1,7 +1,7 @@
 ---
 title: "Ingenious Integrity: FB Friends Concealment"
-date: 2024-09-01T03:56:31.370Z
-updated: 2024-09-02T03:56:31.370Z
+date: 2024-09-05T09:31:22.286Z
+updated: 2024-09-06T09:31:22.286Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: Ingenious Integrity,Facebook Secrets,Friendship Deception,Hidden Behav
 thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd74185b074d0cf9fcbe34770c5fd.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ingenious Integrity: FB Friends Concealment
 
  Facebook is public. Too public. You want to have an account, you want to keep in touch with your friends, but sometimes it goes too far. Do_all_ your friends really have to know about_all_ your other friends? How can you gain more privacy on the social media platform?
@@ -27,13 +39,16 @@ thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd7418
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Hiding Your Friends List on Mobile
 
  The steps to hide your friends list are easy on the Facebook mobile app.
@@ -49,27 +64,32 @@ thumbnail: https://thmb.techidaily.com/c8e68cffef41fc4061ac722c7019bbd23a7bd7418
 ![facebook more menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-more-menu.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Hiding Your Friends List on Desktop
 
@@ -81,17 +101,26 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  3\. From the left sidebar, click**Privacy** .
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.

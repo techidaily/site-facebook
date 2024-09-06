@@ -1,7 +1,7 @@
 ---
 title: "Emerging Tech: Two Cameras on First FB Wearable Suggested"
-date: 2024-09-01T03:54:39.028Z
-updated: 2024-09-02T03:54:39.028Z
+date: 2024-09-05T09:31:23.889Z
+updated: 2024-09-06T09:31:23.889Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,30 @@ keywords: Multi-Camera Wearables,Facebook Wearable Tech,Emerging Wearable Camera
 thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec05c10e1ad65882453b11db44.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Emerging Tech: Two Cameras on First FB Wearable Suggested
 
  Reports of[Facebook working on its own smartwatch](https://www.makeuseof.com/facebook-making-smartwatch/) first emerged at the beginning of this year. A new report has now detailed that the social media giant is taking a unique approach with its smartwatch, which it is currently planning to launch in the summer of 2022.
 
  While most companies tend to design smartwatches to complement smartphones with their functionality, Facebook is taking a different approach. The company reportedly wants its smartwatch to be used in a similar fashion as smartphones.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Smartwatch Could Feature Two Detachable Cameras
 
  A report from[The Verge](https://www.theverge.com/2021/6/9/22526266/facebook-smartwatch-two-cameras-heart-rate-monitor) claims that Facebook's smartwatch will have two detachable cameras, one at the front and another at the back. The front camera will be primarily used for video calling purposes.
@@ -29,10 +47,22 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 
 ![facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-ui.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook's smartwatch will run a customized version of Android. The company will be working with its partners and offer its own suite of apps to deliver a feature-rich user experience. It will launch a companion smartphone app for the watch as well.
 
  The report is light on the smartwatch's health tracking feature, but it will feature a heart rate monitor.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Could Still Scrap Its Smartwatch
 
  Facebook plans to offer its smartwatch in white, black, and gold colors with stainless steel chassis. The company expects the watch to sell in low six figures initially, with the number going up as with future generations of the smartwatch. While not finalized, Facebook could price the smartwatch at around $400.
@@ -46,7 +76,22 @@ thumbnail: https://thmb.techidaily.com/f1107e3da6770974363fecbf7658ee04571722ec0
 ![Transfer Facebook posts and notes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/transfer-posts-notes-facebook-featured.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## This Will Be an Uphill Battle for Facebook
 

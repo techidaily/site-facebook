@@ -1,7 +1,7 @@
 ---
 title: The Art of Selective Shout-Outs on FB in Three Simple Ways
-date: 2024-09-01T03:54:01.694Z
-updated: 2024-09-02T03:54:01.694Z
+date: 2024-09-05T09:31:24.430Z
+updated: 2024-09-06T09:31:24.430Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Selective Shouts on Facebook,Social Media Highlights,Effective FB Prom
 thumbnail: https://thmb.techidaily.com/b291d1186c17a0e27af028a28ffb312d4304bf88d64275a707a4eb2f0cc766f8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Art of Selective Shout-Outs on FB in Three Simple Ways
 
 Wondering how to tag someone on Facebook?
@@ -21,6 +27,12 @@ Wondering how to tag someone on Facebook?
 
  Let's take a look at some of the ways you can tag others on Facebook. Keep in mind that your friends' privacy settings may affect the effectiveness of some methods, so not all will work the same for all friends.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. Tagging in Status Updates and Comments
 
  When you post a status update, you can tag your friends by typing an**@** symbol followed by their names. As you type, a small window appears and updates automatically to show the best match for the text you've entered.
@@ -29,10 +41,22 @@ Wondering how to tag someone on Facebook?
 
 ![Facebook Status Update Tagging](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-status-update-tagging.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  In addition to your own friends, you can also tag other people and pages on Facebook. This includes friends of friends, business pages, and similar. The same method works for tagging others in comments across Facebook, too.
 
  Just be aware that if your post privacy is set to**Friends** , tagging someone makes your post visible to their friends as well. You'll see the post privacy button change to**Friends (+)** to reflect this---see[our guide to Facebook symbols](https://www.makeuseof.com/tag/guide-facebook-symbols/) if this is new to you.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Tag Who You Were With
 
  Facebook allows you to add several elements to your posts, including feelings, location check-ins, and similar. One of these lets you mention that you were with certain friends.
@@ -43,11 +67,14 @@ Wondering how to tag someone on Facebook?
 
 ![Facebook With Friends Tag](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-with-friends-tag.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The above method of tagging people makes the most sense when mentioning someone in what your status says or making sure they see it. This option is more useful for letting people know your friends were actually with you.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Facebook Photo Tagging
 
 [Tagging friends in Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) will add their name to a**With** line in the photo's description. It also lets others easily identify them by mousing over their face in the picture.
@@ -58,9 +85,6 @@ Wondering how to tag someone on Facebook?
 
 ![Tag Facebook Photo Example](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/tag-facebook-photo-example.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Depending on the privacy settings of the person you tagged and the owner of the photo, they may have to approve the tag manually. And you might not see the tag option at all on other people's photos if they have disabled the option to let other people tag their images.
 
  If you want to add tags to your own photo when you upload it, click the**Edit** button at the top-left of the image when you have the post open. Click**Tag photo** from the left side, then follow the same steps to click on faces and enter names.
@@ -68,10 +92,10 @@ Wondering how to tag someone on Facebook?
 ![Facebook Tag New Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-tag-new-photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Facebook Tagging Made Easy
 

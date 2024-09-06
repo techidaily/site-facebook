@@ -1,7 +1,7 @@
 ---
 title: "January Update: Trump and FB Account Future"
-date: 2024-09-01T03:57:46.698Z
-updated: 2024-09-02T03:57:46.698Z
+date: 2024-09-05T09:31:21.200Z
+updated: 2024-09-06T09:31:21.200Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: January SEO Trends,Political Page Growth,Social Media Policy Impact,Pr
 thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b47da5a3ba04abf6fa06e5e49.jpeg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## January Update: Trump and FB Account Future
 
  Trump may be completely absent from social media right now, but he might come back (at least, on Facebook and Instagram) just in time for the 2024 US presidential election.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Will Rethink Trump's Ban in Two Years
 
  A new post to[Facebook Newsroom](https://about.fb.com/news/2021/06/facebook-response-to-oversight-board-recommendations-trump/) shares that the platform's ban of former US president Donald Trump will last for two years, effective from the date of the initial suspension (January 7).
@@ -31,10 +43,28 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 
 ![Facebook's penalties for politicians that violate policies](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-politicians-penalties.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  "When we assess content for newsworthiness, we will not treat content posted by politicians any differently from content posted by anyone else," writes Nick Clegg, Facebook VP of Global Affairs.
 
  Clegg continues by explaining that Facebook will apply the same "newsworthiness balancing test" to all content. The company will measure a post's public interest value against the potential harm of leaving it up, and decide on what action to take based on which weighs more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How We Got Here: A Timeline of Trump's Facebook Ban
 
  To understand why Facebook removed Trump from its social media platforms, we have to roll all the way back to the beginning of the year.
@@ -45,6 +75,12 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
 
 ![Facebook Tweaked News Feed Election](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-tweaked-news-feed.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Facebook was given six months to reassess Trump's suspension, and yet it has already announced its its action plan after less than one. On top of that, Facebook has also responded to the Oversight Board's 19 recommended policy changes.
 
 > Out of the board’s 19 recommendations, we are committed to fully implementing 15\. We are implementing one recommendation in part, still assessing two recommendations, and taking no further action on one recommendation.
@@ -52,7 +88,10 @@ thumbnail: https://thmb.techidaily.com/6d3bb4c433103a9800faaf6de96c171f6d26a01b4
  You can read[Facebook's response](https://about.fb.com/wp-content/uploads/2021/06/Facebook-Responses-to-Oversight-Board-Recommendations-in-Trump-Case.pdf) \[PDF\] in full on Facebook Newsroom.
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Did Facebook Really Listen to the Oversight Board?
 

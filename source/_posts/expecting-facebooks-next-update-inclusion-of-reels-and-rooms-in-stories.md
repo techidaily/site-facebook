@@ -1,7 +1,7 @@
 ---
 title: "Expecting Facebook's Next Update: Inclusion of Reels & Rooms in Stories"
-date: 2024-09-01T03:56:15.841Z
-updated: 2024-09-02T03:56:15.841Z
+date: 2024-09-05T09:31:22.510Z
+updated: 2024-09-06T09:31:22.510Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Facebook Story Updates,Reels Integration News,Room Feature Release,Soc
 thumbnail: https://thmb.techidaily.com/cbf413290d1b7e29d9934e3ea1990c5dc72e7e77a07dc3de6c6added5ee7ee53.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Expecting Facebook's Next Update: Inclusion of Reels & Rooms in Stories
 
  Facebook has come a long way since its days of only hosting personal profiles and pages. Now, you can watch videos and livestreams, have audio and video chats with your friends, sell things in the Marketplace, and more.
 
  The downside to having so much functionality in one app is that is can be difficult to organize the user interface in such a way that all that info isn't too overwhelming.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Tests Reels and Rooms In Home Feed
 
  In its continued push to compete with TikTok and Clubhouse, Facebook is reportedly testing new tabs in the Stories panel for Instagram Reels and its own Rooms.
@@ -33,10 +45,28 @@ thumbnail: https://thmb.techidaily.com/cbf413290d1b7e29d9934e3ea1990c5dc72e7e77a
 
  Originally, it was believed that[Facebook was making a standalone app to compete with Clubhouse](https://www.makeuseof.com/facebook-making-clubhouse-app/) , but Live Audio Rooms (and Podcasts) were instead built right into Facebook. You can read their introduction on[Facebook Newsroom](https://about.fb.com/news/2021/06/live-audio-rooms-and-podcasts-on-facebook/) .
 
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Continues to Compete With… Just About Everything, Really
 
 ![Facebook Slows Down Election Misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-slow-down-election-misinfo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Everyone knows the Facebook story by now: CEO Mark Zuckerberg created a website in 2003 while he was attending Harvard University, and it blew up much bigger than he ever imagined.
 
  Since then, Facebook has grown into a tech conglomerate, rolling out new products and services to capitalize on almost every major tech trend—and succeeding, more often than not. There are quite a few examples of this, even aside from Instagram Reels and Rooms.
@@ -120,7 +150,3 @@ thumbnail: https://thmb.techidaily.com/cbf413290d1b7e29d9934e3ea1990c5dc72e7e77a
 <li><a href="https://facebook.techidaily.com/1719154492525-when-will-the-gavel-fall-anticipating-facebooks-judgment-on-trump/"><u>When Will the Gavel Fall? Anticipating Facebook's Judgment on Trump.</u></a></li>
 <li><a href="https://facebook.techidaily.com/1719143829217-why-joining-forces-on-facebook-heres-the-proof/"><u>Why Joining Forces on Facebook? Here's the Proof</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->

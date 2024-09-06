@@ -1,7 +1,7 @@
 ---
 title: Moratorium Over Trump's Suspension Decision
-date: 2024-09-01T03:56:34.026Z
-updated: 2024-09-02T03:56:34.026Z
+date: 2024-09-05T09:31:22.250Z
+updated: 2024-09-06T09:31:22.250Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Moratorium on Trump Policy,Trump Administration Reversal,2017 Politica
 thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e861b58d7c8b2fd02e294cb8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Moratorium Over Trump's Suspension Decision
 
  Facebook's Oversight Board is still mulling over the fate of Donald Trump's accounts on Facebook and Instagram. Although a ruling was expected in a matter of days, the Oversight Board now says that it will reach a final decision "in the coming weeks."
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Oversight Board Weighs the Status of Trump's Accounts
 
  After the Capitol riots in January,[Facebook banned Trump from Facebook and Instagram indefinitely](https://www.makeuseof.com/facebook-instagram-indefinitely-ban-trumps-account/) . But making the decision to permanently ban Trump is much too significant for Facebook to decide on its own, so Facebook determined that it needed another set of eyes to examine the situation.
@@ -31,6 +43,12 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 
  The Oversight Board was only introduced in December 2020, but it has already ruled on a number of cases. The permanent suspension of Trump's accounts is arguably the biggest decision the Oversight Board has had to make so far, so it only makes sense that it's delaying the final ruling.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Will the Oversight Board Choose to Ban Trump?
 
  Once the Oversight Board reaches a resolution, Facebook—and even Mark Zuckerberg himself—won't be able to overrule the Board's decision. The Board's decision will be binding, which means that Facebook will be forced to accept the change.
@@ -103,7 +121,3 @@ thumbnail: https://thmb.techidaily.com/28b4424e01d4cc277a30d2dc85adec4230b241c9e
 <li><a href="https://media-tips.techidaily.com/prepare-yourself-even-more-prime-video-commercials-on-the-way-from-amazon/"><u>Prepare Yourself: Even More Prime Video Commercials on the Way From Amazon</u></a></li>
 <li><a href="https://youtube-clips.techidaily.com/top-facts-in-the-asmr-world/"><u>Top Facts in the ASMR World</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

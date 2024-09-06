@@ -1,7 +1,7 @@
 ---
 title: "Social Rhythms and Playlists: Anticipating the Unveiling of FB&SPOTIFY’s Boombox"
-date: 2024-09-01T03:56:32.720Z
-updated: 2024-09-02T03:56:32.720Z
+date: 2024-09-05T09:31:22.264Z
+updated: 2024-09-06T09:31:22.264Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Social Rhythms in Music,Playlist Generation Technology,Spotify's New F
 thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002cdc0aa0e847be271477f189f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Social Rhythms and Playlists: Anticipating the Unveiling of FB&SPOTIFY’s Boombox
 
  As Facebook expands into the world of audio, Facebook CEO Mark Zuckerberg hinted at a collaboration with Spotify. Project Boombox, the name of the upcoming integration, will allow users to listen to Spotify through Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook and Spotify Team up on Project Boombox
 
 [Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
@@ -31,6 +43,12 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio Is Exploding, But Is It Here to Stay?
 
  Facebook is making an aggressive push towards audio as it races to compete with Clubhouse, an app for audio-based chatrooms. Other platforms are creating their own versions of Clubhouse as well, with Twitter launching Spaces and even LinkedIn working on Live Audio Rooms.
@@ -95,7 +113,3 @@ thumbnail: https://thmb.techidaily.com/61dcd74c9ca257bd7a3583ce0e08424eaf979002c
 <li><a href="https://some-tips.techidaily.com/streamline-your-sound-key-audio-interfaces-for-podcasters-for-2024/"><u>Streamline Your Sound  Key Audio Interfaces for Podcasters for 2024</u></a></li>
 <li><a href="https://youtube-videos.techidaily.com/striking-visuals-for-success-a-deep-dive-into-youtube-live-imagery/"><u>Striking Visuals for Success  A Deep Dive Into YouTube Live Imagery</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->

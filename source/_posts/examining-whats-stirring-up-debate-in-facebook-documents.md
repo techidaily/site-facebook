@@ -1,7 +1,7 @@
 ---
 title: Examining What's Stirring Up Debate in Facebook Documents
-date: 2024-09-01T03:54:52.182Z
-updated: 2024-09-02T03:54:52.182Z
+date: 2024-09-05T09:31:23.685Z
+updated: 2024-09-06T09:31:23.685Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Facebook Debate Analysis,Social Media Controversy,FB Internal Document
 thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b059873f4809f00d7b660fc375.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Examining What's Stirring Up Debate in Facebook Documents
 
  For Facebook, 2021 is the year that just can't end quickly enough. Rocked by data breaches, internal leaks, rocky share prices, and accused of playing a core part in the January riot in Washington, Facebook is under pressure.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
 
  The documents provide unparalleled insight into Facebook's inner workings, detailing internal policies, arguments, complaints, worries about the direction of the platform, its involvement with spreading hatred and political violence, and much, much more.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Are the Facebook Papers?
 
  In late September 2021, The Wall Street Journal began publishing a series of articles containing information from a series of internal Facebook documents.
@@ -35,6 +47,12 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
 
  The video below is Haugen's interview on 60 Minutes, where she details many of the revelations found in the Facebook Papers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Zuckerberg Believes It's an Attack on the Company
 
  Despite the damning nature of the documents, Facebook CEO Mark Zuckerberg[described](https://s21.q4cdn.com/399680738/files/doc%5Ffinancials/2021/q3/FB-Q3-2021-Earnings-Call-Transcript.pdf) the leaked documents as a coordinated effort to attack the company.
@@ -44,7 +62,10 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
  He goes on to talk about how the polarization of US politics and indeed, society at large, began long before he was born, and that Facebook will never solve these issues on its own.
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is This the End for Facebook?
 

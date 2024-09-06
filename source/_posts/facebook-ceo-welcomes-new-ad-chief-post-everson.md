@@ -1,7 +1,7 @@
 ---
 title: Facebook CEO Welcomes New Ad Chief Post-Everson
-date: 2024-09-01T03:53:56.430Z
-updated: 2024-09-02T03:53:56.430Z
+date: 2024-09-05T09:31:24.511Z
+updated: 2024-09-06T09:31:24.511Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Facebook Ads Leadership Change,Everson's Impact on FB Ads,Social Media
 thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50cca52847005eac86a562eee.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook CEO Welcomes New Ad Chief Post-Everson
 
  Now that Facebook is losing a big chunk of its revenue thanks to Apple's iOS 14.5 security update, its relationship with its advertisers has become even more important.
 
  It's somewhat unfortunate timing, but a key player in Facebook's advertising strategy has just stepped down.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Loses Its Top Ad Executive
 
  Carolyn Everson, now former vice president of Facebook's Global Business Group, has[posted](https://www.facebook.com/carolyn.everson/posts/10158032648075913) to her Facebook page saying that she has left the company.
@@ -29,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
 
 ![find-video-facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/02/find-video-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Everson doesn't go into details as to what her plans are from here on out, but [Insider](https://www.businessinsider.com/outgoing-facebook-carolyn-everson-is-believed-headed-for-a-ceo-role-2021-6) reports that she's now looking to fill a top executive role elsewhere.
 
  Two unnamed industry professionals believe that Everson wants to be a CEO, with one adding that an early-stage, California-based marketing and tech company is hoping to hire her.
@@ -43,10 +61,28 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
 
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
  Historically speaking, the ad sales chief deals with criticism like no other—especially when the social platform is in hot water (which happens way more more often than it should). Whoever takes up the role will become the first person activists and advertisers will contact when they've got a complaint.
@@ -116,7 +152,3 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
 <li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-facebook-for-app-logins/"><u>Weighing the Advantages and Disadvantages of Facebook for App Logins</u></a></li>
 <li><a href="https://facebook.techidaily.com/why-is-facebook-choosing-just-feed-and-what-does-it-mean-for-users/"><u>Why Is Facebook Choosing 'Just Feed', And What Does It Mean for Users</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

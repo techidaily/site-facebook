@@ -1,7 +1,7 @@
 ---
 title: Revisiting Key News Events That Defined Google
-date: 2024-09-01T03:53:49.757Z
-updated: 2024-09-02T03:53:49.757Z
+date: 2024-09-05T09:31:24.603Z
+updated: 2024-09-06T09:31:24.603Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,12 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
  But which stories took the cake in 2022? What were Google's top news moments this year? Let's take a look.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. The $400 Million Location Tracking Settlement
 
 ![black and white photo of person using maps app on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/black-white-maps.jpg)
@@ -33,6 +39,12 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
  This class action lawsuit sought damages for anti-competitive behavior and "market abuse" on the part of Google, as said in a statement published by the[Humphries Kersetter law firm](https://www.humphrieskerstetter.com/news/) , which is representing the allegedly affected UK businesses in this lawsuit along with Geradin Partners. In the same statement, it was written that some companies may have lost up to 40% of their ad revenue as a result of Google's actions.
@@ -40,7 +52,10 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. The End of YouTube Originals
 
@@ -53,12 +68,21 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
  In early 2022, the US International Trade Commission ruled that Google did indeed violate a total of five Sonos patents. But in August of the same year, Google hit Sonos back with its own lawsuit, claiming that Sonos had actually violated seven of Google's patents, such as its voice assistant technology.
@@ -66,7 +90,10 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 5\. A "Secret" Facebook Deal
 
@@ -83,16 +110,10 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
@@ -103,15 +124,15 @@ thumbnail: https://thmb.techidaily.com/a080ef814e8219bc0372e6a68a593bc00b4cb1212
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## Google Has Gone Through a Lot in 2022
 
  There's no doubt that Google has seen its fair share of trials and tribulations throughout 2022, with various lawsuits, rumors, and changes to services giving it plenty of reasons to be featured in the news. But Google is no stranger to legal disputes and criticism, so we may see more similar headlines in 2023.

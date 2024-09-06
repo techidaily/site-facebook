@@ -1,7 +1,7 @@
 ---
 title: "Masking Your Media: A Step Towards FB Privacy"
-date: 2024-09-01T03:54:04.047Z
-updated: 2024-09-02T03:54:04.047Z
+date: 2024-09-05T09:31:24.396Z
+updated: 2024-09-06T09:31:24.396Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Mask Media FB Privacy,Media Hiding Tips Facebook,Protect Media on FB,S
 thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb0989998d476930eca7a23cc9b.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Masking Your Media: A Step Towards FB Privacy
 
  There are many reasons you should make your photos private on Facebook. Aside from privacy concerns, the site is also teeming with unscrupulous scammers who want to take advantage of other people on the platform.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
  Here's all you need to know about how to make photos private on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Make Your Facebook Photos Private
 
  To make photos private on Facebook, you can change the privacy settings of entire albums or individual photos.
@@ -46,6 +58,12 @@ thumbnail: https://thmb.techidaily.com/f34f1e15652c4e288fb8fde812b08aadacd96fb09
 
 ![Privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-album-privacy-setting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
 ### How to Make Albums Private on Facebook on the Web
@@ -57,11 +75,6 @@ Close
 
 ![Albums section on Facebook's Web version](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-web-albums.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 * Next, click the**three dots** in the top right of the album you wish to make private and select**Edit album** from the pop-up.
 
 ![Edit album option on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/edit-album-option-facebook-web.jpg)
@@ -71,16 +84,10 @@ The powerful video editing program for your Windows PC</a>
 
 ![Setting album privacy on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-album-privacy-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  If you don't want to make the photos completely private and still want to share them, just with a more limited audience, you can choose the audience options for**Friends** ,**Friends except** , or**Specific friends** .
 
  If you want to show the album only to a group of friends on a certain list, select**Custom** . This allows you to have fine-grained control over who can see your Facebook photos without totally hiding them from everyone. However, this option is only available on Facebook's website.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Make Individual Facebook Photos Private on Android and iOS
 
  You can also change the privacy of individual photos on Facebook to make them private.
@@ -107,19 +114,24 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Viewing a photo on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-photo-uploaded-to-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Photo settings options on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-facebook-photo-settings-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ### How to Make Individual Facebook Photos Private on the Web
 
  If you're accessing Facebook on your desktop or laptop, follow these steps to make individual photos private:
@@ -131,7 +143,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Your photos in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-your-photos-album-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 * Click to open the photo you want to make private.
 * Next, click the**three dots** in the top right and select**Edit post audience** .
@@ -142,6 +157,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  You can also choose other audience options if you don't want to hide the photo completely and just want to make it less public. However, the best way to avoid[the risks of using Facebook](https://www.makeuseof.com/tag/the-top-4-risks-you-face-when-you-use-facebook/) is to hide your photos completely or only share them with select people using the available**Specific friends** option.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Who Can See My Photos on Facebook? How to Check
 
  If you want to double-check the privacy of your photos, you can view your public profile on Facebook. This is the profile that people who aren't your friends can see.
@@ -157,7 +178,16 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Hide Photos on Facebook From the Public in the Future
 
@@ -170,12 +200,27 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  If you don't set a default audience option, always check this button before you upload or post anything on Facebook. You should do this just to make sure you are not accidentally sharing photos or information with people outside the platform and your friends list.
@@ -184,9 +229,6 @@ Close
 
  Having a[Facebook privacy and security checklist](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) that you go through regularly will help make sure you catch any of these photos right away. Remember that the longer these photos are shared publicly on social media, the higher the chances of a scammer getting a hold of them. Although this helps, you can[make your Facebook private](https://www.makeuseof.com/how-to-make-facebook-private/) if you need more security.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Now You Know How to Hide Photos on Facebook
 
  Reviewing your social media accounts and changing the audience settings of your photos to private is a good cyber hygiene practice. It will not only protect your data but will also protect the privacy of your loved ones who may be in the pictures you upload.

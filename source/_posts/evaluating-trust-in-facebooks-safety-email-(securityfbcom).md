@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Trust in Facebook's Safety Email: <security@fb.com>"
-date: 2024-09-01T03:55:30.447Z
-updated: 2024-09-02T03:55:30.447Z
+date: 2024-09-05T09:31:23.113Z
+updated: 2024-09-06T09:31:23.113Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,12 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 
  The email is legit, and Facebook's parent company, Meta, has been sending it to accounts with wider reach on the social network, but it might still seem like a scam to you. How else can you verify its legitimacy? And how should you respond if it turns out to be a scam after all?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is "<Security@facebookmail.com>" a Safe Email Address?
 
 ![Facebook Notification That User's Account Has Been Temporarily Locked](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-notification-that-user-s-account-has-been-temporarily-locked.jpg)
@@ -37,6 +43,12 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 
  But could the email asking you to enable Facebook Protect also be a scam? It's possible...
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Is the Facebook Protect Email a Scam?
 
 ![Laptop Placed on a Table With Facebook Protect Account Settings Open on It](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/laptop-placed-on-a-table-with-facebook-protect-account-settings-open-on-it.jpg)
@@ -45,6 +57,12 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 
  In light of this, you should ensure that the email asking you to enable Facebook Protect comes from Facebook itself, so you can avoid being scammed. But how can you verify it?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Check the Email You Received From Facebook Is Legit
 
  Perform the following checks to verify that the email you received from Facebook is legitimate:
@@ -54,14 +72,20 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 * Facebook also lets users view recent emails they received in their account security settings. That's another way of verifying the legitimacy of the email. For this, log into your account, click on the**profile icon** in the top-right corner, navigate to**Settings & privacy > Settings** , and then click**Security and login** in the left-sidebar.  
 ![Opening Facebook Settings on Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Opening-Facebook-Settings-on-Facebook-Web-Client.jpg)  
  Afterward, click the**View** button next to**See recent emails from Facebook** under**Advanced** .  
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Clicking on View to View Recent Emails From Facebook in Facebook Web Client](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Clicking-on-View-to-View-Recent-Emails-From-Facebook-in-Facebook-Web-Client.jpg)  
  If the same email you received appears here, it's official. Otherwise, it's a scam.
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Respond to a Legit Facebook Protect Email
 
@@ -75,7 +99,10 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 ![Enabling Facebook Protect in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Enabling-Facebook-Protect-in-Facebook-Settings-1.jpg)
 6. Then, follow the on-screen instructions to activate Facebook Protect.
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The Facebook Protect feature is only available for a limited number of Facebook users. And Facebook removes this feature from certain accounts when it feels that the account no longer meets the criteria to enjoy it. If you cannot find this option despite enabling it before, it signifies that your account no longer meets the eligibility criteria. So don't worry about it having been a scam!
@@ -88,16 +115,10 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
 
  In addition, you need to block the address that sent the email and delete the message. This way, they won't be able to[attempt any other phishing scam](https://www.makeuseof.com/what-is-phishing/) from that account, which will prevent you from falling victim to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ## What to Do if You Fall for a Fake Facebook Protect Email Scam
 
 ![Man sitting infront of a MacBook with one of his hands on his forehead](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Man-sitting-infront-of-a-MacBook-with-one-of-his-hands-on-his-forehead.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
  If scammers get the best of you and you fall for the fake Facebook Protect email scam, you should take immediate action to minimize the damage they could cause. If your[profile has been hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) after clicking a link in an email, do not waste any time in[recovering your Facebook account](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) .
 
  Once you successfully recover it, ensure that no changes have been made to the administrator permissions on your Facebook pages; review the last posts made through your account; check comments made via your profile; and analyze any other activity that could negatively impact your reputation.
@@ -107,7 +128,10 @@ thumbnail: https://thmb.techidaily.com/c18d888464621b9b20ff1e9897c3e6fc08590ad72
  If you clicked on a link in the email and it downloaded software, delete that and run a malware scan to ensure your device isn't infected.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## "<Security@facebookmail.com>" Is Legit (but You Should Still Be Careful)
 

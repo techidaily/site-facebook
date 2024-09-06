@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Connectivity: Configuring Your Facebook Portal TV"
-date: 2024-09-01T03:55:01.252Z
-updated: 2024-09-02T03:55:01.252Z
+date: 2024-09-05T09:31:23.551Z
+updated: 2024-09-06T09:31:23.551Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,28 @@ thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f6392
 
  Having large images of your family, friends, and/or colleagues on the TV screen during a video call creates an illusion of proximity.
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is the Facebook Portal TV?
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
@@ -59,23 +77,38 @@ thumbnail: https://thmb.techidaily.com/14ec252872982da41ad9f63f459b4e43e487f6392
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Plugging In Your Portal TV
 
 1. Plug in the power adapter and the HDMI cable and then plug the power adapter into an electric source. Your TV will turn on.
 2. Connect the HDMI cable to your TV. Use HDMI1 for best results.
 3. Select the input after turning on your TV.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Finding the Right Spot for Your Portal TV
 
 1. Place your Portal TV close to your TV, either on top of it or underneath it, on a flat surface.
 2. Don't place your Portal TV very close to a speaker or soundbar.
 3. Your Portal TV comes with Dolby Atmos sound. For effective use, it requires Dolby Atmos-encoded streaming content as well as a compatible audio system.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Mounting Your Portal TV on Top of Your TV
 
 Your Portal TV has two clips.
@@ -85,30 +118,26 @@ Your Portal TV has two clips.
 3. Simultaneously press the back clip of your Portal TV against the back of your TV frame and the front clip of your Portal TV against the front of your TV frame.
 4. Press the back clip of your Portal TV against the back of your TV for a firm grip.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 ### Setting Up Your Remote
 
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Selecting Your Language and Connecting to Wi-Fi
 
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -127,13 +156,16 @@ The ultimate burning program for all your needs!</a>
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Portal Voice Commands You Need to Know
 
 ![Portal TV by Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-by-facebook-copy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Here is how to use voice commands to make, answer, and hang up calls on your Portal.
 
 **To make a call** , say "Hey Portal, call (insert contact’s name)."
@@ -142,9 +174,6 @@ The ultimate burning program for all your needs!</a>
 
 **To hang up a call** , say "Hey Portal, hang up."
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Building Stronger Relationships by Connecting on the Big Screen
 
  Video chatting with family and friends on the big screen can make you feel closer to them even when they are far away. You can see their faces and expressions clearly like they are standing in front of you.

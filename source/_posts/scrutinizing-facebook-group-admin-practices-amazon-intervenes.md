@@ -1,7 +1,7 @@
 ---
 title: "Scrutinizing Facebook Group Admin Practices: Amazon Intervenes"
-date: 2024-09-01T03:58:40.550Z
-updated: 2024-09-02T03:58:40.550Z
+date: 2024-09-05T09:31:20.392Z
+updated: 2024-09-06T09:31:20.392Z
 tags:
   - facebook
 categories:
@@ -13,16 +13,46 @@ keywords: Social Media Oversight,FB Group Management,E-Commerce Platform Action,
 thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c63be7c3be4720f86eba5080f.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Scrutinizing Facebook Group Admin Practices: Amazon Intervenes
 
  Amazon shoppers rely on reviews of a product by previous customers to help guide their buying choices. Crafty sellers have found a way to exploit this by using Facebook groups to mobilize fake positive product reviews.
 
  Amazon doesn't like this one bit and have taken legal steps to stop it. Here are the details...
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amazon Sues Facebook Group Admins
 
 ![wooden gavel on table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/court.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Amazon has sued the administrators of more than 10,000 Facebook groups for allegedly using their groups to mobilize people to write fake or misleading product reviews in exchange for cash or free products.
 
  According to an[Amazon press release](https://press.aboutamazon.com/news-releases/news-release-details/amazon-targets-fake-review-fraudsters-social-media) :
@@ -33,10 +63,22 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
  Furthermore, Amazon says Facebook groups like the now closed Amazon Product Review group avoid Facebook detection by "obfuscating letters from problematic phrases" (misspelling or replacing letters of key phrases).
@@ -46,7 +88,10 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Are Fake Reviews a Big Problem?
 
@@ -58,9 +103,6 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
 
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
 
  Fake product reviews on the internet can't be eliminated entirely. However, fake reviews can be lowered to tolerable levels.

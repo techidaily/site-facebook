@@ -1,7 +1,7 @@
 ---
 title: Facebook Foresees Fresh Approach Towards Teen Instagram Habits
-date: 2024-09-01T03:56:10.372Z
-updated: 2024-09-02T03:56:10.372Z
+date: 2024-09-05T09:31:22.577Z
+updated: 2024-09-06T09:31:22.577Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Teen Instagram Usage Trends,Facebook & Youth Engagement,Instagram's Ne
 thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d2162e7b2d2d4b3ce7e2a13800.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Foresees Fresh Approach Towards Teen Instagram Habits
 
  Facebook is planning to introduce new measures to make its platforms safer for children amid increasing pressure over its effect on young users' mental health.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/3707ff184ff67962a6b219b0ce3645aba18b53d21
 
 Here's what to know about the planned Instagram features.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is the Planned "Take a Break" Feature?
 
  Facebook says it wants to play its part in ensuring that young Instagram users don't spend too much time on the app, so it will be launching a Take a Break feature. The feature will encourage teens to step away from using the app temporarily.
@@ -35,6 +47,12 @@ This feature could possibly address those concerns.
 
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Nudging Teens Away From Potentially Harmful Content
 
  In addition to prompts to take a break, Facebook will nudge teens away from content that is potentially harmful. When Facebook's systems alert it that a young user is repeatedly viewing or engaging with content that is potentially harmful, Facebook will step in to "nudge" the teen away from that content and turn their attention towards other content.
@@ -46,7 +64,16 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why Is Facebook Introducing These Features?
 
@@ -59,7 +86,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 

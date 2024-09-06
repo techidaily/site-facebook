@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Next Big Thing: Facebook & Spotify's Boombox Initiative"
-date: 2024-09-01T03:56:05.199Z
-updated: 2024-09-02T03:56:05.199Z
+date: 2024-09-05T09:31:22.637Z
+updated: 2024-09-06T09:31:22.637Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Facebook Boombox Collaboration,Spotify Playlist Integration,Cross-Plat
 thumbnail: https://thmb.techidaily.com/84fef5f35988a89f310851ba69e27f36f222e4900085b075caa3fb4e05a962a8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Unveiling the Next Big Thing: Facebook & Spotify's Boombox Initiative
 
  As Facebook expands into the world of audio, Facebook CEO Mark Zuckerberg hinted at a collaboration with Spotify. Project Boombox, the name of the upcoming integration, will allow users to listen to Spotify through Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook and Spotify Team up on Project Boombox
 
 [Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
@@ -31,6 +43,12 @@ thumbnail: https://thmb.techidaily.com/84fef5f35988a89f310851ba69e27f36f222e4900
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Audio Is Exploding, But Is It Here to Stay?
 
  Facebook is making an aggressive push towards audio as it races to compete with Clubhouse, an app for audio-based chatrooms. Other platforms are creating their own versions of Clubhouse as well, with Twitter launching Spaces and even LinkedIn working on Live Audio Rooms.
@@ -93,7 +111,3 @@ thumbnail: https://thmb.techidaily.com/84fef5f35988a89f310851ba69e27f36f222e4900
 <li><a href="https://facebook.techidaily.com/1719145303400-stream-spotify-via-miniplayer-within-facebook/"><u>Stream Spotify via Miniplayer Within Facebook</u></a></li>
 <li><a href="https://tech-revival.techidaily.com/understanding-risks-the-six-main-cybersecurity-concerns-associated-with-using-chatgpt/"><u>Understanding Risks: The Six Main Cybersecurity Concerns Associated with Using ChatGPT</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

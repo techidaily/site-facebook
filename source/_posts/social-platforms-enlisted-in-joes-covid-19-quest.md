@@ -1,7 +1,7 @@
 ---
 title: Social Platforms Enlisted in JOE'S COVID-19 Quest
-date: 2024-09-01T03:57:02.008Z
-updated: 2024-09-02T03:57:02.008Z
+date: 2024-09-05T09:31:21.846Z
+updated: 2024-09-06T09:31:21.846Z
 tags:
   - facebook
 categories:
@@ -13,18 +13,42 @@ keywords: Social Media Marketing During COVID-19,Joe's Initiative,Utilizing Soci
 thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5bf0f7b20e24752b9917879c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Social Platforms Enlisted in JOE'S COVID-19 Quest
 
  While half of all US adults have already received at least one COVID-19 vaccine dose, US president Joe Biden hopes to get the whole population onboard. Rightfully so, since the US has seen over 30 million COVID-19 cases since the pandemic began.
 
  To do this, his administration is making use of just about every form of digital communication to encourage people to get vaccinated.
 
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The White House Will Use Social Media to Push Vaccine Eligibility
 
  According to an[Axios](https://www.axios.com/biden-vaccine-eligibility-push-e438587b-9b34-4b75-9132-7395c2768ed7.html) report, the White House is launching a "targeted media blitz" to promote the Biden administration's promotional campaign for vaccine eligibility. Facebook, Twitter, and Snapchat are some of the companies that'll help spread the word.
 
 ![](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/biden-and-us-flag.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: The White House/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:President%5Fof%5Fthe%5FUnited%5FStates%5FJoe%5FBiden%5F%282021%29.jpg)
 
  Originally, the White House set May 1 as the first day for all US states to allow residents aged 16 and older to get the COVID-19 vaccine. The date has since been pushed earlier to April 19.
@@ -37,12 +61,24 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Pixabay/Pexels
 
  When it comes to posts containing misinformation about vaccines,[Facebook removes them](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) . Twitter, on the other hand,[bans users that share them continuously](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) .
@@ -136,7 +172,3 @@ thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5
 <li><a href="https://facebook.techidaily.com/when-facebook-pulls-your-digital-plug-reasons/"><u>When Facebook Pulls Your Digital Plug: Reasons</u></a></li>
 <li><a href="https://tech-renaissance.techidaily.com/your-guide-to-enjoying-films-the-worlds-greatest-free-streaming-services-countdown-top-12/"><u>Your Guide to Enjoying Films: The World's Greatest Free Streaming Services (Countdown Top 12!)</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->

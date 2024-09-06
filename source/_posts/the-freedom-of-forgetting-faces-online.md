@@ -1,7 +1,7 @@
 ---
 title: The Freedom of Forgetting Faces Online
-date: 2024-09-01T03:55:19.935Z
-updated: 2024-09-02T03:55:19.935Z
+date: 2024-09-05T09:31:23.266Z
+updated: 2024-09-06T09:31:23.266Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: FaceForgetOnline,OnlineFaceForgotten,DigitalFaceErasure,PrivacyFaceHid
 thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f1438428a2471f9b4a0fdcaefb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Freedom of Forgetting Faces Online
 
  In 2013, I deleted all of my social media accounts. Now, years later, I'm glad I took that "extreme" step. If you're planning to quit social media yourself, you might have questions about what comes next and how to begin preparing for this drastic change.
@@ -23,6 +29,12 @@ Speaking from my own experience, here's what you can expect.
 
 ![Woman surprised on computer](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/surprise.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  When I[quit social media](https://www.makeuseof.com/how-to-quit-social-media/) , I encountered extremes of reactions from friends and strangers alike. First, there was genuine concern from people who wondered if something had gone wrong in my digital life. A few people thought I was being contrary and tried to either cajole or coerce me into returning.
 
  I also received scornful looks and you-will-be-back-in-a-week smirks. That I was more willing to meet people in person got ignored. That I refused to "stop being antisocial" online was the topic of never-ending debate.
@@ -42,15 +54,15 @@ Speaking from my own experience, here's what you can expect.
  Planning to quit social media to avoid information overload? Watch out for the continued temptation of social networking sites like Instagram. These sites let you browse their content without an account.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Being Out of the Loop
 
 ![Happy Girls Laughing at Smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Happy-Group-Looking-at-Phone.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
  You know those moments when everybody knows what's going on and you're the only clueless person around? Expect many more of them.
 
  Not staying up to date on Facebook statuses, Instagram updates, Twitter goings-on, and social media slang equals missing out on all the juicy references in conversations. Quite often, you won't get jokes because "you had to be there". You'll also have to field requests to join other, often obscure, social networks.
@@ -60,7 +72,10 @@ Speaking from my own experience, here's what you can expect.
  To[counter your fear of missing out on social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) , you might increase your activity on group messaging apps like WhatsApp or Discord. You'll also need to find alternative, sometimes old-school ways to keep in touch with friends and family. Keep in mind that the solutions need to be convenient for both parties.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Limited Access to Certain Sites
 
@@ -70,9 +85,6 @@ Speaking from my own experience, here's what you can expect.
 
  You might have to forgo many interesting services for the sole reason that you don't have a Facebook or Twitter login to sign up for an account. What happened to good old email signups?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Derailed Job Searches
 
  Job hunts are the worst hit by the lack of a social media presence. "Awesome social media skills" seem like a permanent fixture in job descriptions these days. It's a pity that these skills are at times considered more important than the technical skills you need to fulfill a role.
@@ -80,7 +92,10 @@ Speaking from my own experience, here's what you can expect.
  Staying up-to-date on LinkedIn, participating in Twitter chats, joining discussions in Facebook groups—these definitely open up more[opportunities to get ahead in your career](https://www.makeuseof.com/tips-let-people-know-you-open-to-work/) . (That's not a bad thing at all.) Naturally, you might feel tempted to resurrect your social media profiles.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 6\. More Headspace
 
@@ -93,7 +108,10 @@ Speaking from my own experience, here's what you can expect.
  Sure, you'll want to binge on social media feeds a few times a year. Don't feel guilty when that happens. Indulge yourself occasionally. Seeing the same old stuff you wanted to escape in the first place will put the situation in perspective for you.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## When It Comes to Social Media, Never Say Never
 

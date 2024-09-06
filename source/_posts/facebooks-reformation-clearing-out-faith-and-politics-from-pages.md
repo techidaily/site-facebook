@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Reformation: Clearing Out Faith & Politics From Pages"
-date: 2024-09-01T03:56:18.450Z
-updated: 2024-09-02T03:56:18.450Z
+date: 2024-09-05T09:31:22.478Z
+updated: 2024-09-06T09:31:22.478Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Facebook Policy Reform,Faith Removal on FB,Political Cleanup in Social
 thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0747a09da8301ee779ce2acf.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Reformation: Clearing Out Faith & Politics From Pages
 
  Facebook will be removing "sensitive information" from user profiles, including addresses, political views, sexual orientation, and religious views. These fields have existed for years on the social media platform, but will be deprecated in a December update.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook to Remove Sensitive Information
 
  Facebook gathers plenty of data from users and has extensive profile fields that allow users to link to family members, show their job history, and flag major life milestones. However, the social media site has attracted controversy in the past for how advertisers were able to use more sensitive data about users to target ads.
@@ -27,6 +39,18 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 
 ![facebook sensitive information deprecation notice](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-sensitive-information-deprecation-notice.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The ability to fill in these fields pending their removal also appears to have been retired. However, on profiles that already have these fields filled in, the information remains. The company says that users can[download their Facebook data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) before the update if they want to have a record of this information.
 
  The move may the latest attempt to avoid the controversy that arises from including these categories on social media profiles.
@@ -39,6 +63,12 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 
  But the new update seems to take a step further, removing this information from profiles completely.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
  How this update will play out in terms of targeted advertising remains to be seen. While the removal of this information prevents users from directly noting this information in profile fields, advertisers still have plenty of other ways to target you according to these categories by using other data points.
@@ -126,7 +156,3 @@ thumbnail: https://thmb.techidaily.com/a830d2a24e442aebcbf388f14e166b1639967eaf0
 <li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Motorola Moto G84 5G | Dr.fone</u></a></li>
 <li><a href="https://tech-hub.techidaily.com/why-you-should-trust-chatgpt-with-your-health-queries-a-seven-point-guide/"><u>Why You Should Trust ChatGPT with Your Health Queries: A Seven-Point Guide</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

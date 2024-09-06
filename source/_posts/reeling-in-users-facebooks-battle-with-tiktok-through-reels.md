@@ -1,7 +1,7 @@
 ---
 title: "Reeling in Users: Facebook’s Battle with TikTok Through Reels"
-date: 2024-09-01T03:55:54.688Z
-updated: 2024-09-02T03:55:54.688Z
+date: 2024-09-05T09:31:22.774Z
+updated: 2024-09-06T09:31:22.774Z
 tags:
   - facebook
 categories:
@@ -29,24 +29,24 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
  In less than five years, TikTok has achieved over three million downloads and more than a billion monthly active users. Here is how the platform is causing problems for Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. A Drop in Daily and Monthly Active Users
 
  Facebook experienced a first-ever drop in daily active users as competitors like TikTok gained ground. As reported by[Forbes](https://www.forbes.com/sites/roberthart/2022/02/03/facebook-loses-daily-active-users-for-the-first-time--heres-where-theyre-going/) , roughly half a million users stopped using their accounts on a daily basis.
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Depleting Engagement Levels
 
  Along with the decline in daily active users, Facebook is also suffering from depleting user engagement levels.
 
  The average session length on the video-sharing app is 10.85 minutes, according to[Statista](https://www.statista.com/statistics/579411/top-us-social-networking-apps-ranked-by-session-length/) . Meanwhile, other social media apps lag far behind in terms of engagement. This is a key metric for a platform like Facebook because the longer users stay on a platform, the more appealing it appears to advertisers.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 3\. Stagnating Ad Revenues
 
  Advertisers account for more than 97% of Facebook’s annual revenue. According to[Statista](https://www.statista.com/statistics/267031/facebooks-annual-revenue-by-segment/) , the company generated $86 billion in global revenue in 2020—and a whopping $84 billion of it comes from advertising.
@@ -56,7 +56,10 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
  The decline in Facebook’s engagement level and the subsequent drop in revenue are adding up to a significant plunge in the company’s stock price. Meta, Facebook’s parent company, saw a stock drop of over $200 billion after a dismal quarterly earnings report.
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How Facebook Plans to Regain Momentum
 
@@ -69,15 +72,15 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
 
 ### Facebook Is Seen as a Mixed Media Platform
@@ -89,7 +92,16 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
  For Facebook to rival TikTok, it has to reinvent itself as a brand new, highly sticky, and innovative app, far different from what it is today.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Facebook Is Late to the Game
 
@@ -101,14 +113,38 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Reels vs. TikTok: The Final Verdict
 
  The rise of TikTok and YouTube Shorts indicate that video is the future of social media, and Facebook has taken note. This may not make it seem inventive—but at this point, it doesn’t really matter. Facebook sees Reels as an integral part of its future, and it'll need to do so if it wants to compete with the likes of TikTok.

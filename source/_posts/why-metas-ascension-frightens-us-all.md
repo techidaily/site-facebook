@@ -1,7 +1,7 @@
 ---
 title: Why Meta's Ascension Frightens Us All
-date: 2024-09-01T03:55:15.166Z
-updated: 2024-09-02T03:55:15.166Z
+date: 2024-09-05T09:31:23.343Z
+updated: 2024-09-06T09:31:23.343Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: Meta's Dominance Fear,Social Media Power Rise,Meta Impact on Web,Onlin
 thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a21d0b3000a42b8339ddfda6c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Meta's Ascension Frightens Us All
 
  In 2021, Facebook rebranded as Meta to better reflect its new objective of expanding into the Metaverse. It's not the first time the company has put forward lofty new goals or pivoted its corporate direction.
@@ -21,10 +33,22 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
  However, one of its core objectives has remained unchanged—dominance! Here are some reasons we should all be concerned about Meta's unfettered influence within the social media space.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 1\. An Entrapping Social Media Monopoly
 
 ![stylus scribbling over Facebook logo on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-thought-catalog-2228555.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  According to[Statista](https://www.statista.com/chart/2183/facebooks-mobile-users/) , Facebook, Instagram, and WhatsApp—three of Meta's core products—have a combined 3.6 billion monthly active users. That's more than a quarter of the world's population—an intimidating figure even when accounting for duplicates.
 
  This immediately aligns with Facebook's decade-old objective of dominating the social media space. Because of this unrivaled dominance, Meta is like a god unto itself: it faces no market-enforced accountability.
@@ -43,6 +67,12 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 ![The chat menu on Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-messenger-chats.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  With great monopoly comes great power. Meta's powers are enormous. Only a few private companies can measure up to its global influence. The company controls some of the world's most important digital communication tools. With over a quarter of the world's population using their apps, Meta holds a rare power over how the world communicates.
 
  Perhaps much more concerning is the fact that a disproportionate amount of this power rests on one individual—Mark Zuckerberg. According to this[SEC document](https://www.sec.gov/Archives/edgar/data/1326801/000132680118000022/facebook2018definitiveprox.htm) , Zuckerberg controls around 60% of Meta's voting power, effectively bestowing on him dictatorial powers over the billions of people that use Meta's product.
@@ -55,10 +85,6 @@ thumbnail: https://thmb.techidaily.com/c64aba238bf38e8dde6a455b091ef6dd75fa774a2
 
 ![sign reading privacy please](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Privacy-notice.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
  From Facebook to Instagram and WhatsApp, Meta's core products have always been caught up in privacy scandals. In fairness, almost all social media apps have had their fair share of privacy concerns.
 
  However, Meta's privacy practices are particularly problematic. Meta stands out because of the nature of data it has access to. Based on its user base, the company is the single largest non-government collector of intrusive personal information in corporate history.
@@ -70,7 +96,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 ![Off Facebook Activity lets you view and control what facebook knows about you through third party websites and apps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/05/facebook-privacy-off-facebook-activity.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ​​​​​​
 
@@ -86,19 +115,21 @@ Not convinced?
 
 ![Screenshot_20211223-204847](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204847.png)
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Screenshot_20211223-204905](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204905.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![Screenshot_20211223-204935](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Screenshot_20211223-204935.png)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -106,9 +137,6 @@ Close
 
  As intrusive as this may seem, that's not the most frightening part. According to an investigative report by the[New York Times](https://www.nytimes.com/2018/12/18/technology/facebook-privacy.html) , Meta shares this invasive data with as many Big Tech members who care to ask for it. According to the report, in exchange for even more data, Meta gave out slices of its users' data to companies like Spotify, Netflix, and Amazon. Spotify even reportedly got access to user's message data—an outrageous privacy infraction by all standards.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Stay Conscious of Meta's Influence
 
  Some have called for a breakup of Meta; others advocate for sterner policing of the company. Irrespective of the approach that presents a realistic solution to the problem, one thing is sure—Meta is getting too powerful, and we are all becoming victims in its lair.

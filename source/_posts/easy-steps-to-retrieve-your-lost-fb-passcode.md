@@ -1,7 +1,7 @@
 ---
 title: Easy Steps to Retrieve Your Lost FB Passcode
-date: 2024-07-12T10:27:36.008Z
-updated: 2024-07-13T10:27:36.008Z
+date: 2024-09-05T09:29:05.624Z
+updated: 2024-09-06T09:29:05.624Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: Reset Facebook Password,Lost FB Access Code,Find FB Passcode,FB Accoun
 thumbnail: https://thmb.techidaily.com/28b1ebd463673cb8f4ec1dcff8b4e8726440d728eedb4e2d44158053f9900732.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Easy Steps to Retrieve Your Lost FB Passcode
 
  Can't log in to your Facebook account because you forgot your password? Relax, take a deep breath, and don't panic.
@@ -35,6 +47,12 @@ Here's how to check in Chrome on your Android device.
 
 ![View delete passwords](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/View-delete-passwords.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
 1. Tap the Chrome menu button and go to **Settings > Passwords** .
@@ -51,6 +69,12 @@ Close
 
 ![Facebook login page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-login-page.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Here's what to do to reset your password:
 
 1. Open Facebook.
@@ -62,6 +86,18 @@ Here's what to do to reset your password:
 
 ![Identify your account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Identify-your-account.png)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If your account is found, click**This is my account** . If not found, follow the screen prompts.
 
 Once you have done this, follow these steps:
@@ -75,6 +111,18 @@ Once you have done this, follow these steps:
 
 ![Facebook enter security code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-enter-security-code.png)
 
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you didn't get the reset code, do the following.
 
 1. Wait for a few seconds and click**Didn't get a code?**
@@ -89,6 +137,18 @@ If you didn't get the reset code, do the following.
 
  Related:[How to Reset or Change Your Instagram Password](https://www.makeuseof.com/how-to-reset-change-instagram-password/)
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Not Forget Your Facebook Password Again
 
  You can ask Facebook to**Remember password** so that the next time you log in, you can just click your profile picture instead of typing a password. You could also consider using the [best password manager for your device](https://www.makeuseof.com/best-password-manager/) so that you have easy access whether you're using your phone or your PC.
@@ -122,3 +182,39 @@ If you didn't get the reset code, do the following.
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-how-to-make-better-facebook-video-ads/"><u>[New] In 2024, How to Make Better Facebook Video Ads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-open-and-play-srt-on-different-platforms-for-2024/"><u>[New] Open and Play SRT on Different Platforms for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-managing-bitrate-in-obs-broadcasts/"><u>[Updated] 2024 Approved  Managing Bitrate in OBS Broadcasts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-obs-studio-vs-bandicam-which-takes-the-crown/"><u>[Updated] 2024 Approved  OBS Studio Vs. Bandicam  Which Takes the Crown?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-precision-in-portability-the-ultimate-list-of-35-free-android-video-compressors/"><u>[Updated] 2024 Approved  Precision in Portability  The Ultimate List of 35 Free Android Video Compressors</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-users-the-art-of-a-captivating-timeline/"><u>Engaging Users: The Art of a Captivating Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/eternal-digital-footprints-life-after-fb/"><u>Eternal Digital Footprints: Life After FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exact-date-of-my-digital-milestone-facebook-account-creation/"><u>Exact Date of My Digital Milestone: Facebook Account Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-detaching-instagram-from-your-facebook-profile/"><u>Guide to Detaching Instagram From Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-out-restore-your-social-media-secrets/"><u>Hacked Out! Restore Your Social Media Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-in-multiple-languages-on-facebook/"><u>How to Post In Multiple Languages on Facebook</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-boosting-fb-video-engagement-and-audience-reach/"><u>In 2024, Boosting FB Video Engagement & Audience Reach</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-full-guide-navigating-the-world-of-final-cut-pro/"><u>In 2024, Full Guide  Navigating the World of Final Cut Pro</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovating-trade-finance-addressing-future-challenges-with-cutting-edge-solutions/"><u>Innovating Trade Finance: Addressing Future Challenges with Cutting-Edge Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-describe-your-images-ai-solutions-for-social-media-captions/"><u>Instantly Describe Your Images: AI Solutions for Social Media Captions</u></a></li>
+<li><a href="https://facebook.techidaily.com/legalities-of-digital-picture-sharing/"><u>Legalities of Digital Picture Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastodons-social-structure-unveiled/"><u>Mastodon's Social Structure Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-facebook-verification-how-vpns-evolved-and-connect-an-android-phone-to-your-tv/"><u>Meta's Facebook Verification, How VPNs Evolved, and Connect an Android Phone to Your TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/paving-the-path-for-predictable-crypto-prices-stablecoins/"><u>Paving the Path for Predictable Crypto Prices: Stablecoins</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaiming-unplanned-disconnect-from-facebook/"><u>Reclaiming Unplanned Disconnect From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-scouting-pinpointing-and-listing-your-facebook-interactions/"><u>Social Media Scouting: Pinpointing and Listing Your Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-nostalgia-engine-mastering-day-reflection/"><u>Social Media’s Nostalgia Engine - Mastering Day Reflection</u></a></li>
+<li><a href="https://facebook.techidaily.com/solar-surge-fbs-operations-now-100-renewable/"><u>Solar Surge: FB's Operations Now 100% Renewable</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-misunderstandings-in-social-media-forums/"><u>Steering Clear Misunderstandings in Social Media Forums</u></a></li>
+<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Realme V30 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-facilitating-anonymous-suggestions-in-groups/"><u>Strategies for Facilitating Anonymous Suggestions in Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-under-fire-trust-erosion-amidst-public-concerns/"><u>Tech Titans Under Fire: Trust Erosion Amidst Public Concerns</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-power-of-precision-an-in-depth-tutorial-for-using-the-background-eraser-in-ps-for-2024/"><u>The Power of Precision  An In-Depth Tutorial for Using the Background Eraser in PS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-redefined-why-the-metaverse-raises-concerns/"><u>The Social Fabric Redefined - Why the Metaverse Raises Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unified-frontiers-exploring-the-unity-between-fb-and-insta/"><u>Unified Frontiers: Exploring the Unity Between FB & Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-move-to-kill-facial-id-at-meta-and-facebook/"><u>Unraveling the Move to Kill Facial ID at Meta and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/uploading-ultrahd-photos-to-your-fb-profile/"><u>Uploading UltraHD Photos to Your FB Profile</u></a></li>
+</ul></div>

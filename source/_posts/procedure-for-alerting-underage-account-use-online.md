@@ -1,7 +1,7 @@
 ---
 title: Procedure for Alerting Underage Account Use Online
-date: 2024-09-01T03:56:02.601Z
-updated: 2024-09-02T03:56:02.601Z
+date: 2024-09-05T09:31:22.671Z
+updated: 2024-09-06T09:31:22.671Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Underage Online Alert,Alert Teen Internet,Account Age Restriction,Prev
 thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f1f3b2af38f5058bc81f8e98.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Procedure for Alerting Underage Account Use Online
 
  Children sometimes become secretive about their mobile phone activities as they grow. Having a Facebook account might not be as significant for you, but it is a real deal when it comes to children.
@@ -30,8 +36,26 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 3. Copy their profile link that includes their username.  
 ![Copy link of Facebook user](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Copy-link-of-Facebook-user.JPG)
 4. Open the[Facebook Underage Child Report Form](https://www.facebook.com/help/contact/209046679279097) to enter the details of that profile.  
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![report an underage child's account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/report-an-underage-child.jpg)
 5. Paste the link, add the full name, the child's actual age, and other information that might be useful during the review.  
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add details of the person you want to report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-of-the-person-you-want-to-report.jpg)
 6. Tap**Send** to submit the report for review.
 
@@ -46,10 +70,22 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 1. Open the[Facebook Child Data Request Form](https://www.facebook.com/help/contact/174263416008051) .  
 ![Child Data Request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Child-Data-Request-form.jpg)
 2. Enter the child’s first and last name.
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3. Paste the URL of your child’s Facebook account.
 4. Enter the email address or mobile number your child used to register the account.  
 ![Add details for child data request form](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Add-details-for-child-data-request-form.jpg)
 5. Pick the age range of your child. You will see**Under 13** and**13 and Over** options.
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 6. From the following drop-down menu, choose the year your child was born.
 7. Select the attested documentation under the Notarized Statement tab.
 8. Add your first and last name, email address, and country of residence.
@@ -58,7 +94,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
  Successful verification will process the request and make you eligible for the data featuring your underage child's activities on Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why Should You Report an Underage Facebook Account?
 
@@ -68,35 +107,28 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
  Children should use Facebook under a restricted and balanced schedule at the recommended age to avoid addiction. Engage kids in creative activities and sports that boost their physical and mental capacity, leaving them with less time for social media.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### It Might Lead to Cyberbullying
 
  Children might use Facebook for entertainment, but there’s always a risk of cyberbullying.
 
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### It Might Expose Your Child to Inappropriate Content
 
  The Facebook Community Guidelines are pretty strict—you can even[get banned on Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) for uploading something explicit and abusive. However, some Facebook users still find ways to upload inappropriate content.
@@ -106,7 +138,10 @@ thumbnail: https://thmb.techidaily.com/5e9bfb6a7e4a347d52ac2274763d8cb00a024229f
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Say No to Underage Facebook Accounts
 

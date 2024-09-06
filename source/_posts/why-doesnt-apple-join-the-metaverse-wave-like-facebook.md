@@ -1,7 +1,7 @@
 ---
 title: Why Doesn't Apple Join the Metaverse Wave Like Facebook?
-date: 2024-09-01T03:54:41.686Z
-updated: 2024-09-02T03:54:41.686Z
+date: 2024-09-05T09:31:23.840Z
+updated: 2024-09-06T09:31:23.840Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Apple Metaverse Absence,Metaverse Facebook,Apple vs Metaverse,Apple Te
 thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a25aa2285ca573b91b9719e8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Doesn't Apple Join the Metaverse Wave Like Facebook?
 
  The metaverse is all the rage right now, but at least one member of the big tech club is not interested. According to rumors, Apple will launch its virtual reality headset in 2022\. With its record of industry-changing products, consumers might expect the device to be an entry point into the metaverse. Instead, Apple's vision is far more limited.So what is Apple planning to do, and why are they not boarding the metaverse train? Let's find out.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## A Different Approach
 
  When[Facebook rebranded to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) , they presented a vision of an always-on virtual world, where humanity meets to work and play, all day, every day. Mark Zuckerberg is betting the future of Facebook on it and has announced 10,000 vacancies for engineers to build the metaverse.
@@ -25,6 +37,18 @@ thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a
 
  Instead, they seem to view it as a more powerful version of a smartphone. Its purpose will be "bursts of gaming, communication and content consumption". Once you are done with your activity, you are done. Facebook's vision, on the other hand, is apparently to keep you locked in permanently.
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Is Apple Avoiding the Metaverse?
 
  Apple has never been a big fan of Facebook's business model. Its decision to help users opt-out of advertiser tracking reportedly cost Facebook, and other social media companies, billions of dollars.
@@ -82,7 +106,3 @@ thumbnail: https://thmb.techidaily.com/82e91f7db84fddd0d0cd74fd53de4decc4bc8c46a
 <li><a href="https://facebook.techidaily.com/unraveling-the-app-outage-enigma/"><u>Unraveling the App Outage Enigma</u></a></li>
 <li><a href="https://facebook.techidaily.com/warning-signs-and-actions-minor-facebook-usage/"><u>Warning Signs and Actions: Minor Facebook Usage</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->

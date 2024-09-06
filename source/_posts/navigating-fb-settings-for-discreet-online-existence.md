@@ -1,7 +1,7 @@
 ---
 title: Navigating FB Settings for Discreet Online Existence
-date: 2024-09-01T03:57:17.031Z
-updated: 2024-09-02T03:57:17.031Z
+date: 2024-09-05T09:31:21.645Z
+updated: 2024-09-06T09:31:21.645Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Facebook Privacy Controls,Stealthy Social Networking,FB Hidden Identit
 thumbnail: https://thmb.techidaily.com/51ce8e2d4e344c8b82645f25a39faba4287a1c5da16a59ee967932588d09ef10.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Navigating FB Settings for Discreet Online Existence
 
  The internet brings people together, even when they'd rather it didn't. Maybe you don't want your colleagues to know what you get up to on the weekends, or perhaps you want to prevent your boyfriend's ex-girlfriend from stalking you. Whatever the reason, there ARE ways to stop strangers from seeing your Facebook profile.
@@ -32,8 +38,26 @@ thumbnail: https://thmb.techidaily.com/51ce8e2d4e344c8b82645f25a39faba4287a1c5da
 
 ![Facebook profile info settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-info-settings-on-desktop.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  You may notice some differences in Facebook's privacy settings if you haven't accessed them in a while. Learn[how to use Facebook's Privacy Center](https://www.makeuseof.com/how-to-use-facebook-privacy-center/) and why it's important that you use it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Lock Your Facebook Profile Down
 
  Facebook's lock feature is a safety feature that allows users, specifically women, in specific regions to lock their profiles from outsiders. The goal is to limit access to your account and give you more control over your experience. Accounts with the lock feature enabled have a**lock icon** in the profile. Here's what it prevents non-friends from doing:
@@ -58,7 +82,10 @@ thumbnail: https://thmb.techidaily.com/51ce8e2d4e344c8b82645f25a39faba4287a1c5da
  Speaking of posting, another tip is to be careful about what you share on your profile. Avoid sharing any personal or sensitive information, like your address. This also applies to the media you post; ensure it doesn't reveal any information that would make it easy for others to find you.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Change Your Facebook Profile Discovery Settings
 
@@ -75,11 +102,16 @@ thumbnail: https://thmb.techidaily.com/51ce8e2d4e344c8b82645f25a39faba4287a1c5da
 ![Facebook privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-privacy-settings-on-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 4\. Change Your Facebook Post Settings
 
@@ -94,17 +126,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![Your activity settings in Facebook's privacy settings on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/your-activity-settings-in-facebook-s-privacy-settings-on-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## How to Keep a Low Profile on Facebook
 
  In the age of influencers and growing your social media accounts is a thing, there exists a group of Facebook users who want to keep a low profile. The benefits being that it comes with less bullying and harassment and makes for an overall pleasant experience.

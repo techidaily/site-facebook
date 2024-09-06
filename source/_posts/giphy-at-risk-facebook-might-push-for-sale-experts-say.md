@@ -1,7 +1,7 @@
 ---
 title: Giphy at Risk? Facebook Might Push for Sale, Experts Say
-date: 2024-09-01T03:58:37.188Z
-updated: 2024-09-02T03:58:37.188Z
+date: 2024-09-05T09:31:20.438Z
+updated: 2024-09-06T09:31:20.438Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Giphy Sale Risk,Facebook Giphy,Facebook Acquisition,GIPHY Marketplace,
 thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc972c34955c94cad23467f1e0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Giphy at Risk? Facebook Might Push for Sale, Experts Say
 
  In recent times, GIFs have become a staple on social media and messaging platforms everywhere. These days, GIFs are an important part of almost every type of communication app, whether it's for work, dating, or keeping up with friends.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 
  That is, before the UK's Competition and Markets Authority (CMA) decided to block Giphy's sale. So, why did the CMA do it?
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Giphy's Acquisition by Facebook
 
  With millions of people using Giphy through its platforms, Facebook made a strategic move to acquire it for $315 million in May 2020\. However, the CMA has now blocked this acquisition in a bid to protect fair competition among tech companies.
@@ -35,10 +47,28 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meta's Appeal to Keep Giphy
 
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
  When Facebook first attempted to acquire Giphy in mid-2020,[50% of Giphy's search engine traffic already came from the Facebook group of companies,](https://about.fb.com/news/2020/05/welcome-giphy/) with half coming from Instagram. In its defense, Meta notes that Giphy has “no meaningful audience of its own” and has been unprofitable since its founding.
@@ -52,7 +82,10 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 

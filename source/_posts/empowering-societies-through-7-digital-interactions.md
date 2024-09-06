@@ -1,7 +1,7 @@
 ---
 title: Empowering Societies Through 7 Digital Interactions
-date: 2024-09-01T03:57:39.685Z
-updated: 2024-09-02T03:57:39.685Z
+date: 2024-09-05T09:31:21.311Z
+updated: 2024-09-06T09:31:21.311Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,18 @@ thumbnail: https://thmb.techidaily.com/b74744220589b6a906ebb663c728844a6da00413e
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
  One of the biggest positives of social media is that it has never been easier to make friends. Just a decade ago, it was pretty tough to connect with people, unless you were the overly outgoing type able to make conversation with anyone and everyone at a party.
@@ -37,6 +49,12 @@ thumbnail: https://thmb.techidaily.com/b74744220589b6a906ebb663c728844a6da00413e
 
 ![empathetic heads nose-to-nose](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/empathy-painting.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: AMCSviatko/[Flickr](https://www.flickr.com/photos/49333775@N00/3774209963/)
 
  All of us probably spend a little too long talking about ourselves on social media sites. Which is perfectly natural. We're sharing our lives---the ups and downs, the twists and turns---with people we think will care.
@@ -50,15 +68,20 @@ thumbnail: https://thmb.techidaily.com/b74744220589b6a906ebb663c728844a6da00413e
 **Social media can act as a kind of group therapy session.**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 3\. Social Media Allows for Speedy Communication
 
 ![an old telephone manhole cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/telephone-communication.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Image Credit: Robert Bejil/[Flickr](https://www.flickr.com/photos/robnas/3378318924/)
 
@@ -70,15 +93,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **Social media allows you to live a life unhindered by small talk.**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 4\. Social Media Makes the World Seem Smaller
 
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
@@ -90,9 +113,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 **Social media has made the world a much smaller place.**
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Social Media Helps You Build Relationships
 
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
@@ -107,10 +127,22 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **Social media can help foster friendships and more besides.**
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
  New lines of communication have opened the world up in a big way. No more so than when it comes to news, which can makes its way around the world and back again with seconds.
@@ -123,6 +155,12 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
@@ -137,9 +175,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.

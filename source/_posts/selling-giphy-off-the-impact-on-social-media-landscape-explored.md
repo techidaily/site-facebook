@@ -1,7 +1,7 @@
 ---
 title: Selling Giphy Off? The Impact on Social Media Landscape Explored
-date: 2024-09-01T03:55:26.442Z
-updated: 2024-09-02T03:55:26.442Z
+date: 2024-09-05T09:31:23.168Z
+updated: 2024-09-06T09:31:23.168Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Giphy Sales Effects,Social Media Giphy,GIF Platform Impact,Giphy Marke
 thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e1d979284c574fcec450998c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Selling Giphy Off? The Impact on Social Media Landscape Explored
 
  In recent times, GIFs have become a staple on social media and messaging platforms everywhere. These days, GIFs are an important part of almost every type of communication app, whether it's for work, dating, or keeping up with friends.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  That is, before the UK's Competition and Markets Authority (CMA) decided to block Giphy's sale. So, why did the CMA do it?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Giphy's Acquisition by Facebook
 
  With millions of people using Giphy through its platforms, Facebook made a strategic move to acquire it for $315 million in May 2020\. However, the CMA has now blocked this acquisition in a bid to protect fair competition among tech companies.
@@ -35,10 +47,22 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Meta's Appeal to Keep Giphy
 
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
  When Facebook first attempted to acquire Giphy in mid-2020,[50% of Giphy's search engine traffic already came from the Facebook group of companies,](https://about.fb.com/news/2020/05/welcome-giphy/) with half coming from Instagram. In its defense, Meta notes that Giphy has “no meaningful audience of its own” and has been unprofitable since its founding.
@@ -52,7 +76,10 @@ thumbnail: https://thmb.techidaily.com/cc90cfb91ad0a20c12f9d720fc85b3d9e0382268e
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 

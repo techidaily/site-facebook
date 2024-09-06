@@ -1,7 +1,7 @@
 ---
 title: Facebook's Methodology in Controlling Content Access
-date: 2024-09-01T03:58:27.321Z
-updated: 2024-09-02T03:58:27.321Z
+date: 2024-09-05T09:31:20.597Z
+updated: 2024-09-06T09:31:20.597Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Facebook Control Strategy,Curbing FB Content,Social Media Censorship,F
 thumbnail: https://thmb.techidaily.com/fddafecbf8d052882c8613835d6b91422875b8a8af17428f6e6ddf368419a301.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Methodology in Controlling Content Access
 
  With the rise of internet influencer culture, brands are eager to collaborate with creators to reach new customers. Previously, traditional brand and social media community guidelines prevented users from promoting branded posts without them being taken down.
 
  However, Facebook has made adjustments that make it possible with whitelisting. Here's what you should know about whitelisting on the social media platform.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What is Whitelisting?
 
  Whitelisting is a process by which brands give advertising permission to their partners such as influencers. This process also works the other way around, with influencers giving brands permission to use their profiles to perform advertising-related actions.
@@ -31,6 +43,12 @@ thumbnail: https://thmb.techidaily.com/fddafecbf8d052882c8613835d6b91422875b8a8a
 
  When an influencer account is whitelisted, brands can also run ads through the account and alter the content for a particular niche. Additionally, brands are also allowed to dark post, where sponsored Facebook content doesn’t appear on the creator's timeline, page, or stories.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Steps to Whitelist Influencer Facebook Pages
 
  If you’re an influencer looking to whitelist your Facebook page with a brand partner, here’s what you need to do. First, you have to make sure that your Facebook Business Manager is set up and linked to your social profiles. If possible, you should also try to[verify your Facebook page](https://www.makeuseof.com/verify-facebook-business-page/) .
@@ -39,12 +57,24 @@ thumbnail: https://thmb.techidaily.com/fddafecbf8d052882c8613835d6b91422875b8a8a
 
 ![FB Business Manager Assign Pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/FB-Business-Manager-Assign-Pages.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If you have the Business Manager ID of the brand you are planning to work with, select**Business ID** and type it in.
 
  Next, select the level of access that you want brands to have over your account. Most brands will only care to have standard access, so there is no need to give them full administrative access.
 
 ![FB Business Manager Access](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/FB-Business-Manager-Access.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Some features that you can allow business partners to use include publishing content, moderating messages and comments, creating ads, viewing performance, managing jobs, and viewing earnings.
 
  Partnerships will vary across brands, so you can customize access depending on what you have agreed on beforehand. Make sure to clarify these terms and not enable anything that you believe may harm your personal brand.
@@ -52,7 +82,10 @@ thumbnail: https://thmb.techidaily.com/fddafecbf8d052882c8613835d6b91422875b8a8a
  Lastly, copy the shareable link and send it to your brand partner. With this link, brands will able be able to access your channels through their own Business Manager accounts. They will be able to create ads, reply to posts, or do anything you have permitted them to do through the steps above.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Make the Best Out of Facebook Whitelisting
 

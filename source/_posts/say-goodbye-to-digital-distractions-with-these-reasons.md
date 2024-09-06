@@ -1,0 +1,205 @@
+---
+title: Say Goodbye to Digital Distractions with These Reasons
+date: 2024-09-05T09:35:42.849Z
+updated: 2024-09-06T09:35:42.849Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Say Goodbye to Digital Distractions with These Reasons
+excerpt: This Article Describes Say Goodbye to Digital Distractions with These Reasons
+keywords: End Distractions Now,Focus Better Online,Minimize Screen Time,Enhanced Productivity,Concentration Boosting,Digital Detox Reasons,Peaceful Tech Use
+thumbnail: https://thmb.techidaily.com/4c2f1c5599abfece009f925c2828de86667e5982a128d746578608e8851ede9e.jpg
+---
+
+## Say Goodbye to Digital Distractions with These Reasons
+
+ Smartphones act as an appendage; by extension, social media is an integral part of daily life. Want to learn what's going on in the world—check Twitter. Want to be in on the joke—TikTok. Looking to chat with a friend? You have your pick—FaceTime, WhatsApp, and so on.
+
+ But where does Facebook land? While it was once the platform with the most active daily users, it's no longer so. Many prefer other social media to get their online fix. But does the platform deserve its seeming fall from grace?
+
+ Yes, and here are some reasons you shouldn't use Facebook anymore.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 1\. Facebook Tracks You Around the Web
+
+![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
+
+ Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way[Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
+
+ Let's try and be fair for a moment. Facebook provides its services for free, and in return, we accept we're handing over data to one of the largest advertising firms in the world.
+
+ But Facebook also tracks you when you're not using the site. Worse still, you don't even need a Facebook account—the company will still track you. And it has been behind more than one data leak with severe consequences.
+
+ It's more than likely that there isn't a single person who hasn't heard of the Facebook–Cambridge Analytica data scandal that occurred in 2018 and led to an utter privacy mess. But sadly, that's not the only data leak scandal. Several have followed that one,[along with many investigations](https://www.makeuseof.com/ireland-launches-investigation-facebook-massive-data-leak/) and fines, yet it doesn't appear that Facebook's users can feel safe.
+
+## 2\. Human Experimentation
+
+ Cast your mind back to 2012\. You may recall that Facebook conducted an experiment on 689,000 of its unwitting users.
+
+ Over a period of several months, half of the "participants" were subjected to consistently positive content. The other half were shown negative content.
+
+ It was negligent in the extreme. Aside from the ethical issues, one can only speculate about the negative effect the move could have had on users suffering from emotional issues.
+
+ And that's not the only time Facebook has pulled this trick. There are at least seven other high-profile examples since the turn of the decade.
+
+Bottom line: Facebook sees you as a lab rat.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 3\. Fake News
+
+![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+
+ The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
+
+ We're not here to discuss the philosophical standpoints around fake news. You can decide where you stand in the freedom-of-speech debate.
+
+ However, one thing is clear: over the years, Facebook has increasingly tried to position itself as a news portal. In doing so, it has an obligation to deliver on basic principles like trustworthiness and reliability.
+
+ But the company has failed. Yes, Facebook may be trying to tackle misinformation, but nonetheless fake news has prospered.[Is Facebook doing enough](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) ? Not likely, given that[Facebook has also been accused deliberately influencing elections](https://www.makeuseof.com/study-facebook-election-misinformation/) . It's a troublesome situation.
+
+ If Facebook is your primary source of news, it's time to move on.[You should look elsewhere for trustworthy news delivery](https://www.makeuseof.com/tag/trust-news-sites/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 4\. Questionable Privacy Practices
+
+ Facebook has obfuscated and complicated its privacy settings for as long as anyone can remember.
+
+ Here's a Zuckerberg quote from[The Guardian](https://www.theguardian.com/technology/2010/may/24/facebook-revise-privacy-zuckerberg) in 2010:
+
+> "Simply put, many of you thought our \[privacy\] controls were too complex. Our intention was to give you lots of granular controls; but that may not have been what many of you wanted. We just missed the mark."
+
+ Can you honestly say the situation is any better today, twelve years later? Yes, Facebook does offer a privacy setting for almost everything—but you need an entire manual to find every hidden option. It's almost as though it's deliberately not user-friendly.
+
+ Facebook wants you to overlook settings, so it can use your data. If you want[a deeper understanding of Facebook's privacy violations](https://www.makeuseof.com/tag/understand-facebooks-privacy-violations/) , there are tools that can help.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## 5\. Facebook Has Forgotten Its Roots
+
+![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
+
+ And we loved it. Our newsfeeds were full of photos and updates from close friends.
+
+ But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
+
+## 6\. What Even Is Facebook Anymore?
+
+![people looking at laptop confused](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/people-looking-at-laptop-confused.jpg)
+
+ It's almost a given that social media platforms nowadays copy each other's features, so it's pretty much expected to see some overlap. But each still managed to have one thing it's known for above all others. So, for Instagram, it's image uploads, Twitter is a status-sharing platform, TikTok is for video uploads, and so on. But what about Facebook?
+
+ Compared to all the other social media spaces, Facebook seems like the biggest mess. It allows you to go live, share videos, pictures, and statuses—all things you can do on other platforms and, dare we say, better. So what's the point of Facebook?
+
+ Facebook has gained somewhat of a notoriety for being the place where people go to share their opinions, brandishing a seemingly unshakable stance. As a result, it's not uncommon to find people loudly exclaiming that something recognized globally as truth isn't that according to them. And they want you to know it.
+
+ It's also a place to overshare personal news. Sometimes they're nice ones like engagements and weddings, but other times they're related to drama that should have been handled face to face. So why spend time on a platform that's a ticking time bomb bound to result in a facepalm?
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## It's Time to Stop Using Facebook
+
+ What Facebook once was is no more. It may have started as a social media platform pioneer, leading at the front, but it now seems to lag behind. Worse yet, the problem isn't only that it's become a less enjoyable version of itself for users.
+
+ Facebook actively threatens your data. There have been so many data leaks and privacy breaches over the years—would you even find it surprising if another one follows? That shouldn't be the case. Spare yourself the headaches of holding onto Facebook, and move on.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-learn-how-to-create-distortion-effects-in-photoshop/"><u>[New] Learn How to Create Distortion Effects in Photoshop</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-best-video-editor-for-vimeo/"><u>[Updated] 2024 Approved  Best Video Editor for Vimeo</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-high-performance-gpu-picks-for-quality-video-streaming/"><u>[Updated] 2024 Approved  High-Performance GPU Picks for Quality Video Streaming</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-step-by-step-method-for-producing-captivating-video-thumbnails/"><u>[Updated] Step-by-Step Method for Producing Captivating Video Thumbnails</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-direct-link-method-for-iphone-picture-sharing/"><u>2024 Approved  Direct Link Method for iPhone Picture Sharing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-the-ultimate-free-screenshot-tool-showdown/"><u>2024 Approved  The Ultimate Free Screenshot Tool Showdown</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/add-dynamic-blur-to-images-a-photoshop-journey-for-2024/"><u>Add Dynamic Blur to Images – A Photoshop Journey for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-itel-p55-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Itel P55 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-gestures-unraveling-the-meanings-in-fb-icons/"><u>Decoding Digital Gestures: Unraveling the Meanings in FB Icons</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-curbing-covid-19-unverified-claims/"><u>Digital Responsibility: Curbing COVID-19 Unverified Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-on-social-networking-sites-fb/"><u>Ensuring Privacy on Social Networking Sites (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-may-be-forced-to-sell-giphy-heres-why/"><u>Facebook May Be Forced to Sell Giphy: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rated-poorly-a-decade-of-pal-activist-campaigns/"><u>Facebook Rated Poorly: A Decade of Pal-Activist Campaigns</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vanishing-words-a-closer-look-at-messenger/"><u>Facebook's Vanishing Words: A Closer Look at Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-social-proof-without-crossing-lines/"><u>Harnessing the Power of Social Proof Without Crossing Lines</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/host-your-own-multi-platform-viewing-party-with-teleparty/"><u>Host Your Own Multi-Platform Viewing Party with Teleparty</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-build-a-memorable-facebook-timeline/"><u>How to Build a Memorable Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-engage-with-facebook-security-for-increased-privacy/"><u>How to Engage with Facebook Security for Increased Privacy</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nubia-red-magic-9-proplus-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nubia Red Magic 9 Pro+</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-honor-play-7t-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Honor Play 7T Device</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-guide-superior-ios-melody-creators/"><u>In 2024, Ultimate Guide  Superior iOS Melody Creators</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unveil-gadgets-top-15-unboxing-clips/"><u>In 2024, Unveil Gadgets  Top 15 Unboxing Clips</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approach-to-networking-top-10-budget-friendly-apps/"><u>Innovative Approach to Networking: Top 10 Budget-Friendly Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/like-count-anonymity-the-new-standard-for-fbig-users/"><u>Like Count Anonymity: The New Standard for FB/IG Users</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/luminous-landscapes-mastering-nightscape-portraits-with-precision-for-2024/"><u>Luminous Landscapes  Mastering Nightscape Portraits with Precision for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-direct-messaging-services-exclusively/"><u>Navigating Direct Messaging Services Exclusively</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-language-preferences-in-facebook-advertising/"><u>Navigating Language Preferences in Facebook Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netiquette-social-media-boundaries-you-must-respect/"><u>Navigating Netiquette: Social Media Boundaries You Must Respect</u></a></li>
+<li><a href="https://facebook.techidaily.com/parental-guide-to-updating-kids-information-in-messengers/"><u>Parental Guide to Updating Kid's Information in Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-facebook-privacy-against-hacking/"><u>Safeguard Facebook Privacy Against Hacking</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-truth-in-hate-for-global-network-engagement-tools/"><u>Seeking Truth in Hate for Global Network Engagement Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-into-the-future-of-socializing-with-ar-in-messenger/"><u>Step Into the Future of Socializing with AR in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-exit-facebook-group-interest/"><u>Step-by-Step Guide: Exit Facebook Group Interest</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-reclaiming-your-image-on-facebook-platforms/"><u>Steps to Reclaiming Your Image on Facebook Platforms</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-inside-scoop-on-sonys-new-vr-tech-specs-pricing-and-launch-date-exposed/"><u>The Inside Scoop on Sony's New VR Tech: Specs, Pricing & Launch Date Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-explorers-toolkit-for-fb-social-behavior-tracking/"><u>The Ultimate Explorer's Toolkit for FB Social Behavior Tracking</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-tier-seo-strategies-to-elevate-your-podcast-rankings-for-2024/"><u>Top-Tier SEO Strategies to Elevate Your Podcast Rankings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-essential-mobile-settings-in-fb-app/"><u>Unlock Potential: Essential Mobile Settings in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/unravel-facebooks-spying-off-facebook-tool-usage-guide/"><u>Unravel Facebook's Spying - Off-Facebook Tool Usage Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vows-severing-online-bonds/"><u>Virtual Vows: Severing Online Bonds</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-itel-a70-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Itel A70 | Dr.fone</u></a></li>
+</ul></div>

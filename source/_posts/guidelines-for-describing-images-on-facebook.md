@@ -1,7 +1,7 @@
 ---
 title: Guidelines for Describing Images on Facebook
-date: 2024-07-12T10:26:47.282Z
-updated: 2024-07-13T10:26:47.282Z
+date: 2024-09-05T09:30:36.966Z
+updated: 2024-09-06T09:30:36.966Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: FB Image Description Rules,Social Media Photo Guide,Posting Imagery Ti
 thumbnail: https://thmb.techidaily.com/c2256048fdba19e150d130af22fa0ee9a49a1cc871ecb123979c39c8bac9ef09.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Guidelines for Describing Images on Facebook
 
  It can be confusing to understand why you would need alt text on Facebook. What would be the reason for having text-based descriptions of your friends’ selfies?
@@ -35,13 +47,31 @@ thumbnail: https://thmb.techidaily.com/c2256048fdba19e150d130af22fa0ee9a49a1cc87
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How to Add Alt Text to Images on the Facebook App
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
 Here’s how you add alt text to images while uploading them:
@@ -58,6 +88,18 @@ Here’s how you add alt text to images while uploading them:
 ### How to Add Alt Text to Facebook Images on the Web
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Here’s how to add alt text to your photos on Facebook's web browser.
 
 1. Log in to [Facebook](https://www.facebook.com) on your browser.
@@ -73,10 +115,22 @@ Here’s how you add alt text to images while uploading them:
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  Facebook also allows you to add alt text to images you've already posted. Here's how:
@@ -115,3 +169,65 @@ Close
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-navigating-the-nuances-of-twitters-video-policies/"><u>[New] 2024 Approved  Navigating the Nuances of Twitter's Video Policies</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-a-new-era-for-cameras-exploring-the-multicam-revolution-for-2024/"><u>[New] A New Era for Cameras  Exploring the MultiCam Revolution for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-turnback-a-twitch-broadcast-top-ten-approaches/"><u>[New] How to Turnback a Twitch Broadcast  Top Ten Approaches</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-full-story-on-instagrams-video-length/"><u>[New] The Full Story on Instagram's Video Length</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-essential-know-how-for-getting-started-on-discord-live/"><u>[Updated] 2024 Approved  Essential Know-How for Getting Started on Discord Live</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-navigating-the-riches-of-stardews-ginger-isle/"><u>[Updated] In 2024, Navigating the Riches of Stardew’s Ginger Isle</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-master-listings-for-melodic-mobile-alerts/"><u>[Updated] Master Listings for Melodic Mobile Alerts</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-best-slogan-generator-for-virtual-events/"><u>2024 Approved  Best Slogan Generator for Virtual Events</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-compendium-selecting-the-best-free-srt-translation-tools/"><u>2024 Approved  The Ultimate Compendium  Selecting the Best Free SRT Translation Tools</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/cooler-masters-newest-addition-a-giant-57-inch-mini-led-gaming-monitor-featuring-a-dual-4k-super-ultrawide-screen-for-an-immersive-gaming-session/"><u>Cooler Master's Newest Addition: A Giant 57 Inch Mini LED Gaming Monitor Featuring a Dual-4K Super Ultrawide Screen for an Immersive Gaming Session</u></a></li>
+<li><a href="https://location-social.techidaily.com/discover-why-the-oneplus-nord-n10-5g-deserves-your-attention-today/"><u>Discover Why the OnePlus Nord N10 5G Deserves Your Attention Today</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-advice-dealing-with-the-frustrating-0x800705b4-error-in-windows-10-updates-solved/"><u>Expert Advice: Dealing with the Frustrating 0X800705b4 Error in Windows 10 Updates [Solved]</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagrams-end-to-end-encryption-awaiting-2022/"><u>Facebook and Instagram's End-to-End Encryption Awaiting 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pauses-trump-ban-review-by-regulatory-council/"><u>Facebook Pauses Trump Ban Review by Regulatory Council</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-concerns-escalate-with-ios-145/"><u>Facebook's Privacy Concerns Escalate with iOS 14.5</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722960487814-fmri-can-map-cognitive-functions-helping-to-preserve-these-areas-during-surgical-interventions-such-as-tumor-resection-or-epilepsy-surgery/"><u>FMRI Can Map Cognitive Functions, Helping to Preserve These Areas During Surgical Interventions Such as Tumor Resection or Epilepsy Surgery.</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/from-novice-to-expert-how-mondly-transformed-my-language-learning-top-10/"><u>From Novice to Expert: How Mondly Transformed My Language Learning (Top 10)</u></a></li>
+<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-infinix-zero-5g-2023-turbo-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/gratis-convertitori-dvd-piu-efficienti-per-windows-11-trasforma-i-tuoi-dvd-in-mp4-avi-o-wmv-con-facilita-e-sicurezza/"><u>Gratis Convertitori DVD Più Efficienti per Windows 11 | Trasforma I Tuoi DVD in MP4, AVI O WMV Con Facilità E Sicurezza</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-everyone-group-notification-feature/"><u>Halt Everyone Group Notification Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-often-are-social-media-accounts-hacked/"><u>How Often Are Social Media Accounts Hacked?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tell-if-someones-peeking-at-your-fb-life/"><u>How to Tell if Someone's Peeking at Your FB Life</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-poco-m6-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>How to Track Poco M6 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-the-complete-analysts-toolkit-for-tracking-youtube-audiences-and-money-flow/"><u>In 2024, The Complete Analyst's Toolkit for Tracking YouTube Audiences & Money Flow</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/1716464764052-initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders!</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-owners-dodge-location-monitoring/"><u>IPhone Owners Dodge Location Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-a-mark-messengers-formatting-fundamentals/"><u>Make a Mark: Messenger's Formatting Fundamentals</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-network-with-these-free-social-management-tools/"><u>Mastering Your Network, With These FREE Social Management Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-accelerates-to-unprecedented-ai-computing-peaks/"><u>Meta Accelerates to Unprecedented AI Computing Peaks</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/microrecorder-assessment-onscreen-snaps-for-2024/"><u>MicroRecorder Assessment  Onscreen Snaps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-web-of-new-online-gatherings-and-networks/"><u>Navigating the Web of New Online Gatherings and Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-the-destiny-2-centipede-glitch-solution-found/"><u>Overcoming the Destiny 2 Centipede Glitch - Solution Found</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-on-facebook-detailed-overview-and-pricing-info/"><u>Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/seamlessly-stream-and-save-youtube-lives-from-every-device/"><u>Seamlessly Stream and Save YouTube Lives From Every Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-into-private-digital-discourse-on-fb/"><u>Sneak Peek Into Private Digital Discourse on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-tutorial-how-to-convert-blu-ray-disc-content-into-compressed-or-full-quality-mkv-format-with-minimal-loss/"><u>Step-by-Step Tutorial: How to Convert Blu-Ray Disc Content Into Compressed or Full-Quality MKV Format with Minimal Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-unfreeze-fb-alert-bars-and-posts-display/"><u>Steps to Unfreeze FB Alert Bars and Posts Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-maximum-fb-exposure/"><u>Strategies for Maximum Fb Exposure</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-fb-image-exposure-settings/"><u>Tailoring FB Image Exposure Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-group-specific-polls-on-facebook/"><u>Tailoring Group-Specific Polls on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unending-appeal-of-facebook-6-insights-for-users/"><u>The Unending Appeal of Facebook: 6 Insights for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upside-to-connectivity-9-good-aspects-of-online-communities/"><u>The Upside to Connectivity: 9 Good Aspects of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-compelling-fb-backgrounds/"><u>Unlocking The Power of Compelling FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-telegrams-advantages-when-fb-was-offline/"><u>Unveiling Telegram's Advantages When FB Was Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-facebooks-neighborhood-based-spaces-for-collaboration/"><u>What Are Facebook's Neighborhood-Based Spaces for Collaboration?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/what-everyone-should-consider-before-going-all-in-on-vr-tech/"><u>What Everyone Should Consider Before Going All-In on VR Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-when-you-quit-social-media-6-things-i-learned/"><u>What Happens When You Quit Social Media? 6 Things I Learned</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
+</ul></div>

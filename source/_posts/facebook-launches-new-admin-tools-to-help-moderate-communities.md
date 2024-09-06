@@ -1,7 +1,7 @@
 ---
 title: Facebook Launches New Admin Tools to Help Moderate Communities
-date: 2024-09-01T03:57:33.177Z
-updated: 2024-09-02T03:57:33.177Z
+date: 2024-09-05T09:31:21.394Z
+updated: 2024-09-06T09:31:21.394Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Facebook Community Management,Admin Toolkit for FB,Social Media Govern
 thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8faac5e2796b198a9b431fdb.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Launches New Admin Tools to Help Moderate Communities
 
  Moderating groups on social media isn't the easiest of jobs, with the arguments that seem to constantly break out online. To combat this, Facebook has launched some new admin tools to help admins moderate comments in Facebook groups more easily.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Launches New Admin Tools to Moderate Groups
 
  In a[blog post](https://www.facebook.com/community/whats-new/new-tools-features-nurture-community/) , Facebook announced that it's launching some new admin tools to make group moderation easier for admins. These new tools include a new home for admin tools and settings, an AI-powered comment moderator, and more.
@@ -27,6 +39,12 @@ thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8
 
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Are Facebook's New Admin Tools?
 
  The most noticeable new tool is Facebook's AI-powered feature called "conflict alerts," which is currently in testing. The new feature will send group admins a notification when the AI detects "contentious or unhealthy conversations" in a group.
@@ -35,6 +53,12 @@ thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8
 
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Facebook
 
  One new tool focuses on new members. Admins will have the ability to restrict new members from posting or commenting, although this is available for all other users too. Group admins can also decline promoted posts to stop unsolicited advertising in groups.
@@ -42,7 +66,10 @@ thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Facebook Is Taking Bad Behavior More Seriously
 

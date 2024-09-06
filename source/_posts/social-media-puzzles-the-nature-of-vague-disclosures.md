@@ -1,7 +1,7 @@
 ---
 title: Social Media Puzzles - The Nature of Vague Disclosures
-date: 2024-09-01T03:57:58.458Z
-updated: 2024-09-02T03:57:58.458Z
+date: 2024-09-05T09:31:21.010Z
+updated: 2024-09-06T09:31:21.010Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,18 @@ thumbnail: https://thmb.techidaily.com/7e038d9e1eb98894fb3abf6a7f282bd0c46245669
 
  In this article, we'll explain what vaguebooking is, and give examples of vaguebooking so that you'll be able to recognize it when you see it.
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is Vaguebooking?
 
  There was a time when people kept diaries in order to express their innermost thoughts and feelings. Now, while[digital journaling is a thing](https://www.makeuseof.com/tag/the-beginners-guide-to-digital-journaling/) , people mainly post their thoughts on social media. Unfortunately, this often takes the form of vaguebooking, which can be extremely annoying.
@@ -31,44 +43,62 @@ But what is vaguebooking?
 
  And that's the point of vaguebooking. While the majority of us will only post on social media when we have something specific to say, vaguebookers take great delight in beating around the metaphorical bush. Seeking attention while giving away very little in terms of detail.
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Examples of Vaguebooking
 
  The easiest way to answer the question, "what is vaguebooking?" is to give examples. So here are some examples of vaguebooking which will help you recognize it when you see it. And ultimately avoid doing it yourself.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 1\. Expressing an Emotion Without Providing Context
 
  This is an expression of emotion in its most basic form. On this occasion it's anger, but other emotions can replace anger quite easily. Instead of, "I'm so angry right now. Arrggh!," it could be, "I'm so confused right now. Waagh!" or "I'm so miserable right now. Boohoo!"
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Why Me? This Could Only Happen to Me
 
  This is a classic, and one of the most annoying forms of vaguebooking. It's about as vague as it gets while still using words. With "Why? Only me..." you're imparting the fact that something (likely bad) has happened that you need someone to ask you about.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ### 3\. Question Marks: The Purest Form of Vaguebooking
 
  Sometimes you don't even need words. A trio of question marks is enough. This is bound to elicit some kind of response from someone, whether it be more question marks or a simple "What's up?" Which is all those who write this kind of status update are after.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 4\. How Is This Still a Thing?
 
  Social networks aren't always the nicest places to hang out. You can encounter idiots at every turn, and be exposed to every ism you care to mention. But if you're going to out people for their obnoxious views and/or behavior, provide examples rather than vaguebooking about it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 5\. When a GIF Is Meant to Sum Everything Up
 
  If you find the right one, a GIF can say everything you need to say. However, vaguebookers abuse the medium by posting GIFs without context. Imagine, for example, finding a GIF of a baby cheering on your timeline. Without context, that could mean a host of different things.
@@ -96,7 +126,10 @@ No advertising on the website.
  Related:[The Best Therapy and Counseling Apps for Mental Health](https://www.makeuseof.com/tag/mental-health-apps-people-cant-see-therapist/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How to Avoid Vaguebooking
 
@@ -108,9 +141,6 @@ No advertising on the website.
 
  And if you're struggling mentally, maybe avoid social media altogether and talk to someone offline. Having a one-to-one conversation with someone who can actually offer practical help and/or advice is a much better idea than vaguebooking in the hopes someone will notice you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## How to Fight the Scourge of Vaguebooking
 
  Have you seen someone you know vaguebooking? Did you respond by asking for more detail? If so, please don't do that again. Discourage it by ignoring the vague status update. Or, even better, reply with a link to this article instead. Together we can stop this vaguebooking madness.

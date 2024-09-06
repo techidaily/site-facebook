@@ -1,7 +1,7 @@
 ---
 title: From Zero to Hero in Online Communities
-date: 2024-09-01T03:54:36.404Z
-updated: 2024-09-02T03:54:36.404Z
+date: 2024-09-05T09:31:23.927Z
+updated: 2024-09-06T09:31:23.927Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Jumpstart Community Growth,Become a Social Leader,Master Online Groups
 thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b29050cd2236573beb2ecb06.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## From Zero to Hero in Online Communities
 
  What if you were paid thousands of dollars for a single Instagram photo? Or received money for a single Snapchat post? Welcome to the world of social media influencers.
@@ -23,6 +29,12 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
 ![man handpainting a bird](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/man-handpainting-a-bird.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/24903658488)
 
  The biggest mistake a social media influencer can make is to try to be a jack-of-all-trades but end up the master of none. You may have a bunch of varied interests and areas of expertise, but you need to zero in on the one that you know the most about and make that your niche on social media.
@@ -33,6 +45,12 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  If you still feel you can post knowledgeably about more than one niche, create entirely separate channels for the other niches. You can then add a link in your bio to your other channels so that interested users can follow the links and discover your other passions as well.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Focus on One or Two Forms of Media
 
 ![Instagram, Facebook, and Twitter on iPhone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/social-media-apps.jpg)
@@ -43,9 +61,6 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  Instead of trying to post content on every social media platform, choose one or two and build your following from there. It'll be easier to keep up with your audience when you only have to pay attention to one or two apps rather than four or five.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 3\. Quality Over Quantity, But Be Consistent
 
  There are thousands of influencers in every popular niche, each competing for users' attention span. Your content needs to be unique, thoughtfully constructed—and most of all, consistent.
@@ -56,19 +71,28 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  Instagram users should check out the best[ways to get noticed on Instagram](https://www.makeuseof.com/tag/9-tips-will-help-get-noticed-instagram/) .
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4\. Network With Other Influencers
 
 ![large networking crowd of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/large-networking-crowd-of-people.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
  Being an influencer is a social game, and you absolutely cannot win it alone. Don't think of social media as only a place for you to talk about your niche to your followers. Think of it also as a place where you learn more about your own subject of interest from other influencers.
 
  Every savvy influencer understands the importance of networking, so don't hesitate to reach out to others. Comment on and like their posts, subscribe to their pages, and even share their work where possible.
 
  Showing support and interest in your fellow influencers adds a positive vibe to your channel and helps you make friends in the industry who can help your channel grow with future collaborations.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Engage With Your Following
 
  Providing information to your followers is step one. Step two is interacting directly with your followers once they start responding to your posts. When you have fewer fans in the beginning, you can follow them back individually and communicate directly to establish rapport.
@@ -90,13 +114,16 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 * Posting snippets from your main channel on other platforms and social media sites.
 * Adding hashtags to all your content for easy searchability.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Keep the Momentum Going With Fresh Ideas
 
 ![Vintage camera and binoculars](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/vintage-camera-and-binoculars.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit: Marco Verch/[Flickr](https://www.flickr.com/photos/30478819@N08/44222584482)
 
  Once the hard part of gaining a decent following is over, next comes the even more difficult part of maintaining your viewership. Nothing kills a channel faster than stagnant content.
@@ -108,14 +135,6 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 * Brainstorm ideas for new activities related to your niche that you can participate in and talk about on your channel. For instance, many popular YouTubers have started doing reaction videos, and rack up tens of thousands of views simply filming their reaction to other videos.
 * Ask your followers for ideas on new additions to your channel. Find out what parts of your channel appeal to them the most, and expand on those themes.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## 8\. Reach Out to Potential Sponsors
 
  When your profile is worth some serious ad revenue, it's time to talk to the sponsors who would actually want to use your account to promote their products. Don't wait around for the advertisers to come to you.
@@ -126,12 +145,27 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  If you're able to carefully manage your relationship with your followers as well as the companies whose products you sponsor, you will be able to maintain a steady stream of income every month by selling ad space on your channel or by personally endorsing products. Remember, building up that kind of trust takes time.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. Create Trackable Goals
 
 ![a person writing](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/journalling.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  As with anything you want in life, creating goals is a fantastic way to help you reach them faster. If you simply start posting to Instagram or creating videos for YouTube without an end goal in mind, your account may not do too well.
 
@@ -139,9 +173,6 @@ thumbnail: https://thmb.techidaily.com/e660cb7c486fc8d0b8cac52fbec26fad8dcc27b5b
 
  Then consider how you'll go about reaching and tracking that goal. For example, to gain followers and views, I will brainstorm ideas at the beginning of each month and post something new on Mondays and Fridays every week. Record the number of followers and views you have every week to help you assess how close you are to reaching your goal.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Should You Become a Social Media Influencer?
 
  Becoming a social media influencer can often start off as a side gig and ultimately become a full-time job. If you're passionate about your niche, creating content should come easy to you. It's okay to want to share information about your niche and also make some money while doing it, but the latter shouldn't be your main goal.

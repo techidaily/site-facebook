@@ -1,7 +1,7 @@
 ---
 title: Understanding Spotify’s Tracking for Uninterrupted Music Streaming
-date: 2024-09-01T03:55:46.812Z
-updated: 2024-09-02T03:55:46.812Z
+date: 2024-09-05T09:31:22.896Z
+updated: 2024-09-06T09:31:22.896Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Spotify Music Privacy,Spotify Tracking Techniques,Uninterrupted Music 
 thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e811859d2e2792db0d3e9e3a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding Spotify’s Tracking for Uninterrupted Music Streaming
 
  You've probably heard the phrase by now: "if you're not paying, then you're the product." It's sad but true—such is the real cost of social media.
 
  Keeping this in mind, you start to see why Facebook remains in strong opposition of Apple's' new privacy options. Much of Facebook's earnings probably come from personalized ads, after all.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Tries to Convince You to Enable App Tracking
 
  In continued pushback against Apple's iOS 14 privacy updates, the iOS apps for Facebook and Instagram have added a new notice. The pop-ups are near identical on both platforms, saying that the company (Facebook owns Instagram) uses info on your activity to help keep the app(s) "free of charge."
@@ -29,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
 
 > \[Apple's prompt\] discourages people from giving their permission, and provides little detail about what this decision means. (...) We will show an educational screen before presenting Apple’s prompt to help people make an informed decision about how their information is used.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Why Does Facebook Oppose the Apple iOS 14 Update So Much?
 
  The iOS 14 update added**App Tracking Transparency** , which requires all your apps that track user behavior to ask you for explicit permission to do so before anything else. You can tweak this setting for each individual app, or apply the same setting to all apps via the**Settings** menu.
@@ -38,7 +56,10 @@ thumbnail: https://thmb.techidaily.com/24c4d966d5ae08b9992d6ca8e560b523aa54e9e6e
  Related: [Apple Releases iOS 14.5 With a Long List of New Features](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Will Facebook Go Back on Its Word?
 

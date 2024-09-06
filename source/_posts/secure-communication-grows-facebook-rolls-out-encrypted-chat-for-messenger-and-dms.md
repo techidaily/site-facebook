@@ -1,7 +1,7 @@
 ---
 title: "Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs."
-date: 2024-09-01T03:54:08.488Z
-updated: 2024-09-02T03:54:08.488Z
+date: 2024-09-05T09:31:24.307Z
+updated: 2024-09-06T09:31:24.307Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Facebook Encrypted Chat,Secure Messaging FB,FB Messenger Encryption,Me
 thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52b18cfdee70ac40508a6e091.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Secure Communication Grows: Facebook Rolls Out Encrypted Chat for Messenger and DMs
 
  Facebook is expanding end-to-end encryption to Messenger voice and video calls, as well as direct messages (DMs) on Instagram. Turning on the feature will let users communicate securely, whether over calls or text messages.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Brings End-to-End Encryption to More Services
 
  A post on[Messenger News](https://messengernews.fb.com/2021/08/13/messenger-updates-end-to-end-encrypted-chats-with-new-features/) revealed that Facebook is amping up security on both Messenger and Instagram.[Facebook started offering encrypted messaging on Messenger in 2016](https://www.makeuseof.com/tag/enjoy-secret-facebook-messenger-conversations/) , and now that same protection is offered for voice and video calls.
@@ -33,6 +45,12 @@ thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -98,7 +116,3 @@ thumbnail: https://thmb.techidaily.com/a399a44beb5899ba48cdf59ba448623d828236f52
 <li><a href="https://facebook.techidaily.com/1719148962192-which-platform-do-you-love-more-participate/"><u>Which Platform Do You Love More? Participate!</u></a></li>
 <li><a href="https://facebook.techidaily.com/why-apple-chooses-different-trajectory-than-facebooks-metaverse/"><u>Why Apple Chooses Different Trajectory Than Facebook's Metaverse</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->

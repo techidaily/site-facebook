@@ -1,7 +1,7 @@
 ---
 title: Lost Your Phone? Here's How to Turn Off Two-Factor Authentication on Facebook Without a Phone
-date: 2024-07-12T10:34:03.785Z
-updated: 2024-07-13T10:34:03.785Z
+date: 2024-09-05T09:22:00.544Z
+updated: 2024-09-06T09:22:00.544Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,12 @@ thumbnail: https://thmb.techidaily.com/f7e33e46d8576e8a405f890f9187eb22b423a0b93
 
  Here’s everything you need to know about how to bypass Facebook’s two-factor authentication system without even logging in.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is Two-Factor Authentication and Why Have It on Facebook?
 
  There are actually five factors of authentication that cybersecurity systems use to verify someone’s identity, the first three being the most popular:
@@ -63,6 +69,12 @@ Your options are:
 
 ![meta backup security method](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/facebook-two-factor-authentication-backup-methods.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Disable Two-Factor Authentication on Facebook Without Your Phone
 
  Assuming you did set up a backup method and you can log in to your Facebook account via a different browser or device, go back to your**Security and Login** settings.
@@ -73,6 +85,12 @@ Your options are:
 
  But what do you do if you don’t have a backup method? There’s no reason to panic because Facebook and a few other tricks have you covered.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Bypass Two-Factor Authentication on Facebook When Locked Out
 
  So, your phone is lost or broken, and you didn’t set up a backup method, but you need to get through your two-factor authentication.
@@ -84,10 +102,22 @@ Your options are:
 ### 1\. Log In Through a Recognized Device or Location
 ![who has signed into your facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/authorized-logins-list-in-facebook-s-two-factor-authentication-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  If you regularly use Facebook on your computer, tablet, and phone, especially with your two-factor authentication active, the app will recognize all these devices and locations. This is why you should check and remember that list.
 
  Go onto any of your other recognized devices, and Facebook will log you in automatically. Then, follow the steps above to disable your two-factor authentication or change its settings.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Provide an Email Address and Form of ID
 
  This process can take longer than the rest, but it’s an official method to log in without your phone.
@@ -104,6 +134,12 @@ A window opens that offers the following choices:
 
 ![what happens if you never got a 2fa code meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/facebook-two-factor-authentication-didnt-receive-code-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The next window informs you that you will be providing an email address and government-issued ID. You get 13 options for the latter, including:
 
 * Passport.
@@ -149,3 +185,62 @@ A window opens that offers the following choices:
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-android-music-integration-a-guide-to-social-media-playlists/"><u>[New] 2024 Approved  Android Music Integration  A Guide to Social Media Playlists</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtubes-best-gamers-audio-selection-guide/"><u>[New] In 2024, YouTube's Best Gamers' Audio Selection Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skys-dynamic-range-wonders-top-10-sites-guide/"><u>[New] Sky's Dynamic Range Wonders - Top 10 Sites Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-turning-insta-vids-into-music-your-complete-guide/"><u>[Updated] 2024 Approved  Turning Insta Vids Into Music  Your Complete Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-finalizing-your-video-with-a-bold-statement-for-2024/"><u>[Updated] Finalizing Your Video with a Bold Statement for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-lg-360-camera-mastered-a-full-review/"><u>[Updated] LG 360 Camera Mastered  A Full Review</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-record-your-google-meet-on-iphoneandroid-step-by-step-for-2024/"><u>[Updated] Record Your Google Meet on iPhone/Android Step-by-Step for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-social-avatar-customization-concocting-caricatured-images-for-2024/"><u>[Updated] Social Avatar Customization  Concocting Caricatured Images for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-stream-mastery-on-mac-with-these-5-tools/"><u>[Updated] Stream Mastery on Mac with These 5 Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-filmmakers-handbook-building-effective-luts-for-2024/"><u>A Filmmaker's Handbook  Building Effective LUTs for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/accelerate-your-videos-top-10-free-speed-changer-apps-for-ios-and-android/"><u>Accelerate Your Videos Top 10 Free Speed Changer Apps for iOS and Android</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/battlefield-4-no-sound-heres-the-fix/"><u>Battlefield 4 No Sound? Here's The Fix</u></a></li>
+<li><a href="https://facebook.techidaily.com/engaging-the-audience-in-new-ways-with-facebook-hub/"><u>Engaging the Audience in New Ways with Facebook Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensure-the-legitimacy-of-securityfacebookmailcom-as-a-security-email-service/"><u>Ensure the Legitimacy of @security@facebookmail.com as a Security Email Service</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/googles-password-vault-reliability-or-concern/"><u>Google's Password Vault: Reliability or Concern?</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-features-face-off-casual-vs-career-focused-networking-spaces/"><u>Group Features Face-Off: Casual Vs. Career-Focused Networking Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-harmony-with-facebooks-modern-group-management-functionalities/"><u>Harnessing Harmony with Facebook's Modern Group Management Functionalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-launch-a-community-within-the-digital-square-of-fb/"><u>How to Launch a Community Within the Digital Square of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-maintain-message-consistency-across-facebook-communities/"><u>How to Maintain Message Consistency Across Facebook Communities</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-oppo-reno-10-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Oppo Reno 10 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-itel-p55plus-phone-without-google-account-by-drfone-android/"><u>How to Unlock Itel P55+ Phone without Google Account?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-enhance-your-story-game-applying-fun-sticker-themes/"><u>In 2024, Enhance Your Story Game  Applying Fun Sticker Themes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-google-pixel-8-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Google Pixel 8 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-vk-a-compreranctive-view-of-russias-online-world/"><u>Inside VK: A Compreranctive View of Russia's Online World</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-economic-shift-how-creators-can-benefit-from-new-features/"><u>Instagram's Economic Shift: How Creators Can Benefit From New Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/intimate-listening-experience-spotify-miniplayer-in-fb/"><u>Intimate Listening Experience - Spotify Miniplayer in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-users-push-back-against-app-monitoring/"><u>IPhone Users Push Back Against App Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/like-and-share-carefully-how-marketers-target-you-on-facebook/"><u>Like and Share Carefully: How Marketers Target You on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-media-interaction-through-shortcut-personalization/"><u>Maximizing Social Media Interaction Through Shortcut Personalization</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-delays-offering-end-to-end-encryption-by-default-until-2023-heres-why/"><u>Meta Delays Offering End-to-End Encryption by Default Until 2023: Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-pursuit-the-race-for-global-ai-supremacy/"><u>Meta's Pursuit: The Race for Global AI Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindful-browsing-a-future-suggestion-by-facebook/"><u>Mindful Browsing: A Future Suggestion by Facebook?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigate-video-trimming-with-ease-on-windows-11-photos-for-2024/"><u>Navigate Video Trimming with Ease on Windows 11 Photos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-settings-change-your-year-of-birth/"><u>Navigating Facebook Settings: Change Your Year of Birth</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-new-territories-with-facebooks-expat-groups/"><u>Navigating New Territories with Facebook's Expat Groups</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/official-driver-downloads-for-hp-officejet-pro-8715-compatible-with-windows-operating-systems-windows-11-10-and-8/"><u>Official Driver Downloads for HP OfficeJet Pro 8715 – Compatible with Windows Operating Systems [Windows 11, 10, and 8]</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-c55-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme C55 Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/pretender-on-linkedin-check-for-copycat-profiles/"><u>Pretender on LinkedIn: Check for Copycat Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-and-agile-top-lite-android-productivity-tools/"><u>Quick and Agile: Top Lite Android Productivity Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-digital-districts-with-facebook-written-content/"><u>Redefining Digital Districts with Facebook' Written Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-secrets-top-7-steps-for-fb-privacy/"><u>Safeguard Your Secrets: Top 7 Steps for FB Privacy</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/seamless-wacom-driver-download-process-explained/"><u>Seamless Wacom Driver Download Process Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/seamlessly-integrate-friends-on-facebook-messenger/"><u>Seamlessly Integrate Friends on Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-fabric-reimagined-the-top-4-platform-driven-changes/"><u>Social Fabric Reimagined: The Top 4 Platform-Driven Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-who-sees-you-on-social-grids/"><u>Steering Who Sees You on Social Grids</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-fbs-face-recognition-heres-why-meta-cut-ties/"><u>The End of FB's Face Recognition? Here’s Why Meta Cut Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-people-uncovering-the-benefits-in-your-social-feed/"><u>The Power of People: Uncovering the Benefits in Your Social Feed</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/transfer-your-apple-iphone-14-plus-apps-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>Transfer your Apple iPhone 14 Plus Apps to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/triggering-uninterrupted-youtube-streaming-on-facebook-feed-for-2024/"><u>Triggering Uninterrupted YouTube Streaming on Facebook Feed for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-the-numbers-facebook-users-leaving/"><u>Uncovering the Numbers: Facebook Users Leaving</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-whats-hot-on-social-media-hub/"><u>Uncovering What's Hot on Social Media Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-share-in-facebooks-725m-class-action/"><u>Understanding Your Share in Facebook’s 725M Class Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-portal-tvs-video-conferencing-features/"><u>Unveiling Facebook Portal TV's Video Conferencing Features</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-nothing-phone-3-anticipated-launch-details-cost-estimates-and-leaked-specifications/"><u>Unveiling the 'Nothing Phone 3': Anticipated Launch Details, Cost Estimates & Leaked Specifications</u></a></li>
+</ul></div>

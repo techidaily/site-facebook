@@ -1,7 +1,7 @@
 ---
 title: "Understanding PhotoDNA: Its Functionality Unveiled"
-date: 2024-09-01T03:54:53.445Z
-updated: 2024-09-02T03:54:53.445Z
+date: 2024-09-05T09:31:23.670Z
+updated: 2024-09-06T09:31:23.670Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: PhotoDNA Basics,Image Verification Tech,Digital Photo ID,Hash Matching
 thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc184d4caf7d23cf42a2ae057.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Understanding PhotoDNA: Its Functionality Unveiled
 
  The internet has made many things easier, from keeping in touch with friends and family to getting a job and even working remotely. The benefits of this connected system of computers are immense, but there's a downside too.
@@ -21,6 +27,12 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -33,6 +45,12 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
 
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Does PhotoDNA Work?
 
  When internet users or law enforcement agencies come across abuse images, they are reported to NCMEC via the[CyberTipline](https://report.cybertip.org/) . These are cataloged, and the information is shared with law enforcement if it weren't already. The images are uploaded to PhotoDNA, which then sets about creating a hash, or digital signature, for each individual image.
@@ -52,7 +70,10 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does PhotoDNA Use Facial Recognition?
 
@@ -66,15 +87,15 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
@@ -83,7 +104,10 @@ thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Does PhotoDNA Make the Internet Safer?
 

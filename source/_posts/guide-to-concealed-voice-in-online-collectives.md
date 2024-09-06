@@ -1,7 +1,7 @@
 ---
 title: Guide to Concealed Voice in Online Collectives
-date: 2024-09-01T03:57:27.323Z
-updated: 2024-09-02T03:57:27.323Z
+date: 2024-09-05T09:31:21.481Z
+updated: 2024-09-06T09:31:21.481Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,12 @@ keywords: Hidden Voice Guide,Secret Audio Collective,Online Group Silent Speech,
 thumbnail: https://thmb.techidaily.com/d5d13fb577cc5620ebbaf2970abea56dace77d9e5a84a022ba162f616f0fcf69.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Guide to Concealed Voice in Online Collectives
 
  Facebook groups are a great way to stay connected with people from different walks of life. Group members can share ideas and opinions on matters of common interest, plus more.
@@ -21,10 +27,22 @@ thumbnail: https://thmb.techidaily.com/d5d13fb577cc5620ebbaf2970abea56dace77d9e5
 
  Thankfully, there’s a feature you can enable in your group to allow users to post anonymously. In this article, you'll learn how to enable this feature in your Facebook group.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Enable Anonymous Posts in Your Facebook Group
 
 ![An anonymous person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/01/teams-anonymous-update-featured.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit:[Shuttershock](https://www.shutterstock.com/image-photo/girl-holding-sheet-paper-question-mark-1673490064)
 
  The anonymous posting feature is only available for groups set as Parenting. So, if your group is set to another group type, you’d need to change this.
@@ -39,6 +57,12 @@ thumbnail: https://thmb.techidaily.com/d5d13fb577cc5620ebbaf2970abea56dace77d9e5
 
 ![facebook group settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-settings-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![facebook group type](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/facebook-group-type.jpg)
 
 Close
@@ -55,6 +79,12 @@ Close
 
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
 
  One reason you might want to enable anonymous posts on your group is so that group members can share their experiences without revealing their identity.
@@ -64,7 +94,10 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Should You Enable Anonymous Posting in Your Facebook Group?
 

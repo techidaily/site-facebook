@@ -1,7 +1,7 @@
 ---
 title: Hacktivists Hijack Star Ratings, Target Social Network's Reputation
-date: 2024-09-01T03:56:20.825Z
-updated: 2024-09-02T03:56:20.825Z
+date: 2024-09-05T09:31:22.441Z
+updated: 2024-09-06T09:31:22.441Z
 tags:
   - facebook
 categories:
@@ -13,10 +13,22 @@ keywords: Hacktivism Impact on Brand Reputation,Star Ratings Cybersecurity Threa
 thumbnail: https://thmb.techidaily.com/b92970fb02a09749baa6f2838ddd89dd174bd2bb3f33370dc3c96100a7eda776.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Hacktivists Hijack Star Ratings, Target Social Network's Reputation
 
  Facebook may be sitting at the top of the Social Networking category on Apple's App Store, but that doesn't necessarily mean that people are content with it—just that they're downloading it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Mobile App Rating Takes a Nosedive
 
  Pro-Palestinian activists are running a coordinated campaign to lower Facebook's mobile app rating on the Apple and Google app stores.
@@ -29,6 +41,12 @@ thumbnail: https://thmb.techidaily.com/b92970fb02a09749baa6f2838ddd89dd174bd2bb3
 
 ![Facebook open in a mobile browser](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-in-mobile-browser.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  The team behind Facebook is reportedly taking this issue very seriously—they've marked it as "SEV1" or "severity 1," which is a descriptor used internally when there is a high-priority issue with the site.
 
  The only type of issue that would take higher priority than this is a "SEV0," which is used when site is down.
@@ -39,10 +57,28 @@ thumbnail: https://thmb.techidaily.com/b92970fb02a09749baa6f2838ddd89dd174bd2bb3
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
  And not all of Facebook's issues stem from a political discussion—you can be completely oblivious to that stuff and still have a reason to furrow your brow.
@@ -124,7 +160,3 @@ thumbnail: https://thmb.techidaily.com/b92970fb02a09749baa6f2838ddd89dd174bd2bb3
 <li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Motorola Moto G84 5G | Dr.fone</u></a></li>
 <li><a href="https://driver-install.techidaily.com/windows-11-hp-envy-5530-usb-drive-installation/"><u>Windows 11: HP Envy 5530 USB Drive Installation</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: Mastering Social Media with These Favorite FB App Configs
-date: 2024-09-01T03:55:50.786Z
-updated: 2024-09-02T03:55:50.786Z
+date: 2024-09-05T09:31:22.842Z
+updated: 2024-09-06T09:31:22.842Z
 tags:
   - facebook
 categories:
@@ -23,10 +23,34 @@ thumbnail: https://thmb.techidaily.com/6c8487e0b404251fb12aeaebde28154ddd618ecb4
 
 ![Settings Highlighted Under Settings and Privacy in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Settings-Highlighted-Under-Settings-and-Privacy-in-the-Facebook-App.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Shortcut Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Settings-Highlighted-in-the-Facebook-App.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Shortcut Bar and Notification Dots Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Shortcut-Bar-and-Notification-Dots-Settings-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  When you open your Facebook app, youwill see a shortcut bar at the top with links to Home, Watch, Marketplace, and others. You can[customize this Facebook shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) according to your preferences.
@@ -37,8 +61,20 @@ Close
 
 ![Media Settings Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Never Autoplay Videos Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Never-Autoplay-Videos-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  When you install the Facebook app, video autoplay is turned on by default. As the name suggests, this feature automatically plays a video when you scroll through your feed.
@@ -49,9 +85,6 @@ Close
 
  First, you can check**Optimized** to let the app adjust video quality according to your network. And if you want to save even more data, you can turn on the**Data Saver** feature. You can also change the video quality for individual videos by adjusting the resolution while playing them in your feed.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Get a Report to See Your Time on Facebook
 
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
@@ -59,10 +92,19 @@ Close
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![See Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/See-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  Facebook allows you to[review your screen time on the Facebook app](https://www.makeuseof.com/tag/time-spent-facebook-instagram/) , which helps you manage your usage routine and habits. You can get a weekly report to see how you spend your time on Facebook and view your activity log, such as your posts, comments, and reactions.
@@ -73,24 +115,15 @@ Close
 
 ![Your Time on Facebook Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Your Time on Facebook Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Your-Time-on-Facebook-Settings-in-the-Facebook-App.jpeg)
 
 ![Manage Your Time Options in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Manage-Your-Time-Options-in-the-Facebook-App-Settings.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -102,17 +135,10 @@ Close
 
  In the same menu, you can also choose the amount of time you want to spend on Facebook through Daily Time Reminder. As the name suggests, this feature sends you a reminder once you have used the app for the specified duration.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5\. Toggle Dark Mode On or Off
 
 ![Dark Mode Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Dark Mode Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Dark-Mode-Settings-in-the-Facebook-App.jpeg)
 
 Close
@@ -121,12 +147,30 @@ Close
 
  To enable Dark Mode, go to **Settings & Privacy > Settings > Preferences > Dark Mode** . It provides you with three options:**On** ,**Off** , and**Use System Settings** . The**Use System Settings** option can detect the default mode of your system and matches the Facebook app’s mode accordingly.
 
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. Toggle Continuous Contact Upload
 
 ![Upload Contacts Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Upload-Contacts-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
 ![Continuous Contacts Upload Setting in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Continuous-Contacts-Upload-Setting-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  As you know, Facebook allows you to connect with your friends, colleagues, and family. And to find someone, you have to search for their name. However, some people don’t use their real names, and there might be instances where you might find tons of people with the same name.
@@ -135,18 +179,18 @@ Close
 
  You can turn this feature on or off by going to **Settings & Privacy > Settings > Permissions > Upload Contacts** . Once you turn it on, it takes you to the screen where you upload your contacts for the first time to find your friends. If you want to stop sharing this information with Facebook, toggle it off instead.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 7\. Data Saver on Mobile Network
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Data Saver Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Data-Saver-Setting-Highlighted-in-the-Facebook-App.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
  As discussed above, Facebook has a massive amount of content, including images, videos, and text-based posts. It will eat up your mobile data if you use Facebook on your cellular network. The good news is that the Facebook app has a Data Saver feature that reduces video and image quality to help you conserve data.
@@ -154,21 +198,34 @@ Close
  The feature claims to use 40% less data when you turn on the Data Saver mode. To enable it, go to **Settings & Privacy > Settings > Preferences > Media** . Here you’ll find the Data Saver option, among other useful media-related preferences.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 8\. Open Links Externally
 
 ![Media-Settings-Highlighted-in-the-Facebook-App-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Media-Settings-Highlighted-in-the-Facebook-App-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ![Links Open Externally Setting Highlighted in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Links-Open-Externally-Setting-Highlighted-in-the-Facebook-App.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -182,11 +239,14 @@ Close
 
 ![WiFi Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/WiFi-Information-in-the-Facebook-App.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![Cellular Network Information in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Cellular-Network-Information-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  If you go to **Settings & Privacy > Wi-Fi & Cellular Performance** , you’ll find some useful information about your internet connection and the available public Wi-Fi connections.
@@ -195,21 +255,36 @@ Close
 
  Furthermore, you can manage the network-related notifications and location settings by tapping on the**cog icon** in the top-right corner.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 10\. Adjust Your Facebook Reels Settings
 
 ![Reels Option Highlighted in the Facebook App Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Option-Highlighted-in-the-Facebook-App-Settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Reels Settings in the Facebook App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/Reels-Settings-in-the-Facebook-App.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  The Facebook app allows you to create and watch short videos called Reels. The app enables you to manage your Reels’ audience and the sharing options through the settings.
 
  To access these options, go to **Settings & Privacy > Settings > Audience and Visibility > Reels** . Here, you can restrict your Reels to your friend list or to specific friends only. You can also restrict your audience from sharing your reels. If you want, you can also[stop seeing reels on Facebook](https://www.makeuseof.com/how-to-stop-seeing-reels-on-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Fine Tune Your Mobile Facebook Experience
 
  Facebook has been here for a long time and has introduced many features and updates to its mobile app. It is hard to keep track of all these changes. So, the settings we have listed above will ease you in enhancing your experience on the Facebook app by optimizing it according to your preferences.

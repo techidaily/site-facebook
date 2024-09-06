@@ -1,7 +1,7 @@
 ---
 title: The Aftermath of Deleting Your FB Profile
-date: 2024-09-01T03:57:19.701Z
-updated: 2024-09-02T03:57:19.701Z
+date: 2024-09-05T09:31:21.607Z
+updated: 2024-09-06T09:31:21.607Z
 tags:
   - facebook
 categories:
@@ -13,6 +13,18 @@ keywords: Delete Facebook Account Impact,Social Media Profile Removal Effects,Li
 thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f640c5b81b3310074251149c70.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Aftermath of Deleting Your FB Profile
 
  Facebook has endured several scandals over the years, and these invariably concern the privacy and security of its users. This led to the #DeleteFacebook campaign, and you might have been tempted to delete Facebook as a result.
@@ -23,12 +35,24 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
 ![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
 
  Deactivation is for people who aren't certain they want to leave Facebook forever. If you just want to take a sabbatical from social media, deactivation is a good option, although it's not the only one. You could merely ignore Facebook without deactivating it, but that depends on how tempted you'll be to return.
 
  Deleting Facebook is more permanent. It's a decision that you shouldn't take lightly. If you delete your account, you can't come back and expect any of your data to still be intact. There is a way to start again, but we'll return to that later on.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Can People Search for Me if I Deactivate Facebook?
 
  People can still search for you, but your profile shouldn't show up—that is, in theory.
@@ -45,15 +69,24 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
 ![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
  Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
 
  How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
 
  If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Do My Comments Disappear if I Deactivate Facebook?
 
  If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
@@ -66,9 +99,6 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
  So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
 
  What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
@@ -79,9 +109,6 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
 ![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  So how do you know if someone has blocked you on Facebook or deactivated their account?
 
  Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
@@ -89,7 +116,10 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
  Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Can I Still Use Messenger Without Facebook?
 
@@ -103,27 +133,12 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
  So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Can People See My Messages if I Deactivate Facebook?
 
  Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
 
  However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Can You Reactivate a Facebook Account?
 
  If you've deactivated your Facebook account, all you need to do is log back in to reactivate it. You can change your password if you've forgotten it. Your profile still exists, as does your personal information. Previous messages and comments typically re-appear too.
@@ -132,10 +147,22 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
 ![how much does facebook know about me](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-activity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Can you reactivate a deleted Facebook account? You can, but it's more difficult. You'll need to have taken steps to prepare for your reactivation**before** deletion.
 
  The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Happens to Tagged Photos After Deactivating Facebook?
 
  Because Facebook has saved your data for your potential return, tags in pictures will still exist. However, those tags will convert to plain text. No one can link those images to a profile. This is also true of any other posts you're tagged in. To reiterate, your profile isn't visible to anyone.

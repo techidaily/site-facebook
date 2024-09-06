@@ -1,7 +1,7 @@
 ---
 title: "Subtle Show of Approval: FB Like Anonymity Tips"
-date: 2024-09-01T03:55:33.139Z
-updated: 2024-09-02T03:55:33.139Z
+date: 2024-09-05T09:31:23.070Z
+updated: 2024-09-06T09:31:23.070Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,58 @@ keywords: Facebook Anonymous Likes,FB Like Hidden Profile,Stealth FB Liking Guid
 thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ecfefae2f5882a90863822c25.png
 ---
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Subtle Show of Approval: FB Like Anonymity Tips
 
  Since May 2021, Facebook has allowed users to hide the number of reactions on their posts. You can also hide the total number of reactions on posts from other users across your home feed, groups, and pages.
 
  In this article, you'll find out how to hide likes on your Facebook posts—as well as how to stop seeing other people's like counts.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Hide Your Reactions Count on Facebook
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Setting options on Facebook mobile app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-settings-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
 
 Close
@@ -42,7 +78,10 @@ To hide the number of reactions on your posts, follow these steps.
 5. Toggle the slider next to**On posts from others** to hide the total number of reactions on Facebook posts from other users. To hide the number of reactions on your posts, toggle the slider adjacent to**On your posts** .
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Hiding the Reaction Count on Facebook on the Web
 
@@ -55,19 +94,10 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -80,18 +110,6 @@ Your new settings are saved automatically.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Depressurize Your Experience on Facebook
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.

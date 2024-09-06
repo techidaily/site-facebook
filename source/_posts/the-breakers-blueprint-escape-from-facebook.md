@@ -1,7 +1,7 @@
 ---
 title: "The Breaker's Blueprint: Escape From Facebook"
-date: 2024-09-01T03:57:45.426Z
-updated: 2024-09-02T03:57:45.426Z
+date: 2024-09-05T09:31:21.221Z
+updated: 2024-09-06T09:31:21.221Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,12 @@ thumbnail: https://thmb.techidaily.com/571a13bc6404d66e8575f828248d5c770574159f8
 
  The only solution is to take a break and leave Facebook for a while. Here is a guide to everything you need to know about taking a break from Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Temporarily Deactivating Your Facebook Account: How It Works
 
  Deactivating a Facebook account means that it becomes inactive and unavailable for use. As opposed to deleting your account, deactivation is temporary so can be used to take a break from the platform.
@@ -31,33 +37,57 @@ thumbnail: https://thmb.techidaily.com/571a13bc6404d66e8575f828248d5c770574159f8
 
  In addition, the following things happen when you deactivate your Facebook account...
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### No Visibility
 
  Your account is no longer visible to other users—even if they search for it. Having no visibility means that people won't be able to connect with you, share posts or mention you in their comments on Facebook.
 
  Once your account has been deactivated, the platform does not let others[tag you in their Facebook photos](https://www.makeuseof.com/tag/3-things-you-need-to-know-about-photo-tagging-in-facebook/) . Some people deactivate their Facebook account for privacy.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### No Notifications
 
  If you deactivate your Facebook account, you won’t be receiving Facebook notifications anymore.
 
  You can even opt out of or adjust receiving email notifications for a deactivated account. This gives you time to relax and relieves the stress of opening the app every now and then.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Adjusted Messages and Comments
 
  After the deactivation of your account, your comments will be visible on Facebook but with plain text and a default icon. No one will be able to open your profile and send you messages.
 
  Since Facebook is connected to Messenger (a separate app), your contacts will still be able to send you messages and calls. You don’t want that either? You can[deactivate your Messenger account](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Deactivate Your Facebook Account
 
  Taking time off from Facebook seems like an effective stress reliever, right? But you should follow the proper steps. Here is how you can deactivate your Facebook account through the mobile app and desktop:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Via Mobile
 
@@ -69,13 +99,22 @@ thumbnail: https://thmb.techidaily.com/571a13bc6404d66e8575f828248d5c770574159f8
 
 ![Deactivation and deletion of Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Deactivate your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivate-your-Facebook-account.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Reason for deactivating Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Open Facebook on your mobile browser.
@@ -95,9 +134,6 @@ Close
 
 **Download:** Facebook for[iOS](https://apps.apple.com/us/app/facebook/id284882215) |[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2017073/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en&gl=US)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Via Desktop
 
  To deactivate Facebook using a browser, open[Facebook](https://www.facebook.com/) and log in to your account.
@@ -108,37 +144,37 @@ Close
 ![Facebook Settings and Privacy desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Settings-and-Privacy-desktop.jpg)
 4. From the menu on your left, navigate to**Privacy** and click**Your Facebook Information** . This section contains all the settings to delete the account or download your information.  
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Personal Account Information of Facebook on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Personal-Account-Information-of-Facebook-on-desktop.jpg)
 5. Scroll down to**Deactivation and Deletion** and press**View** .
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 
 1. In this section, you can deactivate or delete your account. Select the**Deactivate Account** option, and tap**Continue to Account Deactivation** .  
 ![Deactivation and deletion of Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Deactivation-and-deletion-of-Facebook-account-desktop.jpg)
 2. Enter your password and tap**Continue** .
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 3. Choose a reason why you want to deactivate your account. Facebook also offers the option to**Transfer Your Information** and**Reason for Leaving** .  
 ![Reason for deactivating Facebook account desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Reason-for-deactivating-Facebook-account-desktop.jpg)
 4. Scroll down and check to**Opt out of receiving future emails from Facebook** to block notifications.
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 5. Select**Deactivate** , and you’ll be logged out of Facebook.  
 ![Choose to deactivate account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Choose-to-deactivate-account.jpg)
 
  You can use a similar method to deactivate Facebook using a browser on a mobile phone or a Chromebook.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Reactivate Your Facebook Account
 
  After a while, you might feel relaxed enough to resume your activities on Facebook. Users who deactivate their Facebook account have the option to reactivate it.

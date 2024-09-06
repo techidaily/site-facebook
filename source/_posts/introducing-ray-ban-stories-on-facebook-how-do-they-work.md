@@ -1,7 +1,7 @@
 ---
 title: Introducing Ray-Ban Stories on Facebook - How Do They Work?
-date: 2024-09-01T03:54:24.690Z
-updated: 2024-09-02T03:54:24.690Z
+date: 2024-09-05T09:31:24.090Z
+updated: 2024-09-06T09:31:24.090Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Ray-Ban Stories Basics,Stories Feature Explained,Ray-Ban Social Glasse
 thumbnail: https://thmb.techidaily.com/30d2a20c84a301395b600ba93cb77523eb9f5d9c595c4e33a41955717da718a0.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Introducing Ray-Ban Stories on Facebook - How Do They Work?
 
  Given how much the smartphone has proliferated our personal and business life, it can be hard to imagine getting things done without one. However, Facebook plans to make smartphones a thing of the past with new smart glasses designed by Ray-Ban, called the Ray-Ban Stories.
 
  So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## What Are Ray-Ban Stories?
 
  Ray-Ban released the above trailer to show off the new Ray-Ban Stories. These glasses were the result of the luxury sunglasses company teaming up with the tech giant Facebook. The idea behind the Ray-Ban Stories is that they can help you capture events going on around you without needing to reach for your phone.
@@ -31,6 +43,18 @@ thumbnail: https://thmb.techidaily.com/30d2a20c84a301395b600ba93cb77523eb9f5d9c5
 
  The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The Ray-Ban Stories Specifications
 
  The Ray-Ban Stories captures the world around you using two 5-megapixel cameras. You activate them by pressing a small button on the side of the glasses frame: a brief tap to record video and a long press for a photo. If you’re feeling brave, you can also say, “Hey Facebook, take a video” to start the process, but be prepared to record nothing but people staring at you in confusion.
@@ -48,21 +72,30 @@ thumbnail: https://thmb.techidaily.com/30d2a20c84a301395b600ba93cb77523eb9f5d9c5
  The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## How Much Are the Ray-Ban Stories?
 
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## When Will the Ray-Ban Stories Come Out?
 
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## A New Chapter in the Story of Smart Glasses
 

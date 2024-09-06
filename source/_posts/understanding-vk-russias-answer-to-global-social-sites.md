@@ -1,7 +1,7 @@
 ---
 title: "Understanding VK: Russia’s Answer to Global Social Sites"
-date: 2024-09-01T03:58:36.097Z
-updated: 2024-09-02T03:58:36.097Z
+date: 2024-09-05T09:31:20.459Z
+updated: 2024-09-06T09:31:20.459Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,18 @@ thumbnail: https://thmb.techidaily.com/7572b835422df4a46e1dde0ebf1594c94500d035c
 
 ![VK is the most popular social media site in Russia.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk.png)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit:[Statista](https://www.statista.com/statistics/284447/russia-social-network-penetration/)
 
  With Facebook coming in at number four (behind VK and other popular social media sites Odnoklassniki and Instagram), VK actually has its closest competitor beat by nearly twofold in terms of monthly messages and posts exchanged between users.
@@ -33,6 +45,12 @@ thumbnail: https://thmb.techidaily.com/7572b835422df4a46e1dde0ebf1594c94500d035c
 
 ![Distribution of VK users by age groups.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/vk-users-by-age.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image Credit:[ResearchGate](https://www.researchgate.net/figure/Distribution-of-VK-users-by-age-groups%5Ffig3%5F321459360)
 
  The majority of VK users are between the ages of 25 to 34\. This is an interesting demographic wedge to be dialed into, given that Facebook's users are mostly ages 35 and up.
@@ -43,9 +61,6 @@ Some potential explanations for this difference include:
 * The site's tendency to encourage users to expand their social circles, as opposed to remaining only in the ones that they are already a part of.
 * The popularity of the social media site Odnoklassniki with older Russian adults.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## 3\. VK Offers a Lot In Terms of Profile Creation
 
  Facebook as a company tends to encourage users to populate their timelines with the latest on their lives, as opposed to creating an extremely specific profile of general information about themselves.
@@ -54,15 +69,18 @@ Some potential explanations for this difference include:
 
 ![Creating a profile on VK.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vk-social-media.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  To name one example, the sign-up process asks that you add your education to your profile. I expected to drop my university's name in and move on.
 
  This website actually continued to show me a list of the individual schools and colleges within my university; some of these were departments that even I had never heard of. After that, it asked me my major and even went on to specify which emphasis I chose for my degree.
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -72,7 +90,16 @@ Some potential explanations for this difference include:
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 5\. Russian Users Believe VK is Better than Facebook
 
@@ -83,7 +110,16 @@ Some potential explanations for this difference include:
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 6\. VK Has Suffered Major Security Breaches
 
@@ -92,16 +128,16 @@ Some potential explanations for this difference include:
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 7\. The Most Common Password on VK is "123456"
 
@@ -126,7 +162,10 @@ Some potential explanations for this difference include:
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## There's a World Outside of Facebook
 

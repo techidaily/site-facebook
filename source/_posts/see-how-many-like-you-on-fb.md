@@ -1,7 +1,7 @@
 ---
 title: See How Many Like You on FB
-date: 2024-09-01T03:54:46.936Z
-updated: 2024-09-02T03:54:46.936Z
+date: 2024-09-05T09:31:23.769Z
+updated: 2024-09-06T09:31:23.769Z
 tags:
   - facebook
 categories:
@@ -19,16 +19,40 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  You can easily do this on either mobile or PC. Here's how to find out how many followers you have on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to See Who Follows You on Facebook on Mobile
 
  The Facebook mobile app lets you access your follower list as well as see the number of people following you on Facebook. That way, you can get an idea of the number of people who have[followed and unfollowed on Facebook](https://www.makeuseof.com/tag/unfollow-follow-facebook/) over time.
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Facebook profile followers section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-followers-section-1.jpeg)
 
 ![Facebook number of followers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/-Facebook-number-of-followers.jpeg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Close
 
  To check how many followers you have and see who's following you via the Facebook mobile app, use these steps:
@@ -38,6 +62,18 @@ Close
 3. Scroll to the bottom of the page. Then under**Followers** , tap**See all** to load a list of all your Facebook followers.
 4. Look to the top-right corner of the page (opposite**Followers**) to see the number of people that follow you on Facebook.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to See Your Followers on Facebook on a Desktop Browser
 
  While you can see your Facebook followers on the web version of Facebook, you can't see the total number of people following you. If you want to see who is following you on Facebook, here's what to do if you're using the browser version...
@@ -46,12 +82,21 @@ Close
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. Once logged in, click your name at the top of the left sidebar to open your profile.
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Can't See Your Facebook Followers? Here's Why
 
@@ -63,9 +108,6 @@ Close
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Allow People to Follow You on Facebook
 
  If you've disallowed the public from following you, people who aren't on your friends' list can't follow you on Facebook, limiting your chances of getting more Facebook followers.
@@ -78,16 +120,22 @@ To do this on the desktop browser:
 2. From the list, select**Settings & Privacy** .  
 ![Profile icon options Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/profile-icon-options-facebook-homepage.jpg)
 3. Click**Settings** .  
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
 ![Facebook profile setting follower settings desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-setting-follower-settings-desktop.jpg)
@@ -100,9 +148,6 @@ To change your followers' preference on the Facebook mobile app:
 
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Close
 
 1. Open the Facebook mobile app and tap the**picture icon** at the top-left to open your profile.
@@ -110,9 +155,6 @@ Close
 3. Select**Follow** **Settings** .
 4. Under**Who Can Follow Me** , tick**Public** .
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keep Control Over Your Facebook Followers
 
  If you use Facebook to promote your brand or business, keeping track of your followers is necessary. It's an excellent way to know your follower trends and moderate what people can see about you.

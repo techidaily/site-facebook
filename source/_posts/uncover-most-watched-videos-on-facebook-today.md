@@ -1,7 +1,7 @@
 ---
 title: Uncover Most Watched Videos on Facebook Today
-date: 2024-09-01T03:54:35.124Z
-updated: 2024-09-02T03:54:35.124Z
+date: 2024-09-05T09:31:23.943Z
+updated: 2024-09-06T09:31:23.943Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,24 @@ keywords: Top Facebook Videos Today,Popular FB Videos Now,Trending YouTube Clips
 thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc955e335250b1f4d060c7be8f8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Uncover Most Watched Videos on Facebook Today
 
  We've all been there; you are watching an interesting video on Facebook and then all of a sudden, you accidentally refresh, and the video is lost before you have a chance to share or save it. Well, thankfully, Facebook lets you see and manage your watch history.
 
  In this article, we'll see how to find recently watched videos on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to View Recently Watched Facebook Videos on the Web
 
  Facebook has an Activity log that lets you review and manage all your activities on the platform. You can use the Activity log to[find videos on Facebook](https://www.makeuseof.com/tag/how-to-find-videos-on-facebook/) , manage recently watched videos,[delete Facebook post comments](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and much more.
@@ -32,6 +44,12 @@ thumbnail: https://thmb.techidaily.com/b5e9ddde4e68e5c468b12c2fce264f22eb978dc95
 4. Select the**Videos you've watched** option.  
 ![Videos you've watched option in Facebook Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-youve-watched.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 That's it. Here you will find all the recently watched videos.
 
  You can also delete a video from the history. To delete an individual video from the history, click on the**three dots** next to the video's thumbnail and choose**Delete** .
@@ -52,24 +70,33 @@ That's it. Here you will find all the recently watched videos.
 
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
  It's very easy to view recently watched Facebook videos on an Android or iOS device. Here are the steps you need to follow:
 
 ![View Tools option in Facebook profile page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/view-tools.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Videos Watched option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Videos-Watched-option.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Recently Watched Videos in Activity history](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Recently-Watched-Videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -89,12 +116,18 @@ Close
 ![Date option in Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![Start and End Date option in Activity log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/start-and-end-date.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Close
 
@@ -103,9 +136,6 @@ Close
 3. Click the**Filter icon** in the top left corner and choose**Date** from the menu that appears.
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Never Lose Facebook Videos Again
 
  The disappointment of watching an exciting video on your Facebook Watch page to accidentally refresh the selection and lose it forever is very common nowadays. Fortunately, you can easily find recently watched Facebook videos using the above method.

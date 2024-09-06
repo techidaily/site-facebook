@@ -1,7 +1,7 @@
 ---
 title: Freedom From Political Interruptions on Facebook
-date: 2024-07-12T10:31:55.131Z
-updated: 2024-07-13T10:31:55.131Z
+date: 2024-09-05T09:24:20.647Z
+updated: 2024-09-06T09:24:20.647Z
 tags:
   - facebook
 categories:
@@ -21,9 +21,27 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
  Here's how you can block political and other annoying content on your Facebook account.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Facebook's Timeline Can Get Swamped With Politics
 ![Facebook Addiction Pills](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-Addiction-Pills.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Why does Facebook suck? There's the usual bad behavior:[vaguebooking](https://www.makeuseof.com/tag/imbecilic-art-vaguebooking/) , drama, and stalking. Then there's politics. There's always a political event that your irritatingly political friends use to flood your page with memes and posts that align with their particular politics. If your blood pressure rose just skimming that last sentence, you know what we're talking about.
 
  Here's the problem: if you don't have very strong views on these issues, all of these posts are incredibly annoying. If you do have strong views on these issues, at least half of these posts are still incredibly annoying. And the other half isn't really telling you anything new.
@@ -49,6 +67,18 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
  The only thing to keep an eye out for here is that some sources are a mixed bag, and have genuine value to offer, even if they are occasionally annoying. In those cases, you're probably better off letting that source stay and using the more sophisticated strategy to get rid of these posts.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Remove Your Political Views From Your Profile
 ![Removing the Political Views from Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Removing-the-Political-Views-from-Facebook.jpg)
 
@@ -60,15 +90,33 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
  To edit this information, click on the**Pen button** next to it. Now, in the editable text section, delete whatever is written and press**Save** . That's it. Your profile has no information about your political views anymore and Facebook will not suggest those posts and ads anymore.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Use a Browser Extension
 ![FB Purity Menu in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/FB-Purity-Menu-in-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  You can use a browser extension called [FB Purity](https://chrome.google.com/webstore/detail/fbfluffbustingpurity/nmkinhboiljjkhaknpaeaicmdjhagpep) to fine-tune Facebook in entirely new ways. It lets you eliminate whole classes of posts you don't want to see, like invitations to play social games or friends' posts on other people's walls. It's entirely up to you. You can even get really fine-tuned, and block posts by specific keywords. We're sure you can think of a few topics you never want to hear about again.
 
  This is a really versatile plugin, and you can spend a long-time tweaking all the options. It even lets you rank posts in sequential order, instead of letting Facebook guess what you most want to see. This fixes another common complaint about the site.
 
  FB Purity is basically an intelligent filter that lets you get rid of anything you don't like. It's also updated frequently to adapt to changes to Facebook's UI and features. Our only complaint is that the graphic design clashes with Facebook a little, and its interface can be hard to navigate.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Creating a Facebook Feed You Enjoy
 
  With these tools at your disposal, there's very little reason to get annoyed at Facebook ever again. Facebook doesn't have to be irritating—it can be a legitimate way to keep up with friends and talk about interesting things, without getting bogged down in toxic rants and attention-seeking behavior.
@@ -92,3 +140,42 @@ thumbnail: https://thmb.techidaily.com/56f4900e7c7d867bb901f7b64e907d973f9debc0b
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-essential-steps-for-iptv-video-recording/"><u>[New] In 2024, Essential Steps for IPTV Video Recording</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlocking-full-hd-on-facebook-streams-for-2024/"><u>[New] Unlocking Full HD on Facebook Streams for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-ultimate-screener-tech-the-choice-of-top-youtube-creators-for-2024/"><u>[Updated] Ultimate Screener Tech  The Choice of Top YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unleashing-the-power-of-youtube-to-mp3-conversion-for-2024/"><u>[Updated] Unleashing the Power of YouTube-to-MP3 Conversion for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/boost-your-content-access-free-vocal-sfx-in-2024/"><u>Boost Your Content  Access Free Vocal SFX, In 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/excellence-visuals-appraisal-pinnacle-studio-current-year/"><u>Excellence Visuals Appraisal  Pinnacle Studio, Current Year</u></a></li>
+<li><a href="https://article-tips.techidaily.com/expedite-your-experience-quick-iphone-time-lapse/"><u>Expedite Your Experience  Quick iPhone Time-Lapse</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-facebook-true-subscriber-decline/"><u>Exposing Facebook: True Subscriber Decline</u></a></li>
+<li><a href="https://facebook.techidaily.com/foster-connection-utilize-messenger-for-in-depth-chat-analysis/"><u>Foster Connection: Utilize Messenger for In-Depth Chat Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/go-live-on-ig-stripped-of-visualsaudio/"><u>Go Live on IG Stripped of Visuals/Audio</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-fb-shared-my-personal-details-unintentionally/"><u>Has FB Shared My Personal Details Unintentionally?</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-threats-at-your-doorstep-evading-fraudulent-transactions-online/"><u>Hidden Threats at Your Doorstep: Evading Fraudulent Transactions Online</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-camon-20-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Camon 20 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-streamline-your-media-experience-add-subtitles-in-windows-media-player/"><u>In 2024, Streamline Your Media Experience  Add Subtitles in Windows Media Player</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-at-facebooks-future-moniker-shift/"><u>Inside Look at Facebook's Future Moniker Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/internet-interruption-a-day-without-social-media/"><u>Internet Interruption: A Day Without Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-the-unexpected-consequence-for-facebook/"><u>IOS 14.5: The Unexpected Consequence for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/listen-up-facebook-heres-your-take-on-clubhouse/"><u>Listen Up, Facebook! Here's Your Take on Clubhouse</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-group-creation-in-social-media-landscape/"><u>Mastering Group Creation in Social Media Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-high-res-media-posts-on-social-network/"><u>Mastering High-Res Media Posts on Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-unmasked-vs-vr-analyzed-spotlight-on-6-essential-differences/"><u>Metaverse Unmasked Vs. VR Analyzed: Spotlight on 6 Essential Differences</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-danger-zone-recognizing-and-evade-online-trading-scams/"><u>Navigating the Danger Zone: Recognizing & Evade Online Trading Scams</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/perfect-posts-enhance-videos-before-sharing-on-instagram/"><u>Perfect Posts  Enhance Videos Before Sharing on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/revised-recommendations-social-medias-age-appropriate-usage-guidelines/"><u>Revised Recommendations: Social Media's Age-Appropriate Usage Guidelines</u></a></li>
+<li><a href="https://facebook.techidaily.com/socializing-at-speed-learn-and-implement-these-three-dynamic-fb-tag-tactics/"><u>Socializing at Speed: Learn and Implement These Three Dynamic FB Tag Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/synchronized-social-platforms-a-new-intersection-for-fb-and-insta/"><u>Synchronized Social Platforms: A New Intersection for FB & Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-basics-of-facebooks-whitelisted-media/"><u>The Basics of Facebook's Whitelisted Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-selecting-an-outstanding-facebook-picture/"><u>The Complete Guide to Selecting an Outstanding Facebook Picture</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-process-of-granting-access-in-facebook/"><u>The Process of Granting Access in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unplugged-triumvirate-fb-whatsapp-insta-down/"><u>The Unplugged Triumvirate: FB, WhatsApp, Insta Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-senior-friendly-networking-sites/"><u>Top 5 Senior-Friendly Networking Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-choice-of-your-fb-ads/"><u>Understanding the Choice of Your FB Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-metaverse-enigma-with-truths-exposed/"><u>Unraveling the Metaverse Enigma with Truths Exposed</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-photo-descriptions-on-social-media/"><u>Unveiling the Power of Photo Descriptions on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-ultimate-guide-to-fb-visual-privacy-control/"><u>Your Ultimate Guide to FB Visual Privacy Control</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: Understanding and Using Safety Features on FB
-date: 2024-09-05T09:33:39.013Z
-updated: 2024-09-06T09:33:39.013Z
+date: 2024-09-10T14:50:10.335Z
+updated: 2024-09-11T14:50:10.335Z
 tags:
   - facebook
 categories:
@@ -13,29 +13,31 @@ keywords: Facebook Safety Tools,Enhancing FB Security,Protecting On Facebook,Fac
 thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f8eaaf0f310614210c430f98.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Understanding and Using Safety Features on FB
 
  One of the positive things about social media is that it makes it easier for a person to quickly tell everyone in their network that they’re safe after a disaster.
 
  Facebook’s Safety Check feature is one of the most well-known examples. Here’s how to use it to mark yourself as safe on Facebook during a crisis.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Mark Yourself as Safe on Facebook
 
 The process is the same whether using a mobile or desktop device.
 
 ![facebook crisis response page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-crisis-response-page.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 1. Go to[Facebook's Crisis Response page](https://www.facebook.com/crisisresponse/) .
 2. You’ll then see a list of active crises, including ones potentially affecting people you know.
@@ -45,12 +47,26 @@ The process is the same whether using a mobile or desktop device.
 
 ![safety check note facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/safety-note.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Facebook uses your location data to show the crises most likely to affect you. However, in some cases, such as when traveling, it may be necessary to mark yourself as safe regarding an event outside where you usually reside.
 
  If this is the case, you’ll see a message asking if you’re in the affected area after clicking the**Learn More** button for a particular event. Answering**Yes** makes the Safety Check banner appear.
@@ -61,16 +77,24 @@ The process is the same whether using a mobile or desktop device.
 
 ![crisis safety check page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/crisis-safety-check-page.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Facebook is not the only tech brand to become involved in disaster-related tech. For example, Google developed a system that sends earthquake alerts to people in California who have Android phones.
 
  Read more:[Common Facebook Problems and Errors (And How to Fix Them)](https://www.makeuseof.com/tag/fix-facebook-problems-errors/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Check a Friend’s Safety
 
  You can also go to the**Safety Check** tab to touch base with an affected friend if you don’t see them showing up as safe through this feature.
@@ -78,25 +102,47 @@ The process is the same whether using a mobile or desktop device.
 1. Select the**More** arrow and choose**Not marked as safe yet** .  
 ![friends not marked as safe yet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/friends-not-marked-as-safe-yet.jpg)
 2. Alternatively, use the**Search for friends** box under the**Friends in the area** heading.  
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ![facebook safety check search for friends](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-safety-check-search-for-friends.jpg)
 3. Provided you have Facebook friends in the affected area, you’ll see an**Ask If Safe** button next to their name.
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 
  Suppose you don’t hear back from a friend after using the Safety Check feature to inquire about them? In that case, you should try other avenues of contacting them.
 
  Related:[How to Find the Exact Date You Created Your Facebook Account](https://www.makeuseof.com/find-facebook-account-creation-date/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Good Intentions Can Backfire
 
  Many things seem like good ideas at the time but eventually show some downsides. Such is the case with Facebook’s Safety Check.
@@ -104,6 +150,20 @@ The process is the same whether using a mobile or desktop device.
  For example, the social media site sometimes sets its location parameters too broadly for a disaster. That previously caused people to get requests to mark themselves safe despite being in a different state than where an event occurred. It’s also not necessarily helpful if a huge area experiences a relatively confined event.
 
  It could also cause unnecessary worry among Facebook users. This is especially true if the person near the crisis doesn't use Facebook often and doesn't respond to requests to mark themselves as safe.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Facebook Safety Check: Is It Worth Using?
 

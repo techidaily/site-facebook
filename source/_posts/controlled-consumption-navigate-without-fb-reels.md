@@ -1,7 +1,7 @@
 ---
 title: "Controlled Consumption: Navigate without Fb Reels"
-date: 2024-07-12T10:18:50.602Z
-updated: 2024-07-13T10:18:50.602Z
+date: 2024-09-10T14:49:26.681Z
+updated: 2024-09-11T14:49:26.681Z
 tags:
   - facebook
 categories:
@@ -23,6 +23,20 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
  If you're not interested in watching Reels, here are a few things you can do to avoid them.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 1\. Use Facebook Web
 ![screenshot showing create post interface on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-create-post-interface-on-facebook-web.JPG)
 
@@ -32,6 +46,26 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
 ### 2\. Hide the Video Icon From Your Navigation Bar
 ![screenshot showing Facebook nav bar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-showing-facebook-nav-bar.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Another nifty way to keep Reels out of your way on Facebook is to hide the Video icon from your navigation bar. This eliminates the odds of accidentally tapping the icon and coming across Reels.
 
@@ -43,9 +77,37 @@ thumbnail: https://thmb.techidaily.com/f4c650853e8507f493dd5a4da625f53ce5ecb8f26
 
 ![Screenshot of Facebook Nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-nav-bar-page.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![screenshot of Facebook customize nav bar page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/11/screenshot-of-facebook-customize-nav-bar-page.jpg)
 
 Close
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 3\. Use an Older Version of Facebook
 
@@ -57,8 +119,36 @@ Close
 
 ###
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 4\. Hide Content You Don't Like
 ![how to hide reels](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reels.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ![how to hide reel final](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/how-to-hide-reel-final.jpg)
 
@@ -67,6 +157,20 @@ Close
  If the reason you're looking for how to get rid of Facebook Reels is that you don't like the content you're shown, you can hide it from your feed. This won't stop Reels from appearing, but it will ensure you don't see Reels you don't like.
 
  When you're shown a Reel you don't like, tap on the three dots at the bottom of the screen and select**Hide reel** . Doing this will tell Facebook that you're not interested in seeing this type of content. Therefore, Facebook is less likely to show it to you again.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 5\. Disable Auto-Playing Reels on Facebook
 
@@ -82,11 +186,45 @@ Close
 
 Close
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## These Are Your Only Good Options
 
  Unfortunately, these are the only good options you have for hiding Reels on Facebook for now. Another alternative you could try is using third-party Facebook apps like SlimSocial and Frost.
 
  However, we don't recommend these, as they're usually not as good as the official app and can't be trusted privacy-wise.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Working Around Facebook Reels
 
@@ -107,6 +245,52 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/new-tapping-into-community-spirit-a-guide-to-thriving-fb-gifting-campaigns/"><u>[New] Tapping Into Community Spirit A Guide to Thriving FB Gifting Campaigns</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-reimagine-personal-storytelling-on-snapchat-access-a-library-of-over-120-ideas-to-stand-out/"><u>[Updated] 2024 Approved Reimagine Personal Storytelling on Snapchat Access a Library of Over 120 Ideas to Stand Out</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-best-unmentioned-free-speech-to-text-tools-for-mac-users/"><u>[Updated] Best Unmentioned Free Speech to Text Tools for Mac Users</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-peak-performance-in-live-recording-software/"><u>[Updated] In 2024, Peak Performance in Live Recording Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-tomorrow-facebook-reimagines-itself-as-the-meta-network/"><u>Embracing Tomorrow: Facebook Reimagines Itself as the Meta Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tell-if-someones-peeking-at-your-fb-life/"><u>How to Tell if Someone's Peeking at Your FB Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-network-with-these-free-social-management-tools/"><u>Mastering Your Network, With These FREE Social Management Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-accelerates-to-unprecedented-ai-computing-peaks/"><u>Meta Accelerates to Unprecedented AI Computing Peaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-web-of-new-online-gatherings-and-networks/"><u>Navigating the Web of New Online Gatherings and Networks</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/next-level-earbuds-apples-airpods-pro-pitted-against-samsung/"><u>Next Level Earbuds: Apple's AirPods Pro Pitted Against Samsung</u></a></li>
+<li><a href="https://extra-support.techidaily.com/optimal-memory-support-for-sony-alpha-7sii-for-2024/"><u>Optimal Memory Support for Sony Alpha 7SII for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-on-facebook-detailed-overview-and-pricing-info/"><u>Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-issues-with-non-functioning-prime-video-subtitles/"><u>Resolving Issues with Non-Functioning Prime Video Subtitles</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-into-private-digital-discourse-on-fb/"><u>Sneak Peek Into Private Digital Discourse on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-unfreeze-fb-alert-bars-and-posts-display/"><u>Steps to Unfreeze FB Alert Bars and Posts Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-maximum-fb-exposure/"><u>Strategies for Maximum Fb Exposure</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-group-specific-polls-on-facebook/"><u>Tailoring Group-Specific Polls on Facebook</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-complete-beginners-manual-to-using-final-cut-pro/"><u>The Complete Beginner's Manual to Using Final Cut Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unending-appeal-of-facebook-6-insights-for-users/"><u>The Unending Appeal of Facebook: 6 Insights for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722988282669-troubleshooting-obs-screen-recording-issue-resolved-now/"><u>Troubleshooting OBS - Screen Recording Issue Resolved Now!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/ultimate-social-media-analysis-manual-for-decoding-ig-engagement-and-more-for-2024/"><u>Ultimate Social Media Analysis Manual for Decoding IG Engagement and More for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-compelling-fb-backgrounds/"><u>Unlocking The Power of Compelling FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-facebooks-neighborhood-based-spaces-for-collaboration/"><u>What Are Facebook's Neighborhood-Based Spaces for Collaboration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-when-you-quit-social-media-6-things-i-learned/"><u>What Happens When You Quit Social Media? 6 Things I Learned</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
+</ul></div>
 
 
 

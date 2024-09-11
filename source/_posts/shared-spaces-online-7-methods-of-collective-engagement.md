@@ -1,7 +1,7 @@
 ---
 title: "Shared Spaces Online: 7 Methods of Collective Engagement"
-date: 2024-09-05T09:40:28.199Z
-updated: 2024-09-06T09:40:28.199Z
+date: 2024-09-10T14:50:04.719Z
+updated: 2024-09-11T14:50:04.719Z
 tags:
   - facebook
 categories:
@@ -21,22 +21,38 @@ thumbnail: https://thmb.techidaily.com/234a90d5c27844c283f4441b2b9e5e76ee9e8064b
 
 Here are the ways that social media brings people together...
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1\. Keeping in Touch With Friends and Family
 
 ![a group of friends on a beach](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/enjoy-non-fitness-focused-activity-on-rest-day-such-as-socialising.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Many people around the world experience loneliness. It may be because you are newly single, widowed, have moved away from family and friends for work—or you may just be shy and uncomfortable with in-person interaction.
 
  Thankfully, social media allows us to connect with anyone, at any time.
@@ -47,18 +63,20 @@ Here are the ways that social media brings people together...
 
 ![Screenshot of Facebook Messenger chat window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Messenger-Chat-1.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Sometimes, life keeps couples physically apart from one another. But through social media, you and your partner can stay connected without needing to constantly chat.
 
  You can look through each other's photos and reminisce, then connect via Messenger chat. Facebook's Messenger application also has a video call option available when you want some face-to-face time.
@@ -73,22 +91,24 @@ To use Facebook Messenger's video call feature:
 
  If you're looking for different messaging apps to try, consider checking out the[best all-in-one messaging platforms to simplify your communications](https://www.makeuseof.com/best-all-in-one-messaging-platforms/) .
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 3\. Sharing Pictures With Your Family and Friends
 
 ![Woman scrolling Instagram feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/instagram-feed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Many families live away from each other and this can be very difficult for everyone involved. Grandparents, especially, have a difficult time being away from their grandchildren. But social media is an easy way to stay connected even when you're far apart.
 
  Sharing photos to your Instagram account is a great way for your family to feel like they are involved in your everyday activities. The platform lets you share as many photos as you like and it's easy to use even for beginners. You can add artistic filters to your photos, tag people in them, and privately chat via their message application.
@@ -103,12 +123,6 @@ To use Facebook Messenger's video call feature:
 
  If you are feeling lonely, joining a Facebook group is a perfect way to meet people who share the same interests as you.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Join Groups on Facebook
 
 ![Screenshot of Facebook group search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/10/Screenshot-Facebook-Groups-Search.jpg)
@@ -126,6 +140,20 @@ Then, wait for your request to be approved and start connecting!
 
  Facebook groups are an excellent way to make friends and business connections. After all, a stranger is just a friend you haven't met yet.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 5\. Joining Social Media Movements
 
 ![People protesting in public](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/Web3-Protests-Against-Jack-Dorsey-Tweet.jpg)
@@ -136,22 +164,30 @@ Then, wait for your request to be approved and start connecting!
 
  The birthplace of many social media movements is on Twitter. People use hashtags such as #metoo to unite all the posts in one place and tell their stories. Hashtags have brought attention to many injustices in the world and have also bonded people together in times of tragedy.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Meeting New People
 
 ![Group of friends taking a selfie on a sunny day](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/why-a-sense-of-belonging-is-vital-for-your-wellbeing-and-how-to-find-it-online.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  We spoke earlier about how social media helps you connect with your existing loved ones, but platforms like Instagram and Twitter are also excellent for meeting new people with similar interests. For example, if you have a hobby like photography, you could potentially make lifelong friends by meeting these people in real life and going for regular photoshoots.
 
  Sports fans can similarly use social media networks to meet fans of the same or different teams, and even watch games together. The more niche your interests are, the better social media is for helping you find like-minded people. Consider trying these great[social media apps for making friends in your community](https://www.makeuseof.com/best-social-media-apps-for-making-friends/) if you're looking to build your network.
@@ -160,16 +196,38 @@ Then, wait for your request to be approved and start connecting!
 
 ![A person holding their phone with Twitter feed on display](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/a-person-holding-a-silver-iphone-6.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  In addition to raising awareness for important global issues, social media is also powerful in potentially dangerous situations. For example, some people have used Facebook and Twitter to share details of missing people or pets—which has allowed others to inform the original poster if they see or know something.
 
  Similarly, social media is useful for reuniting people with items that they might have lost—such as their house keys or wallet.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Social Media Can Be a Positive Influence
 
  These are just a few of the many ways that social media connects us all in our daily lives. Because when you open yourself up to the idea of making friends online, the possibilities for connecting are endless.

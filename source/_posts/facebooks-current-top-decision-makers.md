@@ -1,7 +1,7 @@
 ---
 title: Facebook's Current Top Decision-Makers
-date: 2024-07-12T10:20:04.826Z
-updated: 2024-07-13T10:20:04.826Z
+date: 2024-09-10T14:48:26.569Z
+updated: 2024-09-11T14:48:26.569Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,26 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## From The Facebook To Meta
 
  In 2004, Mark Zuckerberg, Eduardo Saverin, Dustin Moskovitz, and Chris Hughes, all Harvard students, founded Facebook. Facebook's popularity grew quickly, and by the end of 2004, it had surpassed one million active users.
@@ -29,9 +49,37 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of [the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  In the [statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -43,6 +91,20 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -50,6 +112,20 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
  With Facebook's foray into virtual reality with the Facebook Metaverse, the company thinks that the Meta moniker will be a more suitable identity for their ambition. In the Metaverse, even users without Facebook accounts will have access to products and virtual interaction with others.
 
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Zuckerberg Still (Largely) Owns Meta
 
@@ -72,6 +148,60 @@ thumbnail: https://thmb.techidaily.com/576f1d2eb928b7a827d1ec734c216aef4f0582c10
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-how-to-capture-your-iphones-screen-seamlessly-for-2024/"><u>[New] How to Capture Your iPhone's Screen Seamlessly for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-subtitle-strategies-for-multilingual-instagram-videos-for-2024/"><u>[New] Subtitle Strategies for Multilingual Instagram Videos for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-unlocking-the-potential-of-adobe-presenters-video-features-for-2024/"><u>[New] Unlocking the Potential of Adobe Presenter's Video Features for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-digital-detailing-at-your-command/"><u>[Updated] Digital Detailing at Your Command</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-secrets-revealed-how-to-boost-facebook-rankings-in-under-a-minute/"><u>[Updated] In 2024, Secrets Revealed How to Boost Facebook Rankings in Under a Minute</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-nifty-steps-to-generate-timely-captions-and-text-for-fb-video-uploads/"><u>[Updated] Nifty Steps to Generate Timely Captions and Text for FB Video Uploads</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pro-tips-to-amplify-your-canva-designs/"><u>[Updated] Pro Tips to Amplify Your Canva Designs</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-7-best-fmovie-alternatives2023-updates/"><u>[Updated] Top 7 Best Fmovie Alternatives[2023 Updates]</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-hololens-review-unleashing-virtual-potential-with-microsoft/"><u>2024 Approved HoloLens Review – Unleashing Virtual Potential with Microsoft</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-newcomers-cheat-sheet-unlock-ps-editing-secrets/"><u>2024 Approved Newcomer's Cheat Sheet Unlock PS Editing Secrets</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/auditory-enhancements-adding-sound-effectively-powerpoint-for-2024/"><u>Auditory Enhancements Adding Sound Effectively (PowerPoint) for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/crafting-memorable-experiences-with-vr-escapades/"><u>Crafting Memorable Experiences with VR Escapades</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-ban-rumored-on-fair-ad-posting-accusations/"><u>Facebook Ban Rumored on Fair Ad Posting Accusations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vs-tiktok-the-clash-over-social-media-supremacy/"><u>Facebook Vs. TikTok: The Clash Over Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secretive-user-drain-explained/"><u>Facebook's Secretive User Drain Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-profile-alert-could-it-be-a-duplicate-identity/"><u>Fake Profile Alert: Could It Be a Duplicate Identity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/hasty-methods-to-remove-content-from-your-fb-profile/"><u>Hasty Methods to Remove Content From Your FB Profile</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-xs-max-with-or-without-password-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone XS Max With or Without Password</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-and-rejoin-your-facebook-after-code-loss/"><u>How To Reset & Rejoin Your Facebook After Code Loss</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For ZTE Axon 40 Lite? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-xiaomi-redmi-note-13-5g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Xiaomi Redmi Note 13 5G Unlock Without Password</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-iphone-x-without-passcode-easily-drfone-by-drfone-ios/"><u>In 2024, Unlock iPhone X Without Passcode Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-facebook-portals-into-your-home-network/"><u>Integrating Facebook Portals Into Your Home Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-securityfbcom-real/"><u>Is the Facebook Protection Email From @security@fb.com Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebooks-regional-communities/"><u>Navigating the World of Facebook's Regional Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/negative-consequences-unpacking-social-network-effects/"><u>Negative Consequences: Unpacking Social Network Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-gains-with-an-upgraded-facebook-image/"><u>Networking Gains with an Upgraded Facebook Image</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalized-approach-to-limiting-fb-communications/"><u>Personalized Approach to Limiting Fb Communications</u></a></li>
+<li><a href="https://facebook.techidaily.com/pictorial-input-leads-to-dynamic-text-style-generation/"><u>Pictorial Input Leads to Dynamic Text Style Generation</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-win-turn-off-facebook-monitoring-via-off-facebook-tool/"><u>Privacy Win: Turn Off Facebook Monitoring via Off-Facebook Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-account-protection-with-simple-steps-of-2fa-implementation/"><u>Strengthening Account Protection with Simple Steps of 2FA Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-troubles-facebook-and-its-companions-offline/"><u>Tech Troubles: Facebook & Its Companions Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-earning-gold-online-fb-and-insta-tactics/"><u>The Ultimate Guide for Earning Gold Online: FB and Insta Tactics</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/transferring-facebook-videos-seamlessly-across-oses/"><u>Transferring Facebook Videos Seamlessly Across OSes</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-your-facebook-timeline-comprehensive-history-download-guide/"><u>Uncovering Your Facebook Timeline: Comprehensive History Download Guide</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-messages-from-google-pixel-fold-by-fonelab-android-recover-messages/"><u>Undelete lost messages from Google Pixel Fold</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-duplication-fraud/"><u>Understanding Facebook Duplication Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-facebook-relationship-trail/"><u>Understanding Your Facebook Relationship Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-political-patchwork/"><u>Unraveling The Political Patchwork</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-new-dating-feature-a-quick-guide/"><u>Unveiling Facebook's New Dating Feature: A Quick Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-pruning-facebooks-view-data-is-essential-for-privacy/"><u>Why Pruning Facebook's View Data Is Essential for Privacy</u></a></li>
+</ul></div>
 
 
 

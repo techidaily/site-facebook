@@ -1,7 +1,7 @@
 ---
 title: "Social and Technical Synergy: Facebook Supports Rust's Ascendance"
-date: 2024-09-05T09:32:45.194Z
-updated: 2024-09-06T09:32:45.194Z
+date: 2024-09-10T14:50:11.017Z
+updated: 2024-09-11T14:50:11.017Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,26 @@ keywords: Facebook Technology Innovation,Rust Programming Language Growth,Social
 thumbnail: https://thmb.techidaily.com/a9744aafdac80a7e4f169749236f6a9a3444533f48662a5ae5f051ec41bdae27.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Social and Technical Synergy: Facebook Supports Rust's Ascendance
 
  The Rust Foundation, the non-profit membership organization dedicated to supporting the maintenance of the popular Rust programming language, has a new member in the form of Facebook.
 
  Joining at the Rust Foundation's highest "platinum" member level, Facebook will commit to "sustaining and growing the Rust open source ecosystem and community." As part of its membership, Joel Marcey, open-source ecosystem lead at Facebook, will become a board director at the foundation.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## A Beloved Programming Language
 
  In a[statement](https://developers.facebook.com/blog/post/2021/04/29/facebook-joins-rust-foundation/) , Ashley Williams, Interim Executive Director of the Rust Foundation, said that:
@@ -41,12 +43,20 @@ thumbnail: https://thmb.techidaily.com/a9744aafdac80a7e4f169749236f6a9a3444533f4
 
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Embracing Rust
 
  "Facebook has embraced Rust since 2016 and utilizes it in all aspects of development, from source control to compilers," said Joel Marcey, Open Source ecosystem lead at Facebook, and the new Rust Foundation board director. "We are joining the Rust Foundation to help contribute to, improve, and grow this language that has become so valuable to us and developers around the world. We look forward to participating with the other foundation members and the Rust community to make Rust a mainstream language of choice for systems programming and beyond."

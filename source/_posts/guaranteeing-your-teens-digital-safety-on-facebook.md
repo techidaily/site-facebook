@@ -1,7 +1,7 @@
 ---
 title: Guaranteeing Your Teen's Digital Safety on Facebook
-date: 2024-07-12T10:22:13.366Z
-updated: 2024-07-13T10:22:13.366Z
+date: 2024-09-10T14:46:02.299Z
+updated: 2024-09-11T14:46:02.299Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,20 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  You can show them how to perform a privacy check on Facebook by going through it with them, or by doing it for them. Let's take a look at what you should be checking.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What Is a Privacy Check on Facebook?
 
 ![Woman looking at a screen and flirting](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(30).jpg)
@@ -27,8 +41,36 @@ thumbnail: https://thmb.techidaily.com/9f80d4896e94eaecc9b9d2fa222d6b7ea517f0365
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
@@ -37,6 +79,20 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to [ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Privacy Setting Basics
 
@@ -64,8 +120,36 @@ Close
 * Check who can look them up using the email and phone number they provided.
 * Check if their phone number is correct (in case someone hacks into their account, Facebook will need to verify them)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Check Ad Settings
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
@@ -98,6 +182,54 @@ Close
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/est-budget-friendly-video-stock-sites-for-2024/"><u>[New] Best Budget-Friendly Video Stock Sites for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-optimal-drone-choices-available-immediately-for-2024/"><u>[New] Optimal Drone Choices Available Immediately for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-how-to-skip-the-slip-ups-the-8-must-avoid-mistakes-for-new-youtube-stars/"><u>[Updated] 2024 Approved How to Skip the Slip-Ups The 8 Must-Avoid Mistakes for New YouTube Stars</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-windows-video-conferencing-excellence-8-1/"><u>[Updated] 2024 Approved Windows Video Conferencing Excellence #8-1</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-itel-p55-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Itel P55 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-navigating-live-stream-providers-with-10-top-insights/"><u>2024 Approved Navigating Live Stream Providers with 10 Top Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-features-of-various-facebook-portals/"><u>Exploring Features of Various Facebook Portals</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-the-modern-project-manager-unveiling-8-essentials/"><u>Facebook for the Modern Project Manager: Unveiling 8 Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendless-no-more-resuming-online-relationships/"><u>Friendless No More: Resuming Online Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-your-child-through-safe-data-edits-on-messenger/"><u>Guiding Your Child Through Safe Data Edits on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-security-codes-not-sent-by-facebook/"><u>How to Reset Security Codes Not Sent by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-a-friendship-history-on-facebook/"><u>How to See a Friendship History on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-apple-iphone-se-2020-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing Apple iPhone SE (2020) iCloud Activation Lock</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-collect-priceless-imagery-from-trusted-4-youtube-directories/"><u>In 2024, Collect Priceless Imagery From Trusted 4 YouTube Directories</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-look-facebooks-backbone-organizational-model/"><u>Inside Look: Facebook's Backbone Organizational Model</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/lighting-up-dull-iphone-videos-in-3-ways-for-2024/"><u>Lighting up Dull iPhone Videos in 3 Ways for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-or-minimizing-the-real-story-of-expat-facebook-groups/"><u>Maximizing or Minimizing? The Real Story of Expat Facebook Groups</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-carefully-top-3-social-schemes-to-sidestep/"><u>Navigate Carefully: Top 3 Social Schemes to Sidestep</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeking-behind-closed-facebook-curtains/"><u>Peeking Behind Closed Facebook Curtains</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policy-temporal-suspension-of-trump-a-step-forward/"><u>Platform Policy: Temporal Suspension of Trump, a Step Forward</u></a></li>
+<li><a href="https://facebook.techidaily.com/renaissance-of-second-life-a-metaverse-perspective/"><u>Renaissance of Second Life: A Metaverse Perspective?</u></a></li>
+<li><a href="https://facebook.techidaily.com/riding-the-wave-again-instagrams-potential-rebirth/"><u>Riding the Wave Again: Instagram's Potential Rebirth</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-facebook-keep-your-online-movements-private/"><u>Say No to Facebook: Keep Your Online Movements Private</u></a></li>
+<li><a href="https://facebook.techidaily.com/shrouded-supports-concealing-facebook-endorsements/"><u>Shrouded Supports: Concealing Facebook Endorsements</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-impact-us-sees-excess-negatives/"><u>Social Media Impact: US Sees Excess Negatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-and-science-of-creating-persuasive-social-media-videos-on-facebook/"><u>The Art and Science of Creating Persuasive Social Media Videos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-sending-stunning-3d-photos-via-facebook/"><u>The Art of Sending Stunning 3D Photos via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-strategy-for-securing-an-e-commerce-refund-on-fb/"><u>The Essential Strategy for Securing an E-Commerce Refund on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-project-management-unraveling-facebooks-8-functionalities/"><u>The Future of Project Management: Unraveling Facebook's 8 Functionalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-facebook-tools-enhancing-teamwork-and-project-success/"><u>Top 8 Facebook Tools Enhancing Teamwork & Project Success</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/total-wipe-out-of-iphone-on-windows-or-mac-a-step-by-step-stellar-method/"><u>Total Wipe-Out of iPhone on Windows or Mac - A Step-by-Step Stellar Method</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-and-using-safety-features-on-fb/"><u>Understanding and Using Safety Features on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-vr-platform-privacy-fb-vs-meta-insights/"><u>Understanding VR Platform Privacy: FB Vs. Meta Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-rules-should-make-us-nervous/"><u>Why Meta Rules Should Make Us Nervous</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-privacy-matters-more-than-followers-a-list-of-10-reasons-to-drop-facebook/"><u>Why Privacy Matters More Than 'Followers' - A List of 10 Reasons to Drop Facebook</u></a></li>
+</ul></div>
 
 
 

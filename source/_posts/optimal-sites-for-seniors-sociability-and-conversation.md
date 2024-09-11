@@ -1,7 +1,7 @@
 ---
 title: Optimal Sites for Seniors' Sociability & Conversation
-date: 2024-09-05T09:37:46.949Z
-updated: 2024-09-06T09:37:46.949Z
+date: 2024-09-10T14:50:06.740Z
+updated: 2024-09-11T14:50:06.740Z
 tags:
   - facebook
 categories:
@@ -17,16 +17,24 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 
  It doesn't have to be difficult for seniors to start using more social platforms. In fact, there are platforms that make it easy, and most of all fun, to find like-minded communities, stay in touch with friends, and join discussions online. We'll take a look at which social media platforms are most suitable for seniors to forge connections.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1. Facebook
 
 ![senior man and woman laughing in front of phone and laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-6667799.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  As one of the older social platforms, Facebook has gained a lot of popularity among senior citizens. In a study conducted by the College of Communications of Pennsylvania State University and published on[ScienceDirect](https://www.sciencedirect.com/science/article/abs/pii/S0747563216301431) , research examined what it was exactly that seniors get from Facebook.
 
  From the online survey, 352 seniors over 60 revealed that their primary reasons for using the platform were social bonding, social bridging, responding to family and friends, as well as curiosity. Facebook[provides seniors with online communities where they can interact](https://www.makeuseof.com/online-communities-for-seniors/) with like-minded individuals.
@@ -45,12 +53,6 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 
 ![An elderly man and a younger man looking at a tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-kampus-production-7983582-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  LinkedIn is yet another social platform with a broad age range. It is not only popular with job-seekers, but with people wanting to find and establish connections in their industries. For seniors, the platform can provide a lot of stimulation because of its useful content.
 
  Even retired seniors can still benefit from using the platform because they can connect with old colleagues, see what's going on in their industries, and even collaborate with people on new projects or ideas.
@@ -58,6 +60,20 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 [LinkedIn also has groups and communities](https://www.makeuseof.com/find-join-groups-communities-linkedin/) that are easy to join, and which facilitate the need to connect with others. Groups allow seniors to feel like they are still a part of what's going on out there.
 
  LinkedIn is also a place where companies, businesses, and industries advertise their online and offline events. For seniors who want to stay professionally connected and who want to hone their skills and enlarge their network, LinkedIn is a perfect platform for doing that.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 3. WhatsApp
 
@@ -71,56 +87,62 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
 
  Another feature of WhatsApp is that it allows people to also share their location, and enables both audio and video calling at the tap of a button. Document sharing is also easy, as well as sending out photos and videos.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 4. YouTube
 
 ![Elderly man watching something on the tablet with headphones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-tima-miroshnichenko-5708716.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  The amount of footage on YouTube is enormous. The platform can keep seniors stimulated for hours. They can watch, like, share, and comment on anything they interact with. Not only that, they can search for topics that are interesting and important to them.
 
  YouTube also provides a lot of classic movies for free. Seniors can search for their favorite music, documentaries of any topic, news channels, entertainment, educational videos, as well as useful "how to" videos for any problem they encounter in their lives.
 
  There are recipes for just about any dish, DIY and decorating channels, as well as exercise and health videos for active seniors. For especially tech-savvy seniors, they can also make their own channel and upload their own videos if they have some interesting content to share.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 5. Blogger
 
 ![elderly woman using a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-anna-shvets-5257246.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  There's no doubt that seniors have a lot of stories to tell. Some stories are rich in historical detail that only they can recall, and other stories can be as simple as sharing something about their day. For seniors who have considered writing about their lives, starting a blog through a platform like Blogger, is an excellent first step.
 
  Platforms like Blogger allow seniors to start journaling. For seniors looking to start a blog offering their expert advice about something, the platform also fulfills its purpose. Whether they're looking to reflect on their lives, or start a recipe blog, getting on the platform gives them the exposure they need.
@@ -128,6 +150,20 @@ thumbnail: https://thmb.techidaily.com/a0ea0929e49147a7aa2982696f1085c4ea3dc3044
  Seniors who are extra keen about blogging can register their own domain through Blogger and start to attract traffic. Another feature of Blogger is that seniors can choose with whom they want to share their blog, so only certain readers will be granted access to read it. However, seniors who want to keep their blogs private can also do so.
 
  Blogger is also a good platform for recording memories, storing photos, and interacting with others by following other blogs. The platform allows bloggers to manage their blog's settings by moderating comments and responding to people leaving them.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Opportunities for Seniors to Connect Are Endless
 

@@ -1,7 +1,7 @@
 ---
 title: "Keeping Your Community Clean: Mastery of New Facebook Group Policies"
-date: 2024-09-05T09:34:47.875Z
-updated: 2024-09-06T09:34:47.875Z
+date: 2024-09-10T14:50:09.467Z
+updated: 2024-09-11T14:50:09.467Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,32 @@ keywords: Clean Community Leadership,Facebook Group Guidelines,Online Engagement
 thumbnail: https://thmb.techidaily.com/85ea88a283ba15f13d63e8eaf5823127ecc1dabd5bf0f7b20e24752b9917879c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Keeping Your Community Clean: Mastery of New Facebook Group Policies
 
  Facebook has recently introduced new moderation tools so group admins can have more control over how their groups are managed. These tools reduce abusive comments, control promotional posts, show in-depth user metrics, and can even let admins flag specific rules when they're broken.
 
  If you want a group page free from spam, abuse, and other destructive elements, then you should check out these new additions. Once you know how they work, then you can ensure your members feel safe while interacting within your group.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## What Do Facebook's New Moderation Tools Do?
 
 In a nutshell, these new moderation tools allow group admins to:
@@ -44,44 +52,34 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ## How to Use Facebook's New Moderation Tools
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Content Moderation
 
 ![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
 
  1\. Click**Admin Assist** on the left side of the screen. Then click**Add** next to**Decline incoming post if** .
 
 ![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
 
 ![Select your criteria to mark comments or posts as spam](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Mark-spam-in-FB-groups.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  You can follow the same steps to moderate how published posts will be removed and whether people can comment.
 
 ### Conflict Alerts
@@ -90,12 +88,20 @@ In a nutshell, these new moderation tools allow group admins to:
 
  In these situations, the admin can slow conversations by limiting how often post members can make comments.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Member Summary
 
  Another new feature of Facebook's moderation tools is Member Summary. This function allows admins to oversee the activity log of specific group members. For example, you can see the number of posts and comments individuals have shared and how many were removed. That way, you'll have a clear picture of the types of interactions members have within the group.
@@ -104,12 +110,20 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ![Member-Summary-in-Facebook-Groups-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Member-Summary-in-Facebook-Groups-1.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Appeals
 
  Admins can now appeal violations for any posts on their page. Facebook will then review these appeals to ensure that the right decision has been made for a particular post. You can find appeals under the**Group Quality** subheading on the left sidebar.
@@ -122,9 +136,51 @@ In a nutshell, these new moderation tools allow group admins to:
 
 ![Remove Comment screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/RemoveComment.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Before this feature works, however, you will need to create a set of rules for your group. You can navigate to**Group Rules** in the left sidebar to do so.
 
 ![Group Rules in FB Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Group-Rules-in-FB-Groups.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Keyword Alerts
 
@@ -136,12 +192,6 @@ In a nutshell, these new moderation tools allow group admins to:
 
  Related:[Do Hashtags Work on Facebook? What You Need to Know](https://www.makeuseof.com/do-hashtags-work-on-facebook/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Gain More Control Over Your Facebook Groups
 
  With these new functions, Facebook group admins can use automated rules to maintain positive discussions and resolve conflicts. Thanks to Facebook's AI, admins can also detect any rule-breaking conversations and quickly act.

@@ -1,7 +1,7 @@
 ---
 title: Chronicling Google's Moments That Shook the World
-date: 2024-07-12T10:24:10.360Z
-updated: 2024-07-13T10:24:10.360Z
+date: 2024-09-10T14:43:22.212Z
+updated: 2024-09-11T14:43:22.212Z
 tags:
   - facebook
 categories:
@@ -31,11 +31,45 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
 ## 2\. The UK Ads Revenue Lawsuit
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
  This class action lawsuit sought damages for anti-competitive behavior and "market abuse" on the part of Google, as said in a statement published by the [Humphries Kersetter law firm](https://www.humphrieskerstetter.com/news/) , which is representing the allegedly affected UK businesses in this lawsuit along with Geradin Partners. In the same statement, it was written that some companies may have lost up to 40% of their ad revenue as a result of Google's actions.
 
  This lawsuit is yet to conclude, as it was only filed in late 2022\. In 2023, we may see this suit progress, or even come to a completion. The jury's still out on whether Google will have to pay this mammoth amount.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 3\. The End of YouTube Originals
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
@@ -48,6 +82,26 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
 
 ## 4\. The Violation of Sonos Patents
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and [various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
@@ -64,6 +118,20 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 6\. The FTC Pixel Lawsuit
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
 
@@ -71,12 +139,66 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
 
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 7\. The $25B UK and Netherlands Lawsuits
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Google Has Gone Through a Lot in 2022
 
@@ -97,6 +219,73 @@ thumbnail: https://thmb.techidaily.com/7232672881e7d137d3952f765be2610288c45b29a
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-elevate-your-content-seo-mastery-starts-here/"><u>[New] Elevate Your Content SEO Mastery Starts Here!</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-integrating-media-files-for-direct-transfer-to-iphone-for-2024/"><u>[New] Integrating Media Files for Direct Transfer to iPhone for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-quick-guide-sharing-multiple-images-and-movies-on-instagram/"><u>[New] Quick Guide Sharing Multiple Images & Movies on Instagram</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ncovering-youtubes-finest-vr-movie-gems-for-2024/"><u>[New] Uncovering YouTube's Finest VR Movie Gems for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unraveling-the-mystery-what-hides-in-snapchat-emoji-meanings-for-2024/"><u>[New] Unraveling the Mystery What Hides in Snapchat Emoji Meanings for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-essential-virtual-road-racers-guide/"><u>[Updated] 2024 Approved Essential Virtual Road Racers Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-seamlessly-stream-youtube-videos-from-your-idevice/"><u>[Updated] 2024 Approved How to Seamlessly Stream YouTube Videos From Your iDevice</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-mastering-the-art-of-recording-top-roblox-gameplay-preservation-on-a-mac/"><u>[Updated] 2024 Approved Mastering the Art of Recording Top Roblox Gameplay Preservation on a Mac</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-live-without-the-temptation-of-youtube-shorts-for-2024/"><u>[Updated] How To Live Without the Temptation of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-elevate-views-and-subscribers-a-list-of-proven-youtube-techniques/"><u>[Updated] In 2024, Elevate Views and Subscribers A List of Proven YouTube Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-how-to-record-tv-shows-on-windows-pc-with-free-video-recording-software/"><u>2024 Approved How to Record TV Shows on Windows PC with Free Video Recording Software?</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-driven-solutions-enhancing-your-digital-marketing/"><u>Cookiebot-Driven Solutions: Enhancing Your Digital Marketing</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/die-top-5-besten-gratisk-mp3aac-player-fur-windows-und-macos-fuhrende-auswahl/"><u>Die Top 5 Besten Gratisk MP3/AAC-Player Für Windows Und macOS - Führende Auswahl</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-the-incessant-facebook-interruptions/"><u>End the Incessant Facebook Interruptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-audiences-how-to-conduct-facebook-pages-surveys/"><u>Engage Audiences: How to Conduct Facebook Pages Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps!</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-encryption-upgrade-facebooks-e2ee-timeline/"><u>Expecting Encryption Upgrade: Facebook's E2EE Timeline</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-advice-fixing-and-understanding-the-error-0xc19001e1-in-windows-10-systems/"><u>Expert Advice: Fixing and Understanding the 'Error 0xC19001E1' In Windows 10 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-vs-tiktok-the-clash-over-social-media-supremacy/"><u>Facebook Vs. TikTok: The Clash Over Social Media Supremacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-secretive-user-drain-explained/"><u>Facebook's Secretive User Drain Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-profile-alert-could-it-be-a-duplicate-identity/"><u>Fake Profile Alert: Could It Be a Duplicate Identity?</u></a></li>
+<li><a href="https://facebook.techidaily.com/five-pioneers-dividing-tech-opinions/"><u>Five Pioneers Dividing Tech Opinions</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-samsung-galaxy-s24-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/hasty-methods-to-remove-content-from-your-fb-profile/"><u>Hasty Methods to Remove Content From Your FB Profile</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-iphone-xs-activation-lock-by-drfone-ios-unlock-ios-unlock/"><u>How to bypass iPhone XS activation lock</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-magic-v2s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass Magic V2’s lock screen pattern, PIN or password</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/how-to-record-facebook-messenger-calls/"><u>How to Record Facebook Messenger Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reset-and-rejoin-your-facebook-after-code-loss/"><u>How To Reset & Rejoin Your Facebook After Code Loss</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-how-to-convert-youtube-to-mp4-safely/"><u>In 2024, How to Convert YouTube to MP4 Safely?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Fake Snapchat Location on Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Google Pixel 8? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-facebook-portals-into-your-home-network/"><u>Integrating Facebook Portals Into Your Home Network</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/navigate-a-sea-of-discounted-opportunities-on-oodles-gratis-marketplace/"><u>Navigate a Sea of Discounted Opportunities on Oodle's Gratis Marketplace</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-music-with-spotifys-miniplayer-in-fb-app/"><u>Navigate Music with Spotify's Miniplayer in FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebooks-regional-communities/"><u>Navigating the World of Facebook's Regional Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/negative-consequences-unpacking-social-network-effects/"><u>Negative Consequences: Unpacking Social Network Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-gains-with-an-upgraded-facebook-image/"><u>Networking Gains with an Upgraded Facebook Image</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-top-rated-video-voice-over-software-for-pc-review-and-download/"><u>New 2024 Approved Top-Rated Video Voice Over Software for PC - Review and Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/pictorial-input-leads-to-dynamic-text-style-generation/"><u>Pictorial Input Leads to Dynamic Text Style Generation</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-go-unveiled-a-new-era-for-portability/"><u>Portal Go Unveiled: A New Era for Portability</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-win-turn-off-facebook-monitoring-via-off-facebook-tool/"><u>Privacy Win: Turn Off Facebook Monitoring via Off-Facebook Tool</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-fb-navigation-shortcut-addition-and-deletion-tutorial/"><u>Streamline FB Navigation: Shortcut Addition & Deletion Tutorial</u></a></li>
+<li><a href="https://facebook.techidaily.com/strengthening-account-protection-with-simple-steps-of-2fa-implementation/"><u>Strengthening Account Protection with Simple Steps of 2FA Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-face-legal-scrutiny-from-president-trump-over-censorship/"><u>Tech Titans Face Legal Scrutiny From President Trump over Censorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-troubles-facebook-and-its-companions-offline/"><u>Tech Troubles: Facebook & Its Companions Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-earning-gold-online-fb-and-insta-tactics/"><u>The Ultimate Guide for Earning Gold Online: FB and Insta Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-your-facebook-timeline-comprehensive-history-download-guide/"><u>Uncovering Your Facebook Timeline: Comprehensive History Download Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-duplication-fraud/"><u>Understanding Facebook Duplication Fraud</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-political-patchwork/"><u>Unraveling The Political Patchwork</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-new-dating-feature-a-quick-guide/"><u>Unveiling Facebook's New Dating Feature: A Quick Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-secrets-maximizing-video-reach-on-igtv-with-horizinas-for-2024/"><u>Unveiling the Secrets Maximizing Video Reach on IGTV with Horizinas for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/upcoming-updates-on-facebook-focus-on-story-panels-with-reels-rooms/"><u>Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-vivo-y27-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Vivo Y27 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-waits-on-end-to-end-encryption-implementation-till-23/"><u>Why Meta Waits on End-to-End Encryption Implementation Till '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-pruning-facebooks-view-data-is-essential-for-privacy/"><u>Why Pruning Facebook's View Data Is Essential for Privacy</u></a></li>
+</ul></div>
 
 
 

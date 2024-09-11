@@ -1,7 +1,7 @@
 ---
 title: Decoding the Language of Likes, Reactions & More in FB
-date: 2024-07-12T10:24:13.817Z
-updated: 2024-07-13T10:24:13.817Z
+date: 2024-09-10T14:43:26.246Z
+updated: 2024-09-11T14:43:26.246Z
 tags:
   - facebook
 categories:
@@ -19,6 +19,20 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
  In this article, we take a look at what all of these symbols mean, from the Like button to others you'll come across—such as icons on Facebook menus and symbols for your status update.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Social Facebook Symbols
 
  The following are some of the more common Facebook icons for social interactions. Most people who use Facebook regularly will recognize them fairly easily.
@@ -33,6 +47,20 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
  To switch to one of these reaction symbols, hover over the**Like** button (or hold the**Like** button on the Facebook mobile app) and the different reaction options will pop up. You then just need to select the reaction you want to use.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Create Post Symbols
 
  Aside from the options above, the other icons you'll see on Facebook are the ones that display while you're creating new posts or updating your status.
@@ -41,19 +69,75 @@ thumbnail: https://thmb.techidaily.com/c67c5cabd77bd497290dc569fa7f62d814f0daa9a
 
 ![Create Facebook Post Options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/create-facebook-post-options.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Once in the**Create post** window, there are a lot more icons to navigate. Besides the options already mentioned, there's an icon to tag friends in your post, a check-in feature that adds a location to your post, a flag icon that shares life events, and an ellipsis button for more features.
 
 ![Facebook Icons When Creating a Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-icons-when-creating-a-post.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Hitting**More** shows the rest of the options that you have when creating a post on Facebook. This includes GIFs and raising money on the website. On mobile, you also get icons for music, the camera, and your post's background color.
 
 ![More Tools for Creating a Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/more-tools-for-creating-a-facebook-post.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  On the**Create post** window, you're also able to add emojis with the convenient**Emoji** icon nearby. The**Feeling/activity** button offers even more ways to share your emotions.
 
  Hit this button to access two long lists of emojis under two categories. The first tab is titled**Feelings** and contains emojis to express the emotions driving your post.
 
 ![Feelings Emojis for Facebook Post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/feelings-emojis-for-facebook-post.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  The options in**Activities** are a bit more interesting as you can specify what you're doing. Clicking on any of these reveals more symbols for your post.
 
@@ -108,6 +192,20 @@ What do these Facebook symbols mean?
 
  There are more key symbols on Facebook, including the icons that appear at the top and side of your web page. The smartphone version is more compact, but it features the same options. So, explore and [try Facebook mobile settings](https://www.makeuseof.com/facebook-app-settings-worth-trying/) , too.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Facebook Menu Icons
 
  On the right side of this toolbar, you'll notice three buttons. The first pulls out a menu where you can find friends, search local events, create posts, stories, pages, or ads, and do a host of other things.
@@ -122,7 +220,35 @@ What do these Facebook symbols mean?
 
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Facebook Navigation Icons
 
@@ -137,6 +263,20 @@ What do these Facebook symbols mean?
 * **Ads Manager** : Organize your ad campaigns.
 
 ![Icons on Facebook's Navigation Sidebar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/icons-on-facebook-s-navigation-sidebar.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Didn't realize you could do so much on Facebook? We're barely getting started. Hit**See More** for everything this sidebar has to offer, such as:
 
@@ -184,6 +324,63 @@ What do these Facebook symbols mean?
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-essential-10-online-collaboration-tools-ensuring-privacy/"><u>[New] Essential 10 Online Collaboration Tools Ensuring Privacy</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-learn-the-mechanics-behind-self-playing-videos-in-fb/"><u>[New] In 2024, Learn the Mechanics Behind Self-Playing Videos in Fb</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-invest-in-ig-success-the-top-6-secure-money-methods-for-2024/"><u>[New] Invest in IG Success The Top 6 Secure Money Methods for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-from-click-to-convert-a-guide-to-effective-social-media-sales-techniques/"><u>[Updated] 2024 Approved From Click to Convert A Guide to Effective Social Media Sales Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-firefoxs-video-downloader-boost-optimal-extensions-and-plugins-for-facebook-content-for-2024/"><u>[Updated] Firefox's Video Downloader Boost Optimal Extensions & Plugins for Facebook Content for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-backstage-to-center-stage-mastering-twitter-livestreaming/"><u>[Updated] From Backstage to Center Stage Mastering Twitter Livestreaming</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-accessing-facebook-videos-via-apple-tv-essential-tips/"><u>[Updated] In 2024, Accessing Facebook Videos via Apple TV Essential Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-future-of-development-understanding-the-impact-of-next-gen-frameworks/"><u>[Updated] The Future of Development Understanding the Impact of Next-Gen Frameworks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-selecting-the-perfect-screen-ultrawide-or-uhd-4k/"><u>2024 Approved Selecting the Perfect Screen UltraWide or UHD 4K?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/common-issues-and-resolutions-for-the-logitech-g230-microphone-not-working/"><u>Common Issues & Resolutions for the Logitech G230 Microphone Not Working</u></a></li>
+<li><a href="https://facebook.techidaily.com/expecting-a-shielded-future-e2ee-for-fb-messenger/"><u>Expecting a Shielded Future: E2EE for FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-techniques-for-dynamic-facebook-profile-backdrops/"><u>Expert Techniques for Dynamic Facebook Profile Backdrops</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enters-sunglasses-space-with-ray-ban-stories-launch/"><u>Facebook Enters Sunglasses Space with Ray-Ban Stories Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-potential-security-threat/"><u>Facebook Quizzes: Potential Security Threat?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-who-steers-its-future/"><u>Facebook: Who Steers Its Future?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/global-gala-of-greatest-video-views/"><u>Global Gala of Greatest Video Views</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-register-and-activate-a-user-account-in-playstations-gaming-platform/"><u>How to Register and Activate a User Account in PlayStation's Gaming Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-action-addressing-no-verification-email-from-facebook/"><u>Immediate Action: Addressing No Verification Email From Facebook</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-dark-mode-adjustment-for-facebook/"><u>Instant Dark Mode Adjustment for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-to-split-up-spotify-and-fb/"><u>Instructional Guide to Split Up Spotify and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-intertwined-lives-friends-on-facebook-history/"><u>Investigating Intertwined Lives: Friends on Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/love-reimagined-the-role-of-facebook-in-future-dating-practices/"><u>Love Reimagined: The Role of Facebook in Future Dating Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-privacy-constructing-a-restricted-list-for-controlled-visibility/"><u>Mastering Facebook's Privacy: Constructing a Restricted List for Controlled Visibility</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/melhores-ferramentas-gratuitas-para-ripagem-de-dvd-em-windows-11-guia-completo-para-download-e-uso/"><u>Melhores Ferramentas Gratuitas Para Ripagem De DVD Em Windows 11: Guia Completo Para Download E Uso</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimized-audience-engagement-uploading-instagram-reels-to-facebook/"><u>Optimized Audience Engagement: Uploading Instagram Reels to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-venues-for-unearthing-freelance-opportunities/"><u>Prime Venues for Unearthing Freelance Opportunities</u></a></li>
+<li><a href="https://facebook.techidaily.com/quietude-in-social-sharing-erasing-feedback-on-facebook/"><u>Quietude in Social Sharing: Erasing Feedback on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-group-dynamics-with-innovative-channels-technology/"><u>Redefining Group Dynamics with Innovative Channels Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescue-your-rusty-social-media-site-with-troubleshooting-aids/"><u>Rescue Your Rusty Social Media Site with Troubleshooting Aids</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolving-the-out-of-date-error-a-guide-to-updating-your-minecraft-graphics-card-driver/"><u>Resolving the 'Out-of-Date' Error: A Guide to Updating Your Minecraft Graphics Card Driver</u></a></li>
+<li><a href="https://facebook.techidaily.com/scaling-success-top-5-monetization-tactics-for-instagram-and-facebook/"><u>Scaling Success: Top 5 Monetization Tactics for Instagram and Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-shares-use-archiving-for-securing-post-visibility/"><u>Shielding Shares: Use Archiving for Securing Post Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-savvy-boosting-income-through-fbig-tactics/"><u>Social Savvy: Boosting Income Through FB/IG Tactics</u></a></li>
+<li><a href="https://win-able.techidaily.com/steam-problem-solved-how-to-reconnect-with-the-local-client/"><u>Steam Problem Solved: How To Reconnect with The Local Client</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-process-of-disbanding-an-online-group/"><u>The Complete Process of Disbanding an Online Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategic-choice-a-comprehensive-look-at-facebook-events/"><u>The Strategic Choice: A Comprehensive Look at Facebook Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-adaptive-url-management-in-fb/"><u>The Ultimate Guide to Adaptive URL Management in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-city-plan-facebooks-latest-feature-unveiled/"><u>The Virtual City Plan: Facebook’s Latest Feature Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/tightening-up-online-presence-building-an-invisible-social-circle/"><u>Tightening Up Online Presence: Building an Invisible Social Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitter-reanimation-trump-by-meta/"><u>Twitter Reanimation: Trump by Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-impact-of-removing-your-fb-watch-history/"><u>Understanding the Impact of Removing Your FB Watch History</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-network-potential-through-dns-on-windows-11/"><u>Unlocking Network Potential Through DNS on Windows 11</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-free-up-space-fast-the-ultimate-fcpx-storage-cleanup-guide/"><u>Updated 2024 Approved Free Up Space Fast The Ultimate FCPX Storage Cleanup Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/youtubes-untold-story-on-how-monitoring-keeps-it-free-and-functional/"><u>YouTube's Untold Story on How Monitoring Keeps It Free and Functional</u></a></li>
+</ul></div>
 
 
 

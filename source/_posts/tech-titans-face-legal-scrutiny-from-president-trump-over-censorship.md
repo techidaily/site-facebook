@@ -1,7 +1,7 @@
 ---
 title: Tech Titans Face Legal Scrutiny From President Trump over Censorship
-date: 2024-09-05T09:39:18.291Z
-updated: 2024-09-06T09:39:18.291Z
+date: 2024-09-10T14:50:05.594Z
+updated: 2024-09-11T14:50:05.594Z
 tags:
   - facebook
 categories:
@@ -13,28 +13,24 @@ keywords: Trump Censorship Accusations,Tech Giants Scrutiny,Legal Challenges to 
 thumbnail: https://thmb.techidaily.com/8144bf8226080671f18a2bf4e92c933c6cecfac8b57ae525149deda993c1369b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tech Titans Face Legal Scrutiny From President Trump over Censorship
 
  Former President Donald Trump is taking legal action against Twitter, Facebook, and YouTube after he was banned from each platform following the January 6 Capitol riots. Trump announced that he's filing class-action lawsuits against each platform and their respective CEOs, arguing that he was wrongfully censored on these social networks.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Trump Is Suing Big Tech for Alleged Censorship
 
  At a press conference in New Jersey, Trump told his audience that he's suing Facebook, Twitter, and YouTube for allegedly infringing on his right to free speech. Trump's filing seeks punitive damages, as well as the reinstatement of his accounts on each social network.
@@ -51,12 +47,20 @@ thumbnail: https://thmb.techidaily.com/8144bf8226080671f18a2bf4e92c933c6cecfac8b
 
  YouTube also suspended Trump in January, and only[plans to lift the ban once "the risk of violence has decreased](https://www.makeuseof.com/youtube-on-trump-suspension/) ."
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## What About Trump's New Social Network?
 
  To counteract his bans from the most popular social platforms, Trump has created his own: GETTR. GETTR prides itself on "rejecting political censorship and 'cancel culture,'" which is a policy that Twitter, Facebook, and YouTube allegedly don't have.

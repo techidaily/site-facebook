@@ -1,7 +1,7 @@
 ---
 title: Outsmart Facebook's Tracking Mechanisms Now
-date: 2024-07-12T10:22:24.778Z
-updated: 2024-07-13T10:22:24.778Z
+date: 2024-09-10T14:46:15.105Z
+updated: 2024-09-11T14:46:15.105Z
 tags:
   - facebook
 categories:
@@ -33,17 +33,65 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
 
  The European Union found that site owners could be held liable for transmitting private data to Facebook without obtaining the explicit consent of the users. The ruling doesn't stop Facebook or other companies from using social media plug-ins. However, it could force Facebook to offer users the chance to opt out of tracking on websites outside of its control.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 2\. Facebook Pixel
 
  The Facebook pixel "is an analytics tool that allows you to measure the effectiveness of your advertising by understanding the actions that people take on your website." Sounds great, right? For a website owner, a Facebook pixel grants insight into how effective your advertising is. It does this by tracking the actions of the people using the site and feeding back to Facebook.
 
  As with Facebook tracking via the Like and Share social plug-ins, the crux of the issue is whether Facebook provides enough information to users to make informed decisions regarding data tracking.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 3\. Facebook Cookies
 
  Facebook places a cookie on your computer if you have a Facebook account. It also places a cookie on your computer if you use "Facebook Products, including our website or apps, or visit other websites and apps that use Facebook Products (including the Like button or other Facebook Technologies)."
 
  Regardless of whether you have an account, if you even use a site using a Facebook Product, you receive a Facebook tracking cookie.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. Facebook Tracking via Instagram and WhatsApp
 
@@ -53,6 +101,20 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
 
  Thankfully,[WhatsApp users can turn off data sharing](https://www.makeuseof.com/tag/4-security-threats-whatsapp-users-need-know/) . Instagram users do not have the same data privacy option. If you want to switch, here are [four privacy-focused WhatsApp alternatives](https://www.makeuseof.com/tag/4-slick-whatsapp-alternatives-guard-privacy/) .
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What Does Facebook Know About You?
 
  Facebook tracking serves a single purpose: advertising. Advertising remains the largest source of revenue for Facebook. That's why collecting reams of data is essential for their business model, even after diversification into other areas of tech. After collecting your data for years, what does Facebook know about you?
@@ -60,6 +122,20 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
  For fun, let's see what Facebook knows about me. The following image shows what Facebook thought it knew about me back in 2017 and 2019.
 
 ![facebook ad preferences 2017 2019 comparison](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-ad-preferences-2017-2019-comparison.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  The jokes on them: I didn't rate Call of Duty in 2017, and I'm still not a fan now, either. Some changes, however, are more accurate. I do like board games, strategy games, and collectible card games. Nice to see my music taste has developed from just "Music" in 2017 into several different genres.
 
@@ -91,11 +167,45 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
 
  Unfortunately, tracking and advertising are central to the modern internet. Have you ever tried running the privacy-focused browser extensions NoScript or PrivacyBadger (more on these extensions in a moment)? Many sites break without the enormous number of advertising and tracking scripts embedded in their code.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How Do I Stop Facebook Tracking Me?
 
  The big question, the one you want the answer to: how do you stop Facebook tracking your movements around the internet? Is it possible to stop Facebook tracking you? Can you block a Facebook pixel?
 
  Thankfully, there are several great solutions and, better yet, many of them will stop other invasive tracking practices, too.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Change Facebook Ad Preferences
 
@@ -112,11 +222,51 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
 ### uBlock Origin
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  uBlock Origin is an excellent start. It features several built-in script-blocking lists and is easy to use too. Better still, it has dedicated scripts for Disconnect filters (Disconnect is another useful extension), as well as some that specifically take aim at social media trackers.
 
  I would advise using uBlock Origin and**whitelisting your favorite trusted sites** —like MakeUseOf! It has [blocked malvertising content](https://www.makeuseof.com/tag/malvertising-can-protect/) on more than one occasion!
 
 **Download:** uBlock Origin for [Chrome](https://chrome.google.com/webstore/detail/ublock-origin/cjpalhdlnbpafiamejdnhcphjbkeiagm) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/ublock-origin/) |[Opera](https://addons.opera.com/en-gb/extensions/details/ublock/) |[Safari](https://github.com/el1t/uBlock-Safari/releases) (All Free)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### NoScript
 
@@ -131,6 +281,26 @@ thumbnail: https://thmb.techidaily.com/8437f38447ce38f499b6100252361ad0a548e9cd2
  PrivacyBadger uses an easy-to-manage system of colored sliders.**Green** means okay,**Yellow** means third-party tracking but necessary for a functioning web,**Red** means content and scripts have been disabled.
 
 **Download:** Privacy Badger for [Chrome](https://chrome.google.com/webstore/detail/privacy-badger/pkehgijcmpdhfbdbbnkijodmdjhbjlgp) |[Firefox](https://addons.mozilla.org/en-GB/firefox/addon/privacy-badger17/) |[Opera](https://addons.opera.com/en-gb/extensions/details/privacy-badger/) (All Free)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Use a Privacy-Focused Alternative Browser
 
@@ -168,6 +338,20 @@ Users can opt out of behavioral advertising using a regional tool.
 
  Related:[How to Check Who Is Tracking You Around the Internet?](https://www.makeuseof.com/tag/check-who-tracking-you-online/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Cookie AutoDelete
 
  You can use a browser extension to delete third-party cookies automatically after leaving the site (some sites won't work without them). Cookie AutoDelete works for both Chrome and Firefox and allows you to customize the cookies you delete after each session.
@@ -203,6 +387,63 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-easy-steps-to-record-your-vlc-videos-effectively/"><u>[New] In 2024, Easy Steps to Record Your VLC Videos Effectively</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unleash-creative-energy-video-creation-tips-on-the-latest-windows-10-edition/"><u>[New] Unleash Creative Energy Video Creation Tips on the Latest Windows 10 Edition</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-affordable-gear-for-aspiring-content-creators/"><u>[Updated] Affordable Gear for Aspiring Content Creators</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gopro-karma-drone-review/"><u>[Updated] GoPro Karma Drone Review</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unraveling-the-selection-process-for-highlighted-youtube-comments/"><u>[Updated] Unraveling the Selection Process for Highlighted YouTube Comments</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pro-stream-wars-choosing-between-vmix-and-wirecast/"><u>2024 Approved Pro-Stream Wars Choosing Between VMix and Wirecast</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/bypass-netflix-screen-time-rules-a-simple-method-for-unrestricted-viewing/"><u>Bypass Netflix Screen Time Rules - A Simple Method for Unrestricted Viewing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-realme-narzo-n55-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Realme Narzo N55?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/connect-online-screen-sharing-secrets-for-live-streaming/"><u>Connect Online Screen-Sharing Secrets for Live Streaming</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-online-presence-building-events-on-facebook/"><u>Elevating Your Online Presence: Building Events on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhanced-chat-on-the-horizon-for-facebook-users/"><u>Enhanced Chat on the Horizon for Facebook Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/evolving-interactive-experience-with-facebooks-audio-hub/"><u>Evolving Interactive Experience with Facebook’s Audio Hub</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-how-immune-to-liquids-is-the-iphone-15/"><u>Exploring How Immune to Liquids Is the iPhone 15?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-algorithmic-recommendations-explained/"><u>Facebook's Algorithmic Recommendations Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-facebook-to-the-world-seamlessly-upload-your-posts-and-notes/"><u>From Facebook to the World: Seamlessly Upload Your Posts and Notes.</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-niche-expertise-to-viral-star/"><u>From Niche Expertise to Viral Star</u></a></li>
+<li><a href="https://facebook.techidaily.com/gaining-clarity-in-a-complex-world-exploring-facebooks-open-center/"><u>Gaining Clarity in a Complex World: Exploring Facebook's Open Center</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/guidelines-for-effective-use-of-cc-licenses/"><u>Guidelines for Effective Use of CC Licenses</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-facebook-falls-identify-the-most-widespread-scams-first/"><u>Halt Facebook Falls: Identify the Most Widespread Scams First</u></a></li>
+<li><a href="https://facebook.techidaily.com/holding-fire-facebook-oversight-ponders-suspension/"><u>Holding Fire: Facebook Oversight Ponders Suspension</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-ios-145-is-reshaping-social-medias-data-landscape/"><u>How iOS 14.5 Is Reshaping Social Media's Data Landscape</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-choose-between-facebook-echo-show-and-portal/"><u>How to Choose Between Facebook Echo Show & Portal</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-your-personal-playlist-on-the-go/"><u>In 2024, Your Personal Playlist On-the-Go</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-on-facebooks-impending-name-change/"><u>Insights on Facebook's Impending Name Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-facebook-freedom-shutting-down-algorithms/"><u>Instagram & Facebook Freedom: Shutting Down Algorithms</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-slovak-swiftly-with-our-quick-10-minute-online-methods/"><u>Learn Slovak Swiftly with Our Quick 10-Minute Online Methods!</u></a></li>
+<li><a href="https://facebook.techidaily.com/misguided-pandemic-truths-by-12-noteworthy-personalities/"><u>Misguided Pandemic Truths by 12 Noteworthy Personalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-web-searches-post-fbcta-implementation/"><u>Navigating Web Searches Post-FBCTA Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-perfection-with-these-30-key-social-media-abbreviations/"><u>Post Perfection with These 30 Key Social Media Abbreviations</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserve-your-anonymity-avoid-risky-privacy-apps/"><u>Preserve Your Anonymity: Avoid Risky Privacy Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/preserving-page-harmony-the-art-of-excluding-profiles/"><u>Preserving Page Harmony: The Art of Excluding Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/shifting-landscape-us-antitrust-laws-targeting-silicon-valley-giants/"><u>Shifting Landscape: U.S. Antitrust Laws Targeting Silicon Valley Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/signal-claims-to-have-been-banned-from-facebook-for-honest-advertising/"><u>Signal Claims to Have Been Banned From Facebook for Honest Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-socializing-the-technique-to-conceal-fb-pages/"><u>Silent Socializing: The Technique to Conceal FB Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-revenue-an-overview/"><u>Social Media Revenue: An Overview</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-final-cut-how-to-eliminate-your-facebook-presence-on-android/"><u>The Final Cut: How to Eliminate Your Facebook Presence On Android</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-hidden-world-of-your-online-footprint-unveiling-facebooks-secrets/"><u>The Hidden World of Your Online Footprint - Unveiling Facebook’s Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-play-why-authorities-seek-to-dismantle-big-tech/"><u>The Power Play: Why Authorities Seek to Dismantle Big Tech</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/eality-of-youtubes-fast-subscribe-technique-for-2024/"><u>The Reality of YouTube's Fast Subscribe Technique for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-russian-connection-exploring-vk-as-a-virtual-community/"><u>The Russian Connection: Exploring VK as a Virtual Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-scrubbing-facebooks-past-mistakes/"><u>The Ultimate Guide to Scrubbing Facebook's Past Mistakes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-samsung-galaxy-m34-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Samsung Galaxy M34? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-potential-of-facebook-content-with-downloads/"><u>Unlock the Potential of Facebook Content with Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-reign-of-your-online-photographs/"><u>Unveiling the Reign of Your Online Photographs</u></a></li>
+<li><a href="https://facebook.techidaily.com/veiled-voice-in-group-chats-how-to/"><u>Veiled Voice in Group Chats, How-To</u></a></li>
+</ul></div>
 
 
 

@@ -1,0 +1,227 @@
+---
+title: "Ray-Bans Unveiled on Facebook: Features & Pricing"
+date: 2024-09-10T14:56:59.299Z
+updated: 2024-09-11T14:56:59.299Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Ray-Bans Unveiled on Facebook: Features & Pricing"
+excerpt: "This Article Describes Ray-Bans Unveiled on Facebook: Features & Pricing"
+keywords: Ray Ban Reveal,RB Price List,RB New Designs,Facebook Ray Ban Launch,Ray Bans Features,Latest Ray Ban Pricing,Unveiling Ray-Bans
+thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892d0c27222e3c559cd653e7a3.png
+---
+
+## Ray-Bans Unveiled on Facebook: Features & Pricing
+
+ Given how much the smartphone has proliferated our personal and business life, it can be hard to imagine getting things done without one. However, Facebook plans to make smartphones a thing of the past with new smart glasses designed by Ray-Ban, called the Ray-Ban Stories.
+
+ So, what does the social media giant have up its sleeves (or rather, resting on its nose)? Let's find out.
+
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## What Are Ray-Ban Stories?
+
+ Ray-Ban released the above trailer to show off the new Ray-Ban Stories. These glasses were the result of the luxury sunglasses company teaming up with the tech giant Facebook. The idea behind the Ray-Ban Stories is that they can help you capture events going on around you without needing to reach for your phone.
+
+ The glasses are equipped with cameras on the sides so you can capture everything going on from a first-person perspective. You can use them to take photos or record short videos to post later when you’re back home.
+
+ Related:[How Do Smart Glasses Work?](https://www.makeuseof.com/how-do-smart-glasses-work/)
+
+ Not only that, but the smart glasses want you to use them like you would a phone. You can use the glasses to play music and podcasts while you travel, and you can even take phone calls with them.
+
+ The big theme around the Ray-Ban Stories is giving you the ability to capture the world around you without needing to leave it. There’s no need to scramble for your phone when something amazing happens, nor do you need to stare through a screen when recording something. Now you can capture anything just by looking at it, so you can concentrate on living in the moment.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## The Ray-Ban Stories Specifications
+
+ The Ray-Ban Stories captures the world around you using two 5-megapixel cameras. You activate them by pressing a small button on the side of the glasses frame: a brief tap to record video and a long press for a photo. If you’re feeling brave, you can also say, “Hey Facebook, take a video” to start the process, but be prepared to record nothing but people staring at you in confusion.
+
+ If you want to listen to music or make calls while on the go, there are miniature speakers on the frame near your ears. Facebook didn’t explain if they used any technologies to stop the people next to you on the train from hearing your podcasts but they did mention that they are “discreet.”
+
+ Related:[Uncommon Ways to Discover Podcasts Worth Listening To](https://www.makeuseof.com/ways-to-discover-podcasts-worth-listening-to/)
+
+ The glasses have enough storage to hold 30 videos or 500 photos. Once you’re full up, you can download the media to your phone using a “Facebook View companion app.” The announcement didn’t reveal if you have to use this app or if third-party apps will also work with it.
+
+ Fortunately, Facebook will allow you to share the media on other platforms. The video revealed that you could upload your media to WhatsApp and Snapchat, and there’s a chance that other social media platforms will also work with the glasses.
+
+ Even if they don’t, the video states you can save the media to your phone. This implies nothing is stopping you from uploading your files wherever you like.
+
+ The glasses will have an off switch, which will disable all the tech on them once flipped. And Facebook is proud to show off a light-up LED on the camera to show others that you’re recording them, which helps improve privacy. In the video, Mark Zuckerberg claims this is “more than what smartphones do,” but we’d argue that holding up a phone to record someone is more obvious than an LED.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## How Much Are the Ray-Ban Stories?
+
+ If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## When Will the Ray-Ban Stories Come Out?
+
+ The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## A New Chapter in the Story of Smart Glasses
+
+ If you love capturing those precious moments, but you'd rather not experience it through a phone screen, the Ray-Ban Stories may just be up your alley. They're out now, so be sure to grab a pair ASAP if this sounds like something you want.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-cut-the-cord-with-youtube-mp3-conversion-tools/"><u>[New] 2024 Approved Cut the Cord with YouTube-MP3 Conversion Tools</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-discover-comprehensive-free-graphics-websites-today/"><u>[New] 2024 Approved Discover Comprehensive Free Graphics Websites Today</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-sharpen-your-footage-with-videoleaps-zoom/"><u>[New] 2024 Approved Sharpen Your Footage with Videoleap's ZOOM</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-avoid-virtual-reality-queasiness-5-useful-tips/"><u>[New] Avoid Virtual Reality Queasiness 5 Useful Tips</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-direct-dissemination-from-tiktok-to-social-networks-for-2024/"><u>[New] Direct Dissemination From TikTok to Social Networks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-leveraging-keywords-for-peak-marketing-results/"><u>[New] In 2024, Leveraging Keywords for Peak Marketing Results</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-majestic-visual-chronicles-composer-suite/"><u>[Updated] 2024 Approved Majestic Visual Chronicles Composer Suite</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cutting-edge-strategies-for-transmitting-obs-livestreams-to-facebook/"><u>[Updated] Cutting-Edge Strategies for Transmitting OBS Livestreams to Facebook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-deleting-facebook-stories-laptop-and-mobile-guide/"><u>[Updated] Deleting Facebook Stories Laptop & Mobile Guide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-popular-10-music-videos-trending-on-facebook/"><u>[Updated] In 2024, Popular 10 Music Videos Trending on Facebook</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-remote-smile-engineer-for-2024/"><u>[Updated] Remote Smile Engineer for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-basics-of-weaving-a-narrative-thread/"><u>2024 Approved Basics of Weaving a Narrative Thread</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-art-of-video-thumbnail-making-for-popular-content/"><u>2024 Approved The Art of Video Thumbnail Making for Popular Content</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cyberpunk-2077-and-the-mystery-of-flatlining-with-error-2024/"><u>Cyberpunk 2#077 & The Mystery of Flatlining with Error 2#024!</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-instagrams-end-to-end-encryption-awaiting-2022/"><u>Facebook and Instagram's End-to-End Encryption Awaiting 2022</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-pauses-trump-ban-review-by-regulatory-council/"><u>Facebook Pauses Trump Ban Review by Regulatory Council</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-privacy-concerns-escalate-with-ios-145/"><u>Facebook's Privacy Concerns Escalate with iOS 14.5</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-upcoming-update-revamped-reels-rooms-in-stories/"><u>Facebook's Upcoming Update: Revamped Reels, Rooms in Stories</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/find-your-missing-text-messages-top-8-iphone-message-retrieval-solutions-with-a-spotlight-on-stellar/"><u>Find Your Missing Text Messages: Top 8 iPhone Message Retrieval Solutions with a Spotlight on Stellar</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-sound-glitch-how-to-restore-audio-on-your-windows-machine-during-a-zoom-meeting/"><u>Fixing the Sound Glitch: How to Restore Audio on Your Windows Machine During a Zoom Meeting</u></a></li>
+<li><a href="https://facebook.techidaily.com/halt-everyone-group-notification-feature/"><u>Halt Everyone Group Notification Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-often-are-social-media-accounts-hacked/"><u>How Often Are Social Media Accounts Hacked?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-honor-90-lite-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-tell-if-someones-peeking-at-your-fb-life/"><u>How to Tell if Someone's Peeking at Your FB Life</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-a54-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-galactic-glitter-top-10-accessories-for-sj4000-stargazers/"><u>In 2024, Galactic Glitter Top 10 Accessories for SJ4000 Stargazers</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-owners-dodge-location-monitoring/"><u>IPhone Owners Dodge Location Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/make-a-mark-messengers-formatting-fundamentals/"><u>Make a Mark: Messenger's Formatting Fundamentals</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-network-with-these-free-social-management-tools/"><u>Mastering Your Network, With These FREE Social Management Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-accelerates-to-unprecedented-ai-computing-peaks/"><u>Meta Accelerates to Unprecedented AI Computing Peaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-web-of-new-online-gatherings-and-networks/"><u>Navigating the Web of New Online Gatherings and Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-trends-on-instagram/"><u>NFT Trends on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-newsfeed-just-got-easier-on-fb/"><u>Personalizing Your Newsfeed Just Got Easier on FB</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-realme-narzo-n53-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Realme Narzo N53</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/ray-ban-stories-on-facebook-detailed-overview-and-pricing-info/"><u>Ray-Ban Stories on Facebook - Detailed Overview & Pricing Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/score-big-on-your-game-setup-with-alienwares-curved-masterpiece-secure-100-off-the-aw3225qf-stunning-4k-gaming-qd-oled-quality-and-ultra-fast-240-hz-refresh61/"><u>Score Big on Your Game Setup with Alienware's Curved Masterpiece: Secure $100 Off the AW3225QF - Stunning 4K Gaming, QD-OLED Quality & Ultra Fast 240 Hz Refresh Rate</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-into-private-digital-discourse-on-fb/"><u>Sneak Peek Into Private Digital Discourse on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-unfreeze-fb-alert-bars-and-posts-display/"><u>Steps to Unfreeze FB Alert Bars and Posts Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-automated-content-disabling-twitters-algorithmic-feeds/"><u>Stop Automated Content: Disabling Twitter's Algorithmic Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-maximum-fb-exposure/"><u>Strategies for Maximum Fb Exposure</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-fb-image-exposure-settings/"><u>Tailoring FB Image Exposure Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-group-specific-polls-on-facebook/"><u>Tailoring Group-Specific Polls on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-return-of-trump-via-meta-platforms/"><u>The Return of Trump via Meta Platforms</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-revolutionary-impact-of-ai-redefining-societys-future/"><u>The Revolutionary Impact of AI: Redefining Society's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unending-appeal-of-facebook-6-insights-for-users/"><u>The Unending Appeal of Facebook: 6 Insights for Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-upside-to-connectivity-9-good-aspects-of-online-communities/"><u>The Upside to Connectivity: 9 Good Aspects of Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-compelling-fb-backgrounds/"><u>Unlocking The Power of Compelling FB Backgrounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-telegrams-advantages-when-fb-was-offline/"><u>Unveiling Telegram's Advantages When FB Was Offline</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-facebooks-neighborhood-based-spaces-for-collaboration/"><u>What Are Facebook's Neighborhood-Based Spaces for Collaboration?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-happens-when-you-quit-social-media-6-things-i-learned/"><u>What Happens When You Quit Social Media? 6 Things I Learned</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-operates-with-qualcomm-atheros-driver-harmony/"><u>Windows Operates with Qualcomm, Atheros Driver Harmony</u></a></li>
+</ul></div>
+
+
+
+

@@ -1,7 +1,7 @@
 ---
 title: Unearthed Tech Moments You've Overlooked - Top 4 Must-Know!
-date: 2024-07-12T10:23:54.541Z
-updated: 2024-07-13T10:23:54.541Z
+date: 2024-09-10T14:45:31.209Z
+updated: 2024-09-11T14:45:31.209Z
 tags:
   - facebook
 categories:
@@ -19,8 +19,36 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## GameStop and the Birth of Meme Stocks
 ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -37,6 +65,20 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
 ## The $2.9 Million Tweet
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
  But the biggest name to join the NFT bandwagon came in March, when Twitter founder Jack Dorsey sold the first-ever Tweet for a cool $2.9 million. Since then, several other million-dollar NFTs have been sold, including a copy of the original source code for the internet.
@@ -46,6 +88,20 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
  Related:[Jack Dorsey Sells the First-Ever Tweet](https://www.makeuseof.com/jack-dorsey-sold-first-tweet/)
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to [professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Welcome to the Metaverse
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
@@ -60,6 +116,20 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Apple and Facebook's Privacy War
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
@@ -72,6 +142,20 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## What Tech News Will We See in 2022?
 
@@ -94,6 +178,82 @@ thumbnail: https://thmb.techidaily.com/888d11958fd59cee20dd0880994e49d2be7569646
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-frosty-olympics-highlights-in-figure-skating/"><u>[New] Frosty Olympics Highlights in Figure Skating</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-real-deal-behind-asmr-videos/"><u>[New] In 2024, The Real Deal Behind ASMR Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-secrets-to-captivate-viewers-and-snag-vimeos-top-choices/"><u>[New] Secrets to Captivate Viewers and Snag Vimeo's Top Choices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-undead-uprising-your-guide-to-engrossing-zombie-playtime/"><u>[New] Undead Uprising Your Guide to Engrossing Zombie Playtime</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-phones-speed-up-sound-essential-app-listing/"><u>[Updated] 2024 Approved Phones’ Speed Up Sound Essential App Listing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-epic-recordings-the-best-timelapse-software/"><u>[Updated] Epic Recordings The Best Timelapse Software</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-expert-picks-top-12-screen-recording-software-no-time-limit/"><u>[Updated] Expert Picks Top 12 Screen Recording Software, No Time Limit</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-youtube-earnings-unveiled-average-adsense-payments-per-thousand-views/"><u>[Updated] In 2024, Youtube Earnings Unveiled Average AdSense Payments Per Thousand Views</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-advancements-in-quantum-hdr-technology-explained/"><u>2024 Approved Advancements in Quantum HDR Technology Explained</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-summit-of-synergy-for-vr-sensations/"><u>2024 Approved Summit of Synergy for VR Sensations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-ultimate-list-of-free-got-tune-sources/"><u>2024 Approved Ultimate List of Free GoT Tune Sources</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/apex-6-lions-large-scale-nlp-prowess-recognized/"><u>Apex 6 Lions: Large-Scale NLP Prowess Recognized</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/comprehensible-techniques-for-effective-classroom-recordings-on-mac/"><u>Comprehensible Techniques for Effective Classroom Recordings on Mac</u></a></li>
+<li><a href="https://article-tips.techidaily.com/diving-into-the-digital-splendor-of-nikon-d500-for-2024/"><u>Diving Into the Digital Splendor of Nikon D500 for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-xiaomi-redmi-note-12r-support-avchd-video-by-aiseesoft-video-converter-play-mts-on-android/"><u>Does Xiaomi Redmi Note 12R support AVCHD video?</u></a></li>
+<li><a href="https://facebook.techidaily.com/embrace-metas-trusted-identity-in-america/"><u>Embrace Meta's Trusted Identity in America</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-visual-content-ai-driven-captions-for-fb-uploads/"><u>Enhancing Visual Content: AI-Driven Captions for FB Uploads</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-whitelisting-mechanism/"><u>Exploring Facebook's Whitelisting Mechanism</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/exploring-the-future-of-transport-tesla-robotaxi-price-speculations-expected-debut-date-technical-details-and-emerging-rumors/"><u>Exploring the Future of Transport: Tesla Robotaxi Price Speculations, Expected Debut Date, Technical Details, and Emerging Rumors</u></a></li>
+<li><a href="https://facebook.techidaily.com/googles-annual-summary-of-press-milestones/"><u>Google's Annual Summary of Press Milestones</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-broadcast-message-everyone/"><u>How to Disable Broadcast Message (@Everyone)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-the-people-you-may-know-feature-on-facebook/"><u>How to Disable the People You May Know Feature on Facebook</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-mastering-chapter-division-in-youtube-videos/"><u>In 2024, Mastering Chapter Division in YouTube Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Tecno Camon 20 Premier 5G? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-honor-100-pro-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Honor 100 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-whatsapp-unite-for-stronger-authentication/"><u>Instagram and WhatsApp Unite for Stronger Authentication</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-communal-territories-now-on-facebook/"><u>Interactive Communal Territories Now on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/interconnectedness-in-the-digital-age-7-methods-for-unity/"><u>Interconnectedness in the Digital Age: 7 Methods for Unity</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-securityfbcom-real/"><u>Is the Facebook Protection Email From @security@fb.com Real?</u></a></li>
+<li><a href="https://facebook.techidaily.com/last-rites-how-to-eliminate-your-facebook-presence-forever/"><u>Last Rites: How to Eliminate Your Facebook Presence Forever</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-your-facebook-collective-with-strong-standards/"><u>Leading Your Facebook Collective with Strong Standards</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/marvelous-mac-display-selection-the-best-4k-offerings/"><u>Marvelous Mac Display Selection - The Best 4K Offerings</u></a></li>
+<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-privacy-a-thorough-examination-of-fb-settings/"><u>Mastering Privacy: A Thorough Examination of FB Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/mending-the-social-web-after-an-exclusion/"><u>Mending the Social Web After an Exclusion</u></a></li>
+<li><a href="https://facebook.techidaily.com/our-lives-as-a-marketable-asset/"><u>Our Lives as a Marketable Asset</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reducing-facebooks-pull-with-less-reel-watching/"><u>Reducing Facebook's Pull with Less Reel Watching</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-release-dates-oculus-quest-iii-postponed/"><u>Rethinking Release Dates: Oculus Quest III Postponed</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-the-use-of-negative-digital-tools/"><u>Rethinking the Use of Negative Digital Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-a-pleasant-digital-landscape-on-facebook/"><u>Securing a Pleasant Digital Landscape on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stabilizing-your-digital-footprint-after-erratic-snapchat-sign-offs/"><u>Stabilizing Your Digital Footprint After Erratic Snapchat Sign-Offs</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-successful-page-based-polling/"><u>Strategies for Successful Page-Based Polling</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-declare-security-status-on-fb/"><u>Strategies to Declare Security Status on FB</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/text-memes-made-simple-utilize-meme-creator-tools-for-2024/"><u>Text Memes Made Simple Utilize Meme Creator Tools for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-big-tech-and-americas-new-regulatory-framework/"><u>The Future of Big Tech and America's New Regulatory Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-delete-your-facebook-account-android-wise/"><u>The Ultimate Guide: Delete Your Facebook Account Android-Wise</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-essential-facebook-mobile-adjustments/"><u>Top 10 Essential Facebook Mobile Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-outages-in-tech-giants-platforms/"><u>Tracing Outages in Tech Giants' Platforms</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-http-status-code-401-step-by-step-tips/"><u>Troubleshooting HTTP Status Code 401 – Step-by-Step Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-your-facebook-relationship-trail/"><u>Understanding Your Facebook Relationship Trail</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-secrets-to-establishing-work-relationships-through-fb/"><u>Unlock Potential: Secrets to Establishing Work Relationships Through FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-facebooks-claim-of-continued-vitality/"><u>Unpacking Facebook's Claim of Continued Vitality</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-computer-newest-targus-displaylink-drivers-for-windows-operating-systems/"><u>Update Your Computer: Newest Targus DisplayLink Drivers for Windows Operating Systems</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-get-radiant-skin-in-fcpx-no-plugins-required/"><u>Updated 2024 Approved Get Radiant Skin in FCPX No Plugins Required</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ways-to-restrict-your-airpods-from-linking-with-multiple-apple-products/"><u>Ways to Restrict Your AirPods From Linking With Multiple Apple Products</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-viewed-by-these-specific-fb-ads/"><u>Why Am I Viewed By These Specific FB Ads?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-anticipate-a-crypto-fueled-ad-wave/"><u>Why Anticipate a Crypto-Fueled Ad Wave?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-instagram-wants-you-to-take-a-break-from-social-media/"><u>Why Instagram Wants You to Take a Break From Social Media</u></a></li>
+</ul></div>
 
 
 

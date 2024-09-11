@@ -1,7 +1,7 @@
 ---
 title: "Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'"
-date: 2024-09-05T09:37:12.516Z
-updated: 2024-09-06T09:37:12.516Z
+date: 2024-09-10T14:50:07.167Z
+updated: 2024-09-11T14:50:07.167Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,30 @@ keywords: Mark Zuckerberg and Blockchain Technology,Facebook CEO on Innovative P
 thumbnail: https://thmb.techidaily.com/7b4c05e427ef93175f84d0a703341dbe0517d72f4c6891c8d31a4e5e36657912.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'
 
  Mark Zuckerberg took to Facebook on Monday to share a photo of his goats. While one has the decidedly standard name Max, the other takes its name from the largest cryptocurrency: Bitcoin.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Introducing Max and Bitcoin: Zuckerberg's Goat Pals
 
  In his[Facebook post](https://www.facebook.com/zuck/posts/10112954515429031) , Zuckerberg shared a picture of his two goats called Max and Bitcoin.

@@ -1,7 +1,7 @@
 ---
 title: Meta's Controversial Move to Disrupt Facebook/Instagram in Europe
-date: 2024-09-05T09:40:21.649Z
-updated: 2024-09-06T09:40:21.649Z
+date: 2024-09-10T14:50:04.803Z
+updated: 2024-09-11T14:50:04.803Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Meta vs Facebook/Instagram EU,Meta Disruption in Social Media,Meta Eur
 thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc8ca952932303c5e2c53ba39.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Meta's Controversial Move to Disrupt Facebook/Instagram in Europe
 
  Facebook and Instagram's parent company, Meta, is threatening to shut down its European operations if EU regulators don't allow the company to share personal user data back to the United States. The SEC filing relates to a key European Union Court of Justice ruling, Shrems II, that declared the longstanding EU/US data-sharing tool, Privacy Shield, no longer legal.
@@ -27,12 +21,20 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
 So, is Meta about to pull Facebook and Instagram out of Europe?
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Why Is Meta Threatening to Pull Facebook and Instagram From Europe?
 
  In the full[SEC filing](https://d18rn0p25nwr6d.cloudfront.net/CIK-0001326801/14039b47-2e2f-4054-9dc5-71bcc7cf01ce.pdf) , Meta explains that the recent changes to Privacy Shield will fundamentally alter their business model, making it impossible to offer existing "products and services" to its European users.
@@ -41,12 +43,20 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -57,12 +67,20 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Will Meta Pull Facebook and Instagram?
 
  Most industry experts believe Meta's statement is an empty threat. European Union regulators have been working with their US counterparts in an attempt to shape a new deal for months. It's just that it hasn't yet crossed the line and as Meta's stock price and company value takes a beating elsewhere, shifting the focus is a useful distraction for the social media giant.

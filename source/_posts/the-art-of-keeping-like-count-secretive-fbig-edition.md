@@ -1,7 +1,7 @@
 ---
 title: "The Art of Keeping Like Count Secretive: FB/IG Edition"
-date: 2024-09-05T09:33:12.941Z
-updated: 2024-09-06T09:33:12.941Z
+date: 2024-09-10T14:50:10.660Z
+updated: 2024-09-11T14:50:10.660Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,24 @@ keywords: Hide Social Media Likes,Secretive Shareholder Metrics,Stealthy Post En
 thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524efb6bb31d25ddff4661a97e.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Art of Keeping Like Count Secretive: FB/IG Edition
 
  Facebook has announced that it is giving users the ability to hide public like counts on Instagram and Facebook. Likes will be visible by default, but you can now opt out of seeing them.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Instagram and Facebook Finally Remove Likes
 
  As announced on the[Facebook Newsroom](https://about.fb.com/news/2021/05/giving-people-more-control/) , you can now hide likes on Facebook and Instagram.
@@ -37,12 +39,20 @@ thumbnail: https://thmb.techidaily.com/7a63e0844da70bd2c7ec7a4a482b4a25c9f48b524
 
 ![instagram hide likes](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/instagram-hide-likes.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Image Credit:[Facebook](https://about.fb.com/news/2021/05/giving-people-more-control/)
 
  From today on Instagram, you can hide like counts on all posts in your feed. You can also hide like counts on your own posts so that others can't see the count, regardless of their own feed's setting.

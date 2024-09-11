@@ -1,7 +1,7 @@
 ---
 title: "Top 6 Benefits: Cutting Ties with Facebook for a Better Life"
-date: 2024-07-12T10:23:51.166Z
-updated: 2024-07-13T10:23:51.166Z
+date: 2024-09-10T14:45:27.217Z
+updated: 2024-09-11T14:45:27.217Z
 tags:
   - facebook
 categories:
@@ -21,8 +21,42 @@ thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2
 
  Yes, and here are some reasons you shouldn't use Facebook anymore.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 1\. Facebook Tracks You Around the Web
 ![facebook logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-logo-on-phone-screen.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Yes, there are lots of problems with Facebook's usability; we'll come to them shortly. However, perhaps the most worrisome of all issues is the way [Facebook tracks you around the web](https://www.makeuseof.com/tag/facebook-tracking-stop/) .
 
@@ -31,6 +65,20 @@ thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2
  But Facebook also tracks you when you're not using the site. Worse still, you don't even need a Facebook account—the company will still track you. And it has been behind more than one data leak with severe consequences.
 
  It's more than likely that there isn't a single person who hasn't heard of the Facebook–Cambridge Analytica data scandal that occurred in 2018 and led to an utter privacy mess. But sadly, that's not the only data leak scandal. Several have followed that one,[along with many investigations](https://www.makeuseof.com/ireland-launches-investigation-facebook-massive-data-leak/) and fines, yet it doesn't appear that Facebook's users can feel safe.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 2\. Human Experimentation
 
@@ -46,6 +94,26 @@ Bottom line: Facebook sees you as a lab rat.
 
 ## 3\. Fake News
 ![man baffled at laptop screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/man-baffled-at-laptop-screen.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  The catchphrase ‘‘fake news’’ may have only cemented itself as part of the daily vocabulary fairly recently, but the concept of deliberately feeding people misinformation is as old as human civilization itself.
 
@@ -72,11 +140,45 @@ Bottom line: Facebook sees you as a lab rat.
 ## 5\. Facebook Has Forgotten Its Roots
 ![facebook open on laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/facebook-open-on-laptop.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  When Facebook first burst onto the scene, it was revolutionary. Sure, sites like MySpace had enjoyed some previous success, but Facebook was the first network that was truly fit for widespread use.
 
  And we loved it. Our newsfeeds were full of photos and updates from close friends.
 
  But as time has passed, the newsfeed became more and more diluted.[Excessively large friend networks](https://www.makeuseof.com/tag/5-reasons-start-deleting-facebook-friends/) and a deluge of posts from advertisers, pages you Liked years ago, and "news" organizations meant the network lost its original charm.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 6\. What Even Is Facebook Anymore?
 
@@ -111,6 +213,68 @@ Bottom line: Facebook sees you as a lab rat.
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-micro-videos-whats-the-gist/"><u>[New] Micro Videos What's the Gist?</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snappy-business-ideas-for-profit-for-2024/"><u>[New] Snappy Business Ideas for Profit for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-unlocking-screen-record-features-in-hp-computers-for-2024/"><u>[New] Unlocking Screen Record Features in HP Computers for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-become-a-lunapic-wizard-top-editorial-techniques/"><u>[Updated] In 2024, Become a LunaPic Wizard Top Editorial Techniques</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-night-of-the-living-dead-games-an-epic-selection/"><u>[Updated] In 2024, Night of the Living Dead Games An Epic Selection</u></a></li>
+<li><a href="https://fox-that.techidaily.com/conquer-common-iphone-photography-glitches-with-these-8-easy-fixes-and-tips-for-camera-roll-troubleshooting/"><u>Conquer Common iPhone Photography Glitches with These 8 Easy Fixes and Tips for Camera Roll Troubleshooting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/elite-25-instagram-personalities-worth-following/"><u>Elite 25 Instagram Personalities Worth Following</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-respectful-communication-before-exiting-groups/"><u>Ensuring Respectful Communication Before Exiting Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-invisibility-in-digital-chat-services/"><u>Exploring Invisibility in Digital Chat Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-naming-updates-emerging-details-revealed/"><u>Facebook Naming Updates: Emerging Details Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/get-more-from-verizon-save-on-streaming-services-with-the-new-myhome-internet-deal/"><u>Get More From Verizon: Save on Streaming Services with the New MyHome Internet Deal!</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-discussion-trails-how-to-block-responses-on-fb/"><u>Hide Discussion Trails: How to Block Responses on FB</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-download-the-most-recent-hp-printer-driver-for-your-laserjet-p1007/"><u>How to Download the Most Recent HP Printer Driver for Your LaserJet P1007</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-cutting-edge-techniques-for-game-capture-specialists/"><u>In 2024, Cutting-Edge Techniques for Game Capture Specialists</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-xiaomi-redmi-13c-5g-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Xiaomi Redmi 13C 5G Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insiders-guide-facebook-privacy-lines/"><u>Insider's Guide: Facebook Privacy Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-evolution-understanding-the-metaverses-role/"><u>Interactive Evolution: Understanding the Metaverse's Role</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-data-safe-a-guide-to-privacy-controls-in-fb/"><u>Keep Your Data Safe: A Guide to Privacy Controls in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-technology-for-automatic-image-captions-on-fb/"><u>Leveraging Technology for Automatic Image Captions on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-social-media-impact-with-these-5-cost-effective-fb-strategies/"><u>Maximize Social Media Impact with These 5 Cost-Effective FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-validation-for-us-members-commences/"><u>Meta's Validation for U.S. Members Commences</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-and-vr-clashing-titans-identifying-6-pivotal-variances/"><u>Metaverse & VR Clashing Titans: Identifying 6 Pivotal Variances</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-the-ultimate-list-of-3d-video-makers-free-paid-and-in-between/"><u>New In 2024, The Ultimate List of 3D Video Makers Free, Paid, and In-Between</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-technology-moments-heres-what-you-missed-out/"><u>Overlooked Technology Moments, Here's What You Missed Out!</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-precise-online-marketing-efforts-effectively/"><u>Reduce Precise Online Marketing Efforts Effectively</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-digital-footprint-in-the-age-of-fb/"><u>Safeguard Your Digital Footprint in the Age of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-cutting-down-on-social-media-noise/"><u>Selective Engagement: Cutting Down on Social Media Noise</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-delete-the-strategy-for-your-farewell-on-facebook/"><u>Silent Delete: The Strategy for Your Farewell on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/stimulate-online-discourse-strategic-pages-surveys/"><u>Stimulate Online Discourse: Strategic Pages Surveys</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-planning-for-consistent-facebook-engagement-growth/"><u>Strategic Planning for Consistent Facebook Engagement Growth</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-artful-exit-removing-a-page-with-minimal-fuss-and-notice/"><u>The Artful Exit: Removing a Page with Minimal Fuss and Notice</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-era-of-intel-graphics-making-them-a-priority-in-tech-discussions/"><u>The Era of Intel Graphics: Making Them a Priority in Tech Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-of-alt-tags-in-digital-image-sharing/"><u>The Importance of Alt Tags in Digital Image Sharing</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-overwatch-insights-competitive-and-teamwork-focused-third-person-combat/"><u>Top Overwatch Insights: Competitive and Teamwork Focused Third-Person Combat</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebook-help-center-features/"><u>Understanding Facebook Help Center Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-facebooks-wealth-5-smart-approaches/"><u>Unlocking Facebook's Wealth: 5 Smart Approaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-virtual-audience-numbers/"><u>Unveiling Virtual Audience Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/waiting-game-facebooks-board-takes-time-to-decide/"><u>Waiting Game: Facebook's Board Takes Time to Decide</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-vaguebooking-a-definition-and-examples-of-this-attention-seeking-phenomenon/"><u>What Is Vaguebooking? A Definition and Examples of This Attention Seeking Phenomenon</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-fb-insta-inactivity-a-six-hour-hiccup/"><u>WhatsApp, FB, Insta Inactivity: A Six-Hour Hiccup</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
+</ul></div>
 
 
 

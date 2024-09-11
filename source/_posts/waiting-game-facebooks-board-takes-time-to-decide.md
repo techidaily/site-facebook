@@ -1,7 +1,7 @@
 ---
 title: "Waiting Game: Facebook's Board Takes Time to Decide"
-date: 2024-09-05T09:36:22.644Z
-updated: 2024-09-06T09:36:22.644Z
+date: 2024-09-10T14:50:08.276Z
+updated: 2024-09-11T14:50:08.276Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,24 @@ keywords: Facebook Board Decision Process,Social Media Company Leadership Delibe
 thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c8dd3de60bc0fcf279454931.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Waiting Game: Facebook's Board Takes Time to Decide
 
  Facebook's Oversight Board is still mulling over the fate of Donald Trump's accounts on Facebook and Instagram. Although a ruling was expected in a matter of days, the Oversight Board now says that it will reach a final decision "in the coming weeks."
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The Oversight Board Weighs the Status of Trump's Accounts
 
  After the Capitol riots in January,[Facebook banned Trump from Facebook and Instagram indefinitely](https://www.makeuseof.com/facebook-instagram-indefinitely-ban-trumps-account/) . But making the decision to permanently ban Trump is much too significant for Facebook to decide on its own, so Facebook determined that it needed another set of eyes to examine the situation.
@@ -43,12 +45,20 @@ thumbnail: https://thmb.techidaily.com/48dc7fa7b04b0f7445d8755963cdda5ac93794a2c
 
  The Oversight Board was only introduced in December 2020, but it has already ruled on a number of cases. The permanent suspension of Trump's accounts is arguably the biggest decision the Oversight Board has had to make so far, so it only makes sense that it's delaying the final ruling.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Will the Oversight Board Choose to Ban Trump?
 
  Once the Oversight Board reaches a resolution, Facebook—and even Mark Zuckerberg himself—won't be able to overrule the Board's decision. The Board's decision will be binding, which means that Facebook will be forced to accept the change.

@@ -1,7 +1,7 @@
 ---
 title: Decoding the Algorithm Behind PhotoDNA Technology
-date: 2024-07-12T10:23:11.371Z
-updated: 2024-07-13T10:23:11.371Z
+date: 2024-09-10T14:44:42.157Z
+updated: 2024-09-11T14:44:42.157Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,26 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -32,6 +52,20 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
  Although not the only service to search for known CSAM, PhotoDNA is one of the most common methods, including many digital services like Reddit, Twitter, and most Google-owned products.
 
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How Does PhotoDNA Work?
 
@@ -51,6 +85,20 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -63,15 +111,63 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
  This will likely be a lot higher now as more people have joined the service, the company operates multiple networks (including Instagram and WhatsApp), and we have easier access to smartphone cameras and reliable internet. Given its role in society, Facebook must reduce and remove CSAM and other illegal material.
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -96,6 +192,63 @@ thumbnail: https://thmb.techidaily.com/50f9025d1cd24e51aee5d683c09c648b774d15c54
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-assessing-the-apex-of-video-recording-is-it-splitcam/"><u>[New] 2024 Approved Assessing the Apex of Video Recording Is It SplitCam?</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-finest-webcam-tech-for-next-gen-windows-11-users-for-2024/"><u>[New] The Finest Webcam Tech for Next-Gen Windows 11 Users for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-exploring-methods-for-rapid-tiktok-editing-for-2024/"><u>[Updated] Exploring Methods for Rapid TikTok Editing for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-pivoting-pictures-a-how-to-on-flipping-videos-for-viral-engagement/"><u>[Updated] In 2024, Pivoting Pictures A How-To on Flipping Videos for Viral Engagement</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-how-to-record-iptv-screen/"><u>2024 Approved How to Record IPTV Screen</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/3-ways-to-export-contacts-from-apple-iphone-6s-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>3 Ways to Export Contacts from Apple iPhone 6s to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/achieving-video-greatness-on-tiktok-with-smart-use-of-pre-made-templates/"><u>Achieving Video Greatness on TikTok with Smart Use of Pre-Made Templates</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/apeman-c450-dashcam-review/"><u>Apeman C450 Dashcam Review</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dynamic-head-motion-causes-earsplitting-noises-in-airpods-disable-for-silence/"><u>Dynamic Head Motion Causes Earsplitting Noises in AirPods - Disable for Silence</u></a></li>
+<li><a href="https://fox-that.techidaily.com/elevating-your-smartphone-photography-despite-having-a-lower-megapixel-iphone-camera/"><u>Elevating Your Smartphone Photography Despite Having a Lower Megapixel iPhone Camera</u></a></li>
+<li><a href="https://facebook.techidaily.com/ethical-approaches-to-extracting-hidden-content-on-facebook/"><u>Ethical Approaches to Extracting Hidden Content on Facebook</u></a></li>
+<li><a href="https://win-answers.techidaily.com/evil-genius-2-audio-issues-resolved-restoring-sounds/"><u>Evil Genius 2 Audio Issues Resolved: Restoring Sounds</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-picture-content-on-social-media/"><u>Explaining Picture Content on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-independent-messaging-services-not-fb/"><u>Exploring Independent Messaging Services, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-safety-identifying-and-evading-scams/"><u>FB Safety: Identifying and Evading Scams</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-user-growth-peaked-in-the-social-media-sphere/"><u>Has User Growth Peaked in the Social Media Sphere?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-social-networks-make-money-explained/"><u>How Do Social Networks Make Money? Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/"><u>How to Create Amazing Facebook Cover Pictures for Your Timeline</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-8-plus-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 8 Plus To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-xiaomi-14-pro-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Xiaomi 14 Pro Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-best-motorola-defy-2-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Motorola Defy 2 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-focus-zooming-in-msteams/"><u>In 2024, Maximizing Focus Zooming In MSTEAMS</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-joining-facebooks-community-hubs/"><u>In-Depth Look: Joining Facebook's Community Hubs</u></a></li>
+<li><a href="https://fox-that.techidaily.com/master-the-art-of-stabilizing-your-iphone-apps-10-proven-fixes-for-common-crashes/"><u>Master the Art of Stabilizing Your iPhone Apps: 10 Proven Fixes for Common Crashes</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-in-2024-narakeet-review-text-to-speech-convenient-voice-maker/"><u>New In 2024, Narakeet Review Text to Speech Convenient Voice Maker</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-online-image-content-via-alt-text-techniques/"><u>Optimizing Online Image Content via Alt Text Techniques</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/pitch-perfect-proficiency-music-as-a-language-learning-aid/"><u>Pitch-Perfect Proficiency: Music as a Language Learning Aid</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscovering-real-connections-post-fb-exit/"><u>Rediscovering Real Connections Post FB Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-riches-understanding-metas-monetary-mechanisms-for-artists/"><u>Reel Riches: Understanding Meta’s Monetary Mechanisms for Artists</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-recent-calls-back-from-tecno-spark-20-pro-by-fonelab-android-recover-call-logs/"><u>Simple ways to get recent calls back from Tecno Spark 20 Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-and-technical-synergy-facebook-supports-rusts-ascendance/"><u>Social and Technical Synergy: Facebook Supports Rust's Ascendance</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sabbaticals-why-theyre-vital-for-well-being/"><u>Social Media Sabbaticals: Why They're Vital for Well-Being</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-out-of-whatsapps-updated-policy-no-consequences/"><u>Staying Out of WhatsApp's Updated Policy, No Consequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-the-payout-of-facebooks-class-action-lawsuit/"><u>Tapping Into the Payout of Facebook's Class Action Lawsuit</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-keeping-like-count-secretive-fbig-edition/"><u>The Art of Keeping Like Count Secretive: FB/IG Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balance-of-comedy-and-courtesy-online/"><u>The Balance of Comedy and Courtesy Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-dislikes-on-digital-platforms/"><u>The Case for Dislikes on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-path-to-backing-up-fb-photos-and-vids/"><u>The Easy Path to Backing Up FB Photos & Vids</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/this-article-introduce-tips-on-how-to-stream-local-video-to-chromecast-from-windowsmacandroidios-for-2024/"><u>This Article Introduce Tips on How to Stream Local Video to Chromecast From Windows/Mac/Android/iOS for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-lava-blaze-2-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Lava Blaze 2 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-security-features-on-facebook-with-2fa-and-mcg/"><u>Unlocking Security Features on Facebook with 2FA and MCG</u></a></li>
+<li><a href="https://facebook.techidaily.com/watch-for-verdict-facebook-board-to-decide-on-presidential-block/"><u>Watch For Verdict: Facebook Board to Decide on Presidential Block</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-viewed-with-these-certain-facebook-promotions/"><u>Why Am I Viewed with These Certain Facebook Promotions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-did-my-facebook-profile-vanish-top-reasons/"><u>Why Did My Facebook Profile Vanish? Top Reasons</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-sanctuary-shun-these-3-privacy-breachers/"><u>Your Digital Sanctuary: Shun These 3 Privacy Breachers</u></a></li>
+</ul></div>
 
 
 

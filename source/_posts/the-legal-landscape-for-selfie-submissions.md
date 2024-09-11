@@ -1,7 +1,7 @@
 ---
 title: The Legal Landscape for Selfie Submissions
-date: 2024-09-05T09:37:22.903Z
-updated: 2024-09-06T09:37:22.903Z
+date: 2024-09-10T14:50:07.032Z
+updated: 2024-09-11T14:50:07.032Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,10 @@ keywords: Selfies Legal Guide,Selfie Law Essentials,Submission Policy Guide,Lega
 thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea34aa4ab5faa41249fabd55a.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Legal Landscape for Selfie Submissions
 
  When you upload a photo or video online, it's natural not to think about where that photo is going, and who now has their hands on it. It takes mere seconds to upload media online, and millions of people do so every day, but who really has authority over this content? Who actually owns the photos and videos you upload online?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Where Are Your Online Pictures Stored?
 
  There are many websites and apps that may need to store your photos, including those specializing in:
@@ -50,17 +38,39 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
 ![digital graphic of three storage servers on a white background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/data-hardware-1.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  But it's not just social media you need to consider here. There are many other platforms that handle your photos and videos, including cloud storage services like Google Drive. Cloud storage services typically store your data on remote servers in data centers, too.
 
  Dropbox, for instance, houses data in secure storage servers, which are located in the US, UK, Japan, EU, and Australia. So, it's evident that secure servers are the most common practice for user data storage, be it by social media platforms or cloud storage services.
 
  So, once these photos are uploaded and stored, do you still own them, or does someone else get first dibs?
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Who Owns Your Uploaded Photos and Videos?
 
@@ -74,22 +84,38 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
  But there is another element to be considered here, and that's the use of your photos.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Who Can Use the Photos You Upload?
 
 ![person using instagram on smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/instagram-phone-1.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Even if you own the photos you upload, can websites and apps still use them? Some photographers upload their images for free use on[stock image websites](https://www.makeuseof.com/tag/free-stock-image-sites/) like Pixabay and Unsplash. On such sites, you can use a given image or video in whatever way you'd like without having to credit the creator.
 
  But if you're uploading photos to cloud storage platforms, social media outlets, and similar platforms, you're not usually looking to have your photo used by others.
@@ -97,6 +123,26 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
  Each platform has its own policy on user photo usage, but the general consensus is that your permission is required before another entity can use anything you upload. Instagram, for example, has stated in its[Help Centre](https://help.instagram.com/206875879493855) that, if an[advertiser wants to use your photos](https://www.makeuseof.com/i-saw-my-picture-in-an-ad-now-what/) , it must receive express permission from you. Otherwise, your media is off-limits. However, Facebook has an extra caveat here: if your profile or selected photos are listed as "Public" in your privacy settings, then the platform can use them, i.e. essentially viewing your privacy settings as having your permission.
 
  If you're worried about someone taking your social media photo and using it elsewhere, there are also laws in place for this. If your images or videos are not classified as license free, a person or company needs your permission before using them. If they do not seek your consent, using your content would be a breach of copyright law.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to Keep Your Photos and Videos Safe
 
@@ -108,18 +154,20 @@ thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea
 
  Lastly, it's important to check the storage and privacy policy of the platforms you upload photos to, so that you know how a given company is going to handle your content.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## You Own Uploaded Content if You Created It
 
  In short, the photos and videos you take and upload online belong to you, so long as you do not sell the rights to someone else. If anyone claims to own your content or uses it without your permission, this is very likely a copyright infringement. So: the photos and videos you upload online are yours and yours only!

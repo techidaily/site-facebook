@@ -1,7 +1,7 @@
 ---
 title: Pause Triggered by Exofficio Board on Suspension Case
-date: 2024-09-05T09:36:48.580Z
-updated: 2024-09-06T09:36:48.580Z
+date: 2024-09-10T14:50:07.631Z
+updated: 2024-09-11T14:50:07.631Z
 tags:
   - facebook
 categories:
@@ -13,28 +13,24 @@ keywords: Exofficio Legal Cases,Suspended Boards in Court,Board Suspension Outco
 thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa53e5f00bb7e352c2dad15fc.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Pause Triggered by Exofficio Board on Suspension Case
 
  Facebook's Oversight Board is still mulling over the fate of Donald Trump's accounts on Facebook and Instagram. Although a ruling was expected in a matter of days, the Oversight Board now says that it will reach a final decision "in the coming weeks."
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The Oversight Board Weighs the Status of Trump's Accounts
 
  After the Capitol riots in January,[Facebook banned Trump from Facebook and Instagram indefinitely](https://www.makeuseof.com/facebook-instagram-indefinitely-ban-trumps-account/) . But making the decision to permanently ban Trump is much too significant for Facebook to decide on its own, so Facebook determined that it needed another set of eyes to examine the situation.
@@ -49,12 +45,20 @@ thumbnail: https://thmb.techidaily.com/e763646df56241e163aeceaafcbcf01e71b694cfa
 
  The Oversight Board was only introduced in December 2020, but it has already ruled on a number of cases. The permanent suspension of Trump's accounts is arguably the biggest decision the Oversight Board has had to make so far, so it only makes sense that it's delaying the final ruling.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Will the Oversight Board Choose to Ban Trump?
 
  Once the Oversight Board reaches a resolution, Facebook—and even Mark Zuckerberg himself—won't be able to overrule the Board's decision. The Board's decision will be binding, which means that Facebook will be forced to accept the change.

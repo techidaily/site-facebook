@@ -1,7 +1,7 @@
 ---
 title: "Selective Engagement: Cutting Down on Social Media Noise"
-date: 2024-09-05T09:36:21.367Z
-updated: 2024-09-06T09:36:21.367Z
+date: 2024-09-10T14:50:08.292Z
+updated: 2024-09-11T14:50:08.292Z
 tags:
   - facebook
 categories:
@@ -23,18 +23,20 @@ thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2
 
 [Facebook's "Suggested for You" content](https://www.makeuseof.com/facebook-suggested-for-you-explained/) and other suggestions are directly influenced by the type of pages you follow. Therefore, it is imperative to keep the list of liked pages clean. The Facebook website offers four main ways to unfollow a page. Some are convenient for unfollowing a single page, while others are helpful for unfollowing pages in bulk.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 1\. Unfollow a Facebook Page From Your News Feed
 
  The quickest way to unfollow a Facebook page is directly from your news feed. When you see a post from a page you no longer want to receive updates from, this method comes in handy.
@@ -43,12 +45,20 @@ thumbnail: https://thmb.techidaily.com/b35a9a46671dd373ee6fb76f2e7c8c289a52fdab2
 
 ![Unfollowing a Facebook Page From a Post in the News Feed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/1-unfollowing-a-facebook-page-from-a-post-in-the-news-feed.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 2\. Unfollow a Facebook Page Directly From the Page
 
  Unfollowing a page directly from the page itself is another option you have at your disposal. This method is suitable if you know the page's name and want to unfollow it directly.
@@ -63,24 +73,54 @@ Here's how to unfollow a Facebook page using this method:
 
 ![Unfollowing a Facebook Page From the Follow Settings Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/2-unfollowing-a-facebook-page-from-the-follow-settings-window.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 3\. Unfollow Facebook Pages From the Pages Tab
 
  If you want to unfollow multiple pages simultaneously, unfollowing them from the Pages tab is a great option. To unfollow Facebook pages in bulk: first select the**Pages** tab on the left. If you don't see it, expand the**See More** menu and select the**Pages** tab.
 
 ![Opening the Pages Tab From the Facebook Homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/3-opening-the-pages-tab-in-the-facebook-homepage-tab.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Now:
 
 1. Navigate to**Liked Pages** on the left.
@@ -91,24 +131,40 @@ Now:
 
 ![Opening the Follow Settings window for a page from the Liked Pages tab](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/4-opening-the-follow-settings-window-for-a-page-in-the-liked-pages-window.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  From there, turn on the toggle next to**Unfollow this page** and click the**Update** button to unfollow the page successfully.
 
 ![Unfollowing a Facebook Page From the Follow Settings Window on Facbeook Website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/unfollowing-a-facebook-page-from-the-follow-settings-window-on-facbeook-website.jpg)
 
 Follow the same procedure for all the pages you want to unfollow.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 4\. Unfollow Facebook Pages From Your Feed Preferences
 
  This method also allows you to unfollow pages in bulk to[clean up your Facebook account](https://www.makeuseof.com/ways-to-clean-up-facebook-account/) . However, compared to the above, unfollowing several pages at once is faster with this method. Follow these steps to unfollow pages using this method: first, click your**profile icon** in the top right corner. Go to**Settings and Privacy** and select**Feed** to open the**Manage Your Feed** window.
@@ -123,18 +179,6 @@ Follow the same procedure for all the pages you want to unfollow.
 
 ![Unfollowing Pages in Bulk From the Unfollow Window in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/8-unfollowing-pages-in-bulk-from-the-unfollow-window-in-the-manage-your-feed-window.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Unfollow Facebook Pages From the Mobile App
 
  Similar to the Facebook website, unfollowing a page from Facebook's mobile app is also straightforward. There are four ways to unfollow a Facebook page from your phone, all of which work the same for Android and iOS devices.

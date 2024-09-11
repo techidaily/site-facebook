@@ -1,7 +1,7 @@
 ---
 title: Understanding Your Facebook Relationship Trail
-date: 2024-09-05T09:38:37.019Z
-updated: 2024-09-06T09:38:37.019Z
+date: 2024-09-10T14:50:06.106Z
+updated: 2024-09-11T14:50:06.106Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,26 @@ keywords: Facebook Relationship Insights,Analyze Social Media Connections,Unveil
 thumbnail: https://thmb.techidaily.com/c6507ef1a8c1967e04b9a71ecc3df4d6b245a64121c79bffee638bab85472f90.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Understanding Your Facebook Relationship Trail
 
  Facebook allows you to connect with people from all over the world. When you are connected with someone, you can like and comment on the posts they publish, and vice versa.
 
  Throughout your time on Facebook, it is likely you've interacted with particular people a lot. Did you know that you can view your relationship history with a Facebook friend? If not, then read on.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## How to See Friendship With Your Facebook Friends
 
  It used to be that you'd have to manually find your friendship history with a friend by adding their profile username to your web address using "facebook.com/your-username/friend-username".
@@ -45,12 +47,20 @@ But that's more time-consuming than necessary.
 
 ![A Facebook user profile page with the See Friendship button highlighted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/facebook-see-friendship.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  You should now be taken to the friendship history page for you and your Facebook friend.
 
  On the friendship history page, you'll be able to see your and your friend's**Things In Common** , such as**Pages** you've both liked,**Interests** you both have, or**Groups** you both are members of. It will also tell you how long you've been Facebook friends.
@@ -59,26 +69,36 @@ But that's more time-consuming than necessary.
 
 ![The Facebook friendship history page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/facebook-friendship-history.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
- It's a cool way to see how Facebook has been a part of your friendship, and can lead to some authentic positive reminiscence to your day. If you like the idea of looking back on your friendship history, you'll probably enjoy knowing[how to see every like, post, and comment you've made on Facebook](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) .
+
+
+
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+ It's a cool way to see how Facebook has been a part of your friendship, and can lead to some authentic positive reminiscence to your day. If you like the idea of looking back on your friendship history, you'll probably enjoy knowing[how to see every like, post, and comment you've made on Facebook](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) .
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Share the Memories With Your Facebook Friends
 
  Being able to see a feed dedicated to you and a particular Facebook friend is a pretty nifty feature and one that seems to be a positive use of social media. But why simply stop at checking out your friendship history? Share it with them!

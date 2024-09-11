@@ -1,7 +1,7 @@
 ---
 title: "PhotoDNA Explained: A Tool for Digital Forensics"
-date: 2024-07-12T10:25:42.048Z
-updated: 2024-07-13T10:25:42.048Z
+date: 2024-09-10T14:42:39.671Z
+updated: 2024-09-11T14:42:39.671Z
 tags:
   - facebook
 categories:
@@ -21,6 +21,20 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  However, a technology co-developed by Microsoft called PhotoDNA is a step towards creating a safer online space for kids and adults alike.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## What Is PhotoDNA?
 
  PhotoDNA is an image-identification tool, first developed in 2009\. Although primarily a Microsoft-backed service, it was co-developed by Professor Hany Farid of Dartmouth College, an expert in digital photo analysis. The purpose of PhotoDNA is to identify illegal images, including Child Sexual Abuse Material, commonly known as CSAM.
@@ -32,6 +46,20 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
  Although not the only service to search for known CSAM, PhotoDNA is one of the most common methods, including many digital services like Reddit, Twitter, and most Google-owned products.
 
  PhotoDNA had to be physically set up on-premise in the early days, but Microsoft now operates the cloud-based PhotoDNA Cloud service. This allows smaller organizations without a vast infrastructure to undertake CSAM detection.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How Does PhotoDNA Work?
 
@@ -51,6 +79,20 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -63,15 +105,57 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
  This will likely be a lot higher now as more people have joined the service, the company operates multiple networks (including Instagram and WhatsApp), and we have easier access to smartphone cameras and reliable internet. Given its role in society, Facebook must reduce and remove CSAM and other illegal material.
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -96,6 +180,50 @@ thumbnail: https://thmb.techidaily.com/04447bf719b4926e422f9096bc950555ee7a86c16
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-best-7-high-motion-dslrs-for-dynamic-live-content-creation/"><u>[New] 2024 Approved Best 7 High-Motion DSLRs for Dynamic Live Content Creation</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-secrets-unlocked-becoming-a-leader-in-online-social-media-live-events/"><u>[New] 2024 Approved Secrets Unlocked Becoming a Leader in Online Social Media Live Events</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-connected-healing-telemedicine-evolved-for-2024/"><u>[New] Connected Healing Telemedicine Evolved for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-tripping-up-avoid-common-tripod-mistakes-in-vlogging/"><u>[New] In 2024, Tripping Up? Avoid Common Tripod Mistakes in Vlogging</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-step-by-step-recording-slideshow-via-webcam/"><u>[New] Step-by-Step Recording Slideshow via Webcam</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-achieving-excellence-with-central-luts-for-films/"><u>[Updated] Achieving Excellence with Central Luts for Films</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-transition-made-easy-the-8-best-convertors-for-subtitles-and-srts-for-2024/"><u>[Updated] Transition Made Easy The 8 Best Convertors for Subtitles & SRTs for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/9-proven-methods-for-fixing-airpods-that-wont-charge-any-longer/"><u>9 Proven Methods for Fixing AirPods That Won't Charge Any Longer</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-top-sportsmen-reject-cyber-abuse-on-digital-networks/"><u>England's Top Sportsmen Reject Cyber Abuse on Digital Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-respectful-communication-before-exiting-groups/"><u>Ensuring Respectful Communication Before Exiting Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-new-gesture-based-interface/"><u>Examining Facebook's New Gesture-Based Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-invisibility-in-digital-chat-services/"><u>Exploring Invisibility in Digital Chat Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
+<li><a href="https://facebook.techidaily.com/hide-discussion-trails-how-to-block-responses-on-fb/"><u>Hide Discussion Trails: How to Block Responses on FB</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-essential-gopro-video-editors-for-pros/"><u>In 2024, Essential GoPro Video Editors for Pros</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-data-safe-a-guide-to-privacy-controls-in-fb/"><u>Keep Your Data Safe: A Guide to Privacy Controls in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-triad-the-social-titans-among-us/"><u>Meta’s Triad: The Social Titans Among Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-validation-for-us-members-commences/"><u>Meta's Validation for U.S. Members Commences</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-technology-moments-heres-what-you-missed-out/"><u>Overlooked Technology Moments, Here's What You Missed Out!</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-the-way-you-connect-and-navigate-on-facebook/"><u>Revolutionizing The Way You Connect & Navigate on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/selective-engagement-cutting-down-on-social-media-noise/"><u>Selective Engagement: Cutting Down on Social Media Noise</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
+<li><a href="https://os-tips.techidaily.com/surprising-features-revealed-discover-the-games-that-excel-on-m1-and-m2-ipads/"><u>Surprising Features Revealed: Discover the Games that Excel on M1 and M2 iPads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-artful-exit-removing-a-page-with-minimal-fuss-and-notice/"><u>The Artful Exit: Removing a Page with Minimal Fuss and Notice</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-importance-of-alt-tags-in-digital-image-sharing/"><u>The Importance of Alt Tags in Digital Image Sharing</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-4-best-no-cost-cad-software-a-comprehensive-guide/"><u>Top 4 Best No-Cost CAD Software: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
+<li><a href="https://facebook.techidaily.com/waiting-game-facebooks-board-takes-time-to-decide/"><u>Waiting Game: Facebook's Board Takes Time to Decide</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-fb-insta-inactivity-a-six-hour-hiccup/"><u>WhatsApp, FB, Insta Inactivity: A Six-Hour Hiccup</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-social-networking-goes-south-the-top-5-times-facebook-failed-its-audience/"><u>When Social Networking Goes South: The Top 5 Times Facebook Failed Its Audience</u></a></li>
+</ul></div>
 
 
 

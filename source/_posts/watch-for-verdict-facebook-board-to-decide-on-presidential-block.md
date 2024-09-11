@@ -1,7 +1,7 @@
 ---
 title: "Watch For Verdict: Facebook Board to Decide on Presidential Block"
-date: 2024-09-05T09:33:09.033Z
-updated: 2024-09-06T09:33:09.033Z
+date: 2024-09-10T14:50:10.704Z
+updated: 2024-09-11T14:50:10.704Z
 tags:
   - facebook
 categories:
@@ -13,22 +13,24 @@ keywords: Facebook Board Decision,Mark Zuckerberg and FB Board's Role in Electio
 thumbnail: https://thmb.techidaily.com/b7ec02702d51d57959e5bd1248adaf8d9c4e1536be03bd52fccab5d6aa482430.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Watch For Verdict: Facebook Board to Decide on Presidential Block
 
  Facebook's Oversight Board will decide the fate of Donald Trump's Facebook and Instagram accounts on May 5, 2021\. After Trump was indefinitely suspended from both platforms, the Oversight Board was called in to make a final decision.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The Oversight Board Rules on Trump's Accounts
 
  Facebook's Oversight Board sent out a Tweet stating that it will officially announce its decision on Trump's ban on May 5 at 9am EST. Upon release, the ruling will be viewable from[the Oversight Board's website](https://www.oversightboard.com/news/) .
@@ -37,12 +39,20 @@ thumbnail: https://thmb.techidaily.com/b7ec02702d51d57959e5bd1248adaf8d9c4e1536b
 
  The decision made by the Oversight Board will be binding, meaning that not even Mark Zuckerberg can overturn it.[The Board's ruling on Trump's accounts was delayed](https://www.makeuseof.com/facebook-oversight-board-delays-decision-trumps-suspension/) in April, as it needed more time to go through the 9,000 comments it received from the public.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Will Trump Ever Return to Facebook and Instagram?
 
  Even if the Oversight Board doesn't ban Trump's accounts, will he really return to Facebook and Instagram? With both platforms constantly removing Trump's posts during his presidency, it's unlikely he'll want to subject himself to each site's set of rules once again.

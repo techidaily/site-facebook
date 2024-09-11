@@ -1,7 +1,7 @@
 ---
 title: Restoring Access After Deleting Your Facebook Login
-date: 2024-07-12T10:23:42.554Z
-updated: 2024-07-13T10:23:42.554Z
+date: 2024-09-10T14:45:18.004Z
+updated: 2024-09-11T14:45:18.004Z
 tags:
   - facebook
 categories:
@@ -16,6 +16,26 @@ thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce52
 ## Restoring Access After Deleting Your Facebook Login
 
  Whether you forgot your password or got hacked, you can still recover your Facebook account. Most of Facebook's automated account recovery options depend on the information you entered and validated when you first set up your account. If you never completed the information or if it's outdated, chances are slim that you'll be able to regain access to your account. But you can use these options to recover your Facebook account.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 1\. Check if You're Still Logged Into Facebook Somewhere
 
@@ -54,7 +74,35 @@ To change your password:
 
 ![Facebook Reset Your Password menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Option 2: Find and Recover Your Account With Contact Details
 
@@ -68,9 +116,37 @@ To change your password:
 
 ![Facebook Reset Your Password With Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-reset-your-password-with-code.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  If all looks well with the contact details that Facebook has on file for you, click**Continue** . Facebook will send you a security code. Retrieve the code from your email or phone (depending on which method you chose), enter it, and rejoice in having recovered your Facebook account.
 
 ![Facebook Enter Security Code menu to recover an account.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Enter-Security-Code.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  At this point, you can set a new password, which we strongly recommend.
 
@@ -80,6 +156,20 @@ To change your password:
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Log Back Into Your Facebook Account
 
  If you managed to regain access to your account, and if you suspect that [your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
@@ -87,6 +177,20 @@ To change your password:
  These are key steps in securing your Facebook account. Be sure to remove any email addresses or phone numbers that are not your own or that you can no longer access.
 
  We strongly recommend that you [enable two-factor authentication on all of your social media accounts](https://www.makeuseof.com/tag/setup-two-factor-authentication-social-accounts/) , so that this won't happen again.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 3\. Use a Device Facebook Will Recognize
 
@@ -98,9 +202,43 @@ To change your password:
 
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Click the**No longer have access to these?** link to start a new recovery process.
 
@@ -109,6 +247,20 @@ To change your password:
  When you click on**Start** , Facebook will ask for a new login email and send you a code to that email address. Enter your email address and click**Get code** .
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
@@ -133,6 +285,20 @@ To change your password:
  Upload a JPEG (photo) of your ID, enter an email address or mobile phone number that is (or was) associated with the Facebook account you wish to recover, then click**Send** to submit the information.
 
 ![Submit an ID to confirm your identity and recover your Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Confirm-Your-Identity-With-Facebook.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  If you no longer have access to any of the email addresses or phone numbers associated with your account, enter one you have access to now. Then email**<security@facebookmail.com>** to explain your situation.
 
@@ -161,6 +327,53 @@ To change your password:
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/learing-up-that-persistent-green-tint-in-youtube-videos-on-mac-for-2024/"><u>[New] Clearing Up that Persistent Green Tint in YouTube Videos on Mac for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-discover-the-leading-free-game-recording-tools-for-2024/"><u>[New] Discover the Leading Free Game Recording Tools for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-accelerate-your-youtube-upload-with-effective-rendering-for-2024/"><u>[New] How to Accelerate Your YouTube Upload with Effective Rendering for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-counteract-vibration-for-clear-captures/"><u>[New] In 2024, Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-innovative-strategies-for-sharing-on-instagram-stories/"><u>[New] Innovative Strategies for Sharing on Instagram Stories</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-quick-video-recorder-download-and-record-video/"><u>[Updated] 2024 Approved Quick Video Recorder Download and Record Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-comprehensive-23-twee-tide-digest/"><u>[Updated] In 2024, The Comprehensive '23 Twee-Tide Digest</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/balancing-ambient-sound-on-windowsos-x-machines/"><u>Balancing Ambient Sound on Windows/OS X Machines</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/elevate-snappy-moments-with-convenient-voice-customization-tips-for-2024/"><u>Elevate Snappy Moments with Convenient Voice Customization Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-online-discourse-analyzing-hashtag-engagement-on-facebook-platform/"><u>Elevating Online Discourse: Analyzing #Hashtag Engagement on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/explaining-picture-content-on-social-media/"><u>Explaining Picture Content on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-independent-messaging-services-not-fb/"><u>Exploring Independent Messaging Services, Not FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-safety-identifying-and-evading-scams/"><u>FB Safety: Identifying and Evading Scams</u></a></li>
+<li><a href="https://win-answers.techidaily.com/final-fix-overcoming-continuous-failures-in-pathfinder-wrath-of-the-righteous/"><u>Final Fix: Overcoming Continuous Failures in 'Pathfinder: Wrath of the Righteous'</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-do-social-networks-make-money-explained/"><u>How Do Social Networks Make Money? Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/"><u>How to Create Amazing Facebook Cover Pictures for Your Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-joining-facebooks-community-hubs/"><u>In-Depth Look: Joining Facebook's Community Hubs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mac-compatible-handbrake-ultimate-tool-for-dvd-ripping-and-video-conversion/"><u>Mac-Compatible HandBrake: Ultimate Tool for DVD Ripping & Video Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ecosystems-role-in-stopping-the-pandemic-pretenses/"><u>Online Ecosystems' Role in Stopping the Pandemic Pretenses</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719172972874-psp-reimagined-iphone-edition-now-available/"><u>PSP Reimagined: IPhone Edition Now Available</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/radiant-spectrum-enhancer/"><u>Radiant Spectrum Enhancer</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscovering-real-connections-post-fb-exit/"><u>Rediscovering Real Connections Post FB Exit</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-and-technical-synergy-facebook-supports-rusts-ascendance/"><u>Social and Technical Synergy: Facebook Supports Rust's Ascendance</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-sabbaticals-why-theyre-vital-for-well-being/"><u>Social Media Sabbaticals: Why They're Vital for Well-Being</u></a></li>
+<li><a href="https://facebook.techidaily.com/staying-out-of-whatsapps-updated-policy-no-consequences/"><u>Staying Out of WhatsApp's Updated Policy, No Consequences</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-the-payout-of-facebooks-class-action-lawsuit/"><u>Tapping Into the Payout of Facebook's Class Action Lawsuit</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-case-for-dislikes-on-digital-platforms/"><u>The Case for Dislikes on Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-easy-path-to-backing-up-fb-photos-and-vids/"><u>The Easy Path to Backing Up FB Photos & Vids</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-3-free-dvd-player-apps-for-windows-11-read-any-disc-without-hassle/"><u>Top 3 Free DVD Player Apps for Windows 11 : Read Any Disc Without Hassle</u></a></li>
+<li><a href="https://facebook.techidaily.com/unity-in-diversity-social-platforms-7-tools-for-togetherness/"><u>Unity in Diversity: Social Platforms' 7 Tools for Togetherness</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-security-features-on-facebook-with-2fa-and-mcg/"><u>Unlocking Security Features on Facebook with 2FA and MCG</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-account-without-access-codes/"><u>Unlocking Your Facebook Account without Access Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-am-i-viewed-with-these-certain-facebook-promotions/"><u>Why Am I Viewed with These Certain Facebook Promotions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-sanctuary-shun-these-3-privacy-breachers/"><u>Your Digital Sanctuary: Shun These 3 Privacy Breachers</u></a></li>
+</ul></div>
 
 
 

@@ -1,7 +1,7 @@
 ---
 title: Maximizing or Minimizing? The Real Story of Expat Facebook Groups
-date: 2024-09-05T09:33:36.388Z
-updated: 2024-09-06T09:33:36.388Z
+date: 2024-09-10T14:50:10.371Z
+updated: 2024-09-11T14:50:10.371Z
 tags:
   - facebook
 categories:
@@ -13,12 +13,6 @@ keywords: Expat Social Networks,Global Expats Grouping,Cross-Cultural Friendship
 thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce6dfc7f79cdd9561a56a5238.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Maximizing or Minimizing? The Real Story of Expat Facebook Groups
 
  You may or may not be aware that Facebook has groups all over the world that have been set up by expats, for expats. There are groups based in nearly every capital city where expats have relocated. They're dedicated to offering all types of advice for people living abroad.
@@ -29,59 +23,91 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 ![Three people holding their phones in a park and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6146931.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
- If you've just arrived in a new city, a group dedicated to expats could be just the thing you need to get acquainted with your new city. When you join one, you'll be able to post and ask questions about anything that interests you. There are lots of good points about expat groups on Facebook, some of which are:
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+ If you've just arrived in a new city, a group dedicated to expats could be just the thing you need to get acquainted with your new city. When you join one, you'll be able to post and ask questions about anything that interests you. There are lots of good points about expat groups on Facebook, some of which are:
+
 ### 1\. You Get Useful Information About the City
 
  An expat group on Facebook usually provides useful information about the city you've arrived in. Many expats have their own stories to share and are willing to help other fellow expats.
 
  You may have questions about the law, housing, prices, and the best restaurants to eat at. Most expat groups have a lot of members, especially if they are based in a capital city, so when you ask a question, you'll likely get a lot of answers.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. Upcoming Events
 
  When you come to a new town, there are likely a lot of events happening around you, but you may not be aware of them. Some expats like to share news about what is happening in their neighborhood, information about concerts, job-seeker fairs, galleries that have opened, and even farmers' markets. This could be a fun way to get acquainted with your new neighborhood.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 3\. You Become More Aware of Dangers
 
  Many expat groups share information about potential dangers and malicious activities in their town. Many also share information about scams. For example, they might share information about criminals on the loose, robbers, or potential threats in the neighborhood. Because these groups are large, sharing useful information on them can help others become aware of what is out there.
 
 ![Three women gathered around a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-alexander-suhorucov-6457552.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 4\. You Might Get Crisis Advice
 
  Most of the time, people use expat groups to ask for advice. Expats like to share their experiences and offer recommendations, such as where people can get access to lawyers, where to find a locksmith, or how to file a police report.
 
  If you join an expat group, you can expect to get information about the law, government policies, what to do in times of crisis, and your rights when something bad happens. You will also be able to ask questions about visas, the types of documents you need for applying for housing for example, and other information that pertains to your stay in your new city.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 5\. You Get Information About Real Estate
 
@@ -89,9 +115,37 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
 ![Group of friends sitting on the steps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6147224.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 6\. Lost and Found Posts
 
  If you're part of an expat group, you'll likely come across some lost and found posts. Many expat groups have a focus on community and neighborhoods, so if you lose something, you can ask the group for help to spread the word. Likewise, if you find a lost dog or cat, you can utilize the group to spread awareness.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 7\. Work-Related Information
 
@@ -99,30 +153,26 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
  Some groups may include information about working visas, notice periods, nondiscrimination policies, HR, and other useful content so that you become fully aware of your rights in your new country.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The Disadvantages of Joining an Expat Group
 
  While there are many good things about joining an expat group on Facebook, there are also some things you should watch out for. Always be mindful of the fact that everything you read in an expat group should be double-checked.
 
 ![Unhappy woman behind a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3755755.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  This is especially important if you are seeking legal information. Apart from[being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
 
 ### 1\. Lots of Trolls
@@ -131,33 +181,63 @@ thumbnail: https://thmb.techidaily.com/2fabafc66fe8d6c738eceaf2d94bef9969abb79ce
 
  Whichever form it takes, be aware that expats can also spread negativity and hostility, especially if there are no anti-harassment policies in place.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 2\. You Don't Get Expert Advice
 
 ![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  If you are seeking some serious advice, it is best not to go and ask the expats. On the slim chance that you may actually get expert advice from the group, be aware that there are a lot of "experts" without the credentials to back up what they're saying.
 
  While they might mean well, getting expert advice on Facebook groups is not something that is advised. Especially because you don't know the people in these groups personally.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. You Might Get Unwanted Messages
 
  If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are[privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. You Get Exposed to Scams
 
 ![An annoyed woman looking away from her laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3808008.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  Like with any social media platform, there are a lot of scams lurking about. On a Facebook expat group, it could come in the form of fake offers, thieves luring people in to steal from them, malicious threats, and even identity theft.
 

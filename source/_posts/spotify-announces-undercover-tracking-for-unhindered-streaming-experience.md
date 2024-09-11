@@ -1,7 +1,7 @@
 ---
 title: Spotify Announces Undercover Tracking for Unhindered Streaming Experience
-date: 2024-09-05T09:36:15.429Z
-updated: 2024-09-06T09:36:15.429Z
+date: 2024-09-10T14:50:08.360Z
+updated: 2024-09-11T14:50:08.360Z
 tags:
   - facebook
 categories:
@@ -13,30 +13,26 @@ keywords: Spotify Streaming Privacy,Spotify User Behavior Analysis,Spotify Real-
 thumbnail: https://thmb.techidaily.com/8774783d28d2d78a2030ac7e0dc1d6230634beecdba672087a8494366974e451.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Spotify Announces Undercover Tracking for Unhindered Streaming Experience
 
  You've probably heard the phrase by now: "if you're not paying, then you're the product." It's sad but true—such is the real cost of social media.
 
  Keeping this in mind, you start to see why Facebook remains in strong opposition of Apple's' new privacy options. Much of Facebook's earnings probably come from personalized ads, after all.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Facebook Tries to Convince You to Enable App Tracking
 
  In continued pushback against Apple's iOS 14 privacy updates, the iOS apps for Facebook and Instagram have added a new notice. The pop-ups are near identical on both platforms, saying that the company (Facebook owns Instagram) uses info on your activity to help keep the app(s) "free of charge."
@@ -47,12 +43,20 @@ thumbnail: https://thmb.techidaily.com/8774783d28d2d78a2030ac7e0dc1d6230634beecd
 
 > \[Apple's prompt\] discourages people from giving their permission, and provides little detail about what this decision means. (...) We will show an educational screen before presenting Apple’s prompt to help people make an informed decision about how their information is used.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Why Does Facebook Oppose the Apple iOS 14 Update So Much?
 
  The iOS 14 update added**App Tracking Transparency** , which requires all your apps that track user behavior to ask you for explicit permission to do so before anything else. You can tweak this setting for each individual app, or apply the same setting to all apps via the**Settings** menu.
@@ -61,12 +65,20 @@ thumbnail: https://thmb.techidaily.com/8774783d28d2d78a2030ac7e0dc1d6230634beecd
 
  Related: [Apple Releases iOS 14.5 With a Long List of New Features](https://www.makeuseof.com/apple-releases-ios-14-5-update-iphone-ipad-ipod-touch/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Will Facebook Go Back on Its Word?
 
  The new pop-up designs were first noticed by technology researcher Ashkan Soltani, who also notes in his Twitter thread that Facebook's homepage once read "free and always will be." Oh, the sweet potential irony.

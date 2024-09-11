@@ -1,0 +1,302 @@
+---
+title: Post-Deletion Reality Check on FB
+date: 2024-09-10T14:50:31.155Z
+updated: 2024-09-11T14:50:31.155Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Post-Deletion Reality Check on FB
+excerpt: This Article Describes Post-Deletion Reality Check on FB
+keywords: Deleted Content Impact,Facebook Removal Review,Post Recovery Tips,Social Media Shadowban,Account Deletion Effects,Restoring FB Presence,FB Page Revival Guide
+thumbnail: https://thmb.techidaily.com/01a9c6a754e21b99c858623b51177464f69009a94f81e88dbd632b404f3b4368.jpg
+---
+
+## Post-Deletion Reality Check on FB
+
+ Facebook has endured several scandals over the years, and these invariably concern the privacy and security of its users. This led to the #DeleteFacebook campaign, and you might have been tempted to delete Facebook as a result.
+
+ However, there is another option. Rather than deleting Facebook, you can just deactivate your account. But what happens when you deactivate your Facebook account? If you deactivate Facebook, can you still use Messenger? And what does deleting Facebook mean in contrast to deactivating it?
+
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## What Is the Difference Between Deleting and Deactivating Facebook?
+
+![deleting or deactivating facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/03/quitting-facebook.jpg)
+
+ There's a difference between deleting and deactivating your Facebook account. They're not interchangeable terms.
+
+ Deactivation is for people who aren't certain they want to leave Facebook forever. If you just want to take a sabbatical from social media, deactivation is a good option, although it's not the only one. You could merely ignore Facebook without deactivating it, but that depends on how tempted you'll be to return.
+
+ Deleting Facebook is more permanent. It's a decision that you shouldn't take lightly. If you delete your account, you can't come back and expect any of your data to still be intact. There is a way to start again, but we'll return to that later on.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## Can People Search for Me if I Deactivate Facebook?
+
+ People can still search for you, but your profile shouldn't show up—that is, in theory.
+
+ Your timeline will disappear, alongside your list of "likes". That should happen immediately, though you'll need to jump through a few hoops to get to that stage. Everything will be invisible.
+
+ Similarly, if you delete Facebook, your account will vanish. But full deletion won't happen for a little while because the social network gives you 30 days' leeway before the point of no return.
+
+ If you log back in shortly after deactivating your account, it will be automatically reactivated.
+
+ Otherwise, it takes 90 days for Facebook to remove information on a deleted account from its servers. Some details will still exist, but any personal identifiers will disappear. You'll become a statistic.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## Does My Profile Completely Disappear if I Deactivate Facebook?
+
+![name search on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/philip-profiles-on-facebook.jpg)
+
+ Deactivation should make your profile invisible. However, some deactivated users report that, after logging back in, they have numerous pending friend requests. This indicates that their names are still searchable and the links are still active. Depending on your privacy settings, full details shouldn't be available.
+
+ How do you make sure your deactivated Facebook profile disappears? Try a simple search, either through a friend's profile or using Google. The former is a better option; otherwise, it could take a lot of time scouring results featuring others with the same name as you. This should tell you if others can still find you, even after deactivating your account.
+
+ If you still exist on Facebook, attempt to log back in, and then try to deactivate again. If this still doesn't work, you can[complain to Facebook](https://en-gb.facebook.com/help/reportlinks/) or take the next step: deletion. Before you do that, read on to find out what you need to do before deleting Facebook entirely.
+
+## Do My Comments Disappear if I Deactivate Facebook?
+
+ If deactivation has worked, your posts on your own timeline won't be publicly visible, and your friends shouldn't be able to see them either. Your whole profile will have gone. But that doesn't mean comments you've made to others will disappear as well.
+
+ Facebook is obsessed with memories. It likes to make you nostalgic, and remind you of just how long you've used social media. It's to build brand loyalty.
+
+ That's why your comments won't vanish. Your name will appear as plain text since Facebook has removed the link to your account. Facebook will also replace your profile image with a default icon, i.e. a grayed out silhouette.
+
+ And of course, if you choose to reactivate your Facebook account (which we'll come back to), all of those posts will revert to normal: your profile photo will reappear alongside comments. Your name will become a link again too.
+
+ So what happens if you delete Facebook permanently? Facebook says it will erase your data within three months, but there are no guarantees that it will clear every last bit of flotsam and jetsam, i.e. comments, reactions, and posts on others' timelines. If you've had a large social media footprint, then some things might remain.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## How to Tell if Someone Blocked You on Facebook or Deactivated Their Account
+
+ What does a deactivated Facebook account look like? You won't be able to check their profile because links revert to plain text. Posts they've made on your timeline will still exist, but you won't be able to click on their name.
+
+ If you're concerned that someone has been unusually quiet on Facebook, there are three options to consider. The first is that they're simply busy. Try messaging them to ask if they're okay.
+
+ The next thing you can do is look through your list of friends. If they're still listed, they're probably just preoccupied. If they're not, the second possibility is that they've blocked you. But before you investigate that, question whether they've deleted their account completely.
+
+![leaving social media no trace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Deactivate-or-Deleting-Facebook.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+ So how do you know if someone has blocked you on Facebook or deactivated their account?
+
+ Go to a mutual friend's profile and check whether it shows the person in question. If their name is searchable, the profile still exists. Sadly, though, that probably means they blocked you.
+
+ Check on Messenger; there could be a technical issue. You can't send a message to someone who has blocked you, and their profile picture will be replaced on any comments they've previously posted on your timeline.
+
+## Can I Still Use Messenger Without Facebook?
+
+ You might worry that by deactivating Facebook, you won't be able to use the separate (but nonetheless connected) Messenger app. They're both owned by the same company and have the same contact list as a basis. It seems like Messenger cannot exist without its parent, and that used to be the case.
+
+[But you can still use Messenger](https://www.makeuseof.com/tag/use-messenger-without-facebook/) even if you don't have a Facebook account.
+
+ When you deactivate your account, Facebook will ask if you want to deactivate Messenger too. Say no, and the Messenger app will retain your information. If you'd prefer to go without the instant messaging service,[you can deactivate Messenger](https://www.makeuseof.com/tag/deactivate-facebook-messenger/) separately.
+
+ In some cases, you'll need to reinstall Messenger after deactivation.
+
+ So can you still use Messenger if you've deleted Facebook? You used to be able to using a phone number, but that's changed: now, you can't use Messenger without a Facebook account, even if that account has been deactivated. So, if you delete Facebook, you're automatically deleting Messenger too.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## Can People See My Messages if I Deactivate Facebook?
+
+ Yes, you can still use Messenger, so it follows that your messages will appear after deactivating your account. In fact, when you press "Send," as long as you have internet access, the message will go straight to the recipient's inbox.
+
+ However, if you delete Facebook, your previous messages will read "Facebook User". The recipient won't be able to respond. Incidentally, this is the same thing that happens if you block someone.
+
+## Can You Reactivate a Facebook Account?
+
+ If you've deactivated your Facebook account, all you need to do is log back in to reactivate it. You can change your password if you've forgotten it. Your profile still exists, as does your personal information. Previous messages and comments typically re-appear too.
+
+ Actually, Facebook makes it very easy to reactivate. That's especially true if you've given the social network your phone number. Some users have reported getting texts from Facebook, tempting them back. Clicking on the accompanying link—even accidentally—will reactivate your profile. (Of course, it's dangerous to click on URLs in SMS as they could be malicious phishing links, so be careful!)
+
+![how much does facebook know about me](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/Facebook-activity.jpg)
+
+ Can you reactivate a deleted Facebook account? You can, but it's more difficult. You'll need to have taken steps to prepare for your reactivation**before** deletion.
+
+ The social network lets you download a copy of[all the data Facebook has stored about you](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) . That means you can get your account back up and running, although the process is a bit trickier than if you've merely deactivated it.
+
+## What Happens to Tagged Photos After Deactivating Facebook?
+
+ Because Facebook has saved your data for your potential return, tags in pictures will still exist. However, those tags will convert to plain text. No one can link those images to a profile. This is also true of any other posts you're tagged in. To reiterate, your profile isn't visible to anyone.
+
+ If you reactivate your account, the tags will reappear as if nothing's happened.
+
+ Much the same happens after deletion; tags will revert to plain text. If you open a new account, those original tags won't link automatically with your name again. Just think of the number of people with the same name as you: you can't expect Facebook to accurately find the right one again.
+
+ Let's say you've deleted your profile, then regretted it, and decided to return. You'll need to ask your contacts to remove previous tags and update them to your new profile.
+
+ Worried about an embarrassing photo? Don't want people identifying you even after deactivation or deletion? Don't forget that[you can manually remove tags](https://www.makeuseof.com/how-to-untag-yourself-on-facebook/) anyway—but do so before taking further steps with your account.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+## Should You Deactivate or Delete Facebook?
+
+ If you're reading this because you're not sure whether to delete or deactivate Facebook, choose the latter and stick with Facebook. Why? Because you're clearly unsure about the decision. It's better to start with the non-nuclear option which will allow you to return one day. Deleting Facebook is the Scorched Earth approach, so only do so if you're 100 percent sure.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-enriched-minecraft-experience-via-ram-expansion/"><u>[New] 2024 Approved Enriched Minecraft Experience via RAM Expansion</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-cutting-clutter-effective-usage-of-photoshops-eraser-tool-for-2024/"><u>[New] Cutting Clutter Effective Usage of Photoshop’s Eraser Tool for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-stabilize-iphone-videos-3-ways/"><u>[New] How to Stabilize iPhone Videos? [3-Ways]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-brief-video-joust-the-showdown-between-youtubes-shorts-and-tiktoks-flavor/"><u>[New] In 2024, Brief Video Joust The Showdown Between YouTubes Shorts and TikTok's Flavor</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-live-broadcasts-obs-on-youtube-and-twitch/"><u>[New] Mastering Live Broadcasts OBS on YouTube and Twitch</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-ultimate-utilities-free-and-paid-macpc-bd-software-compared/"><u>[New] Ultimate Utilities Free & Paid Mac/PC BD Software Compared</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-artistry-behind-capturing-evening-light-and-people/"><u>[Updated] The Artistry Behind Capturing Evening Light and People</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-complete-playback-manual-for-nintendo-switch-games/"><u>[Updated] The Complete Playback Manual for Nintendo Switch Games</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-understanding-the-dynamics-of-night-portraits-for-2024/"><u>[Updated] Understanding the Dynamics of Night Portraits for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-photoshops-stabilization-capabilities-real-advantage/"><u>2024 Approved Photoshop's Stabilization Capabilities Real Advantage?</u></a></li>
+<li><a href="https://facebook.techidaily.com/assessing-the-value-of-online-dislikes/"><u>Assessing the Value of Online Dislikes</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-pitfalls-techniques-for-legitimate-video-acquisition/"><u>Avoiding Pitfalls: Techniques for Legitimate Video Acquisition</u></a></li>
+<li><a href="https://facebook.techidaily.com/concealed-choices-how-interfaces-steal-privacy/"><u>Concealed Choices: How Interfaces Steal Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissolving-the-digital-duo-instagram-and-facebook-separation/"><u>Dissolving the Digital Duo: Instagram and Facebook Separation</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/essential-ai-learning-hubs-top-9-community-picks/"><u>Essential AI Learning Hubs: Top 9 Community Picks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/essential-tips-for-efficiently-using-the-telnet-client-on-windows-systems/"><u>Essential Tips for Efficiently Using the Telnet Client on Windows Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-social-medias-negative-feedback-mechanism/"><u>Evaluating Social Media's Negative Feedback Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-lost-social-media-conversations-on-fb/"><u>Finding Lost Social Media Conversations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-erratic-fb-news-feed-and-notifications-display/"><u>Fixing Erratic FB News Feed and Notifications Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/gear-up-your-guide-to-the-meta-account-oversight-hub/"><u>Gear Up: Your Guide to the Meta Account Oversight Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-resolve-static-fb-notification-status/"><u>Guidelines to Resolve Static FB Notification Status</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-honor-x50iplus-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Honor X50i+ Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-realme-gt-5-240w-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Realme GT 5 (240W).</u></a></li>
+<li><a href="https://facebook.techidaily.com/illuminating-the-path-of-your-facebook-presence-with-precision/"><u>Illuminating the Path of Your Facebook Presence with Precision</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-ways-to-lock-apps-on-apple-iphone-14-plus-and-ipad-securely-by-drfone-ios/"><u>In 2024, 7 Ways to Lock Apps on Apple iPhone 14 Plus and iPad Securely</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-vivo-s17-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Vivo S17 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-music-arrangement-tips/"><u>In 2024, YouTube Music Arrangement Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/instant-engagement-facebook-stories-and-pages-polls/"><u>Instant Engagement: Facebook Stories & Pages Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantly-banish-a-facebook-story-to-digital-past/"><u>Instantly Banish a Facebook Story to Digital Past</u></a></li>
+<li><a href="https://facebook.techidaily.com/joining-the-expats-on-fb-here-are-your-guiding-insights/"><u>Joining the Expats on FB? Here Are Your Guiding Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-your-market-with-these-essential-crowdflower-tools/"><u>Master Your Market with These Essential CrowdFlower Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-image-descriptions-for-fb-posts/"><u>Mastering Image Descriptions for FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/reignite-real-connections-without-politics/"><u>Reignite Real Connections Without Politics</u></a></li>
+<li><a href="https://facebook.techidaily.com/shooting-sports-societies-suspend-digital-outreach/"><u>Shooting Sports Societies Suspend Digital Outreach</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-techniques-for-identifying-new-group-trends/"><u>Top 4 Techniques for Identifying New Group Trends</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steam-errors-installed-easy-anti-cheat-now-game-launches-successfully/"><u>Troubleshooting Steam Errors: Installed Easy Anti-Cheat, Now Game Launches Successfully</u></a></li>
+<li><a href="https://facebook.techidaily.com/uk-football-faction-steps-away-from-social-media-to-combat-hate-speech/"><u>UK Football Faction Steps Away From Social Media to Combat Hate Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154481696-unleash-content-potential-transfer-fb-posts-and-notes-among-leading-apps/"><u>Unleash Content Potential: Transfer Fb Posts & Notes Among Leading Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unlock-15-simple-vlog-inspirations-today-for-2024/"><u>Unlock 15 Simple Vlog Inspirations Today for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/unmasking-the-potential-of-recordcast-for-2024/"><u>Unmasking the Potential of RecordCast for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-interactions-how-to-unearth-pasts-on-fb/"><u>Unseen Interactions: How to Unearth Pasts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-fbs-safety-email-(securityfbcom)-authenticity/"><u>Verify FB's Safety Email: <security@fb.com> Authenticity?</u></a></li>
+</ul></div>
+
+
+
+

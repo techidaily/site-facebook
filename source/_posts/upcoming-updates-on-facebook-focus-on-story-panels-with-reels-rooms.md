@@ -1,7 +1,7 @@
 ---
 title: "Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms"
-date: 2024-09-05T09:39:15.628Z
-updated: 2024-09-06T09:39:15.628Z
+date: 2024-09-10T14:50:05.629Z
+updated: 2024-09-11T14:50:05.629Z
 tags:
   - facebook
 categories:
@@ -13,24 +13,32 @@ keywords: Facebook Story Panels Update,Reels Integration in Rooms,Facebook Reels
 thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d997596576ac31f3af838cbea.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms
 
  Facebook has come a long way since its days of only hosting personal profiles and pages. Now, you can watch videos and livestreams, have audio and video chats with your friends, sell things in the Marketplace, and more.
 
  The downside to having so much functionality in one app is that is can be difficult to organize the user interface in such a way that all that info isn't too overwhelming.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Facebook Tests Reels and Rooms In Home Feed
 
  In its continued push to compete with TikTok and Clubhouse, Facebook is reportedly testing new tabs in the Stories panel for Instagram Reels and its own Rooms.
@@ -45,22 +53,38 @@ thumbnail: https://thmb.techidaily.com/b19b440ee033b062893436bff7c73d55af4b510d9
 
  Originally, it was believed that[Facebook was making a standalone app to compete with Clubhouse](https://www.makeuseof.com/facebook-making-clubhouse-app/) , but Live Audio Rooms (and Podcasts) were instead built right into Facebook. You can read their introduction on[Facebook Newsroom](https://about.fb.com/news/2021/06/live-audio-rooms-and-podcasts-on-facebook/) .
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Facebook Continues to Compete With… Just About Everything, Really
 
 ![Facebook Slows Down Election Misinformation](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/11/facebook-slow-down-election-misinfo.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
  Everyone knows the Facebook story by now: CEO Mark Zuckerberg created a website in 2003 while he was attending Harvard University, and it blew up much bigger than he ever imagined.
 
  Since then, Facebook has grown into a tech conglomerate, rolling out new products and services to capitalize on almost every major tech trend—and succeeding, more often than not. There are quite a few examples of this, even aside from Instagram Reels and Rooms.

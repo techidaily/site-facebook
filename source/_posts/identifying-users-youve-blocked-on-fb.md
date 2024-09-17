@@ -1,7 +1,7 @@
 ---
 title: Identifying Users You've Blocked on FB
-date: 2024-07-12T10:15:58.080Z
-updated: 2024-07-13T10:15:58.080Z
+date: 2024-09-14T21:51:52.905Z
+updated: 2024-09-16T23:04:10.653Z
 tags:
   - facebook
 categories:
@@ -58,18 +58,22 @@ Close
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -78,6 +82,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/updated-how-to-share-igtv-video-on-instagram-story-with-ease/"><u>[Updated] How to Share IGTV Video on Instagram Story with Ease</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/apple-iphone-6-plus-screen-mirroring-you-must-know-drfone-by-drfone-ios/"><u>Apple iPhone 6 Plus Screen Mirroring You Must Know | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/captivation-craftsman-for-posters-for-2024/"><u>Captivation Craftsman for Posters for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-mechanism-behind-facebook-whitelist/"><u>Exploring the Mechanism Behind Facebook Whitelist</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-vs-2-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic Vs 2 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-samsung-galaxy-m34-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Samsung Galaxy M34 Phones</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-tutorial-fixing-non-functional-voice-chats-with-content-warnings/"><u>Step-by-Step Tutorial: Fixing Non-Functional Voice Chats with Content Warnings</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-complete-tutorial-on-consolidating-your-jpeg-photos-into-one-pdf-document/"><u>The Complete Tutorial on Consolidating Your JPEG Photos Into One PDF Document</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-historical-facebook-bonds/"><u>Uncovering Historical Facebook Bonds</u></a></li>
+</ul></div>
 

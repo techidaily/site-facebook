@@ -1,7 +1,7 @@
 ---
 title: "The Social Evolution: How Platforms Are Shaping Society"
-date: 2024-09-10T15:03:20.689Z
-updated: 2024-09-11T15:03:20.689Z
+date: 2024-09-14T19:00:09.417Z
+updated: 2024-09-16T19:05:27.320Z
 tags:
   - facebook
 categories:
@@ -19,37 +19,14 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  While, like everything else, there are some bad things about social media, there are also plenty of positives. And it's those positive aspects of social media that we're here to talk about.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
 ## 1\. Social Media Makes It Easier to Make Friends
 
 ![girlfriends smiling together](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/girly-friends.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image Credit: Marion Doss/[Flickr](https://www.flickr.com/photos/ooocha/2619784510/)
 
@@ -91,19 +68,18 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social media allows you to live a life unhindered by small talk.**
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 4\. Social Media Makes the World Seem Smaller
 
@@ -119,20 +95,6 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
 **Social media has made the world a much smaller place.**
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 5\. Social Media Helps You Build Relationships
 
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
@@ -147,23 +109,22 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social media can help foster friendships and more besides.**
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Social Media Helps News Travel Faster
 
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -177,37 +138,16 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social media helps news travel further, faster, keeping us all more informed.**
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 7\. Social Media Helps You Find Common Ground
 
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
@@ -219,32 +159,15 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -253,66 +176,18 @@ thumbnail: https://thmb.techidaily.com/30033eb1d439e3a5ccb9587805c5084ce6ce6344b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-increase-attendance-and-engagement-with-strategic-zoom-recordings/"><u>[New] In 2024, Increase Attendance and Engagement with Strategic Zoom Recordings</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-choosing-your-best-gif-creator-a-comparative-analysis/"><u>[Updated] 2024 Approved Choosing Your Best GIF Creator A Comparative Analysis</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-save-pc-sound-frequencies-and-mic-dialogue/"><u>[Updated] 2024 Approved Save PC Sound Frequencies & Mic Dialogue</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-elevate-your-youtube-presence-strategic-tagging-and-titling-techniques/"><u>[Updated] In 2024, Elevate Your YouTube Presence Strategic Tagging and Titling Techniques</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-advanced-shade-realist-app/"><u>2024 Approved Advanced Shade Realist App</u></a></li>
-<li><a href="https://facebook.techidaily.com/elusive-endorsements-on-social-media/"><u>Elusive Endorsements on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/experience-streaming-purely-focused-ig-livestream/"><u>Experience Streaming Purely Focused IG Livestream</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-tips-on-forcing-your-windows-10-pc-to-properly-power-down-and-restart/"><u>Expert Tips on Forcing Your Windows 10 PC to Properly Power Down and Restart</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-twitter-the-dual-streaming-of-nba-events/"><u>Facebook, Twitter: The Dual Streaming of NBA Events</u></a></li>
-<li><a href="https://facebook.techidaily.com/farewell-to-a-faceguru-leaving-facebook-friendship/"><u>Farewell to a FaceGuru: Leaving Facebook Friendship</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-oversight-board-function-and-impact-explored/"><u>FB Oversight Board: Function & Impact Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortify-your-virtual-frontier-prevent-fake-login-attempts-on-fb/"><u>Fortify Your Virtual Frontier: Prevent Fake Login Attempts on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/free-apps-via-tracking-facebook-instagram-notifications-explored/"><u>Free Apps via Tracking: Facebook, Instagram Notifications Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-connection-to-complication-7-negative-aspects-unveiled/"><u>From Connection to Complication: 7 Negative Aspects Unveiled</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-iphone-12-mini-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock iPhone 12 mini with iTunes</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-tech-under-scrutiny-a-look-at-us-antitrust-developments/"><u>Future of Tech Under Scrutiny: A Look at U.S. Antitrust Developments</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/global-cocoa-conversations-learn-chocolate-in-30plus-tongues/"><u>Global Cocoa Conversations: Learn Chocolate in 30+ Tongues</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/guarding-truth-in-text-openais-ai-solution-against-chatgpt/"><u>Guarding Truth in Text: OpenAI's AI Solution Against ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/harvesting-the-wind-100-renewable-operations-at-fb/"><u>Harvesting the Wind: 100% Renewable Operations at FB</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-google-pixel-8-prowithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Google Pixel 8 Prowith/without a PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-evaluate-the-real-life-impact-before-deleting-accounts/"><u>How to Evaluate the Real-Life Impact Before Deleting Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-master-facebook-problem-solving-addressing-11-top-errors/"><u>How to Master Facebook Problem-Solving: Addressing 11 Top Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-permanently-delete-your-facebook-account/"><u>How to Permanently Delete Your Facebook Account</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Vivo Y36 | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-hubs-of-immersive-visual-storytelling/"><u>In 2024, Hubs of Immersive Visual Storytelling</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-rapid-routines-transferring-iphone-content/"><u>In 2024, Rapid Routines Transferring iPhone Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/inside-vk-a-deep-dive-into-russias-internet-hub/"><u>Inside VK: A Deep Dive Into Russia's Internet Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-applications-with-your-facebook-network/"><u>Integrating Applications with Your Facebook Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-discretion-tailoring-social-media-presence-stealthily/"><u>Master Discretion: Tailoring Social Media Presence Stealthily</u></a></li>
-<li><a href="https://facebook.techidaily.com/minimizing-distraction-by-eschewing-fb-reels/"><u>Minimizing Distraction by Eschewing FB Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-gen-community-mapping-launched-by-facebook/"><u>Next-Gen Community Mapping Launched by Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/post-facebook-era-your-digital-footprints/"><u>Post-Facebook Era: Your Digital Footprints</u></a></li>
-<li><a href="https://facebook.techidaily.com/protect-and-surf-smart-identifying-9-security-alarms-online/"><u>Protect & Surf Smart - Identifying 9 Security Alarms Online</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-fixes-for-mac-issues-navigating-macos-startup-recovery-options/"><u>Quick Fixes for Mac Issues: Navigating macOS Startup Recovery Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-start-for-saving-fb-picsvids-on-pcs/"><u>Quick Start for Saving Fb Pics/Vids on PCs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/rapid-video-grabber-and-audible-guide-system/"><u>Rapid Video Grabber & Audible Guide System</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/review-of-ecovacs-winbot-w2-omni-unveiling-the-marvels-and-quirks-of-a-robotic-glass-cleaning-innovator/"><u>Review of Ecovacs Winbot W2 Omni: Unveiling the Marvels & Quirks of a Robotic Glass Cleaning Innovator</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplifying-your-social-media-network-structure/"><u>Simplifying Your Social Media Network Structure</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-savvy-learn-these-cost-efficient-update-scheduling-methods/"><u>Social Media Savvy: Learn These Cost-Efficient Update Scheduling Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-scrapping-how-to-clear-your-profiles-blemishes/"><u>Social Media Scrapping: How to Clear Your Profile's Blemishes</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-limitation-of-online-connections-on-facebook/"><u>Strategic Limitation of Online Connections on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-digital-duel-is-tiktok-ending-facebooks-dominance/"><u>The Digital Duel: Is TikTok Ending Facebook’s Dominance?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-final-say-awaits-facebooks-oversight-board-reviewing-the-ban/"><u>The Final Say Awaits: Facebook's Oversight Board Reviewing the Ban</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-key-to-smooth-auditory-transitions/"><u>The Key to Smooth Auditory Transitions</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-never-ending-story-of-facebook-why-its-not-over/"><u>The Never-Ending Story of Facebook: Why It's Not Over</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-shielded-posts-in-fb-communities/"><u>The Ultimate Guide to Shielded Posts in FB Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-technique-for-removing-your-name-from-images/"><u>The Ultimate Technique for Removing Your Name From Images</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/troubleshoot-with-ease-guided-process-to-download-and-activate-wacom-intuos-pro-driver-on-windows-10/"><u>Troubleshoot with Ease: [Guided Process] to Download and Activate Wacom Intuos Pro Driver on Windows 10</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unblocking-printer-access-for-windows-users/"><u>Unblocking Printer Access for Windows Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/unfollowing-trends-disabling-algorithmic-tweets/"><u>Unfollowing Trends: Disabling Algorithmic Tweets</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-growth-4-innovative-business-meta-tools/"><u>Unlock Growth: 4 Innovative Business Meta Tools</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-practices-for-inserting-text-on-youtube-videos-effectively-for-2024/"><u>[New] Best Practices for Inserting Text on YouTube Videos Effectively for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-cutting-edge-methods-for-inserting-vimeo-content-in-ppts/"><u>[Updated] 2024 Approved Cutting-Edge Methods for Inserting Vimeo Content in PPTs</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-turbo-charging-your-vimeo-views/"><u>2024 Approved Turbo-Charging Your Vimeo Views</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-15-passcode-without-computer-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Passcode without Computer?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebook-two-factor-authentication-and-mobile-code-generator/"><u>How to Use Facebook Two-Factor Authentication and Mobile Code Generator</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-unknown-with-facebook-headlines/"><u>Navigating the Unknown with Facebook Headlines</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-complete-walkthrough-for-initializing-your-echo-dot-into-setup-mode/"><u>The Complete Walkthrough for Initializing Your Echo Dot Into Setup Mode</u></a></li>
+<li><a href="https://facebook.techidaily.com/unblocking-recovering-lost-facebook-credentials/"><u>Unblocking: Recovering Lost Facebook Credentials</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-directs-the-social-media-empire-now/"><u>Who Directs the Social Media Empire Now?</u></a></li>
 </ul></div>
-
-
-
 

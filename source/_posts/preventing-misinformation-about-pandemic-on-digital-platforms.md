@@ -1,7 +1,7 @@
 ---
 title: Preventing Misinformation About Pandemic on Digital Platforms
-date: 2024-07-12T10:15:04.635Z
-updated: 2024-07-13T10:15:04.635Z
+date: 2024-09-10T19:31:52.217Z
+updated: 2024-09-16T16:58:16.719Z
 tags:
   - facebook
 categories:
@@ -72,11 +72,37 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
  A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
@@ -88,6 +114,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
@@ -98,14 +131,11 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +144,17 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-ultimate-rankings-best-9-web-based-mic-capture-options/"><u>[New] 2024 Approved The Ultimate Rankings Best 9 Web-Based Mic Capture Options</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-enhancing-digital-engagement-through-tighter-zoomed-scenes-for-2024/"><u>[Updated] Enhancing Digital Engagement Through Tighter Zoomed Scenes for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-eliminating-watermarks-from-your-stock-collections/"><u>[Updated] In 2024, Eliminating Watermarks From Your Stock Collections</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-the-eraser-guru-expert-tips-for-psx-users-for-2024/"><u>[Updated] The Eraser Guru Expert Tips for PSX Users for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-feed-structure-facebooks-proposed-research-approach/"><u>Evaluating Feed Structure: Facebook's Proposed Research Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-cryptocurrencys-steadfast-asset-stablecoins/"><u>Exploring Cryptocurrency's Steadfast Asset: Stablecoins</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-access-chatgpt-from-anywhere-using-chatgpt-everywhere/"><u>How to Access ChatGPT From Anywhere Using ChatGPT Everywhere</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-infinix-hot-30-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Infinix Hot 30 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-realme-gt-5-pro-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Realme GT 5 Pro Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-these-certain-online-advertisements-for-me/"><u>Why Are These Certain Online Advertisements For Me?</u></a></li>
+</ul></div>
 

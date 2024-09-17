@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers in User Interface Traps
-date: 2024-07-12T10:19:33.347Z
-updated: 2024-07-13T10:19:33.347Z
+date: 2024-09-13T17:28:16.584Z
+updated: 2024-09-16T22:05:38.216Z
 tags:
   - facebook
 categories:
@@ -69,6 +69,13 @@ The site lists 12 types of dark patterns to watch out for:
 
  A GDPR-compliant setup, without dark patterns, would have no default settings and let everyone choose whatever options they want from the start.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Ease of Changing Settings
 
  How simple do these companies make it to change privacy settings? If you've ever used Facebook or Google's privacy settings, you won't be surprised to find out that it's hard to turn data-sharing off. These services often choose images and text placement to encourage users to share more data.
@@ -91,6 +98,13 @@ The site lists 12 types of dark patterns to watch out for:
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -98,6 +112,13 @@ The site lists 12 types of dark patterns to watch out for:
  The site hopes you won't want to lose all the information you've shared on it, so this is supposed to scare you into staying on Facebook. This deception is further illustrated by a flowchart showing Facebook's GDPR privacy update options (which is, in itself, likely a form of punishment).
 
 ![Facebook GDPR Flowchart](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-GDPR-Flowchart.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
@@ -139,14 +160,11 @@ The site lists 12 types of dark patterns to watch out for:
 
  It would be great if we could just stop using the services that treated users this way, but since it's a widespread problem, you wouldn't be able to use almost anything with that strategy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -155,6 +173,19 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-abcs-of-facebook-cover-video-production/"><u>2024 Approved The ABCs of Facebook Cover Video Production</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/direct-guide-saving-twitter-videos-on-your-mobile-device/"><u>Direct Guide Saving Twitter Videos on Your Mobile Device</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/diy-fixes-for-overcoming-directx-problems-in-your-fifa-19-game/"><u>DIY Fixes for Overcoming DirectX Problems in Your FIFA 19 Game</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Infinix Note 30 VIP? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-address-failure-in-sending-facebook-security-token/"><u>How to Address Failure in Sending Facebook Security Token</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-shut-down-the-social-conversation-a-guide-for-fb-users/"><u>How to Shut Down the Social Conversation: A Guide for FB Users</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-6-proven-ways-to-unlock-infinix-hot-40-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Infinix Hot 40 Phone When You Forget the Password</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-all-encompassing-kinetic-review-2023/"><u>In 2024, All-Encompassing Kinetic Review 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/set-up-dark-screen-display-on-facebook/"><u>Set Up Dark Screen Display on Facebook</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-strategies-for-utilizing-the-advanced-features-of-anthropics-claude-3-prompt-store/"><u>Step-by-Step Strategies for Utilizing the Advanced Features of Anthropic’s Claude 3 Prompt Store</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-workplace-cloud-storage-networks-for-2024/"><u>Top Workplace Cloud Storage Networks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-directs-facebook-today/"><u>Who Directs Facebook Today?</u></a></li>
+</ul></div>
 

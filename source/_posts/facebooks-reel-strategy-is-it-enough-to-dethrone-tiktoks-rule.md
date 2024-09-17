@@ -1,7 +1,7 @@
 ---
 title: "Facebook’s Reel Strategy: Is It Enough to Dethrone TikTok's Rule?"
-date: 2024-09-10T15:00:07.675Z
-updated: 2024-09-11T15:00:07.675Z
+date: 2024-09-11T16:03:26.929Z
+updated: 2024-09-17T00:05:55.386Z
 tags:
   - facebook
 categories:
@@ -21,13 +21,10 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
  As part of the TikTok defense strategy, Facebook introduced its short video feature called Reels in 2021 to a limited audience. The feature first started on Instagram and soon became the fastest-growing content format on the platform. Last month, it was made available to everyone on Facebook globally.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## How TikTok Is Hurting Facebook
 
@@ -42,26 +39,6 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
  Facebook experienced a first-ever drop in daily active users as competitors like TikTok gained ground. As reported by[Forbes](https://www.forbes.com/sites/roberthart/2022/02/03/facebook-loses-daily-active-users-for-the-first-time--heres-where-theyre-going/) , roughly half a million users stopped using their accounts on a daily basis.
 
  Facebook is losing a specific segment of consumers, namely Gen Z, to its rival TikTok.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. Depleting Engagement Levels
 
@@ -87,39 +64,38 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
  Zuckerberg realizes the growing demand for short-form video content. Following the drop in stock price, he accepted the company is up against an “unprecedented level of competition” from TikTok. He asked Meta employees to focus on Reels, which has had significant success on Instagram.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Can Reels Save Facebook?
 
 ![video reel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Reels.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
  While short-form video may be trending, TikTok is an entirely different product, and it won’t be easy for Facebook to copy it as it did Stories from Snapchat. We wrote a full article outlining why[the Reels vs. TikTok battle](http://www.makeuseof.com/use-instagram-reels-or-tiktok/) will be difficult for Facebook, so it's worth checking that out if you want to learn more.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Facebook Is Seen as a Mixed Media Platform
 
@@ -129,19 +105,18 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
  For Facebook to rival TikTok, it has to reinvent itself as a brand new, highly sticky, and innovative app, far different from what it is today.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Facebook Is Late to the Game
 
@@ -153,61 +128,13 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
  Some analysts believe that Facebook had underestimated the threat of TikTok by prioritizing other projects, and now it’s too late to win back younger users.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Monetization Issues
 
 ![illustration showing ideas become money](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/03/Monetization.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Even if Facebook succeeds at winning the attention of Gen-Z (prominent audiences of TikTok) with Reels, it still has to figure out a way to make it commercially successful. Short-form video won’t be as easy to monetize as long-form content.
 
  Meta is testing ways for creators to monetize their content, including the[Reels Play bonus program](https://www.makeuseof.com/instagram-reels-bonuses/) , but its viability is yet to be seen. The challenge for Facebook is to incorporate less intrusive ads into Reels without impacting user experience.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Reels vs. TikTok: The Final Verdict
 
@@ -215,14 +142,11 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
 
  Reels might be late to the short-form video scene, but with the powerful Meta brand behind it, it's got every chance of succeeding.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -231,55 +155,20 @@ thumbnail: https://thmb.techidaily.com/3376b29faa2d3197bcfcb2a2edc1961849ab55544
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhancing-click-through-high-roi-strategies-for-fb-animatons/"><u>[New] 2024 Approved Enhancing Click-Through High-ROI Strategies for FB Animatons</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-hit-the-mark-video-that-skyrockets-in-popularity/"><u>[New] Hit the Mark Video that Skyrockets in Popularity</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-master-your-virtual-reality-journey-which-option-suits-you-better-portable-mobile-or-connected-tethered/"><u>[New] Master Your Virtual Reality Journey Which Option Suits You Better - Portable (Mobile) or Connected (Tethered)?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-expert-breakdown-the-true-price-of-a-podcast/"><u>[Updated] Expert Breakdown The True Price of a Podcast</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-blueprint-for-broadcasting-breaks/"><u>[Updated] In 2024, Blueprint for Broadcasting Breaks</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>[Updated] In 2024, Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-investors-handbook-for-monetized-youtubers/"><u>[Updated] The Investor's Handbook for Monetized Youtubers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-are-sellers-involved-in-monetizing-review-content/"><u>2024 Approved Are Sellers Involved in Monetizing Review Content?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-fb-video-extraction-creating-mp3s-in-minutes/"><u>2024 Approved FB Video Extraction Creating MP3s in Minutes</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-lava-yuva-3-pro-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Lava Yuva 3 Pro without App | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-vivo-y78-5g-frp-bypass-by-drfone-android/"><u>About Vivo Y78 5G FRP Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessibility-guide-for-facebook-neighborhood-memberships/"><u>Accessibility Guide for Facebook Neighborhood Memberships</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them!</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-hidden-social-norms-for-online-networking/"><u>Decoding Hidden Social Norms for Online Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/defensive-measures-for-digital-deception-dodges/"><u>Defensive Measures for Digital Deception Dodges</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-sleep-mode-the-key-to-efficient-messenger-kids-use/"><u>Dive Into Sleep Mode: The Key to Efficient Messenger Kids Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-weekend-wonders-with-fbs-live-sales/"><u>Embrace Weekend Wonders with FB's Live Sales</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-best-of-2022-a-podcast-round-up-review/"><u>Exploring the Best of 2022 - A Podcast Round-Up Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-new-era-personalizing-content-for-your-preferences/"><u>Facebook's New Era: Personalizing Content for Your Preferences</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-humble-beginnings-to-metamates-milestone/"><u>From Humble Beginnings to Metamates Milestone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/from-twitter-to-snaps-a-guide-to-cross-platform-posting-for-2024/"><u>From Twitter to Snaps A Guide to Cross-Platform Posting for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-swiftswirl-momentmirror-recording/"><u>In 2024, SwiftSwirl MomentMirror Recording</u></a></li>
-<li><a href="https://driver-download.techidaily.com/install-updated-nvidia-gaming-drivers-for-geforce-940mx-model/"><u>Install Updated NVIDIA Gaming Drivers for GeForce 940MX Model</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-facebook-groups-for-effective-surveys/"><u>Leveraging Facebook Groups for Effective Surveys</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-visual-appeal-for-social-media-growth/"><u>Leveraging Visual Appeal for Social Media Growth</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-unleash-your-creativity-best-free-3d-animation-apps-for-android-and-ios/"><u>New In 2024, Unleash Your Creativity Best Free 3D Animation Apps for Android & iOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-time-for-updating-your-fb-pi/"><u>Optimal Time for Updating Your FB PI?</u></a></li>
-<li><a href="https://facebook.techidaily.com/peaking-trends-in-facebook-usage-metrics/"><u>Peaking Trends in Facebook Usage Metrics</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-ancient-news-feed-content-on-fb/"><u>Revisiting Ancient News Feed Content on FB</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/revolutionize-visual-content-leading-montage-tools-for-phones-for-2024/"><u>Revolutionize Visual Content Leading Montage Tools for Phones for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-process-for-upgrading-your-computers-battery-drivers-on-windows-systems/"><u>Seamless Process for Upgrading Your Computer's Battery Drivers on Windows Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-privacy-delete-fb-watch-logs-now/"><u>Securing Your Privacy: Delete FB Watch Logs Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/sifting-through-time-finding-old-fb-posts/"><u>Sifting Through Time: Finding Old FB Posts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/step-by-step-process-for-deleting-stickers-from-tiktok-for-2024/"><u>Step-by-Step Process for Deleting Stickers From TikTok for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/swirling-shadows-adding-realistic-motion-to-photoshop-images/"><u>Swirling Shadows Adding Realistic Motion to Photoshop Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/telegrams-data-trail-your-actions-secure-lifelinas/"><u>Telegram's Data Trail: Your Actions Secure Lifelinas</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-your-networking-to-net-income-uncover-5-money-makers-on-igfb/"><u>Turn Your Networking to Net Income: Uncover 5 Money Makers on IG/FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-your-silent-social-network-with-troubleshooting-techniques/"><u>Unlock Your Silent Social Network with Troubleshooting Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-pivotal-news-moments-in-google/"><u>Unveiling the Pivotal News Moments in Google</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-truth-7-pivotal-facebook-revelations/"><u>Unveiling the Truth: 7 Pivotal Facebook Revelations</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/video-card-error-43-sorted-out/"><u>Video Card Error 43 Sorted Out</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-a-comprehensive-guide-to-instagrams-music-copyright-rules/"><u>[New] In 2024, A Comprehensive Guide to Instagram's Music Copyright Rules</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-step-by-step-methods-for-sharing-igtv-in-stories/"><u>[New] In 2024, Step-by-Step Methods for Sharing IGTV in Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/utorial-purging-your-youtube-download-history-for-2024/"><u>[New] Tutorial Purging Your YouTube Download History for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-in-depth-review-of-updated-videoshow-app-for-24-users/"><u>2024 Approved In-Depth Review of Updated VideoShow App for '24 Users</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-lava-agni-2-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identified-influencers-fueling-covid-disbelief/"><u>Identified Influencers Fueling Covid Disbelief</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-on-apple-iphone-7-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even On Apple iPhone 7 If Youve Tried Everything</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/recover-missing-social-media-icon-in-facebook-watch-for-2024/"><u>Recover Missing Social Media Icon in Facebook Watch for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/removing-spotify-connections-with-facebook-instructions-here/"><u>Removing Spotify Connections with Facebook: Instructions Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-tightens-grip-on-myth-and-rumor-spreaders/"><u>Social Network Tightens Grip on Myth and Rumor Spreaders</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-of-vk-russias-counterpart-to-facebook-explored/"><u>The Essence of VK: Russia's Counterpart to Facebook Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-a-clean-slate-deleting-your-fan-page/"><u>The Pathway to a Clean Slate: Deleting Your Fan Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/troubleshooting-non-functional-display-of-fb-notifications/"><u>Troubleshooting Non-Functional Display of FB Notifications</u></a></li>
 </ul></div>
-
-
-
 

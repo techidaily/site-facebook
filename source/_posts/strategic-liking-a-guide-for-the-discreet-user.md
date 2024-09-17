@@ -1,7 +1,7 @@
 ---
 title: "Strategic Liking: A Guide for the Discreet User"
-date: 2024-07-12T10:19:28.816Z
-updated: 2024-07-13T10:19:28.816Z
+date: 2024-09-12T17:26:53.436Z
+updated: 2024-09-16T17:49:57.931Z
 tags:
   - facebook
 categories:
@@ -55,6 +55,13 @@ Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -67,18 +74,28 @@ Your new settings are saved automatically.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Depressurize Your Experience on Facebook
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,6 +104,23 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-clear-your-vision-overcoming-instagram-footage-issues/"><u>[New] 2024 Approved Clear Your Vision Overcoming Instagram Footage Issues</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-story-an-easy-guide-to-screen-recording/"><u>[New] 2024 Approved Instagram Story An Easy Guide to Screen Recording</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-masterclass-on-blending-sound-and-sight-for-media-professionals/"><u>[Updated] Masterclass on Blending Sound & Sight for Media Professionals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-why-is-my-social-media-not-showing-suggested-youtube-videos/"><u>2024 Approved Why Is My Social Media Not Showing Suggested YouTube Videos?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/adapting-chatgpt-for-enhanced-therapeutic-dialogue/"><u>Adapting ChatGPT for Enhanced Therapeutic Dialogue</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/diy-solutions-for-getting-your-non-responsive-airpods-back-in-action/"><u>DIY Solutions for Getting Your Non-Responsive AirPods Back in Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-friendship-landmarks-master-3-key-tagging-strategies-on-fb/"><u>Exploring Friendship Landmarks: Master 3 Key Tagging Strategies on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-name-change-from-news-feed-to-just-feed/"><u>Facebook's Name Change - From News Feed to Just Feed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-sending-audio-messages-with-your-iphone-effortlessly/"><u>Guide: Sending Audio Messages with Your iPhone Effortlessly</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-tip-how-to-create-a-quick-and-easy-google-collage-photo/"><u>In 2024, Top Tip How to Create a Quick and Easy Google Collage Photo</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-podcast-cover-art-top-decoding-strategies-for-2024/"><u>Mastering Podcast Cover Art Top Decoding Strategies for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/post-deletion-reality-check-on-fb/"><u>Post-Deletion Reality Check on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-on-facebook-through-feed-tailoring/"><u>Redefining Relationships on Facebook Through Feed Tailoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-advent-of-advanced-moderation-systems-by-facebook/"><u>The Advent of Advanced Moderation Systems by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-consequences-leaving-a-facebook-community-properly/"><u>Understanding Consequences: Leaving a Facebook Community Properly</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-what-changed-with-facebooks-news-to-feed-transition/"><u>Understanding What Changed with Facebook's News to Feed Transition</u></a></li>
+</ul></div>
 

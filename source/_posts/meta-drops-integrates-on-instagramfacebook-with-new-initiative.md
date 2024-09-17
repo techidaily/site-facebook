@@ -1,7 +1,7 @@
 ---
 title: Meta Drops Integrates on Instagram/Facebook with New Initiative
-date: 2024-07-12T10:14:55.475Z
-updated: 2024-07-13T10:14:55.475Z
+date: 2024-09-11T18:39:30.557Z
+updated: 2024-09-16T18:46:55.089Z
 tags:
   - facebook
 categories:
@@ -37,14 +37,11 @@ thumbnail: https://thmb.techidaily.com/6d09665be2a2fe83c31f111bbc0153ce5984e036a
 
  Whether the scramble to roll back NFT support on Instagram and Facebook is purely cost-cutting or is the start of a new approach to the metaverse for Meta remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -53,6 +50,25 @@ thumbnail: https://thmb.techidaily.com/6d09665be2a2fe83c31f111bbc0153ce5984e036a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-8-easy-and-safe-video-call-options-for-enterprises/"><u>[New] 2024 Approved Top 8 Easy and Safe Video Call Options for Enterprises</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-recording-winners-pc-and-mac-edition-for-2024/"><u>[New] Screen Recording Winners PC & Mac Edition for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-elevate-your-content-with-effective-video-seo/"><u>[Updated] 2024 Approved Elevate Your Content with Effective Video SEO</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unlock-gif-potential-creating-animated-summaries-of-vimeo-videos-for-2024/"><u>[Updated] Unlock GIF Potential Creating Animated Summaries of Vimeo Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-apples-distinct-path-beyond-metaverse-hype/"><u>Exploring Apple's Distinct Path Beyond Metaverse Hype</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-review-of-the-lg-gram-17-svelte-design-meets-high-efficiency/"><u>In-Depth Review of the LG Gram 17: Svelte Design Meets High Efficiency</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platform-revises-humor-standards/"><u>Social Media Platform Revises Humor Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shenanigans-dispelling-10-popular-factual-errors/"><u>Social Media Shenanigans: Dispelling 10 Popular Factual Errors</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tapping-into-traditional-hymns-downloads-and-editing-guide-for-2024/"><u>Tapping Into Traditional Hymns Downloads & Editing Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-price-of-permanence-uncovering-top-10-reasons-to-leave-facebook-behind/"><u>The Price of Permanence: Uncovering Top 10 Reasons to Leave Facebook Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-side-of-success-how-connectivity-can-aid-growth/"><u>The Social Side of Success: How Connectivity Can Aid Growth</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

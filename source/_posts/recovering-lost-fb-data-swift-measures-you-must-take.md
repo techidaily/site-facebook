@@ -1,7 +1,7 @@
 ---
 title: "Recovering Lost FB Data: Swift Measures You Must Take"
-date: 2024-07-12T10:18:15.699Z
-updated: 2024-07-13T10:18:15.699Z
+date: 2024-09-12T20:29:53.983Z
+updated: 2024-09-16T21:06:58.699Z
 tags:
   - facebook
 categories:
@@ -78,6 +78,13 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
  If the hacker changed your email address, you should have received a message to the original address. Find this message because it contains a special link that will let you reverse the change and secure your account.
@@ -100,6 +107,13 @@ Do this only if you're sure you can log back in.
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Remove Suspicious Applications
 
  Oftentimes, it's not a person that randomly hacked your account. You may have granted access to a malicious Facebook application that subsequently hijacked your account.
@@ -116,11 +130,31 @@ Do this only if you're sure you can log back in.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Do Damage Control
 
  After doing everything you can to regain control over your hacked Facebook account and prevent further damage, inform your friends and family about what is going on.
 
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Improving Facebook's Privacy and Security Settings
 
@@ -132,18 +166,22 @@ Do this only if you're sure you can log back in.
 
  These settings not only [secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can [use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Keep Your Facebook Account Safe?
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +190,22 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/framelock-the-future-of-screen-capturing-in-2024/"><u>'Framelock' – The Future of Screen Capturing, In 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-tutorial-for-fb-360-streaming-for-2024/"><u>[New] The Ultimate Tutorial for FB 360 Streaming for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-tomtoms-actioncamera-reveal-2023-edition/"><u>[Updated] 2024 Approved TomTom's ActionCamera Reveal - 2023 Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-open-source-tranquility-tracks/"><u>[Updated] In 2024, Open Source Tranquility Tracks</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-top-6-strategies-for-leveraging-chatgpt-in-data-analysis/"><u>Discover the Top 6 Strategies for Leveraging ChatGPT in Data Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-apples-distinct-path-beyond-metaverse-hype/"><u>Exploring Apple's Distinct Path Beyond Metaverse Hype</u></a></li>
+<li><a href="https://facebook.techidaily.com/expose-revealed-the-name-and-narrative-of-the-whistleblower/"><u>Exposé Revealed: The Name and Narrative of the Whistleblower</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/install-the-latest-geforce-rtx-3080-drivers-for-enhanced-graphics-in-windows-11-8-and-7/"><u>Install the Latest GeForce RTX 3080 Drivers for Enhanced Graphics in Windows 11, 8 & 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-a-polished-online-presence-blocking-profiles/"><u>Maintaining a Polished Online Presence: Blocking Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-art-of-digital-cleanliness/"><u>Master the Art of Digital Cleanliness</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-launch-problems-getting-origin-up-and-running-in-windows-10-and-11/"><u>Overcoming Launch Problems: Getting Origin Up and Running in Windows 10 & 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-users-are-buying-300-oculus-quest-2-headsets-to-reset-hacked-accounts/"><u>Report: Facebook Users Are Buying $300 Oculus Quest 2 Headsets to Reset Hacked Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shenanigans-dispelling-10-popular-factual-errors/"><u>Social Media Shenanigans: Dispelling 10 Popular Factual Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/vote-for-the-ultimate-social-sphere/"><u>Vote for the Ultimate Social Sphere</u></a></li>
+</ul></div>
 

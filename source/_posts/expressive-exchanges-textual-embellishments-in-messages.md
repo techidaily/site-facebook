@@ -1,7 +1,7 @@
 ---
 title: "Expressive Exchanges: Textual Embellishments in Messages"
-date: 2024-07-12T10:16:54.345Z
-updated: 2024-07-13T10:16:54.345Z
+date: 2024-09-11T18:09:32.948Z
+updated: 2024-09-16T22:50:40.443Z
 tags:
   - facebook
 categories:
@@ -39,8 +39,22 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Use Strikethrough Text in Messenger
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
@@ -48,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/c29b91a7962f39ddd096ce546c9dfc1fb01c0ff8d
 
 ## How to Use Monospace Text in Messenger
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
@@ -76,14 +97,11 @@ To send text in a block of code:
 
  Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +110,17 @@ To send text in a block of code:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unlocking-cross-media-sharing-power-twitterfacebook/"><u>[New] In 2024, Unlocking Cross-Media Sharing Power (Twitter/Facebook)</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-navigating-the-nuances-of-nonlinear-audio-editing-in-audacity/"><u>[Updated] In 2024, Navigating the Nuances of Nonlinear Audio Editing in Audacity</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-youtube-channel-art-templates-find-them-here/"><u>2024 Approved Free YouTube Channel Art Templates - Find Them Here</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-gt-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-oppo-a78-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Oppo A78</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/expert-tips-on-how-to-freshly-charge-your-ipad-by-replacing-its-battery/"><u>Expert Tips on How to Freshly Charge Your iPad by Replacing Its Battery</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-skip-two-step-verification-for-fb-post-device-loss/"><u>How to Skip Two-Step Verification for Fb Post Device Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-privacy-for-group-posters-without-identifiers/"><u>Securing Privacy for Group Posters without Identifiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-business-model-and-its-moolah/"><u>The Social Business Model and Its Moolah</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-virtual-village-negative-effects-on-our-digital-town/"><u>The Virtual Village: Negative Effects on Our Digital Town</u></a></li>
+</ul></div>
 

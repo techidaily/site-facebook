@@ -1,7 +1,7 @@
 ---
 title: "Detecting Deception: Eyes that See Beyond Screen Saves"
-date: 2024-07-12T10:15:42.776Z
-updated: 2024-07-13T10:15:42.776Z
+date: 2024-09-15T00:00:21.809Z
+updated: 2024-09-16T21:50:30.629Z
 tags:
   - facebook
 categories:
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ### 3\. Strange Stories with a Plea for Help
 ![Photo of Person Checking Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/08/maxim-ilyahov-0aRycsfH57A-unsplash.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If an account that you believe is used by a close friend or family member suddenly asks for information or help in an unusual way, treat it with caution. No matter how long you've been Facebook friends with someone, never believe any suspicious stories that might require any form of financial resources or confidential information from you.
 
  The reason most scammers succeed in perpetrating their scams on Facebook is that the victims typically believe they know who they're dealing with. The stories can come in different styles. They could say you should help them pay for an online service because they're not with their credit card or something similar. And yes, there's the popular story about being a US soldier on a United Nations mission in Africa, who's desperately in need of your help to return to the US. Yep, fake Facebook profile.
@@ -56,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 ### 4\. An Account That Rarely Messages
 
  A sizable number of fake accounts are run by bots or people who know little about you. As a result, they'll typically try to avoid any conversation that might reveal their lack of knowledge about you. This is why a good way to confirm whether or not an account is fake is to start a deep conversation.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Friend Requests From People Who Have No Mutuals
 
@@ -69,14 +83,11 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
 
  If you're not sure if you know someone, send them a message asking them to remind you. If they can't or won't respond, then they probably aren't your friend. If you think the account is someone impersonating a friend, try contacting that friend through some previously verified method such as an email address or phone number you already have for them. Also, talk to mutual friends about whether an account that's communicating with you is genuine or not.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +96,21 @@ thumbnail: https://thmb.techidaily.com/35711b04893827e589108adbb18a73b7e3ecd093c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-how-to-create-awesome-instagram-videos/"><u>[Updated] In 2024, How to Create Awesome Instagram Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quick-tips-for-creating-and-editing-snapchat-duos/"><u>[Updated] In 2024, Quick Tips for Creating and Editing Snapchat Duos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-ars-capabilities-and-limits-for-2024/"><u>[Updated] Understanding AR's Capabilities and Limits for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-nokia-g22-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-xiaomi-redmi-k70-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Xiaomi Redmi K70 Face Lock?</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-se-2020-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone SE (2020) to Android | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reimagining-the-role-of-titles-in-after-effects-media/"><u>In 2024, Reimagining the Role of Titles in After Effects Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebook-group-queries/"><u>Navigating the World of Facebook Group Queries</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-it-laws-face-off-in-court-with-whatsapp/"><u>New IT Laws Face Off in Court with WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/removing-spotify-connections-with-facebook-instructions-here/"><u>Removing Spotify Connections with Facebook: Instructions Here</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-a-facebook-purchase-reimbursement-process/"><u>Securing a Facebook Purchase Reimbursement Process</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-the-ultimate-battlefront-six/"><u>Tech Titans: The Ultimate Battlefront Six</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-best-deal-on-a-big-screen-a-comprehensive-review-of-the-tcl-50s425-roku-tv-50-inches-2019/"><u>The Best Deal on a Big Screen: A Comprehensive Review of the TCL 50S425 Roku TV, 50 Inches (2019)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-writers-arena-beckons-facebook-spends-massive-5-million-to-enter-substack-race/"><u>The Writers’ Arena Beckons: Facebook Spends Massive $5 Million to Enter Substack Race</u></a></li>
+</ul></div>
 

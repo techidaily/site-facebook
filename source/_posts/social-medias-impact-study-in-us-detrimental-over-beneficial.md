@@ -1,7 +1,7 @@
 ---
 title: "Social Media's Impact Study in US: Detrimental Over Beneficial"
-date: 2024-07-12T10:18:20.173Z
-updated: 2024-07-13T10:18:20.173Z
+date: 2024-09-09T16:03:51.520Z
+updated: 2024-09-16T18:31:09.761Z
 tags:
   - facebook
 categories:
@@ -59,14 +59,11 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
 
  You can view the documentation for the NBC News poll on [DocumentCloud](https://www.documentcloud.org/documents/20701409-210098-nbc-news-april-poll) . Most of [the results](https://www.nbcnews.com/politics/meet-the-press/poll-100-days-biden-s-approval-remains-strong-can-honeymoon-n1265199) were released in late April, as respondents were asked for their opinion on the performance of US president Joe Biden.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -75,6 +72,27 @@ thumbnail: https://thmb.techidaily.com/b9c87935bcb636b8006c11267defd1b13d4f0a546
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-top-20-budget-conscious-video-editing-applications/"><u>[New] Top 20 Budget-Conscious Video Editing Applications</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] Crafting Fast Fortnite Icons in Minutes</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-perfecting-online-presence-screen-sharing-techniques-for-2024/"><u>[Updated] Perfecting Online Presence Screen Sharing Techniques for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/fixing-windows-10-bluetooth-connection-glitches-a-comprehensive-guide/"><u>Fixing Windows 10 Bluetooth Connection Glitches – A Comprehensive Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/get-your-pc-listening-to-you-not-too-x-recorder-for-2024/"><u>Get Your PC Listening to You, Not Too - X-Recorder for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/minecraft-homestead-essentials-6-10/"><u>Minecraft Homestead Essentials #6-10</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-online-spaces-deciphering-and-evading-shadowbans/"><u>Navigating Online Spaces: Deciphering and Evading Shadowbans</u></a></li>
+<li><a href="https://video-capture.techidaily.com/record-your-rush-make-every-game-count-for-2024/"><u>Record Your Rush Make Every Game Count for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagined-conversation-on-facebook-with-sonic-additions/"><u>Reimagined Conversation on Facebook with Sonic Additions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/smooth-soundscape-fading-techniques-with-lumafusion-for-2024/"><u>Smooth Soundscape Fading Techniques with Lumafusion for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-trick-for-impeccable-audio-in-windows-11-harnessing-the-power-of-an-equalizer/"><u>The Ultimate Trick for Impeccable Audio in Windows 11: Harnessing the Power of an Equalizer</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-digital-treasures-facebook-media-transfer/"><u>Unlocking Your Digital Treasures: Facebook Media Transfer</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

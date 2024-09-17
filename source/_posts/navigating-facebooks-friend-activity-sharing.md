@@ -1,7 +1,7 @@
 ---
 title: Navigating Facebook's Friend Activity Sharing
-date: 2024-07-12T10:18:08.251Z
-updated: 2024-07-13T10:18:08.251Z
+date: 2024-09-12T19:38:06.631Z
+updated: 2024-09-16T18:34:51.447Z
 tags:
   - facebook
 categories:
@@ -86,6 +86,13 @@ Close
 
  You can also [switch off your online status on the Windows Store app](https://www.makeuseof.com/tag/offline-invisible-mode-facebook-chat/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stop Someone Seeing You Online on Facebook With a Message Block
 
  If you're worried about Facebook not turning off Active Status for all your sessions and really don't want someone specific to see you online, a surefire way to prevent this is to block them from messaging you.
@@ -111,20 +118,30 @@ This is different from a full Facebook block.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,6 +150,22 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-boosting-your-youtube-views-a-strategy-guide/"><u>[New] Boosting Your YouTube Views A Strategy Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-step-by-step-recording-on-discord-for-2024/"><u>[New] Step-by-Step Recording on Discord for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-enabling-hearing-in-twitter-video-links/"><u>[Updated] In 2024, Enabling Hearing in Twitter Video Links</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-olympic-speed-skating-sprint-games-best-performances-for-2024/"><u>[Updated] Olympic Speed Skating Sprint Games' Best Performances for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-msi-audio-driver-software-for-windows-systems/"><u>Download MSI Audio Driver Software for Windows Systems</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/enhance-social-media-presence-by-saving-webcam-videos-via-vlc/"><u>Enhance Social Media Presence by Saving Webcam Videos via VLC</u></a></li>
+<li><a href="https://facebook.techidaily.com/guiding-you-back-into-facebook-post-code-loss/"><u>Guiding You Back Into Facebook Post-Code Loss</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/harnessing-the-power-of-conversational-ai-for-a-steady-meditation-schedule/"><u>Harnessing the Power of Conversational AI for a Steady Meditation Schedule</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-honor-magic-5-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Honor Magic 5 Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-prior-facebook-connections/"><u>Investigating Prior Facebook Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-and-impact-of-recently-released-facebook-files/"><u>The Essence and Impact of Recently Released Facebook Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-social-media-platforms-hangs-in-balance/"><u>The Future of Social Media Platforms Hangs in Balance</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-ambitions-deciphering-the-secrets-to-facebooks-wearable-device/"><u>Unseen Ambitions: Deciphering the Secrets to Facebook’s Wearable Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-ray-ban-stories-facebook-announces-and-pricing-details/"><u>What Are Ray-Ban Stories? Facebook Announces & Pricing Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-the-facebook-support-interface-accomplish/"><u>What Does the Facebook Support Interface Accomplish?</u></a></li>
+</ul></div>
 

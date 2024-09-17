@@ -1,7 +1,7 @@
 ---
 title: Why Can Users Have Several Identities in a Singular Facebook Identity?
-date: 2024-07-12T10:16:35.000Z
-updated: 2024-07-13T10:16:35.000Z
+date: 2024-09-11T17:45:06.209Z
+updated: 2024-09-16T16:18:02.787Z
 tags:
   - facebook
 categories:
@@ -52,14 +52,11 @@ thumbnail: https://thmb.techidaily.com/f1c57303ea622caa2e3702d3e2a77e00493f995e7
 
  Facebook hasn't announced when the test will begin, which countries other than the US have been selected for the test, or when this feature will be globally available.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -68,6 +65,26 @@ thumbnail: https://thmb.techidaily.com/f1c57303ea622caa2e3702d3e2a77e00493f995e7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-innovate-your-images-video-enhancer-v22-workflow/"><u>[New] 2024 Approved Innovate Your Images Video Enhancer V2.2 Workflow</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dos-and-donts-the-ultimate-fb-cover-video-tutorial/"><u>[New] In 2024, Dos & Don'ts The Ultimate FB Cover Video Tutorial</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-ultimate-guide-to-macs-image-file-transformation/"><u>[New] In 2024, The Ultimate Guide to Mac's Image File Transformation</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-smart-approach-for-posting-igtv-on-your-story/"><u>[Updated] The Smart Approach for Posting IGTV on Your Story</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-messenger-broadcasting-your-place/"><u>Facebook Messenger: Broadcasting Your Place</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-smart-8-plus-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Infinix Smart 8 Plus Phone without PIN</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-title-transformations-beyond-standard-styles/"><u>In 2024, Title Transformations Beyond Standard Styles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/invest-in-success-unveiling-the-highest-earning-posts/"><u>Invest in Success Unveiling the Highest Earning Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/methods-to-alert-about-minors-using-social-network/"><u>Methods to Alert About Minors Using Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-respond-to-a-stolen-fb-account/"><u>Protect Your Digital Life: Respond to a Stolen FB Account</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-the-absent-coprocessor-driver-issue-in-windows-10-step-by-step-guide/"><u>Resolving the Absent Coprocessor Driver Issue in Windows 10 - Step by Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-content-development-for-social-media-success-with-ripl/"><u>Strategic Content Development for Social Media Success with Ripl</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

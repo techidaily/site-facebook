@@ -1,7 +1,7 @@
 ---
 title: Essential Knowledge on New Facebook UI Elements
-date: 2024-07-12T10:15:46.148Z
-updated: 2024-07-13T10:15:46.148Z
+date: 2024-09-14T17:24:39.697Z
+updated: 2024-09-16T23:55:26.212Z
 tags:
   - facebook
 categories:
@@ -51,8 +51,28 @@ There are at least two major reasons why this has happened.
 
  According to a [Facebook blog post](http://about.fb.com/news/2022/07/home-and-feeds-on-facebook/) , some people will see Feeds as a tab in their shortcut bar. On iOS, this bar is at the bottom of the app. On Android, it’s at the top. You can also pin a tab and [personalize your shortcut bar](https://www.makeuseof.com/how-to-add-remove-shortcuts-facebook/) .
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fight Back Against TikTok
 ![TikTok mobile app launched](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/TikTok-mobile-app.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  According to [The Guardian](https://www.theguardian.com/technology/2022/apr/09/rise-of-tiktok-why-facebook-is-worried-booming-social-app) , TikTok will make more money from advertising this year than Twitter and Snapchat combined.
 
@@ -70,14 +90,11 @@ There are at least two major reasons why this has happened.
 
  Therefore, if beating TikTok at its own game is the only way for Meta to ensure the survival of its existing platforms while it builds the Metaverse, then so be it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,6 +103,23 @@ There are at least two major reasons why this has happened.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-reverse-video-on-instagram-complete-guide/"><u>[New] How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-ultimate-hd-capture-software-for-windows-and-macos/"><u>[New] Ultimate HD Capture Software for Windows & macOS</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-elite-hd-video-preservation-devices/"><u>[Updated] 2024 Approved Elite HD Video Preservation Devices</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-vidcollector-social-media-to-device/"><u>[Updated] VidCollector Social Media to Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-ig-to-feature-more-digital-dollar-promotions/"><u>Facebook & IG to Feature More Digital Dollar Promotions</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-appreciation-fb-likes-anonymity-guide/"><u>Masked Appreciation: FB Likes Anonymity Guide</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-5-excellent-free-options-to-rotate-mov-files/"><u>New 5 Excellent Free Options to Rotate MOV Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/security-strategy-shift-oculus-q2-demand-skyrockets-post-hacks/"><u>Security Strategy Shift - Oculus Q2 Demand Skyrockets Post-Hacks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-win10-users-guide-to-recording-mov-for-2024/"><u>The Win10 User's Guide to Recording MOV for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-social-media-presence-with-page-update/"><u>Transform Social Media Presence with Page Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-a-darker-facebook-experience/"><u>Transition to a Darker Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/trustworthiness-inquiry-for-facebook-security-email-securityfbcom/"><u>Trustworthiness Inquiry for Facebook Security Email @security@fb.com</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo V29e? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-the-reins-at-facebook/"><u>Who Holds the Reins at Facebook?</u></a></li>
+</ul></div>
 

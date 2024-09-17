@@ -1,7 +1,7 @@
 ---
 title: Tech Platform Takes Legal Action Against Indian Information Rules
-date: 2024-09-10T15:04:55.397Z
-updated: 2024-09-11T15:04:55.397Z
+date: 2024-09-13T20:21:31.147Z
+updated: 2024-09-16T17:18:35.506Z
 tags:
   - facebook
 categories:
@@ -19,47 +19,16 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
 
  The regulations would compel WhatsApp to break end-to-end encryption on its platform and compromise the privacy of its users.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## India's New IT Rules Threaten User Privacy
 
 [Reuters](https://www.reuters.com/world/india/exclusive-whatsapp-sues-india-govt-says-new-media-rules-mean-end-privacy-sources-2021-05-26) reports that Facebook-owned WhatsApp has issues with one of the new IT regulations in India, which states that social media platforms must identify the "first originator of information" when requested by government authorities.
 
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Indian Government Wants to Regulate Social Media Content
 
@@ -68,20 +37,6 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
@@ -99,37 +54,9 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
 
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## India Is One of WhatsApp's Key Markets
 
@@ -137,14 +64,11 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
 
  WhatsApp generally adheres to all regulations from the Indian government, but it is pushing back this time around as it believes the new rules are unfair and pose a privacy risk for its users.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,70 +77,29 @@ thumbnail: https://thmb.techidaily.com/c74a6f4cbc3131991d1108cc0cd3851c9f4624d9f
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-alleviate-chromes-video-viewing-problem/"><u>[New] 2024 Approved Alleviate Chrome's Video Viewing Problem</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-mkv-decoding-best-apps-for-mac/"><u>[New] MKV Decoding Best Apps for Mac</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-talking-heads-visual-techniques-to-engage-audiences/"><u>[New] Talking Heads Visual Techniques to Engage Audiences</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-translate-speech-to-text-with-ultimate-accuracy-thanks-to-google/"><u>[New] Translate Speech to Text with Ultimate Accuracy, Thanks to Google</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-jest-jacket-picture-fabricator/"><u>[Updated] In 2024, Jest Jacket Picture Fabricator</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlock-the-magic-of-stories-in-fb-free-cross-platform-tools-for-2024/"><u>[Updated] Unlock the Magic of Stories in FB – Free, Cross-Platform Tools for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/a-disk-read-error-occurred-on-windows-11-solved/"><u>A Disk Read Error Occurred on Windows 11 [Solved]</u></a></li>
-<li><a href="https://games-able.techidaily.com/ai-assisted-adventure-crafting-top-6-strategies-with-chatgpt/"><u>AI-Assisted Adventure Crafting: Top 6 Strategies with ChatGPT</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/embrace-diversity-top-reasons-to-learn-a-new-tongue-in-your-golden-years/"><u>Embrace Diversity: Top Reasons to Learn a New Tongue in Your Golden Years</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-the-incessant-facebook-interruptions/"><u>End the Incessant Facebook Interruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/engage-audiences-how-to-conduct-facebook-pages-surveys/"><u>Engage Audiences: How to Conduct Facebook Pages Surveys</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-interoperability-integrating-fb-content-to-leading-apps/"><u>Enhanced Interoperability: Integrating Fb Content to Leading Apps!</u></a></li>
-<li><a href="https://facebook.techidaily.com/expecting-encryption-upgrade-facebooks-e2ee-timeline/"><u>Expecting Encryption Upgrade: Facebook's E2EE Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-ban-rumored-on-fair-ad-posting-accusations/"><u>Facebook Ban Rumored on Fair Ad Posting Accusations</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-vs-tiktok-the-clash-over-social-media-supremacy/"><u>Facebook Vs. TikTok: The Clash Over Social Media Supremacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-secretive-user-drain-explained/"><u>Facebook's Secretive User Drain Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/fake-profile-alert-could-it-be-a-duplicate-identity/"><u>Fake Profile Alert: Could It Be a Duplicate Identity?</u></a></li>
-<li><a href="https://facebook.techidaily.com/five-pioneers-dividing-tech-opinions/"><u>Five Pioneers Dividing Tech Opinions</u></a></li>
-<li><a href="https://change-location.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/hasty-methods-to-remove-content-from-your-fb-profile/"><u>Hasty Methods to Remove Content From Your FB Profile</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reset-and-rejoin-your-facebook-after-code-loss/"><u>How To Reset & Rejoin Your Facebook After Code Loss</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-android-mobas-a-decade-of-favorite-titles-top-10/"><u>In 2024, Android MOBAs A Decade of Favorite Titles - Top 10</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-itel-s23-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Itel S23 Pattern Lock Screen</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-the-two-factor-authentication-on-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, How To Remove the Two Factor Authentication On Apple iPhone 12 Pro</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-facebook-portals-into-your-home-network/"><u>Integrating Facebook Portals Into Your Home Network</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/is-it-time-for-a-change-the-comprehensive-look-at-owning-a-4k-smart-tv-today/"><u>Is It Time for a Change? The Comprehensive Look at Owning a 4K Smart TV Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigate-music-with-spotifys-miniplayer-in-fb-app/"><u>Navigate Music with Spotify's Miniplayer in FB App</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebooks-regional-communities/"><u>Navigating the World of Facebook's Regional Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/negative-consequences-unpacking-social-network-effects/"><u>Negative Consequences: Unpacking Social Network Effects</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-gains-with-an-upgraded-facebook-image/"><u>Networking Gains with an Upgraded Facebook Image</u></a></li>
-<li><a href="https://facebook.techidaily.com/pictorial-input-leads-to-dynamic-text-style-generation/"><u>Pictorial Input Leads to Dynamic Text Style Generation</u></a></li>
-<li><a href="https://facebook.techidaily.com/portal-go-unveiled-a-new-era-for-portability/"><u>Portal Go Unveiled: A New Era for Portability</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-win-turn-off-facebook-monitoring-via-off-facebook-tool/"><u>Privacy Win: Turn Off Facebook Monitoring via Off-Facebook Tool</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/quelling-quick-flash-queries/"><u>Quelling Quick-Flash Queries</u></a></li>
-<li><a href="https://win-answers.techidaily.com/solved-star-citrix-freezing-issues-on-window-os/"><u>Solved: Star Citrix Freezing Issues on Window OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamline-fb-navigation-shortcut-addition-and-deletion-tutorial/"><u>Streamline FB Navigation: Shortcut Addition & Deletion Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/strengthening-account-protection-with-simple-steps-of-2fa-implementation/"><u>Strengthening Account Protection with Simple Steps of 2FA Implementation</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-titans-face-legal-scrutiny-from-president-trump-over-censorship/"><u>Tech Titans Face Legal Scrutiny From President Trump over Censorship</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-troubles-facebook-and-its-companions-offline/"><u>Tech Troubles: Facebook & Its Companions Offline</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-for-earning-gold-online-fb-and-insta-tactics/"><u>The Ultimate Guide for Earning Gold Online: FB and Insta Tactics</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/0-student-centric-history-youtube-vlogs/"><u>Top 10 Student-Centric History YouTube Vlogs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-pick-review-of-the-twelve-south-butterfly-2-in-1-charging-pad-with-magsafe-feature-for-on-the-go-gadget-enthusiasts/"><u>Top Pick Review of the Twelve South Butterfly 2-in-1 Charging Pad with MagSafe Feature for On-the-Go Gadget Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-your-facebook-timeline-comprehensive-history-download-guide/"><u>Uncovering Your Facebook Timeline: Comprehensive History Download Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebook-duplication-fraud/"><u>Understanding Facebook Duplication Fraud</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-political-patchwork/"><u>Unraveling The Political Patchwork</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-new-dating-feature-a-quick-guide/"><u>Unveiling Facebook's New Dating Feature: A Quick Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/upcoming-updates-on-facebook-focus-on-story-panels-with-reels-rooms/"><u>Upcoming Updates on Facebook: Focus on Story Panels with Reels, Rooms</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-in-depth-guide-to-iphone-for-excellent-quality-audio-capture/"><u>Updated In 2024, In-Depth Guide to iPhone for Excellent Quality Audio Capture</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-the-ultimate-selection-8-pinnacle-soundscapes-from-cinema/"><u>Updated In 2024, The Ultimate Selection 8 Pinnacle Soundscapes From Cinema</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/whats-my-ip-address-free-ip-address-lookup/"><u>What’s My IP Address – Free IP Address Lookup</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-meta-waits-on-end-to-end-encryption-implementation-till-23/"><u>Why Meta Waits on End-to-End Encryption Implementation Till '23</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-pruning-facebooks-view-data-is-essential-for-privacy/"><u>Why Pruning Facebook's View Data Is Essential for Privacy</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/winning-against-the-dolby-home-theater-hurdles-in-windows-10-a-step-by-step-fix/"><u>Winning Against the Dolby Home Theater Hurdles in Windows 10 – A Step-by-Step Fix</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-backup-your-memories-camera-roll-to-snapchat-explained/"><u>[New] In 2024, Backup Your Memories Camera Roll to Snapchat Explained</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-audiovisual-experts-choices-the-ultimate-video-editing-gear/"><u>[Updated] In 2024, Audiovisual Experts' Choices The Ultimate Video Editing Gear</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-leading-edge-1-ranked-4k-gaming-pcs-for-2024/"><u>[Updated] Leading Edge #1 Ranked 4K Gaming PCs for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-quick-youtube-revenue-assessments-available/"><u>2024 Approved Quick YouTube Revenue Assessments Available</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722715383802-amazfit-helio-ring-specs-release-timeline-and-price-breakdown-explained/"><u>Amazfit Helio Ring Specs, Release Timeline, and Price Breakdown Explained.</u></a></li>
+<li><a href="https://facebook.techidaily.com/empowering-workplace-success-with-online-networks/"><u>Empowering Workplace Success with Online Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-digital-literacy-with-facebooks-transparency-resources/"><u>Enhancing Digital Literacy with Facebook’s Transparency Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-bold-step-toward-total-ownership-for-oculus-go/"><u>Exploring Facebook's Bold Step Toward Total Ownership for Oculus Go</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-to-funding-social-networks-financials/"><u>Friendship to Funding: Social Networks' Financials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-stunning-visuals-how-to-master-use-of-luts-in-photoshop-suite/"><u>In 2024, Crafting Stunning Visuals How to Master Use of LUTs in Photoshop Suite</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-vivo-y100-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Vivo Y100 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-facebooks-transition-to-meta/"><u>Navigating the New Age: Facebook's Transition to Meta</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/podcast-vs-youtube-determining-your-digital-destination/"><u>Podcast Vs. YouTube Determining Your Digital Destination</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-location-a-step-by-step-guide-for-fb-users/"><u>Reveal Your Location: A Step by Step Guide for FB Users</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sleek-arenas-2022s-olympic-skating/"><u>Sleek Arenas 2022'S Olympic Skating</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

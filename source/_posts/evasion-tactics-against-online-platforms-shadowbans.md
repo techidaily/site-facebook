@@ -1,7 +1,7 @@
 ---
 title: Evasion Tactics Against Online Platform's Shadowbans
-date: 2024-07-12T10:14:44.111Z
-updated: 2024-07-13T10:14:44.111Z
+date: 2024-09-11T16:18:16.685Z
+updated: 2024-09-16T16:30:53.819Z
 tags:
   - facebook
 categories:
@@ -47,6 +47,13 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
  There have been numerous claims of shadowbanning across different social media platforms. With the politically charged environment making it harder than ever to distinguish genuine news from fake news, social media platforms have been accused of having a bias and using shadowbanning to silence the opinions they dislike.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Shadowbanning on X
 
  Some users have claimed that X (formerly Twitter) had shadowbanned them. The claims began in 2016, with accusations that Twitter was shadowbanning people that supported the Republican Party in the US.
@@ -81,12 +88,32 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
  Zuckerberg has assured users that they are constantly working on the flaws. You can also simply [get permanently banned from Facebook](https://www.makeuseof.com/things-permanently-banned-from-facebook/) , but this is rare.
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Shadowbanning on TikTok
 ![Smartphone displaying tiktok logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/smartphone-displaying-tiktok-logo.jpg)
 
  TikTok also doesn't explicitly shadowban, but its rules state that it may reduce visibility on content that violates its community guidelines. This includes content containing nudity, drugs, hate speech, or other prohibited content. Many TikTok creators feel like they have been shadowbanned at least temporarily.
 
  TikTok users notice they might have been shadowbanned when their TikToks rapidly lose engagement, like views and likes, from the For You Page. Posts may not even upload correctly or at all, and their fans have a hard time seeing their videos.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Avoid Getting Shadowbanned
 
@@ -102,14 +129,11 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
 
  Either way, the onus is on us as users to be careful and stick to the rules or risk the consequences. There will always be talk about whether shadowbanning is good, bad, or even necessary, but if you want to stay active on your favorite platforms, then it is best to just avoid the risk.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +142,18 @@ thumbnail: https://thmb.techidaily.com/33a2fc3d19b1294697014cd8a346990d81bbe0b37
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-top-picks-for-your-android-the-current-best-facebook-videos-downloaders-ranked/"><u>[New] Top Picks for Your Android - The Current Best Facebook Videos Downloaders Ranked</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-the-illusion-tips-to-discern-real-from-phony-fb/"><u>Exposing the Illusion: Tips to Discern Real From Phony FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/has-social-networking-changed-the-privacy-of-our-contacts/"><u>Has Social Networking Changed the Privacy of Our Contacts?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hdr-portrait-perfection-professional-photography-techniques-for-2024/"><u>HDR Portrait Perfection Professional Photography Techniques for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-into-mobile-entertainment-funimates-apk-pathway/"><u>In 2024, Step Into Mobile Entertainment Funimate's APK Pathway</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>In 2024, Thinking About Changing Your Netflix Region Without a VPN On Vivo Y78+? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-unlocks-trumps-online-accounts/"><u>Meta Unlocks Trump's Online Accounts</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/scambia-webm-con-vob-on-line-senza-costi-movavi/"><u>Scambia WebM Con VOB On-Line Senza Costi - Movavi</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-when-geforce-experience-cant-access-preferences/"><u>Troubleshooting Steps for When GeForce Experience Can't Access Preferences</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-prior-public-commentaries-on-fb/"><u>Unearthing Prior Public Commentaries on FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/vectors-in-data-ai-enhancement-unveiled/"><u>Vectors in Data: AI Enhancement Unveiled</u></a></li>
+</ul></div>
 

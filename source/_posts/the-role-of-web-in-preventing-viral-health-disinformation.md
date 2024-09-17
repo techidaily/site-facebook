@@ -1,7 +1,7 @@
 ---
 title: The Role of Web in Preventing Viral Health Disinformation
-date: 2024-07-12T10:15:22.323Z
-updated: 2024-07-13T10:15:22.323Z
+date: 2024-09-14T21:33:30.862Z
+updated: 2024-09-16T21:36:48.554Z
 tags:
   - facebook
 categories:
@@ -68,6 +68,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
@@ -77,6 +84,13 @@ YouTube also removes videos that violate its COVID-19 policy.
  A low threshold, such as two strikes, would allow for moderate enforcement prior to removal—such as the restriction of a page’s ability to go live or post video content without moderated review.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
@@ -88,6 +102,13 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Related: [The Best Fact-Checking Sites for Finding Unbiased Truth](https://www.makeuseof.com/tag/true-5-factchecking-websites/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
@@ -98,14 +119,11 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +132,20 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-building-endorsements-strategically/"><u>[New] Building Endorsements Strategically</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-canvas-mastery-streamlining-edges-and-enhancing-visuals/"><u>[New] Canvas Mastery Streamlining Edges and Enhancing Visuals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-recorded-talk-extraction-and-study/"><u>[Updated] In 2024, Recorded Talk Extraction & Study</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-ultimate-guide-to-the-most-effective-pc-screen-capture-apps/"><u>[Updated] The Ultimate Guide to the Most Effective PC Screen Capture Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/clickmeeting-compatible-webcams-with-manycam-features-best-options/"><u>ClickMeeting-Compatible Webcams with ManyCam Features: Best Options</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/full-fledged-vsco-editing-encyclopedia/"><u>Full Fledged VSCO Editing Encyclopedia</u></a></li>
+<li><a href="https://facebook.techidaily.com/gymnastics-groups-reject-social-networking/"><u>Gymnastics Groups Reject Social Networking</u></a></li>
+<li><a href="https://review-topics.techidaily.com/infinix-data-retrieval-tool-restore-lost-data-from-infinix-by-fonelab-android-recover-data/"><u>Infinix Data Retrieval tool – restore lost data from Infinix</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphones-escape-from-app-surveillance-prowess/"><u>IPhones Escape From App Surveillance Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-self-removal-from-facebook-photo-archives/"><u>Mastering Self-Removal From Facebook Photo Archives</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Realme Note 50 | Dr.fone</u></a></li>
+</ul></div>
 

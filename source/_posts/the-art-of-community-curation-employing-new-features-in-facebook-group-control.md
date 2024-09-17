@@ -1,0 +1,148 @@
+---
+title: "The Art of Community Curation: Employing New Features in Facebook Group Control"
+date: 2024-09-16T00:13:35.767Z
+updated: 2024-09-16T18:17:54.199Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes The Art of Community Curation: Employing New Features in Facebook Group Control"
+excerpt: "This Article Describes The Art of Community Curation: Employing New Features in Facebook Group Control"
+keywords: Community Curation Techniques,Social Media Group Management,Facebook Group Dynamics,Curating Online Communities,Enhancing Facebook Groups,New Features in FB Groups,Group Control Strategies
+thumbnail: https://thmb.techidaily.com/a37ab7bacfd21717668bfcf5969765b4a3a3d0a9b78c5dad2639277dfb76f19b.jpg
+---
+
+## The Art of Community Curation: Employing New Features in Facebook Group Control
+
+ Facebook has recently introduced new moderation tools so group admins can have more control over how their groups are managed. These tools reduce abusive comments, control promotional posts, show in-depth user metrics, and can even let admins flag specific rules when they're broken.
+
+ If you want a group page free from spam, abuse, and other destructive elements, then you should check out these new additions. Once you know how they work, then you can ensure your members feel safe while interacting within your group.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## What Do Facebook's New Moderation Tools Do?
+
+In a nutshell, these new moderation tools allow group admins to:
+
+* Restrict those not meeting the group's qualification criteria
+* Control promotional content
+* Defend against spam and resolve conflicts
+* Better manage comments and posts
+
+ Related:[When Is the Best Time to Post on Facebook?](https://www.makeuseof.com/best-time-to-post-on-facebook/)
+
+## How to Use Facebook's New Moderation Tools
+
+### Content Moderation
+
+![Use Admin Assist to restrict activity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/FB---Admin-Assist.jpg)
+
+ This tool allows you to police posts, comments, and promotions. If you'd like to moderate spam comments, for example, here's how:
+
+ 1\. Click**Admin Assist** on the left side of the screen. Then click**Add** next to**Decline incoming post if** .
+
+![Decline incoming posts in Facebook Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Decline-incoming-posts-in-Facebook-Groups.png)
+
+ 2\. Click on the**Spam posts** option and either choose the default criteria or click**Edit** to change how you'd like to mark spam. Finally, click**Apply Criteria** .
+
+![Select your criteria to mark comments or posts as spam](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Mark-spam-in-FB-groups.png)
+
+ You can follow the same steps to moderate how published posts will be removed and whether people can comment.
+
+### Conflict Alerts
+
+ Facebook also offers Conflict Alerts to draw an admin's attention if a potentially contentious conversation is occurring. When these comments happen, an alert will automatically be sent to the group admin.
+
+ In these situations, the admin can slow conversations by limiting how often post members can make comments.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115945/19272" target="_top" id="2115945">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115945/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Member Summary
+
+ Another new feature of Facebook's moderation tools is Member Summary. This function allows admins to oversee the activity log of specific group members. For example, you can see the number of posts and comments individuals have shared and how many were removed. That way, you'll have a clear picture of the types of interactions members have within the group.
+
+ You can view the Member Summary by clicking the commenter's profile.**Member Summary** will appear on the left side of the screen.
+
+![Member-Summary-in-Facebook-Groups-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Member-Summary-in-Facebook-Groups-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Appeals
+
+ Admins can now appeal violations for any posts on their page. Facebook will then review these appeals to ensure that the right decision has been made for a particular post. You can find appeals under the**Group Quality** subheading on the left sidebar.
+
+### Tag Group Rules
+
+ Tag Group Rules is another Facebook first. This tool helps admins show users the specific group rules being violated. However, members can also tag a group rule while reporting their posts, thus helping improve community moderation.
+
+ To use Tag Group Rules, tap the**three dots** next to an offending comment, then click**Remove comment** . A window will pop up asking you for additional information, and you can tag a group rule by clicking in the**checkbox** next to it.
+
+![Remove Comment screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/RemoveComment.jpg)
+
+ Before this feature works, however, you will need to create a set of rules for your group. You can navigate to**Group Rules** in the left sidebar to do so.
+
+![Group Rules in FB Groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Group-Rules-in-FB-Groups.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Keyword Alerts
+
+ This tool will alert an admin when a specific keyword is used in the community. To set Keyword Alerts:
+
+1. Click**Moderation Alerts** in the left sidebar and then click**Edit Alerts** .
+2. Click on**Create** next to**Keywords** . (If you are adding additional keywords, you'll see**Edit** instead of**Create**)
+3. Type the offending keywords, and click**Add** .
+
+ Related:[Do Hashtags Work on Facebook? What You Need to Know](https://www.makeuseof.com/do-hashtags-work-on-facebook/)
+
+## Gain More Control Over Your Facebook Groups
+
+ With these new functions, Facebook group admins can use automated rules to maintain positive discussions and resolve conflicts. Thanks to Facebook's AI, admins can also detect any rule-breaking conversations and quickly act.
+
+ These new tools help reduce the spread of controversial material and misinformation, improve Facebook's interactions, and reduce the work hoisted on group admins.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-soundquality-assessment/"><u>[Updated] In 2024, SoundQuality Assessment</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-zte-nubia-flip-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your ZTE Nubia Flip 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/effortlessly-get-icloud-up-and-running-on-windows/"><u>Effortlessly Get iCloud Up and Running on Windows</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-itel-p55-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-in-the-social-void-regain-your-facebook-profile/"><u>Lost in the Social Void: Regain Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-home-screen-configuring-facebook-portals-for-video-calls/"><u>Mastering Your Home Screen: Configuring Facebook Portals for Video Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-fb-tips-to-prevent-strangers-from-viewing-posts/"><u>Stealthy FB Tips to Prevent Strangers From Viewing Posts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-infinix-note-30-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Infinix Note 30 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-tolerance-for-myth-sharers-on-facebook-now/"><u>Zero Tolerance for Myth Sharers on Facebook Now</u></a></li>
+</ul></div>
+

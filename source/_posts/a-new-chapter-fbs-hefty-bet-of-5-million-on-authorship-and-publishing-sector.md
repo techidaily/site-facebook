@@ -1,7 +1,7 @@
 ---
 title: "A New Chapter: FB's Hefty Bet of $5 Million on Authorship & Publishing Sector"
-date: 2024-07-12T10:15:37.138Z
-updated: 2024-07-13T10:15:37.138Z
+date: 2024-09-13T19:50:16.412Z
+updated: 2024-09-16T19:23:37.025Z
 tags:
   - facebook
 categories:
@@ -39,14 +39,11 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -55,6 +52,28 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-in-2024-77-hilarious-tiktok-quiz-time/"><u>[Updated] In 2024, 77 Hilarious TikTok Quiz Time</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-the-definitive-io-screen-recorder-guidebook-for-2024/"><u>[Updated] The Definitive IO Screen Recorder Guidebook for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/delve-into-hardware-with-toms-insights-comprehensive-guide-and-reviews/"><u>Delve Into Hardware with Tom's Insights – Comprehensive Guide and Reviews</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/explaining-and-mending-error-code-0x8007251d-a-guide/"><u>Explaining and Mending Error Code 0X8007251d: A Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-step-by-step-increasing-viewership-with-facebook-mobile-broadcasts/"><u>In 2024, Step-by-Step Increasing Viewership with Facebook Mobile Broadcasts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-xiaomi-redmi-note-12-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Xiaomi Redmi Note 12 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-mutualities-facebooks-friendlist-shield/"><u>Masked Mutualities: Facebook's Friendlist Shield</u></a></li>
+<li><a href="https://facebook.techidaily.com/resurrect-the-inactive-restore-your-facebook-experience/"><u>Resurrect the Inactive: Restore Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-connectivity-what-to-expect-from-fbs-boombox-with-spotify/"><u>Revolutionizing Connectivity: What to Expect From FB's Boombox With Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/sealing-your-social-exit-complete-unsubscription-from-fb/"><u>Sealing Your Social Exit: Complete Unsubscription From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-breakthroughs-in-technology-youve-missed-out-on/"><u>The Biggest Breakthroughs in Technology You've Missed Out On</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-tecno-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Tecno without backup.</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-walkthrough-setting-up-and-installing-your-brother-printer-driver/"><u>Ultimate Walkthrough: Setting up and Installing Your Brother Printer Driver</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-etiquette-in-digital-interactions/"><u>Understanding Social Etiquette in Digital Interactions</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: IOS 14.5 Update Forces Facebook to Reconsider Strategy
-date: 2024-07-12T10:18:03.737Z
-updated: 2024-07-13T10:18:03.737Z
+date: 2024-09-13T19:30:23.663Z
+updated: 2024-09-16T21:58:58.299Z
 tags:
   - facebook
 categories:
@@ -63,9 +63,23 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
  It now appears that this number was highly optimistic as [data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -87,14 +101,11 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
 
  Innovation and finding new ways to update its business model will be Facebook's most effective defense against ATT.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +114,22 @@ thumbnail: https://thmb.techidaily.com/f1a796c007bdb54a5d32d237286b0c583ae30258c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-maintain-a-shadowy-presence-on-instagram-livestreams/"><u>[New] How to Maintain a Shadowy Presence on Instagram Livestreams</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-13-incredible-minecraft-architectural-plans/"><u>[Updated] In 2024, 13 Incredible Minecraft Architectural Plans</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-view-mov-movies-content-on-samsung-galaxy-m54-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can’t view MOV movies content on Samsung Galaxy M54 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-adds-new-gear-with-ray-bans-stories-functions-and-pricing/"><u>Facebook Adds New Gear with Ray-Bans Stories - Functions and Pricing?</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-your-video-back-fixing-fb-video-loops/"><u>Get Your Video Back: Fixing FB Video Loops</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-a15-4g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Samsung Galaxy A15 4G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-oneplus-12-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your OnePlus 12</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Oppo A1 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-enabling-two-factor-security/"><u>Mastering FB: Enabling Two-Factor Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-change-facebook-staff-as-metamates/"><u>Navigating Change: Facebook Staff as Metamates</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/premier-10-layouts-ae-text-edition/"><u>Premier 10 Layouts AE Text Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/rising-expectations-meet-delayed-oculus-quest-launch/"><u>Rising Expectations Meet Delayed Oculus Quest Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/signifying-personal-safety-on-facebook/"><u>Signifying Personal Safety on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-engagement-understanding-your-role-in-online-marketing-campaigns/"><u>Smart Engagement: Understanding Your Role in Online Marketing Campaigns</u></a></li>
+</ul></div>
 

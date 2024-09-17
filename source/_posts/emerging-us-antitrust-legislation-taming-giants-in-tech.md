@@ -1,7 +1,7 @@
 ---
 title: "Emerging US Antitrust Legislation: Taming Giants in Tech"
-date: 2024-09-10T15:04:53.476Z
-updated: 2024-09-11T15:04:53.476Z
+date: 2024-09-13T23:23:05.812Z
+updated: 2024-09-16T19:14:10.603Z
 tags:
   - facebook
 categories:
@@ -21,67 +21,22 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
 
  Marketplace owners, Amazon being one very clear example, will no longer be allowed to promote their own products over others using their platform. Other concerns, such as the eradication of nascent competition by winner-take-all acquisition, are also on the table for discussion.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
 ## What Is an Antitrust Law?
 
 ![A statue of the beatitude Justice, with scales --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/big-tech-new-laws.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  According to[Sub-section (a) of Section 12 of the Clayton Act](https://www.law.cornell.edu/uscode/text/15/12) , an antitrust law is an initiative that seeks to protect fair trade from monopolies who wish to exploit the market at the expense of every other player in the game.
 
  The Clayton Antitrust Act of 1914 and the Sherman Act of 1890 can be considered precursors to this recent effort. These five new antitrust bills build upon the foundation of precedent established by these two important statutes, updating how we define anticompetitive behavior legally to include the underhanded tactics of the present that make monopolies like Big Tech possible in the first place.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## What Are the Five Antitrust Bills?
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 1\. The American Choice and Innovation Online Act
 
@@ -98,20 +53,6 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
  In short, this antitrust bill will ban companies from preferring their own products or services unfairly on their marketplace platforms. "Choosing" winners or losers will become a thing of the past.
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
@@ -135,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/d66a628fa0cf48140c10b181f20d8c3673ed432ef
 
 In essence: leave the selling to the sellers.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
  Your data is worth a lot of money to these people. How much control do you have over your own?
@@ -145,23 +93,16 @@ In essence: leave the selling to the sellers.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
 ![A gavel on pavement --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/antitrust-bills-big-tech.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Finally, we come to the economic backing to make it all happen.
 
@@ -175,34 +116,17 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
 
  The forecast? Much remains to be decided. Either way, this feels like a turning point for us all.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,68 +135,23 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-tips-for-efficiently-changing-fb-cover-image/"><u>[New] 2024 Approved Tips for Efficiently Changing FB Cover Image</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-aural-artistry-the-magic-of-sound-fading-for-2024/"><u>[New] Aural Artistry The Magic of Sound Fading for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-maximizing-social-sharing-uploading-360-degree-images-on-mobile-platforms/"><u>[New] In 2024, Maximizing Social Sharing Uploading 360-Degree Images on Mobile Platforms</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-optimize-performance-mac-screen-recording-made-easy/"><u>[New] In 2024, Optimize Performance Mac Screen Recording Made Easy</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-symphony-of-microphones-on-a-mac/"><u>[New] In 2024, Symphony of Microphones on a Mac</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rofit-potential-unveiled-making-money-via-youtube-for-2024/"><u>[New] Profit Potential Unveiled Making Money via YouTube for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-mastering-snap-ad-creation-essential-tips-for-impactful-promotion-for-2024/"><u>[Updated] Mastering Snap Ad Creation Essential Tips for Impactful Promotion for 2024</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/2024-approved-key-audio-archives-to-enhance-your-quiet-space-with-gentle-melodies/"><u>2024 Approved Key Audio Archives to Enhance Your Quiet Space with Gentle Melodies</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-select-4-websites-easy-skype-tone-downloads/"><u>2024 Approved Select 4 Websites Easy Skype Tone Downloads</u></a></li>
-<li><a href="https://facebook.techidaily.com/embrace-metas-trusted-identity-in-america/"><u>Embrace Meta's Trusted Identity in America</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-visual-content-ai-driven-captions-for-fb-uploads/"><u>Enhancing Visual Content: AI-Driven Captions for FB Uploads</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/evaluating-the-performance-of-integrated-editing-tools-in-dall-e-3-version/"><u>Evaluating the Performance of Integrated Editing Tools in DALL-E 3 Version</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-facebooks-whitelisting-mechanism/"><u>Exploring Facebook's Whitelisting Mechanism</u></a></li>
-<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-13t-pro-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/googles-annual-summary-of-press-milestones/"><u>Google's Annual Summary of Press Milestones</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disable-broadcast-message-everyone/"><u>How to Disable Broadcast Message (@Everyone)</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disable-the-people-you-may-know-feature-on-facebook/"><u>How to Disable the People You May Know Feature on Facebook</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On ZTE Blade A73 5G? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oneplus-open-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on OnePlus Open Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-and-whatsapp-unite-for-stronger-authentication/"><u>Instagram and WhatsApp Unite for Stronger Authentication</u></a></li>
-<li><a href="https://facebook.techidaily.com/interactive-communal-territories-now-on-facebook/"><u>Interactive Communal Territories Now on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/interconnectedness-in-the-digital-age-7-methods-for-unity/"><u>Interconnectedness in the Digital Age: 7 Methods for Unity</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-the-facebook-protection-email-from-securityfbcom-real/"><u>Is the Facebook Protection Email From @security@fb.com Real?</u></a></li>
-<li><a href="https://facebook.techidaily.com/last-rites-how-to-eliminate-your-facebook-presence-forever/"><u>Last Rites: How to Eliminate Your Facebook Presence Forever</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-your-facebook-collective-with-strong-standards/"><u>Leading Your Facebook Collective with Strong Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/mass-perception-study-networkings-adverse-effects/"><u>Mass Perception Study: Networking's Adverse Effects</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-privacy-a-thorough-examination-of-fb-settings/"><u>Mastering Privacy: A Thorough Examination of FB Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/mending-the-social-web-after-an-exclusion/"><u>Mending the Social Web After an Exclusion</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-markets-safely-facebooks-top-9-safety-practices/"><u>Navigating Markets Safely: Facebook's Top 9 Safety Practices</u></a></li>
-<li><a href="https://facebook.techidaily.com/our-lives-as-a-marketable-asset/"><u>Our Lives as a Marketable Asset</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalized-approach-to-limiting-fb-communications/"><u>Personalized Approach to Limiting Fb Communications</u></a></li>
-<li><a href="https://facebook.techidaily.com/reducing-facebooks-pull-with-less-reel-watching/"><u>Reducing Facebook's Pull with Less Reel Watching</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-release-dates-oculus-quest-iii-postponed/"><u>Rethinking Release Dates: Oculus Quest III Postponed</u></a></li>
-<li><a href="https://facebook.techidaily.com/rethinking-the-use-of-negative-digital-tools/"><u>Rethinking the Use of Negative Digital Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-a-pleasant-digital-landscape-on-facebook/"><u>Securing a Pleasant Digital Landscape on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-profile-visibility-on-fb/"><u>Securing Your Profile Visibility on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stabilizing-your-digital-footprint-after-erratic-snapchat-sign-offs/"><u>Stabilizing Your Digital Footprint After Erratic Snapchat Sign-Offs</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-successful-page-based-polling/"><u>Strategies for Successful Page-Based Polling</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-declare-security-status-on-fb/"><u>Strategies to Declare Security Status on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-of-big-tech-and-americas-new-regulatory-framework/"><u>The Future of Big Tech and America's New Regulatory Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-delete-your-facebook-account-android-wise/"><u>The Ultimate Guide: Delete Your Facebook Account Android-Wise</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-how-to-preventing-responses-on-your-social-media-update/"><u>The Ultimate How-To: Preventing Responses on Your Social Media Update</u></a></li>
-<li><a href="https://win-dash.techidaily.com/to-solve-for-x-we-multiply-both-sides-by-4-to-cancel-out-the-division/"><u>To Solve for  ( X  ), We Multiply Both Sides by 4 (to Cancel Out the Division):</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-10-essential-facebook-mobile-adjustments/"><u>Top 10 Essential Facebook Mobile Adjustments</u></a></li>
-<li><a href="https://facebook.techidaily.com/tracing-outages-in-tech-giants-platforms/"><u>Tracing Outages in Tech Giants' Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-unspoken-etiquette-for-online-acquaintance-requests/"><u>Understanding Unspoken Etiquette for Online Acquaintance Requests</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-your-facebook-relationship-trail/"><u>Understanding Your Facebook Relationship Trail</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleashing-the-power-of-hd-media-in-social-networks/"><u>Unleashing the Power of HD Media in Social Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-potential-secrets-to-establishing-work-relationships-through-fb/"><u>Unlock Potential: Secrets to Establishing Work Relationships Through FB</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/unlocking-the-secrets-of-instagrams-video-capsule-for-2024/"><u>Unlocking the Secrets of Instagram's Video Capsule for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unpacking-facebooks-claim-of-continued-vitality/"><u>Unpacking Facebook's Claim of Continued Vitality</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-am-i-viewed-by-these-specific-fb-ads/"><u>Why Am I Viewed By These Specific FB Ads?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-anticipate-a-crypto-fueled-ad-wave/"><u>Why Anticipate a Crypto-Fueled Ad Wave?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-instagram-wants-you-to-take-a-break-from-social-media/"><u>Why Instagram Wants You to Take a Break From Social Media</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-seeing-my-friends-video-and-pics-on-chat-apps/"><u>[New] In 2024, Seeing My Friends' Video and Pics on Chat Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-meme-matrix-top-10-memes-on-social-media-platforms/"><u>[New] Meme Matrix Top 10 Memes on Social Media Platforms</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-optimal-screen-record-settings-for-facetime-conversations/"><u>2024 Approved Optimal Screen Record Settings for FaceTime Conversations</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/crafting-tomorrows-world-today-unleashing-the-power-of-gpt-4-in-home-improvement/"><u>Crafting Tomorrow's World Today: Unleashing the Power of GPT-4 in Home Improvement</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-ultimate-list-of-7-top-free-audio-streaming-platforms-on-mobile-devices/"><u>Discover the Ultimate List of 7 Top Free Audio Streaming Platforms on Mobile Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/exposing-false-bargains-on-facebook-marketplace-how-to-dodge-them/"><u>Exposing False Bargains on Facebook Marketplace – How to Dodge Them</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-features-making-your-fb-story-stand-out/"><u>Harnessing Features: Making Your FB Story Stand Out</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-best-practices-to-avoid-sound-in-video-capture/"><u>In 2024, Best Practices to Avoid Sound in Video Capture</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-unlocking-gameplay-success-with-ps3-screen-recording/"><u>In 2024, Unlocking Gameplay Success with PS3 Screen Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-for-initiating-interactive-online-gatherings-fb/"><u>Instructions for Initiating Interactive Online Gatherings (FB)</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722879531870-ipad-pro-m4-vs-macbook-air-m3-whats-the-difference/"><u>IPad Pro M4 vs MacBook Air M3: What's the Difference?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-updating-your-facebook-name/"><u>Navigating the New Age: Updating Your Facebook Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/networking-needs-a-pause-facebook-urges-teens-on-insta-hiatus/"><u>Networking Needs a Pause: Facebook Urges Teens on Insta Hiatus</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-self-image-makeover-update-your-facebook/"><u>Social Media Self-Image Makeover: Update Your Facebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/the-ultimate-catalog-of-remarkable-education-websites/"><u>The Ultimate Catalog of Remarkable Education Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-meta-verification-value-for-investment/"><u>Understanding Meta Verification: Value for Investment?</u></a></li>
 </ul></div>
-
-
-
 

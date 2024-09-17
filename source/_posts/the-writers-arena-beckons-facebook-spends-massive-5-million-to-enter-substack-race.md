@@ -1,7 +1,7 @@
 ---
 title: "The Writers’ Arena Beckons: Facebook Spends Massive $5 Million to Enter Substack Race"
-date: 2024-09-10T15:05:52.686Z
-updated: 2024-09-11T15:05:52.686Z
+date: 2024-09-14T21:07:14.266Z
+updated: 2024-09-16T17:40:15.473Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
 
  In its efforts to compete against the burgeoning trend of email newsletters, epitomized by the success of Substack, Facebook is trying to recruit journalists to its platform to publish. According to[Reuters](https://www.reuters.com/technology/facebook-pay-5-mln-local-journalists-newsletter-push-2021-04-29/) , Facebook is spending $5 million paying local journalists in multi year deals.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Growing the Independent Creator Space
 
@@ -53,20 +36,6 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -75,14 +44,11 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
 
  Recently, Facebook clashed with the Australian government over whether it should be paying news outlets for content.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -91,58 +57,22 @@ thumbnail: https://thmb.techidaily.com/c9d63107d989d631581c5dbe79eb35fbfb926a1d5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-video-playback-issues-on-instagram/"><u>[New] 2024 Approved Mastering Video Playback Issues on Instagram</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-reverting-to-classic-from-sierra-to-os-x-1010/"><u>[New] Reverting to Classic From Sierra To OS X 10.10</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channel-expansion-via-youtube-outros-maximizing-visibility/"><u>[Updated] 2024 Approved Channel Expansion via YouTube Outros Maximizing Visibility</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-navigating-the-basics-of-multi-os-skype-chatting/"><u>[Updated] Navigating the Basics of Multi-OS Skype Chatting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-turn-your-screen-time-into-money-with-these-tips/"><u>2024 Approved Turn Your Screen Time Into Money With These Tips</u></a></li>
-<li><a href="https://win11.techidaily.com/4-cool-things-you-can-do-with-windows-11-god-mode/"><u>4 Cool Things You Can Do With Windows 11 God Mode</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-revolution-the-power-of-facebook-channels-in-groups/"><u>Connectivity Revolution: The Power of Facebook Channels in Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/conquer-the-profile-picture-update-quagmire-on-facebook/"><u>Conquer the Profile Picture Update Quagmire on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-diaries-redrawn-unpacking-the-four-core-platform-impacts/"><u>Digital Diaries Redrawn: Unpacking the Four Core Platform Impacts</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-ways-to-repair-non-functional-usb-on-hp-devices-fixed/"><u>Effective Ways to Repair Non-Functional USB on HP Devices [FIXED]</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-conversations-with-messengers-soundmojis/"><u>Enhancing Conversations with Messenger’s Soundmojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/erase-all-fb-activity-notices-effectively/"><u>Erase All Fb Activity Notices Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-how-quizzes-can-jeopardize-cyber-safety/"><u>Exploring How Quizzes Can Jeopardize Cyber Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-introduces-prompt-for-informed-social-sharing/"><u>Facebook Introduces Prompt for Informed Social Sharing</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-bypass-the-required-apple-store-verification-for-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>How To Bypass the Required Apple Store Verification For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-leverage-symbolic-meanings-in-social-media-conversations/"><u>How to Leverage Symbolic Meanings in Social Media Conversations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-overcome-dimness-with-easy-iphone-editing/"><u>In 2024, Overcome Dimness with Easy iPhone Editing</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagramfacebook-support-a-short-lived-meta-drops-trip/"><u>Instagram/Facebook Support: A Short-Lived Meta Drops Trip</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-password-alteration-on-your-favorite-social-platform/"><u>Mastering Password Alteration on Your Favorite Social Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/messengers-latest-ar-adventures-unveiled-by-facebook/"><u>Messenger's Latest AR Adventures Unveiled by Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/music-moguls-understanding-the-new-earnings-opportunity-with-fb/"><u>Music Moguls: Understanding the New Earnings Opportunity with FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-for-a-better-code-language-facebook-joins-rust-foundation/"><u>Networking for a Better Code Language: Facebook Joins Rust Foundation</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-interpretations-what-does-facebooks-pages-labeling-change-imply/"><u>New Interpretations: What Does Facebook's Pages Labeling Change Imply?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-edge-40-neo-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Edge 40 Neo</u></a></li>
-<li><a href="https://facebook.techidaily.com/rumors-confirming-facebooks-potential-rebranding/"><u>Rumors Confirming Facebook's Potential Rebranding</u></a></li>
-<li><a href="https://facebook.techidaily.com/shadows-in-screen-time-hidden-choices-affecting-you/"><u>Shadows in Screen Time: Hidden Choices Affecting You</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-about-next-step-for-oculus-quest-series/"><u>Silent About Next Step for Oculus Quest Series</u></a></li>
-<li><a href="https://facebook.techidaily.com/snapshots-of-disabled-account-stories/"><u>Snapshots of Disabled Account Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-hazards-8-detrimental-psychological-impacts/"><u>Social Media Hazards: 8 Detrimental Psychological Impacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-future-tracing-a-possible-rebrand/"><u>Social Network's Future: Tracing a Possible Rebrand</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sphere-shift-new-title-for-facebook-employees/"><u>Social Sphere Shift: New Title for Facebook Employees</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-synergy-why-create-your-own-facebook-forum/"><u>Social Synergy: Why Create Your Own Facebook Forum</u></a></li>
-<li><a href="https://facebook.techidaily.com/speculations-of-social-medias-ethical-standards-shift/"><u>Speculations of Social Media's Ethical Standards Shift</u></a></li>
-<li><a href="https://facebook.techidaily.com/steer-clear-of-facebooks-intrusive-history-feature/"><u>Steer Clear of Facebook's Intrusive History Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-reducing-your-online-social-network-habits/"><u>Strategies for Reducing Your Online Social Network Habits</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-swapping-of-separate-facebook-login-credentials/"><u>Swift Swapping of Separate Facebook Login Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/teaching-friends-share-your-location-in-fbmessenger/"><u>Teaching Friends: Share Your Location in FBMessenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-case-for-extended-timelines-in-implementing-end-to-end-encryption/"><u>The Case for Extended Timelines in Implementing End-to-End Encryption</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-meccas-for-embarking-on-freelancing-ventures/"><u>Top 5 Meccas for Embarking on Freelancing Ventures</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-functionalities-of-facebook-for-effective-team-collaboration/"><u>Top 8 Functionalities of Facebook for Effective Team Collaboration</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforma-videos-y-audios-a-ritmo-acelerado-con-winxvideo-ai-mediante-la-acceleracion-de-gpu/"><u>Transforma Videos Y Audios a Ritmo Acelerado Con Winxvideo AI Mediante La Acceleración De GPU</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncharted-untangles-fb-list-anonymity/"><u>Uncharted Untangles: FB List Anonymity</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-apple-watch-series-n-an-understated-update-with-outstanding-performance/"><u>Unveiling Apple Watch Series N – An Understated Update With Outstanding Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-reason-why-apple-forgoes-metaverse-quest/"><u>Unveiling the Reason: Why Apple Forgoes Metaverse Quest</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-method-for-recorded-instagram-stories/"><u>[New] In 2024, The Ultimate Method for Recorded Instagram Stories</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-mastering-hulu-recording-across-windows-mac-and-mobile-devices-for-2024/"><u>[Updated] Mastering Hulu Recording Across Windows, Mac, and Mobile Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invests-5m-in-challenging-substacks-reach-for-writers/"><u>Facebook Invests $5M in Challenging Substack's Reach for Writers</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-identity-identifying-9-hacked-profile-traits/"><u>Guard Your Identity: Identifying 9 Hacked Profile Traits</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-the-pre-purchase-process-8-important-considerations-for-desktops/"><u>Navigating the Pre-Purchase Process: 8 Important Considerations for Desktops</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-10-best-apps-for-editing-music-in-iphone-and-android/"><u>New 10 Best Apps for Editing Music in iPhone and Android</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

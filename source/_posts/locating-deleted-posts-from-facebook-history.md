@@ -1,7 +1,7 @@
 ---
 title: Locating Deleted Posts From Facebook History
-date: 2024-09-10T15:00:30.265Z
-updated: 2024-09-11T15:00:30.265Z
+date: 2024-09-14T17:27:42.245Z
+updated: 2024-09-16T17:39:24.849Z
 tags:
   - facebook
 categories:
@@ -21,33 +21,10 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
  So, let's look at the built-in methods that you can use to find old posts on Facebook.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to Find Old Posts on Facebook
 
@@ -67,37 +44,9 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 ![Selecting the You filter to refine Facebook search](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Selecting-the-You-filter-to-refine-Facebook-search.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  If you still can't find the post you are looking for, you can further refine the search results by year. Again, go to**Posts** under**Filters** , and click on**Date Posted** . Here, you can choose the year of that post, and it will show results from that particular year only.
 
 ![Facebook posts search result by year](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-posts-search-result-by-year.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Apart from**Posts From** and**Date Posted** , you can filter results by**Recent Posts** ,**Posts You've Seen** , and**Tagged Location** . If you're looking for a recently published post, you can select**Recent Posts** to narrow down the search results. If the post was published by someone else, you could try selecting**Posts You've Seen** . And lastly, you can refine the search results based on the location by choosing**Tagged Location** .
 
@@ -105,39 +54,11 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 ![Search Result for Photos on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Search-Result-for-Photos-on-Facebook.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  By experimenting with these options and filters, you can search for any post on your timeline. Try out different filters to optimize and personalize the search results.
 
  While performing these searches, we discovered that posting stuff with a caption or description is always better. These captions and descriptions are helpful while searching for old posts on your timeline, as the search algorithm looks for keywords in these sections. Moreover, if you want your timeline to be less cluttered, you can[stop others from posting on your timeline](https://www.makeuseof.com/tag/stop-people-posting-facebook-timeline/) to keep it clean.
 
  To search for old posts on someone else's timeline, the process is pretty much the same. All you have to do is search for "John Doe Posts Keyword", where you can replace "John Doe" with your Facebook friend's name and enter the keyword in place of "Keyword". You can use the filters discussed above to narrow down your search further.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 2\. Using the Search Option on the Facebook Timeline
 
@@ -145,41 +66,20 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
 ![The Search Option On the Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/the-search-option-on-the-facebook-timeline.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 3\. Using Filters on the Timeline
 
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
 
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
@@ -190,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
  On your timeline, you have an additional option to find old posts—your Activity Log. If you don't know the exact keyword to search for or it was something you just interacted with, finding it through the Activity Log is your best bet. You can access the**Activity Log** by clicking on the**three-dot** icon just below the**Edit Profile** button on your timeline.
 
 ![Accessing the Activity Log In Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/accessing-the-activity-log-in-your-facebook-timeline-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
@@ -207,14 +114,11 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -223,57 +127,16 @@ thumbnail: https://thmb.techidaily.com/5d7817aad095517ef8a3802d67c136a4ed2562ac9
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-must-have-10-fcp-plug-ins-for-professionals/"><u>[New] In 2024, Must-Have 10 FCP Plug-Ins for Professionals</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-tips-on-using-uavs-creatively-in-filmmaking/"><u>[New] Tips on Using UAVs Creatively in Filmmaking</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-scheduling-zoom-conferences-for-android-users/"><u>[Updated] 2024 Approved Scheduling Zoom Conferences for Android Users</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-the-timeless-tale-of-roguelike-and-roguelite/"><u>[Updated] 2024 Approved The Timeless Tale of Roguelike and Roguelite</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagrams-latest-trends-for-successful-influencer-journeys/"><u>[Updated] Instagram's Latest Trends for Successful Influencer Journeys</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-science-of-quadcopters-understanding-their-flight-patterns/"><u>[Updated] The Science of Quadcopters Understanding Their Flight Patterns</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-supercharge-your-tweet-views-for-flawless-hd/"><u>2024 Approved Supercharge Your Tweet Views for Flawless HD</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-uninterrupted-music-with-spotify-in-facebook/"><u>Achieve Uninterrupted Music with Spotify in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-if-facebook-has-peaked-popularity/"><u>Assessing If Facebook Has Peaked Popularity</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-edge-tools-empowering-community-leaders-on-facebook/"><u>Cutting-Edge Tools Empowering Community Leaders on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/dealing-with-non-delivery-of-two-factor-authentication-code-on-fb/"><u>Dealing with Non-Delivery of Two-Factor Authentication Code on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-deep-conversations-via-messenger-polls/"><u>Discovering Deep Conversations via Messenger Polls</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-latest-realtek-chip-fe-driver-for-windows-11-systems-at-no-cost/"><u>Download the Latest Realtek Chip FE Driver for Windows 11 Systems at No Cost</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-discussion-volume-on-your-social-media-hub/"><u>Elevate Discussion Volume on Your Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/eternal-connection-or-silence-handling-lost-friends-on-fb/"><u>Eternal Connection or Silence? Handling Lost Friends on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-disruptor-by-ios-145-a-closer-look/"><u>Facebook Disruptor by iOS 14.5? A Closer Look</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-approval-process-whitelist-explained/"><u>Facebook's Approval Process: Whitelist Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendly-fun-in-the-digital-age-staying-positive/"><u>Friendly Fun in the Digital Age: Staying Positive</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/full-guide-to-catch-100-iv-pokemon-using-a-map-on-realme-v30-drfone-by-drfone-virtual-android/"><u>Full Guide to Catch 100 IV Pokémon Using a Map On Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/get-back-on-the-grid-a-comprehensive-guide-to-restarting-your-dormant-snapchat-account/"><u>Get Back on the Grid: A Comprehensive Guide to Restarting Your Dormant Snapchat Account</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/getting-to-the-frontier-of-ai-with-gpt-4-for-free/"><u>Getting to the Frontier of AI with GPT-4 for Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/guardian-platforms-for-secure-sharing/"><u>Guardian Platforms for Secure Sharing</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-crafting-collectives-a-facebook-foundation-approach/"><u>Guide to Crafting Collectives: A Facebook Foundation Approach</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-young-social-media-members-towards-prudent-privacy-choices/"><u>Guiding Young Social Media Members Towards Prudent Privacy Choices</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-telegram-thrived-when-friends-turned-to-other-platforms/"><u>How Telegram Thrived When Friends Turned to Other Platforms</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-lava-yuva-3-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Lava Yuva 3 FRP Without Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/influential-voices-amplifying-covid-falsehoods/"><u>Influential Voices Amplifying Covid Falsehoods</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-ousting-dissolving-a-facebook-relationship/"><u>Online Ousting: Dissolving a Facebook Relationship</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-biden-teams-up-facebook-twitter-and-snapchat-for-vaccinations/"><u>President Biden Teams Up: Facebook, Twitter & Snapchat for Vaccinations</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-cyber-leakage-of-personal-photos-at-meta/"><u>Preventing Cyber Leakage of Personal Photos at Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-preservation-plan-dodge-these-3-invaders/"><u>Privacy Preservation Plan: Dodge These 3 Invaders</u></a></li>
-<li><a href="https://facebook.techidaily.com/proven-strategies-for-showcasing-excellence-in-your-facebook-profile/"><u>Proven Strategies for Showcasing Excellence in Your Facebook Profile</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/recommendation-best-websites-to-download-alarm-ringtone-for-2024/"><u>Recommendation Best Websites To Download Alarm Ringtone for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-yourself-in-the-digital-age-changing-your-name-on-facebook/"><u>Reinventing Yourself in the Digital Age: Changing Your Name on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/severing-spotify-ties-with-facebook-today/"><u>Severing Spotify Ties With Facebook Today</u></a></li>
-<li><a href="https://facebook.techidaily.com/spot-the-scam-tips-for-facebook-security-hygiene/"><u>Spot the Scam: Tips for Facebook Security Hygiene</u></a></li>
-<li><a href="https://facebook.techidaily.com/suing-big-three-trump-accuses-silencing-of-public-voices/"><u>Suing Big Three: Trump Accuses Silencing of Public Voices</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-purge-peer-reviewed-posts-on-fb/"><u>Techniques to Purge Peer Reviewed Posts on FB</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-z-flip-5-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy Z Flip 5 Phone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-realme-12plus-5g-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Realme 12+ 5G Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/transforming-audio-content-structuring-your-rss-feed/"><u>Transforming Audio Content Structuring Your RSS Feed</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-mac-users-install-lumafusion-or-discover-its-top-competitors/"><u>Updated Mac Users Install Lumafusion or Discover Its Top Competitors</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-holds-copyright-to-my-shared-snapshots/"><u>Who Holds Copyright to My Shared Snapshots</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-precision-and-excellence-a-guide-to-professional-audacity-recordings/"><u>[New] Precision and Excellence A Guide to Professional Audacity Recordings</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-smart-8-hd-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/event-execution-insight-pros-and-cons-of-utilizing-facebook/"><u>Event Execution Insight: Pros & Cons of Utilizing Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/future-proof-inverter-choices-top-performing-models-in-the-market-now/"><u>Future-Proof Inverter Choices: Top Performing Models in the Market Now</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-repair-your-wireless-connection-10-effective-methods-for-fixing-ap-or-adapter-problems/"><u>How To Repair Your Wireless Connection: 10 Effective Methods for Fixing AP or Adapter Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-pursues-facts-enhanced-repercussions-for-myth-spreading/"><u>Platform Pursues Facts: Enhanced Repercussions for Myth-Spreading</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-fbcta-its-impact-on-us/"><u>Understanding the FBCTA: Its Impact on Us</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-beyond-windows-10-photos-8-excellent-image-viewing-options/"><u>Updated In 2024, Beyond Windows 10 Photos 8 Excellent Image Viewing Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-zuckerberg-stops-what-about-your-info/"><u>When Zuckerberg Stops, What About Your Info?</u></a></li>
 </ul></div>
-
-
-
 

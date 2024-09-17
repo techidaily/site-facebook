@@ -1,0 +1,149 @@
+---
+title: "Step-by-Step Guide: Facebook Job Listing"
+date: 2024-09-10T21:19:54.804Z
+updated: 2024-09-17T00:14:54.112Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Step-by-Step Guide: Facebook Job Listing"
+excerpt: "This Article Describes Step-by-Step Guide: Facebook Job Listing"
+keywords: Facebook Job Posting Guide,Career Listings on FB,Stepwise FB Recruitment,FB Job Search Tips,Creating Jobs on Facebook,Secure Job Lists FB,FB Employment Steps
+thumbnail: https://thmb.techidaily.com/f93eb5bd46514b847ac07d099dc18d72eab724476fd27a01a5370f94ffa41df8.jpg
+---
+
+## Step-by-Step Guide: Facebook Job Listing
+
+ Facebook is one of the most popular social networking platforms today. So, it isn't surprising that numerous employers use Facebook job postings to find potential employees.
+
+ What makes these postings so great is that employers can explicitly target qualified candidates. And, if you have a business page on Facebook, you can post jobs relatively easily.
+
+Here's how to do just that…
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Facebook Job Posting Requirements
+
+![Facebook create a business page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-a-business-page.png)
+
+![get started on your business page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/get-page-started.png)
+
+Close
+
+ Unfortunately, Facebook does not allow non-business accounts to post job ads. So, if you want to post an ad, you'll need to make a Facebook business page. This process is easy, but you will need to provide some details about your business.
+
+To create a new business page, follow these steps:
+
+1. On the Facebook app, tap on**Menu > Pages > Create** . On the website, you can press the**+** sign and click on**Pages** .
+2. Fill in the name of your business, email address, phone number, and any other details following the prompts.
+3. Click on**Create Page** .
+
+ Related:[What Happens When You Convert Your Facebook Profile to a Page?](https://www.makeuseof.com/tag/converting-facebook-profile-page-happens/)
+
+## How to Post a Job on Facebook
+
+![menu options on business page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-post.png)
+
+![create job option.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/create-job.png)
+
+Close
+
+To create a job post, here are the steps you should follow:
+
+1. First, on the home page, go to**Create Post** and select**Create Job** .
+2. Enter the job title, description, salary, location, and all other requirements. Make sure to give an accurate, detailed description of the position. You can also add photos and custom questions to make your job ad more appealing.
+3. Press**Continue** to post your job ad.
+4. To further promote your ad, toggle the sliding button for**Boost Post** to the right. This step is optional, and boosting a post isn't free.
+
+ If you decide to boost your post, adjust your budget with the slider shown, or edit the duration of the promotion. Facebook will automatically give you an estimate of the number of people your job ad will reach and the cost. Choose your budget and tap**Boost Job Now** to pay.
+
+![boost job toggle turned on.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/boost-job-toggle-on.png)
+
+![statistics of job post.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/boost-job-statistics.png)
+
+Close
+
+## Does It Cost Anything to Post a Job on Facebook?
+
+ Fortunately, posting a basic job ad on Facebook is completely free, which is good news for those on a tight budget. You'll only pay if you want to promote your ad by boosting the post.
+
+ The promotion price varies according to the time you'd like to promote your ad and the number of people you'd like to reach. Target details can also include options like location, education, and experience level.
+
+ Additionally, you can set up a budget for your business and then choose target options to boost your ad within that budget. Longer promotions or a more specific target market will increase the overall cost.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## What Makes a Good Facebook Job Ad?
+
+ Thousands of businesses are using social media to search for their next great employee, but it isn't always easy to find the perfect candidate. So, what can you do to streamline the hiring process and find your next rock star hire?
+
+ While creating your job ad, your priority should be to make the position look desirable to applicants. Therefore, try to keep it short and sweet instead of adding a lot of fluff. Shorter sentences and concise language will demonstrate professionalism. On the other hand, unnecessary information and vague language may cause some to ignore your job post.
+
+ You can also add relevant images to give viewers a visual idea of the workspace and workplace culture. Photos add to the authenticity of your business. To add another layer of trust, you can also have your Facebook business page verified.
+
+ For smaller businesses that can't afford Facebook's boosting service, free ads can still work well. You can also have Facebook friends share your ad on their profile. Doing so will help reach a wider pool of potential candidates.
+
+ Related: [How to Verify Your Facebook Business Page](https://www.makeuseof.com/verify-facebook-business-page/)
+
+<!-- affiliate ads begin -->
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Enjoy a Successful Hiring Run With Facebook
+
+ In conclusion, creating a job ad on Facebook is completely free. All you need is a business page. But if you want to promote or boost a job ad, you will have to spend some money. If that is not an option, you can always have your network share the post to maximize the reach.
+
+ Facebook has more than 2 billion monthly users, making it the ideal platform to find large numbers of qualified employees. In addition, the job posting process has proven to be a successful method for many businesses needing exceptional candidates.
+
+ And the best part is that Facebook's job posting process is easy to use and can help improve recruiting for your business.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://buynow-help.techidaily.com/analyzing-the-performance-of-the-netgear-c3000-is-it-time-to-upgrade/"><u>Analyzing the Performance of the Netgear C3000: Is It Time to Upgrade?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boosting-your-coding-productivity-with-chatgpt-and-vs-code/"><u>Boosting Your Coding Productivity with ChatGPT & VS Code</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/convert-mp4-video-files-into-mpeg-format-for-free-using-movavis-web-service-sicuro/"><u>Convert MP4 Video Files Into MPEG Format for Free Using Movavi's Web Service - Sicuro</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/expert-insights-into-top-tier-hardware-by-toms-reviews/"><u>Expert Insights Into Top-Tier Hardware by Tom's Reviews</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-for-launching-problematic-applications-on-administrator-logins/"><u>Expert Tips for Launching Problematic Applications on Administrator Logins</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-boundaries-adequate-ban-of-trump-with-time-limit/"><u>Facebook's Boundaries: Adequate Ban of Trump with Time Limit</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-a-piece-of-facebooks-725-million-class-action-settlement-pie/"><u>How to Get a Piece of Facebook’s $725 Million Class-Action Settlement Pie</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-10-free-online-neon-text-creators-you-need-to-try/"><u>In 2024, 10 Free Online Neon Text Creators You Need to Try</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-find-x7-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Find X7 Phone FRP Lock</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-appreciation-fb-likes-anonymity-guide/"><u>Masked Appreciation: FB Likes Anonymity Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-social-media-presence-with-page-update/"><u>Transform Social Media Presence with Page Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/transition-to-a-darker-facebook-experience/"><u>Transition to a Darker Facebook Experience</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unreals-future-concern-over-d3d-loss/"><u>Unreal's Future: Concern Over D3D Loss</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-holds-the-reins-at-facebook/"><u>Who Holds the Reins at Facebook?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Xiaomi Civi 3 | Dr.fone</u></a></li>
+</ul></div>
+

@@ -1,7 +1,7 @@
 ---
 title: "Keeping Your FB Memories Private: Exclusion Tactics"
-date: 2024-07-12T10:16:01.597Z
-updated: 2024-07-13T10:16:01.597Z
+date: 2024-09-14T18:13:38.297Z
+updated: 2024-09-16T18:23:12.284Z
 tags:
   - facebook
 categories:
@@ -59,8 +59,22 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  That's it, memories from that particular date range won't show up.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Turn Off Facebook Memories Notifications
 ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can [get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
@@ -76,14 +90,11 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
 
  You might not want to give up on Facebook, so these filters for Memories should let you use the social network without unnecessary issues. More often than not, the Facebook Memories feature actually ends up with pretty boring memories. But you can control what it does and doesn't show you.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +103,18 @@ thumbnail: https://thmb.techidaily.com/15f46f7d0d38e67cb89897b04873987b9a53cd336
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-navigate-your-way-through-premiere-pros-fs-mode/"><u>[New] Navigate Your Way Through Premiere Pro's FS Mode</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-tips-for-effortless-google-podcast-upload/"><u>[Updated] Expert Tips for Effortless Google Podcast Upload</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-phantom-a-guide-to-backward-video-capture-techniques/"><u>2024 Approved Phantom A Guide to Backward Video Capture Techniques</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-top-popular-meme-ideas-for-every-occasion/"><u>2024 Approved Top Popular Meme Ideas for Every Occasion</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/evolving-knowledge-from-chatgpt-to-everyone/"><u>Evolving Knowledge From ChatGPT to Everyone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-money-making-5-essential-facebook-techniques/"><u>Mastering Money Making: 5 Essential Facebook Techniques</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-blur-face-or-background-in-videos-top-iphone-and-android-apps/"><u>New Blur Face or Background in Videos Top iPhone and Android Apps</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/pushing-limits-top-4-software-for-exceeding-windows-maxed-volume/"><u>Pushing Limits: Top 4 Software for Exceeding Windows’ Maxed Volume</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-facebook-spotting-unfamiliar-logins-quickly/"><u>Secure Facebook: Spotting Unfamiliar Logins Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-voice-of-facebook-erupts-on-60-minutes/"><u>Silent Voice of Facebook Erupts on 60 Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-like-hiding-techniques-for-fb-users/"><u>Tactical Like Hiding Techniques for FB Users</u></a></li>
+</ul></div>
 

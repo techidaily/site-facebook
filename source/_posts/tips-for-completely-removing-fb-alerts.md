@@ -1,7 +1,7 @@
 ---
 title: Tips for Completely Removing Fb Alerts
-date: 2024-07-12T10:15:24.605Z
-updated: 2024-07-13T10:15:24.605Z
+date: 2024-09-11T00:04:21.969Z
+updated: 2024-09-16T22:52:58.039Z
 tags:
   - facebook
 categories:
@@ -73,6 +73,19 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Turn Off Facebook Notifications by Category
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
 
@@ -90,6 +103,13 @@ Follow the steps below to learn about the process on the web app:
  You'll now see a list of all the different notification categories. To turn off a certain type of notification, expand the section, and make the changes you desire. You can turn off some notification categories with a simple toggle; others (such as**Groups**) give you control over email and SMS notifications, as well as granular control over which groups you want to disable specifically.
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Stop Facebook Notifications Altogether
 
@@ -122,6 +142,13 @@ Close
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## More Ways to Make Facebook Work for You
 
  Wrestling back control of your Facebook notifications is just one way to make Facebook work for you. Yes, there's a little bit of micromanagement involved, but it's worth the effort to ensure Facebook is more useful than annoying.
@@ -130,14 +157,11 @@ Close
 
  Image Credit: jhansen2/[Depositphotos](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU37313/https://depositphotos.com/7590222/stock-illustration-seamless-social-networking-background.html)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,6 +170,14 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-action-cameras-showdown-gopro-hero5-black-clashes-with-yi-4ks-latest/"><u>[New] Action Cameras Showdown GoPro Hero5 Black Clashes with Yi 4K's Latest</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-core-principles-in-crafting-persuasive-facebook-ads/"><u>[New] Core Principles in Crafting Persuasive Facebook Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-building-a-million-views-empire-safe-and-secure-methods/"><u>[Updated] In 2024, Building a Million Views Empire Safe and Secure Methods</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-digital-literacy-with-facebooks-transparency-resources/"><u>Enhancing Digital Literacy with Facebook’s Transparency Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-bold-step-toward-total-ownership-for-oculus-go/"><u>Exploring Facebook's Bold Step Toward Total Ownership for Oculus Go</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-age-facebooks-transition-to-meta/"><u>Navigating the New Age: Facebook's Transition to Meta</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/1726028213482-youtube-pc/"><u>YouTube ミュージックを動画編集で活用する手びき術 - PC/スマートフォン向けガイド</u></a></li>
+</ul></div>
 

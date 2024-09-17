@@ -1,7 +1,7 @@
 ---
 title: Why You Should Purge Facebook's View Logs Today
-date: 2024-07-12T10:16:36.124Z
-updated: 2024-07-13T10:16:36.124Z
+date: 2024-09-12T21:42:18.749Z
+updated: 2024-09-16T20:23:07.277Z
 tags:
   - facebook
 categories:
@@ -61,11 +61,40 @@ Close
 
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to [Facebook.com](https://www.facebook.com/) and open your profile.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -78,6 +107,20 @@ Close
  You can then clear any videos you find there.  
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why You Should Delete Your Facebook Watch History
 
  You might be wondering why you should bother deleting your Facebook watch history. After all, it's just a record of what you watched, right? Well, not exactly. Your Facebook watch history reveals a lot about your interests, preferences, habits, and opinions. And this information is accessible at a glance to anyone who happens to [check your Facebook watch history](https://www.makeuseof.com/how-to-find-recently-watched-videos-facebook) on your device.
@@ -88,14 +131,11 @@ Close
 
  Whether you should clear your Facebook watch history is a personal decision that comes down to your individual needs. If privacy and control are paramount, clearing your watch history is a good way to manage your digital footprint. If you value relevant recommendations and convenient access to past videos, keeping your history might be more beneficial.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,6 +144,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-mobilesync-facebook-video-grabber/"><u>[New] In 2024, Mobilesync Facebook Video Grabber</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-savvy-screens-10-best-tools-for-live-recording-for-2024/"><u>[Updated] Savvy Screens #10 Best Tools for Live Recording for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/digital-content-arena-competing-titans-vimeo-youtube-dailymotion-for-2024/"><u>Digital Content Arena Competing Titans - Vimeo, YouTube, DailyMotion for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/easy-techniques-for-conducting-video-chats-using-an-android-smartphone-or-tablet/"><u>Easy Techniques for Conducting Video Chats Using an Android Smartphone or Tablet</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-hp-laserjet-1018-drivers-and-firmware-update/"><u>Free HP LaserJet 1018 Drivers and Firmware Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-intervention-halts-facebooks-intrusion-on-whatsapp-user-privacy/"><u>German Intervention Halts Facebook's Intrusion on WhatsApp User Privacy</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-vr-equipment-enhancing-flight-control/"><u>In 2024, Best VR Equipment Enhancing Flight Control</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/one-screen-many-screens-the-art-of-parallel-viewing/"><u>One Screen, Many Screens The Art of Parallel Viewing</u></a></li>
+<li><a href="https://facebook.techidaily.com/scam-free-web-a-call-for-more-robust-oversight-by-facebook-and-google/"><u>Scam-Free Web: A Call for More Robust Oversight by Facebook & Google</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-stings-identifying-and-evade-online-market-frauds-on-fb/"><u>Shielding Yourself From Stings: Identifying and Evade Online Market Frauds on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-entry-into-metas-centralized-user-command-center/"><u>Tactical Entry Into Meta’s Centralized User Command Center</u></a></li>
+<li><a href="https://facebook.techidaily.com/tweeting-terminology-mastering-the-top-30-smarts/"><u>Tweeting Terminology: Mastering the Top 30 SMARTs</u></a></li>
+</ul></div>
 

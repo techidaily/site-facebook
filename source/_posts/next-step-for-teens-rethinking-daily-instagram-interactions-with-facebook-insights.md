@@ -1,7 +1,7 @@
 ---
 title: "Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights"
-date: 2024-07-12T10:14:58.911Z
-updated: 2024-07-13T10:14:58.911Z
+date: 2024-09-14T22:20:16.350Z
+updated: 2024-09-16T22:07:38.604Z
 tags:
   - facebook
 categories:
@@ -55,6 +55,19 @@ Here's how Clegg explained it:
 
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
  While Facebook is doing something to help reduce the harm it allegedly causes children on its platforms, these new measures fall short of making a real impact.
@@ -65,14 +78,11 @@ Here's how Clegg explained it:
 
  For instance, since Facebook is aware of what type of content is potentially harmful, it should work on not showing that content to children in the first place, instead of intervening after it has been viewed multiple times.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,6 +91,18 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-facebook-visibility-hide-from-randoms/"><u>Enhancing Facebook Visibility: Hide From Randoms</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-ai-on-quora-your-comprehensive-guide-to-poe-and-chatbot-interaction/"><u>Exploring AI on Quora: Your Comprehensive Guide to Poe & Chatbot Interaction</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722976268154-get-your-steelseries-game-controllers-upgraded-windows-10-compatible-driver-pack-available-now/"><u>Get Your SteelSeries Game Controllers Upgraded: Windows 10 Compatible Driver Pack Available Now!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-effortlessly-upgrade-and-enhance-amd-graphics-performance/"><u>How to Effortlessly Upgrade and Enhance AMD Graphics Performance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Motorola Moto G Stylus (2023)? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-6s-plus-to-the-latest-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 6s Plus to the Latest iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-remote-connectivity-a-guide-for-your-samsung-smart-tv/"><u>Mastering Remote Connectivity: A Guide for Your Samsung Smart TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-security-breaches-by-the-numbers/"><u>Online Security Breaches by the Numbers</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-destinations-where-freelancers-converge/"><u>Prime Destinations Where Freelancers Converge</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionalities-stay-unaltered-with-policy-non-compliance/"><u>WhatsApp Functionalities Stay Unaltered with Policy Non-Compliance</u></a></li>
+</ul></div>
 

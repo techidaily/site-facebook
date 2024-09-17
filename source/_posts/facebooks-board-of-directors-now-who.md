@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Board of Directors: Now Who?"
-date: 2024-07-12T10:16:57.729Z
-updated: 2024-07-13T10:16:57.729Z
+date: 2024-09-11T00:01:14.164Z
+updated: 2024-09-16T20:06:16.408Z
 tags:
   - facebook
 categories:
@@ -51,20 +51,24 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
 
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Zuckerberg Still (Largely) Owns Meta
 
  The governing structure of Facebook, or Meta as it is now called, remains unchanged despite the rebranding. Zuckerberg, with his Class B share majority, still maintains his iron grip on Facebook.
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,6 +77,17 @@ thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b307
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-professional-strategies-for-effective-google-meet-customization/"><u>[Updated] 2024 Approved Professional Strategies for Effective Google Meet Customization</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/definitive-procedure-on-wiping-out-your-yahoo-mail-profile-permanently/"><u>Definitive Procedure on Wiping Out Your Yahoo Mail Profile Permanently</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-on-this-day-enhancing-nostalgia-and-connection/"><u>Facebook On This Day: Enhancing Nostalgia and Connection</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-nubia-red-magic-8s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-previous-friendships-in-fb/"><u>Navigating Previous Friendships in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-sharing-work-opportunities-on-facebook/"><u>Strategic Approach: Sharing Work Opportunities on Facebook</u></a></li>
+<li><a href="https://win11.techidaily.com/1719368082467-switch-off-windows-11-defender-firewall-now/"><u>Switch Off Windows 11 Defender Firewall Now</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/transforming-your-basement-screenings-with-online-content-access/"><u>Transforming Your Basement Screenings with Online Content Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-best-facebook-home-assistants/"><u>Unveiling the Best Facebook Home Assistants</u></a></li>
+</ul></div>
 

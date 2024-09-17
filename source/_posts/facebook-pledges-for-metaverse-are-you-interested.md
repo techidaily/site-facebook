@@ -1,0 +1,109 @@
+---
+title: "Facebook Pledges for Metaverse: Are You Interested?"
+date: 2024-09-12T23:57:39.639Z
+updated: 2024-09-16T18:00:39.887Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Facebook Pledges for Metaverse: Are You Interested?"
+excerpt: "This Article Describes Facebook Pledges for Metaverse: Are You Interested?"
+keywords: Facebook Metaverse,Interest in Metaverse,Metaverse Advancement,Social VR Platforms,Virtual Reality Growth,Digital World Unveiled,Engage with Metaverse
+thumbnail: https://thmb.techidaily.com/54da0f4f94eef8925e725ad6e5d476f72d3b4dfe3f3f6a2e608d839212aa9eeb.jpg
+---
+
+## Facebook Pledges for Metaverse: Are You Interested?
+
+ Facebook is looking for 10,000 people across the EU to work on its newest project. The idea? To build a virtual reality (VR) and augmented reality (AR) experience called the metaverse that would give internet users new ways to connect and share information.
+
+ If you’re based in the EU and have a working knowledge of AR and VR, this might be an opportunity for you. Read on to find out more about the jobs. Don’t yet know what the metaverse is? Don't worry, as we’ll explain that too.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## What Is the Metaverse?
+
+![Virtual reality illustration](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2016/08/VR_shutterstock.jpg)
+
+ Andrush/[Shutterstock](https://www.shutterstock.com/image-vector/virtual-reality-gaming-man-wearing-vr-1409077430)
+
+[The metaverse](https://www.makeuseof.com/what-is-the-metaverse/) is an interconnected virtual reality environment where people will be able to share information, make transactions, and create things.
+
+ In other words, Facebook wants to create an internet experience that would allow users to interact with one another in a virtual space—kind of like Second Life meets Star Trek's Holodeck.
+
+## Facebook Is Betting Big on EU Tech Talent
+
+ In an October 17 post on the[Facebook Newsroom](https://about.fb.com/news/2021/10/creating-jobs-europe-metaverse/) , the company announced that it plans to hire 10,000 high-skilled workers to build out its metaverse ecosystem. The jobs, all based out of the EU, stem from Facebook's belief that "European talent is world-leading,".
+
+ According to the post, “This investment is a vote of confidence in the strength of the European tech industry and the potential of European tech talent.”
+
+ The jobs are going to be spread across the EU with emphasis on Germany, France, Italy, Spain, Ireland, and Poland.
+
+## What Does Facebook Need to Build the Metaverse?
+
+![If you're looking for a taste of the other side, marketing and sales are both great non-programming jobs for software engineers.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/cs-jobs-that-dont-require-coding.jpg)
+
+ Building the metaverse will require inputs from diverse fields, which means the jobs are most likely going to be spread across professions. However, the announcement did state a need for "highly specialized engineers", and that getting these engineers was "one of Facebook’s most pressing priorities."
+
+ Related:[The Metaverse Won't Be Like You Think: Here's Why](https://www.makeuseof.com/tag/5-ways-metaverse-wont-like-think/)
+
+ Judging from this, it's safe to predict that there are going to be openings in the following roles:
+
+* Software Engineers
+* Product and Project Managers
+* VR Effects Specialists
+* 3D Artists
+* Design Architects
+* VR Prototypers
+* Researchers
+
+ And lots more besides. The chances are that there are going to be opportunities for non-tech roles too. So, if you're located in the EU and would love to work for Facebook, this might just be your chance.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Your Chance to Become Part of Facebook's Metaverse
+
+ The metaverse is coming and Facebook wants to lead the way. And in order to help it build the metaverse, it's looking for 10,000 people across the EU to help take virtual reality and augmented reality mainstream by building a metaverse that will connect people around the world in a new way.
+
+ While many of these jobs are going to be tech-related, there will also be opportunities in non-tech roles too. If working for Facebook sounds like the kind of thing that would interest you, now might be a good time to brush up on your VR/AR skills.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-projecting-film-costs-for-your-music-video/"><u>[New] Projecting Film Costs for Your Music Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-complete-playbook-for-youtube-beginners/"><u>[New] The Complete Playbook for YouTube Beginners</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-sierra-icloud-document-and-desktop-guide/"><u>[Updated] In 2024, The Ultimate Sierra iCloud Document & Desktop Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>[Updated] Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-unlimited-picture-pools-the-best-10-resources-for-2024/"><u>[Updated] Unlimited Picture Pools The Best 10 Resources for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/ensure-compatibility-download-the-required-drivers-for-your-epson-stylus-nx420-on-windows-versions-7-8-and-10/"><u>Ensure Compatibility: Download the Required Drivers for Your Epson Stylus NX420 on Windows Versions (7, 8 & 10)</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/full-guide-to-unlock-your-lenovo-by-drfone-android/"><u>Full Guide to Unlock Your Lenovo</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/kindle-unlimited-a-leap-forward-in-digital-book-accessibility-discover-its-four-major-selling-points/"><u>Kindle Unlimited: A Leap Forward in Digital Book Accessibility - Discover Its Four Major Selling Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-world-of-facebook-group-queries/"><u>Navigating the World of Facebook Group Queries</u></a></li>
+<li><a href="https://facebook.techidaily.com/pondering-apples-decision-to-forego-metaverse-adventure/"><u>Pondering Apple's Decision to Forego Metaverse Adventure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anti-big-tech-movement-understanding-regulatory-intentions/"><u>The Anti-Big Tech Movement: Understanding Regulatory Intentions</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-rated-family-wifi-protectors-the-ultimate-router-selection/"><u>Top-Rated Family WiFi Protectors: The Ultimate Router Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/tutorial-removing-fb-new-message-indicators/"><u>Tutorial: Removing Fb New Message Indicators</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-facebook-and-its-common-issues/"><u>Unlocking the Secrets of Facebook & Its Common Issues</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/unlocking-vimeo-mastery-of-tools-software-and-skillful-techniques-for-2024/"><u>Unlocking Vimeo Mastery of Tools, Software & Skillful Techniques for 2024</u></a></li>
+</ul></div>
+

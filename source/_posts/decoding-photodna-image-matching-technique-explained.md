@@ -1,7 +1,7 @@
 ---
 title: "Decoding PhotoDNA: Image Matching Technique Explained"
-date: 2024-07-12T10:16:43.000Z
-updated: 2024-07-13T10:16:43.000Z
+date: 2024-09-11T18:27:31.703Z
+updated: 2024-09-16T17:08:32.317Z
 tags:
   - facebook
 categories:
@@ -67,11 +67,25 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
  This will likely be a lot higher now as more people have joined the service, the company operates multiple networks (including Instagram and WhatsApp), and we have easier access to smartphone cameras and reliable internet. Given its role in society, Facebook must reduce and remove CSAM and other illegal material.
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -81,14 +95,11 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,6 +108,18 @@ thumbnail: https://thmb.techidaily.com/207578e24a0a184b7539ba9edecf41bf44046bb66
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-evaluating-eccentricities-the-goofy-movie-retrospective/"><u>[New] 2024 Approved Evaluating Eccentricities The Goofy Movie Retrospective</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-secrets-revealed-best-8-costless-3d-vids-software-on-pcmac/"><u>[New] Secrets Revealed Best 8 Costless 3D Vids Software on PC/Mac</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-favorites-top-10-tiktok-vids-for-2024/"><u>[Updated] Twitter's Favorites Top 10 TikTok Vids for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/determine-your-pcs-wattage-usage-on-windows-system/"><u>Determine Your PC's Wattage Usage on Windows System</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-change-in-whatsapp-capabilities-with-privacy-term-rejection/"><u>No Change in WhatsApp Capabilities with Privacy Term Rejection</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/overwatch-the-ultimate-guide-to-recording-gameplay-for-2024/"><u>Overwatch The Ultimate Guide to Recording Gameplay for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionary-access-how-facebooks-decision-impacts-oculus-go-users/"><u>Revolutionary Access: How Facebook's Decision Impacts Oculus Go Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-messages-discovering-new-auditory-features-on-messenger/"><u>Revolutionizing Messages: Discovering New Auditory Features on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/significance-of-missing-messenger-availability/"><u>Significance of Missing Messenger Availability</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-pioneers-top-20-internet-gatherings-for-todays-users/"><u>Social Pioneers: Top 20 Internet Gatherings for Today's Users</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-cut-vlc-videos-on-mac-without-compromise-top-trimming-method/"><u>Updated In 2024, Cut VLC Videos on Mac Without Compromise Top Trimming Method</u></a></li>
+</ul></div>
 

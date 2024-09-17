@@ -1,7 +1,7 @@
 ---
 title: "Virtual Consequences: The Negative Reality of Online Relationships"
-date: 2024-09-10T15:01:49.601Z
-updated: 2024-09-11T15:01:49.601Z
+date: 2024-09-13T00:15:55.473Z
+updated: 2024-09-16T18:31:43.161Z
 tags:
   - facebook
 categories:
@@ -19,13 +19,10 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  Unfortunately, the bad effects of social media are all too real for a lot of us. Let's look at the negative impacts of social media on real people, so you can recognize these symptoms and get help if needed.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## How Social Media Is Bad for You
 
@@ -47,20 +44,6 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
 ![Teenage Girl Being Bullied By Text Message](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Cyberbullying-Social-Media.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Image Credit: HighwayStarz/[Depositphotos](https://depositphotos.com/70434495/stock-photo-teenage-girl-being-bullied-by.html)
 
  Before social media, bullying was something that was only possible to do face-to-face. However, now people can bully others online—anonymously or not. Today everyone knows[what cyberbullying is](https://www.makeuseof.com/what-is-cyberbullying/) , and most of us have seen what it can do to a person.
@@ -71,20 +54,6 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  Learn[how to make your Instagram profile more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , and apply the same advice to other social networks, if you suffer from this issue.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. FOMO (Fear of Missing Out)
 
  Fear of Missing Out (FOMO) is a phenomenon that became prominent around the same time as the rise of social media. Unsurprisingly, it's one of the most widespread negative effects of social media on society.
@@ -93,23 +62,16 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  This fear receives constant fuel from what you see on social media. With increased social network use, there's a better chance for you to see that someone is having more fun than you are right now. That's exactly what causes FOMO, so if you're prone to this, know[how to prevent FOMO when using social media](https://www.makeuseof.com/ways-to-prevent-fomo-social-media/) (or cut back on using it altogether).
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 4\. Unrealistic Expectations
 
 ![Girl taking an exaggerated selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/01/Unrealistic-Expectations-Social-Media.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: prometeus/[Depositphotos](https://depositphotos.com/190513612/stock-photo-making-selfie-on-a-party.html)
 
@@ -123,19 +85,18 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  Remember an important adage: you should not judge your everyday life against the highlights of someone else's.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 5\. Negative Body Image
 
@@ -159,19 +120,18 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  Don't let social media algorithms, which are designed to keep your attention for as long as possible, steal your valuable sleep too. Getting less sleep, combined with that sleep being lower quality, is a dangerous, unhealthy combination.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## 7\. General Addiction
 
@@ -185,34 +145,17 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
 
  Just because you've been going overboard on social media use doesn't mean you necessarily need to wipe out all your social networking accounts. However, if you think quitting is the best solution for you, it isn't a bad idea. See our[guide to quitting social media for good](https://www.makeuseof.com/how-to-quit-social-media/) if you'd like help.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How to Handle the Negative Effects of Social Media
 
  As with everything else, there are good and bad aspects of social media. We've discussed some of the negative impacts social media has for many, but you're the one who must decide whether there's more help or harm in it for you personally.
 
  If you find that social media is having a negative impact on your life, stop using it. However, if you decide to stay, there are ways to waste less time on social media, and thus maintain a healthier relationship with it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -221,62 +164,19 @@ thumbnail: https://thmb.techidaily.com/f3f7c2648aae473eb47faf6b1572e2de9e0b4b9ce
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-prime-online-spots-for-availing-text-enhancement-files/"><u>[New] 2024 Approved Prime Online Spots for Availing Text Enhancement Files</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-capture-memories-best-apps-to-enhance-photos/"><u>[New] In 2024, Capture Memories Best Apps to Enhance Photos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-inside-obs-alternatives-for-professional-streamers/"><u>[New] Inside OBS Alternatives for Professional Streamers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-seamless-social-media-experience-with-fb-videos-for-2024/"><u>[New] Seamless Social Media Experience with FB Videos for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-streaming-into-the-future-a-review/"><u>[Updated] 2024 Approved Streaming Into the Future A Review</u></a></li>
-<li><a href="https://facebook.techidaily.com/deactivating-in-app-web-engagement-on-fb/"><u>Deactivating In-App Web Engagement on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/december-the-final-month-for-insta-threads/"><u>December: The Final Month for Insta Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciding-your-online-space-for-group-interaction-a-networking-analysis/"><u>Deciding Your Online Space for Group Interaction: A Networking Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-data-downloading-all-of-your-facebook-activity/"><u>Deciphering Data: Downloading All of Your Facebook Activity</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebook-follows-and-unfollows-tips-for-effective-use/"><u>Decoding Facebook Follows and Unfollows: Tips for Effective Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-change-from-a-narrative-perspective/"><u>Decoding Facebook's Change From a Narrative Perspective</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-fb-picture-visibility-options/"><u>Decoding FB Picture Visibility Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-online-deceit-dispelling-10-facebook-falsehoods/"><u>Decoding Online Deceit: Dispelling 10 Facebook Falsehoods</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-equilibrium-of-price-in-crypto-coins/"><u>Decoding the Equilibrium of Price in Crypto Coins</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-facebook-content-moderation-authority/"><u>Decoding the Facebook Content Moderation Authority</u></a></li>
-<li><a href="https://facebook.techidaily.com/deconstructing-power-dynamics-7-core-insights-from-social-media-papers/"><u>Deconstructing Power Dynamics: 7 Core Insights From Social Media Papers</u></a></li>
-<li><a href="https://facebook.techidaily.com/delayed-dictum-social-media-court-hesitates/"><u>Delayed Dictum: Social Media Court Hesitates</u></a></li>
-<li><a href="https://facebook.techidaily.com/delve-into-digital-memories-friends-facebook-timeline/"><u>Delve Into Digital Memories: Friends' Facebook Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-facebooks-architectural-framework/"><u>Delving Into Facebook’s Architectural Framework</u></a></li>
-<li><a href="https://facebook.techidaily.com/demystifying-how-photodna-identifies-counterfeits/"><u>Demystifying How PhotoDNA Identifies Counterfeits</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-age-shift-facebooks-social-influence/"><u>Digital Age Shift: Facebook’s Social Influence</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-deception-how-design-undermines-privacy/"><u>Digital Deception: How Design Undermines Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decision-makers-guide-to-health-fact-verification/"><u>Digital Decision Makers' Guide to Health Fact Verification</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-decorum-or-discretion-managing-late-family-members-on-fb/"><u>Digital Decorum or Discretion? Managing Late Family Members on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-detox-ban-political-content-on-fb/"><u>Digital Detox: Ban Political Content on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-disappointments-examining-site-shutdowns/"><u>Digital Disappointments: Examining Site Shutdowns</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-goodbye-rituals-facebook-post-mortem-options/"><u>Digital Goodbye Rituals: Facebook Post-Mortem Options</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-global-mention-feature-in-fb/"><u>Disabling Global Mention Feature in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/disclose-whereabouts-a-messenger-guide/"><u>Disclose Whereabouts: A Messenger Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnect-and-vanish-step-by-step-fb-deletion-guide-android/"><u>Disconnect & Vanish: Step-By-Step FB Deletion Guide (Android)</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-benefits-of-facebooks-touch-features/"><u>Discovering the Benefits of Facebook's Touch Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-the-best-fb-image-choice/"><u>Discovering the Best FB Image Choice</u></a></li>
-<li><a href="https://facebook.techidaily.com/discreet-digital-denizens-on-fb/"><u>Discreet Digital Denizens on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-data-the-statistical-impact-of-hashtags-in-facebook-interactions/"><u>Dissecting Data: The Statistical Impact of Hashtags in Facebook Interactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-metaverse-vs-virtual-reality-exploring-6-core-distinctions/"><u>Dissecting Metaverse Vs. Virtual Reality: Exploring 6 Core Distinctions</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-into-metas-strategy-delaying-full-encryption-until-2023-rollout/"><u>Dive Into Meta's Strategy: Delaying Full Encryption Until 2023 Rollout</u></a></li>
-<li><a href="https://facebook.techidaily.com/dividing-lines-in-digital-districts-with-facebook-update/"><u>Dividing Lines in Digital Districts with Facebook Update</u></a></li>
-<li><a href="https://facebook.techidaily.com/do-facebooks-engaging-quizzes-compromise-security/"><u>Do Facebook's Engaging Quizzes Compromise Security?</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-strategies-reactivating-locked-out-fb-accounts/"><u>Effective Strategies: Reactivating Locked-Out Fb Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-techniques-to-unlock-fb-accounts-in-emergency/"><u>Effective Techniques to Unlock Fb Accounts in Emergency</u></a></li>
-<li><a href="https://facebook.techidaily.com/efficient-disassembly-method-for-facebook-communities/"><u>Efficient Disassembly Method for Facebook Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/effortlessly-enable-night-mode-feature-in-facebook/"><u>Effortlessly Enable Night Mode Feature in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevate-your-engagement-upgrade-your-earnings-with-these-strategies/"><u>Elevate Your Engagement, Upgrade Your Earnings with These Strategies</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhanced-accuracy-in-every-click-bings-ai-driven-search-on-devices/"><u>Enhanced Accuracy in Every Click: Bing’s AI-Driven Search on Devices</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mental-matinee-best-general-knowledge-shows/"><u>In 2024, Mental Matinee Best General Knowledge Shows</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-tecno-pova-5-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Tecno Pova 5 without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-what-is-ai-influencer/"><u>In 2024, What Is AI Influencer?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/quick-fixes-for-why-is-my-oppo-k11x-black-and-white-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Quick Fixes for Why Is My Oppo K11x Black and White | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/come-mescolare-e-combina-i-tuoi-video-in-formato-mp4/"><u>Come Mescolare E Combina I Tuoi Video in Formato MP4</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/efficiently-conducting-virtual-meetings-via-zoom-in-win10/"><u>Efficiently Conducting Virtual Meetings via Zoom in Win10</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-peace-in-the-online-world-memorializing-vs-deleting/"><u>Ensuring Peace in the Online World - Memorializing Vs. Deleting</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-facebooks-reel-strategy-in-combat-with-tiktok/"><u>Examining Facebook’s Reel Strategy in Combat with TikTok</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-windows-10-sound-settings-a-guide-to-restoring-volume-functionality/"><u>Fixing Windows 10 Sound Settings: A Guide to Restoring Volume Functionality</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-oppo-reno-8t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-apple-iphone-14-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your Apple iPhone 14 Plus without Security Questions?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-oppo-a78-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Oppo A78 5G Through Google Earth?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-tips-for-producing-ai-powered-live-game-streaming-content/"><u>In 2024, Tips for Producing AI-Powered Live Game Streaming Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-network-scrutiny-right-to-suspend-trump-temporarily/"><u>Social Network Scrutiny: Right to Suspend Trump Temporarily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-explaining-imagery-on-social-platforms/"><u>The Art of Explaining Imagery on Social Platforms</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-hidden-potential-a-deep-dive-into-background-eraser-in-ps/"><u>Unveiling Hidden Potential A Deep Dive Into Background Eraser in PS</u></a></li>
 </ul></div>
-
-
-
 

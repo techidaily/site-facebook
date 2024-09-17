@@ -1,7 +1,7 @@
 ---
 title: "Underappreciated Innovations: The Most Important Unnoticed Tech News"
-date: 2024-09-10T15:03:53.776Z
-updated: 2024-09-11T15:03:53.776Z
+date: 2024-09-14T21:42:30.398Z
+updated: 2024-09-16T21:36:33.458Z
 tags:
   - facebook
 categories:
@@ -19,45 +19,14 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  So, before we close the year, let's look at the four biggest news stories that will change the tech landscape in the years to come.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## GameStop and the Birth of Meme Stocks
 
 ![Wall St Street Sign with Blonde cool guy drawing holding the bets word](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/WallStreetBets.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Image Credit: u/lucushoule/[Reddit](https://www.reddit.com/r/wallstreetbets/comments/g5n0nz/made%5Fthis%5Fwsb%5Fkid%5Fgif%5Ffor%5Feveryone%5Fuse%5Fit%5Fas%5Fyou/)
 
@@ -71,43 +40,9 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  Although attention has shifted to cryptocurrency and NFTS, this news story set the tone of what 2021 could be.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The $2.9 Million Tweet
 
 ![twitter jack dorsey nft feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/twitter-jack-dorsey-nft-feature.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  Although the first non-fungible token was created and traded in 2014, it wasn't until 2021 that this term exploded in popularity. It started in February 2021, when several high-value, high-profile NFTs, including the Nyan Cat meme, were sold.
 
@@ -119,37 +54,9 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  Although NFTs remain a highly controversial topic, these developments have turned it from a fringe technology known only to tech geeks into something a bit more mainstream, with millions of users—from art collectors to[professional gamers](https://www.makeuseof.com/nfts-gaming-revolution/) .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Welcome to the Metaverse
 
 ![Dark street lit by neon lights](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Dark-street-neon-lights.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  In October 2021, Mark Zuckerberg announced that Facebook would rebrand its parent company to Meta. While this has no immediate impact on the day-to-day experience of using their social apps, it signs a shift in the company's priorities from social media to the metaverse.
 
@@ -160,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
  Related:[What Is the Metaverse?](https://www.makeuseof.com/what-is-the-metaverse/)
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Apple and Facebook's Privacy War
 
@@ -175,20 +89,30 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Tech News Will We See in 2022?
 
  These are some of the biggest tech news stories of 2021, and we're looking forward to a more exciting 2022\. While many of us won't feel the immediate impact of these developments, they will shape how we use and interact with technology in the near future.
 
  And as we march into the new year, we can look back at these developments and see the changes they will bring to our society.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,68 +121,22 @@ thumbnail: https://thmb.techidaily.com/2759ed3d822d64726b5041a7dfa5154bfc20081c3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-decoding-youtube-stats-efficiency-with-social-blades-advanced-analysis/"><u>[New] Decoding YouTube Stats Efficiency with Social Blade's Advanced Analysis</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-update-essential-strategies-for-social-media-savvy/"><u>[New] In 2024, Facebook Update Essential Strategies for Social Media Savvy</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fresh-vlog-discussion-ideas-each-day/"><u>[New] In 2024, Fresh Vlog Discussion Ideas Each Day</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-premium-vimeo-file-extractors/"><u>[New] Premium Vimeo File Extractors</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-stepwise-guide-to-optimal-zoom-audio-recording-for-2024/"><u>[New] Stepwise Guide to Optimal Zoom Audio Recording for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-how-to-use-zoom-in-gmail-for-2024/"><u>[Updated] How to Use Zoom in Gmail for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-master-your-gaming-auditory-experience-with-this-best-free-app-valorant-edition/"><u>[Updated] Master Your Gaming Auditory Experience with This Best Free App – Valorant Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-mastermind-knowledge-capture-via-mematics-app-for-2024/"><u>[Updated] Mastermind Knowledge Capture via Mematic's App for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-charting-a-course-for-influential-insights-within-your-niche/"><u>2024 Approved Charting a Course for Influential Insights Within Your Niche</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/applause-for-mondly-kids-on-google-plays-top-selections/"><u>Applause for Mondly Kids on Google Play’s Top Selections</u></a></li>
-<li><a href="https://article-files.techidaily.com/cost-breakdown-for-youtube-ads-for-2024/"><u>Cost Breakdown for YouTube Ads for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/deciphering-and-repairing-the-stop-code-0x00000028-in-windows-systems-effectively/"><u>Deciphering and Repairing the Stop Code 0X00000028 in Windows Systems Effectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/embarking-on-the-journey-of-modern-love-with-facebooks-new-feature/"><u>Embarking on the Journey of Modern Love with Facebook's New Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-privacy-editing-child-account-on-messenger-kids/"><u>Enhancing Privacy: Editing Child Account on Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-will-reels-redefine-user-engagement-against-tiktok/"><u>Facebook, Will Reels Redefine User Engagement Against TikTok?</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-clearing-your-facebook-notification-history/"><u>Guide to Clearing Your Facebook Notification History</u></a></li>
-<li><a href="https://facebook.techidaily.com/guiding-users-through-misinformation-on-health-apps-and-sites/"><u>Guiding Users Through Misinformation on Health Apps & Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-disconnect-instagram-from-your-fb-profile/"><u>How to Disconnect Instagram From Your FB Profile</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/how-to-install-brother-printers-quickly-and-easily/"><u>How to Install Brother Printers [Quickly & Easily]</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-stop-using-facebooks-in-app-browser/"><u>How To Stop Using Facebook's In-App Browser</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mood-matcher-auditory-selection-for-videos/"><u>In 2024, Mood Matcher Auditory Selection for Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/internet-outlawed-3-countries-excluded-from-facebook/"><u>Internet Outlawed: 3 Countries Excluded From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/keeping-watch-over-your-pc-and-emails-indicators-of-use/"><u>Keeping Watch Over Your PC & Emails: Indicators of Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/key-considerations-for-updating-your-facebook-profile-picture/"><u>Key Considerations for Updating Your Facebook Profile Picture</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-exit-from-biometrics-marks-a-turning-point-at-fb/"><u>Meta's Exit From Biometrics Marks a Turning Point at FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-made-easy-with-mondlyar/"><u>Multilingual Mastery Made Easy with MondlyAR</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigate-through-windows-10s-media-importation-elegantly-for-2024/"><u>Navigate Through Windows 10'S Media Importation Elegantly for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-your-businesss-profile-with-multilingual-posts/"><u>Optimizing Your Business's Profile with Multilingual Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-a-blockage-friends-on-facebook-again/"><u>Overcoming a Blockage: Friends on Facebook Again?</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-takes-tech-companies-to-court-over-speech-limits/"><u>President Takes Tech Companies to Court over Speech Limits</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-identity-online-check-for-fb-intruders/"><u>Protecting Identity Online – Check for FB Intruders</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-identity-what-not-to-post-on-social-media-sites/"><u>Protecting Identity: What Not to Post on Social Media Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/quick-fixes-for-clearing-comments-on-facebook-posts/"><u>Quick Fixes for Clearing Comments on Facebook Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/reversal-rituals-the-protocol-for-regaining-your-fb-funds/"><u>Reversal Rituals: The Protocol for Regaining Your FB Funds</u></a></li>
-<li><a href="https://windows11.techidaily.com/seamless-shadowrunners-speed-up-your-bf2-experience/"><u>Seamless Shadowrunners: Speed up Your BF2 Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networks-alert-privacy-preserves-app-accessibility/"><u>Social Networks Alert: Privacy Preserves App Accessibility</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-platform-security-tips/"><u>Social Platform Security Tips</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-to-epson-scanner-downloads-for-optimal-performance/"><u>Step-by-Step Guide to Epson Scanner Downloads for Optimal Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-implementing-2fa-for-secure-online-communication/"><u>Step-by-Step: Implementing 2FA for Secure Online Communication</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-fb-career-opportunities-promotion/"><u>Strategies for FB Career Opportunities Promotion</u></a></li>
-<li><a href="https://facebook.techidaily.com/suspension-on-ice-oversight-group-eyes-trump-case/"><u>Suspension on Ice: Oversight Group Eyes Trump Case</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-time-management-for-a-healthy-social-media-diet/"><u>Tailoring Time Management for a Healthy Social Media Diet</u></a></li>
-<li><a href="https://facebook.techidaily.com/tapping-into-the-advantages-how-to-use-sleep-mode-in-messenger-kids/"><u>Tapping Into the Advantages: How to Use Sleep Mode in Messenger Kids</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-escape-to-online-shopping-with-fb-fridays/"><u>The Great Escape to Online Shopping with FB Fridays</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-creating-lasting-impressions-in-fb-cover-pictures/"><u>Tips for Creating Lasting Impressions in Fb Cover Pictures</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/top-download-sites-showcasing-exquisite-text-effects-for-2024/"><u>Top Download Sites Showcasing Exquisite Text Effects for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-facebook-posts-smart-autocaption-features-for-users/"><u>Transforming Facebook Posts: Smart AutoCaption Features for Users</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-choice-elite-smartphone-gimbals-of-the-year-2024/"><u>Ultimate Choice: Elite Smartphone Gimbals of the Year 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-deceptions-tactics-to-skirt-scams/"><u>Unraveling Deceptions: Tactics to Skirt Scams</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-digital-identity-differences-on-major-platforms/"><u>Unraveling Digital Identity Differences on Major Platforms</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/what-are-large-language-models-llms-and-how-do-they-work/"><u>What Are Large Language Models (LLMs) and How Do They Work?</u></a></li>
-<li><a href="https://win11.techidaily.com/what-to-do-when-windows-cant-locate-powershell-console/"><u>What to Do When Windows Can't Locate PowerShell Console</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-permits-more-than-one-profile-linked-to-a-single-id/"><u>Why Facebook Permits More than One Profile Linked to a Single ID</u></a></li>
-<li><a href="https://facebook.techidaily.com/year-in-review-unpacking-this-years-favorite-podcasts/"><u>Year in Review: Unpacking This Year's Favorite Podcasts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-transform-your-recording-experience-moving-past-fbx-methods/"><u>[New] 2024 Approved Transform Your Recording Experience Moving Past FBX Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-android-and-ios-the-best-sound-distortion-tools-for-2024/"><u>[New] Android & iOS The Best Sound Distortion Tools for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-dive-deep-into-unreal-worlds-with-these-titles/"><u>[New] Dive Deep Into Unreal Worlds with These Titles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-from-your-vantage-point-to-the-worlds-sharing-immersive-photos-online/"><u>[Updated] From Your Vantage Point to the World's Sharing Immersive Photos Online</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-powerpoint-presentations-merging-text-with-tuneable-tracks-for-2024/"><u>[Updated] PowerPoint Presentations Merging Text with Tuneable Tracks for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-crafting-unique-content-to-differentiate-your-channel/"><u>2024 Approved Crafting Unique Content to Differentiate Your Channel</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-vivo-g2withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Vivo G2with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-facebook-visibility-settings/"><u>Mastering Your Facebook Visibility Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-promotion-the-5-leading-social-tools-for-trade/"><u>Pioneering Promotion: The 5 Leading Social Tools for Trade</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/punchy-prowess-vs-online-influence-for-2024/"><u>Punchy Prowess Vs Online Influence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-facebook-session-common-fixes-at-hand/"><u>Revive Your Facebook Session: Common Fixes at Hand</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-honor-90-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
 </ul></div>
-
-
-
 

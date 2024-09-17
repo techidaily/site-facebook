@@ -1,7 +1,7 @@
 ---
 title: Whistle-Blowers Say Facebook Clamps Honesty in Ads
-date: 2024-07-12T10:19:45.865Z
-updated: 2024-07-13T10:19:45.865Z
+date: 2024-09-15T19:02:14.109Z
+updated: 2024-09-16T20:45:21.180Z
 tags:
   - facebook
 categories:
@@ -47,6 +47,13 @@ Facebook responded with the following statement to the media:
 
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is This Nothing But a PR Stunt on Signal's Part?
 
  Signal wrapped it up nicely with the following passage in its blog post:
@@ -57,14 +64,11 @@ Facebook responded with the following statement to the media:
 
  Signal is a secure messaging app that uses end-to-end encryption, vanishing messages, and other features to prevent eavesdropping. While not as popular as WhatsApp or Viber, Signal saw a sudden surge in popularity following Facebook's controversial privacy policy update on WhatsApp which drove some WhatsApp users away from that platform.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,6 +77,19 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-crafting-compelling-narratives-with-facebook-cover-vids-for-2024/"><u>[New] Crafting Compelling Narratives with Facebook Cover Vids for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-monetary-gains-mr-beast-in-focus/"><u>[New] Monetary Gains Mr. Beast in Focus</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-perfect-presentation-powerpoint-recordings-on-webcam-for-2024/"><u>[New] Perfect Presentation PowerPoint Recordings on Webcam for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-starting-point-connecting-seamlessly-via-instagram/"><u>[Updated] Starting Point Connecting Seamlessly via Instagram</u></a></li>
+<li><a href="https://fox-http.techidaily.com/complete-preview-control-essentials-for-mac-users-for-2024/"><u>Complete Preview Control Essentials for Mac Users for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/creating-customized-secure-fitness-plans-with-chatgpt/"><u>Creating Customized, Secure Fitness Plans with ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-copycat-scams-a-brief-overview/"><u>Facebook Copycat Scams: A Brief Overview</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-presentation-maker/"><u>In 2024, What Is an AI Presentation Maker?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/keeping-industrial-communication-private-with-gpt/"><u>Keeping Industrial Communication Private with GPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaping-your-digital-face-on-facebook/"><u>Shaping Your Digital Face on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-best-calendar-software-for-social-media-consistency/"><u>The Best Calendar Software for Social Media Consistency</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Language of Likes & Reactions Unraveled
-date: 2024-07-12T10:17:30.371Z
-updated: 2024-07-13T10:17:30.371Z
+date: 2024-09-10T20:35:01.791Z
+updated: 2024-09-16T18:52:33.890Z
 tags:
   - facebook
 categories:
@@ -82,6 +82,19 @@ What do these Facebook symbols mean?
 
  All-in-all, creating a Facebook post comes with a great many symbols and tools, but the above are the most essential.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Icons When Managing Facebook Posts
 
  It's also important to consider the symbols that show up alongside posts when you click the**Ellipsis** button in the upper right corner of a post window.
@@ -114,13 +127,34 @@ What do these Facebook symbols mean?
 
 ![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
 
 ![Chats Icon and Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/chats-icon-and-tools-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The**bell icon** is where you can view your Facebook notifications, broken into two filters:**All** and**Unread** . The**More** button contains icons for marking everything as read, adjusting settings, and opening a notifications window.
 
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
 
@@ -169,14 +203,11 @@ What do these Facebook symbols mean?
 
  This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,6 +216,23 @@ What do these Facebook symbols mean?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-ultimate-guide-to-gopro-karma-performance/"><u>[New] In 2024, The Ultimate Guide to GoPro Karma Performance</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-from-camera-roll-to-twitter-feed-video-posting-guide-for-2024/"><u>[Updated] From Camera Roll to Twitter Feed Video Posting Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-voice-customization-go-beyond-echoes/"><u>[Updated] Leading Voice Customization Go Beyond Echoes</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unleash-your-inner-influencer-9-essential-instagram-steps/"><u>[Updated] Unleash Your Inner Influencer 9 Essential Instagram Steps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigate-new-walls-insiders-guide-to-wallpapers-in-win11/"><u>2024 Approved Navigate New Walls Insider's Guide to Wallpapers in Win11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-navigating-the-path-to-igtv-fame-5-growth-strategies-explored/"><u>2024 Approved Navigating the Path to IGTV Fame 5 Growth Strategies Explored</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/androids-guide-to-spinning-and-combining-video-files-for-2024/"><u>Android's Guide to Spinning & Combining Video Files for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-group-dynamics-with-structured-rules-on-fb/"><u>Enhancing Group Dynamics with Structured Rules on FB</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-vivo-y28-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Vivo Y28 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/presidents-platform-status-in-question/"><u>President's Platform Status in Question</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/streamlining-youtube-content-onto-insta-feed/"><u>Streamlining YouTube Content Onto Insta Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-untaging-yourself-in-online-communities/"><u>Tips for Untaging Yourself in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-that-boost-campaign-performance/"><u>Top 8 CrowdFlower Tools That Boost Campaign Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
+</ul></div>
 

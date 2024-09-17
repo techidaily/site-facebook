@@ -1,7 +1,7 @@
 ---
 title: "The Next Digital Frontier: Decoding the Metaverse"
-date: 2024-07-12T10:19:34.474Z
-updated: 2024-07-13T10:19:34.474Z
+date: 2024-09-14T18:23:50.324Z
+updated: 2024-09-16T23:30:21.668Z
 tags:
   - facebook
 categories:
@@ -71,6 +71,19 @@ Yet.
 
  In 1982, at a time when the internet was still being developed, William Gibson was already publishing Burning Chrome with his own futuristic version of it in it, followed by Neal Stephenson’s metaverse in Snow Crash ten years later. Although, at the time, we did not have the technology to create such an expansive version of it, we might be able to pull it off in a not-so-distant future, not to say we haven’t tried.
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Metaverse Precursors
 ![Guy wearing VR helmet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Guy-wearing-VR-helmet.jpg)
 
@@ -83,6 +96,13 @@ Yet.
 * **Facebook Horizon (2019)** : a social VR world by Facebook.
 * **Fortnite Creative (2018)** : Epic Games releases Fortnite Creative, a sandbox mode that allows players to interact with their environment and invite friends to their private island. Epic Games is increasingly redirecting Fortnite into a Metaverse narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Metaverse Is the Future of the Internet
 ![Blonde girl wearing glasses with electronics on the back](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Blonde-girl-wearing-glasses-electronics-on-the-back.jpg)
 
@@ -92,14 +112,11 @@ Yet.
 
  We made it to the moon already, the robotics industry grows by the day, and we already have the internet. With scientists working hard on improving VR technology and the advancements in telecommunications, what keeps us from building this shared persistent virtual universe?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -108,6 +125,19 @@ Yet.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-speaking-to-tomorrow-iphone-voice-memo/"><u>[New] Speaking to Tomorrow - iPhone Voice Memo</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-essential-tips-for-leveraging-azure-speech-to-text-service-for-2024/"><u>[Updated] Essential Tips for Leveraging Azure Speech to Text Service for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-accelerate-android-videos-from-sluggish-to-swift/"><u>2024 Approved Accelerate Android Videos From Sluggish to Swift</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/download-exclusive-free-resources-and-top-tools-at-no-cost-get-your-complimentary-ebooks-now/"><u>Download Exclusive Free Resources & Top Tools at No Cost – Get Your Complimentary Ebooks Now!</u></a></li>
+<li><a href="https://common-error.techidaily.com/exploring-msda80dll-file-to-preserve-or-delete/"><u>Exploring MSDA80.DLL File: To Preserve or Delete?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-look-at-mobvois-latest-the-ticwatch-pro-3-with-gps-and-extended-dual-screen-life-reviewed/"><u>In-Depth Look at Mobvoi's Latest: The TicWatch Pro 3 with GPS and Extended Dual Screen Life Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-email-security-upgrades-with-2fa-in-largest-email-apps/"><u>Navigating Email Security Upgrades with 2FA in Largest Email Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/recharge-without-facebook-a-guide-to-unfollowing/"><u>Recharge Without Facebook: A Guide to Unfollowing</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-fix-skype-audio-problems-with-simple-steps/"><u>Troubleshoot and Fix Skype Audio Problems with Simple Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/truth-in-a-tweet-debunking-top-facebook-misconceptions/"><u>Truth in a Tweet: Debunking Top Facebook Misconceptions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-project-the-upcoming-smartwatch/"><u>Unveiling Facebook's Hidden Project: The Upcoming Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-multi-device-support-is-coming-zuckerberg-confirms/"><u>WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms</u></a></li>
+</ul></div>
 

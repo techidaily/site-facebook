@@ -1,7 +1,7 @@
 ---
 title: "Maximizing Data Retrieval: Total Facebook Archive Acquisition"
-date: 2024-07-12T10:16:03.831Z
-updated: 2024-07-13T10:16:03.831Z
+date: 2024-09-13T20:17:19.355Z
+updated: 2024-09-17T00:06:42.289Z
 tags:
   - facebook
 categories:
@@ -71,6 +71,13 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
 ![Facebook data download photos pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-photos-pages.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Other downloadable datasets include:
 
 * **Ads Interests:** Essentially topics that Facebook describes as "most relevant to you". This is worth a look since many of the categories probably _don't_ apply to you.
@@ -79,6 +86,13 @@ Other downloadable datasets include:
 * **Messages:** Including those you thought you'd deleted.
 * **Friends:** Including juicy categories like **Rejected friend requests** and **Removed friends** you'd forgotten about.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What's Not Included in Downloaded Facebook Data?
 
  Facebook doesn't give away everything it knows about you, just the things you've explicitly shared. There are some limited advertising flags, like your broader interests and adverts you've interacted with; but these don't tell the whole story.
@@ -86,6 +100,13 @@ Other downloadable datasets include:
 [ProPublica](https://www.propublica.org/article/facebook-doesnt-tell-users-everything-it-really-knows-about-them) identified over 52,000 unique "attributes" Facebook uses to classify its users. Most of these metrics do not appear in the Ad Interests section of your Facebook download.
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
@@ -115,14 +136,11 @@ Other downloadable datasets include:
 
  Image Credit: Christoph Scholz/[Flickr](https://www.flickr.com/photos/140988606@N08/25076399117/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,6 +149,15 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/breaking-down-the-barriers-effective-rtmp-streaming-in-premiere-for-2024/"><u>Breaking Down the Barriers Effective RTMP Streaming in Premiere for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-top-free-avi-video-rotators-for-windows-mac-android-iphone-and-online-use-for-2024/"><u>New Top Free AVI Video Rotators for Windows, MAC, Android, iPhone, and Online Use for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-new-oculus-quest-model-in-current-calendar/"><u>No New Oculus Quest Model in Current Calendar</u></a></li>
+<li><a href="https://facebook.techidaily.com/report-facebook-users-buying-300-oculus-rift-headsets-to-reset-hacked-accounts/"><u>Report: Facebook Users Buying $300 Oculus Rift Headsets to Reset Hacked Accounts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-motorola-moto-g24-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Motorola Moto G24? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-nokia-xr21-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Nokia XR21 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/1723013033329-tp-links-archer-c80-unleashed-the-best-sub-100-router-on-the-market-today/"><u>TP-Link's Archer C80 Unleashed: The Best Sub-$100 Router on the Market Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/whistleblower-exposes-hidden-facebook-truths/"><u>Whistleblower Exposes Hidden Facebook Truths</u></a></li>
+</ul></div>
 

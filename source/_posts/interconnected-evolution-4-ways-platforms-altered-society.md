@@ -1,7 +1,7 @@
 ---
 title: "Interconnected Evolution: 4 Ways Platforms Altered Society"
-date: 2024-07-12T10:17:05.291Z
-updated: 2024-07-13T10:17:05.291Z
+date: 2024-09-13T22:58:56.475Z
+updated: 2024-09-16T20:56:38.354Z
 tags:
   - facebook
 categories:
@@ -47,21 +47,38 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  BeReal didn’t just popularize the once-per-day photo. The app has proven that audiences want more authentic content and less of the perfect photoshopped influencer content that other platforms have become known for. Even if BeReal itself doesn’t last, the impact on the kind of content we see all over social media will likely last beyond 2022.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Social Media in 2022
 ![social media apps on phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/social-media-apps-on-phone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  2022 was a defining year for social media all over the world. Many of the changes we saw are likely not just trends; they are transformations to our favorite platforms that will continue to evolve as we use social media differently.
 
  Were the changes we saw in 2022 for the better or did they make things worse? Many of them were controversial or unpopular, but others will help us remember 2022 positively. It will be exciting to see how these changes will shape the future of the social media world.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -70,6 +87,17 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-how-to-organize-photo-album-on-iphone-and-icloud/"><u>[New] In 2024, How To Organize Photo Album On iPhone And iCloud</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlock-full-participant-grid-display-in-meet/"><u>[New] Unlock Full Participant Grid Display in Meet</u></a></li>
+<li><a href="https://extra-information.techidaily.com/exclusive-sites-for-secure-and-quick-download-of-youtube-ringtones/"><u>Exclusive Sites for Secure & Quick Download of YouTube Ringtones</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/exploring-browsing-anomalies-where-are-my-fb-video-suggestions/"><u>Exploring Browsing Anomalies Where Are My FB Video Suggestions?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-the-art-of-aerial-broadcasting-a-dji-drone-guide-for-facebook/"><u>In 2024, The Art of Aerial Broadcasting A DJI Drone Guide for Facebook</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/recording-reviewers-circle-downloads-for-critique-for-2024/"><u>Recording Reviewers Circle Downloads for Critique for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-every-memory-complete-download-of-facebook-records/"><u>Securing Every Memory: Complete Download of Facebook Records</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-facebook-and-instagrams-new-alliance/"><u>Social Synergy: Facebook & Instagram's New Alliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-identifying-fb-banned-acquaintances/"><u>The Ultimate Guide to Identifying FB Banned Acquaintances</u></a></li>
+<li><a href="https://techidaily.com/undeleted-lost-videos-from-poco-m6-pro-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Poco M6 Pro 5G</u></a></li>
+</ul></div>
 

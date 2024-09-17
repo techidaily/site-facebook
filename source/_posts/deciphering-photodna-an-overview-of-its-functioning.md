@@ -1,7 +1,7 @@
 ---
 title: "Deciphering PhotoDNA: An Overview of Its Functioning"
-date: 2024-07-12T10:15:40.512Z
-updated: 2024-07-13T10:15:40.512Z
+date: 2024-09-10T21:06:28.434Z
+updated: 2024-09-17T00:07:36.808Z
 tags:
   - facebook
 categories:
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does PhotoDNA Make the Internet Safer?
 
  The Microsoft-developed service is undoubtedly an essential tool. PhotoDNA plays a crucial role in preventing these images from spreading and may even help to help at-risk children.
@@ -81,14 +95,11 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,6 +108,22 @@ thumbnail: https://thmb.techidaily.com/1ccc74ee674e5bb21d96568f803e367c477d95c5c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-revenue-optimization-leveraging-your-youtube-mobile-audience/"><u>[Updated] Revenue Optimization Leveraging Your YouTube Mobile Audience</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-viewpoint-validation-digest-for-2024/"><u>[Updated] Viewpoint Validation Digest for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-proposed-features-additions-of-reels-and-rooms-to-stories/"><u>Facebook's Proposed Features: Additions of Reels & Rooms to Stories</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-add-link-to-facebook-story-4-ways-for-2024/"><u>How to Add Link to Facebook Story? [4 Ways] for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-locations-for-aspiring-freelancers/"><u>Ideal Locations for Aspiring Freelancers</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-15-pro-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone 15 Pro with iTunes</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-passcode-screen-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Plus Passcode Screen?</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-soundtrack-to-instagram-fame/"><u>In 2024, The Soundtrack to Instagram Fame</u></a></li>
+<li><a href="https://facebook.techidaily.com/influencer-network-behind-widespread-covid-19-misinformation/"><u>Influencer Network Behind Widespread Covid-19 Misinformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-messenger-adding-new-contacts-step-by-step/"><u>Mastering Facebook Messenger: Adding New Contacts Step-by-Step</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pros-picks-6-superior-background-cleaners-for-your-photos/"><u>Pro's Picks – 6 Superior Background Cleaners for Your Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-without-a-mobile-deactivating-fb-2fa/"><u>Reactivating Without a Mobile: Deactivating FB 2FA</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-mobile-payments-by-facebook-surpassing-traditional-apple-systems/"><u>Tailored Mobile Payments by Facebook Surpassing Traditional Apple Systems</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-does-meta-forsake-facial-recognition-on-facebook-platform/"><u>Why Does Meta Forsake Facial Recognition on Facebook Platform?</u></a></li>
+</ul></div>
 

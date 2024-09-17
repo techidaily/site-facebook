@@ -1,7 +1,7 @@
 ---
 title: How to Access Your Allotment From the $725 Million Facebook Award
-date: 2024-07-12T10:17:03.014Z
-updated: 2024-07-13T10:17:03.014Z
+date: 2024-09-10T20:03:52.092Z
+updated: 2024-09-16T17:41:12.949Z
 tags:
   - facebook
 categories:
@@ -60,20 +60,24 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
 
  This final number will determine the monetary value for each point. The monetary value will then be multiplied by the number of points assigned to each user filing a claim, determining each individual user’s entitled compensation. For example, if one point is worth $1 and you didn't deactivate your Facebook account for the entire 15.5-year timeframe of the lawsuit, you would receive $186.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook May Owe You, but Don’t Expect Life Changing Cash
 
  The class-action lawsuit against Facebook is major, but don't expect to be swimming in an underground vault filled to the brim with gold coins like Scrooge McDuck if you're awarded a cash settlement. Still, you should submit a claim.
 
  Because let's be real about what happened. If you live in the US, chances are, Facebook unethically and irresponsibly leaked your data to third-parties without your consent. That's wrong —and you shouldn't feel complacent about your misused data in the biggest social media leak in history. Roll the proverbial dice, and see what you get.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,6 +86,21 @@ thumbnail: https://thmb.techidaily.com/c889a547e421f550d3854604da4881f54e6123831
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-futures-virtual-frontier-predicted-top-5-new-ps-vr-titles/"><u>[New] Future's Virtual Frontier Predicted Top 5 New PS VR Titles</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/deal-tools-for-saving-your-online-video-presence-for-2024/"><u>[New] Ideal Tools for Saving Your Online Video Presence for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-outstanding-unlimited-space-service-index/"><u>[New] Outstanding Unlimited Space Service Index</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-youtubes-earning-potential-in-the-new-year/"><u>[Updated] Unlocking YouTube's Earning Potential in the New Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-everyday-moments-crafting-photo-collections-for-fb-sharing/"><u>Elevating Everyday Moments: Crafting Photo Collections for FB Sharing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-tips-4-ways-to-enhance-fb-live-recording-for-2024/"><u>Expert Tips 4 Ways to Enhance FB Live Recording for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-many-attempts-to-unlock-iphone-11-drfone-by-drfone-ios/"><u>How Many Attempts To Unlock iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-remove-and-reset-face-id-on-iphone-6s-by-drfone-ios/"><u>How to Remove and Reset Face ID on iPhone 6s</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-proven-methods-to-improve-zoom-efficiency-on-a-chromebook/"><u>In 2024, Proven Methods to Improve Zoom Efficiency on a Chromebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-netizen-language-30-must-learn-abbreviations/"><u>Navigating Netizen Language: 30 Must-Learn Abbreviations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-anonymous-advocates-playbook/"><u>The Anonymous Advocate's Playbook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-potential-new-title/"><u>Understanding Facebook's Potential New Title</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-impact-on-protection-the-deletion-of-user-faceprints-on-fb/"><u>Unraveling the Impact on Protection: The Deletion of User Faceprints on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-layout-and-navigation-updates/"><u>Unveiling Facebook Layout & Navigation Updates</u></a></li>
+</ul></div>
 

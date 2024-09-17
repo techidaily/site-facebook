@@ -1,7 +1,7 @@
 ---
 title: Charting Back to When I Embarked on Social Media's Vast Sea - Facebook
-date: 2024-07-12T10:14:32.107Z
-updated: 2024-07-13T10:14:32.107Z
+date: 2024-09-15T19:41:28.076Z
+updated: 2024-09-16T19:35:02.733Z
 tags:
   - facebook
 categories:
@@ -93,6 +93,13 @@ Close
 
  That date should be the day you made your Facebook profile or very close to that date.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
  Another way to find out when you created your Facebook account is by checking your oldest posts. This might sound daunting if you regularly post on Facebook, but it isn't. You can easily [find old posts on your Facebook timeline](https://www.makeuseof.com/tag/5-tools-help-find-anything-facebook-timeline/) without the endless scrolling.
@@ -113,20 +120,24 @@ Close
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly [delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Find Out When You Joined Facebook
 
  If you ever want to know when your Facebook account was created, the methods outlined above should help you find that information.
 
  Keep in mind different methods have different accuracy levels; use the first method if you can.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,6 +146,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-checklist-finding-videos-on-fb-today/"><u>[New] The Ultimate Checklist Finding Videos on FB Today</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-creating-compelling-sports-content-from-the-ground-up/"><u>[Updated] 2024 Approved Creating Compelling Sports Content From the Ground Up</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-pro-tips-10-crucial-tools-to-increase-followers/"><u>[Updated] Instagram Pro Tips 10 Crucial Tools to Increase Followers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-pinnacle-creation-hub-synopsis-studio-assessment-2023/"><u>[Updated] Pinnacle Creation Hub Synopsis, Studio Assessment 2023</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/advanced-typography-animation-suites/"><u>Advanced Typography Animation Suites</u></a></li>
+<li><a href="https://os-tips.techidaily.com/comprehensive-guide-macgo-ios-eraser-advantages-disadvantages-comparisons-and-frequently-asked-questions/"><u>Comprehensive Guide: Macgo iOS Eraser - Advantages, Disadvantages, Comparisons, and Frequently Asked Questions</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-invests-5m-in-challenging-substacks-reach-for-writers/"><u>Facebook Invests $5M in Challenging Substack's Reach for Writers</u></a></li>
+<li><a href="https://facebook.techidaily.com/gateway-blueprint-commanding-facebook-and-instagram-profiles/"><u>Gateway Blueprint: Commanding Facebook and Instagram Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-identity-identifying-9-hacked-profile-traits/"><u>Guard Your Identity: Identifying 9 Hacked Profile Traits</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-activate-and-use-life360-ghost-mode-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>How To Activate and Use Life360 Ghost Mode On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-digital-footprint-under-wraps/"><u>Keeping Your Digital Footprint Under Wraps</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-preference-poll-here/"><u>Social Media Preference Poll Here</u></a></li>
+<li><a href="https://games-able.techidaily.com/steam-versus-gog-marketplace-differences-highlighted/"><u>Steam Versus GOG: Marketplace Differences Highlighted</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-world-buzz-facebooks-first-smartwatch-could-have-two-cams/"><u>Tech World Buzz: Facebook's First Smartwatch Could Have Two Cams</u></a></li>
+</ul></div>
 

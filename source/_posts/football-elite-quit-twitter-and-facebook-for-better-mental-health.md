@@ -1,7 +1,7 @@
 ---
 title: Football Elite Quit Twitter & Facebook for Better Mental Health
-date: 2024-09-10T15:02:22.151Z
-updated: 2024-09-11T15:02:22.151Z
+date: 2024-09-10T22:03:40.094Z
+updated: 2024-09-16T22:14:20.899Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  England's top soccer leagues are taking a social media stand against the ongoing abuse and discrimination experienced by players across all levels of the game. The English Football Association (The FA) is working closely with anti-discrimination charity Kick It Out and other organizations to coordinate the boycott.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The Top English Soccer Teams Take a Social Media Stand
 
@@ -65,20 +48,6 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -97,14 +66,11 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
 
  Whatever your take on the social media regulation side of the issue, one thing is clear: online abuse, racism, and toxic behavior towards anyone is unacceptable, whether they're a highly paid soccer player or otherwise.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,45 +79,25 @@ thumbnail: https://thmb.techidaily.com/19529825bc864f6a7105eee056c51264b322fc80a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/updated-accessing-the-apex-high-definition-media-from-facebooks-realm/"><u>[Updated] Accessing the Apex High-Definition Media From Facebook's Realm</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-optimal-team-chats-secrets-to-success-4-steps/"><u>[Updated] In 2024, Optimal Team Chats Secrets to Success, #4 Steps</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/2024-approved-how-to-make-a-flv-photo-slideshow/"><u>2024 Approved How to Make a FLV Photo Slideshow</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/facebooks-vision-for-video-unpacking-the-short-form-movement/"><u>Facebook's Vision for Video Unpacking the Short Form Movement</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gpt-linguistic-threshold-forbidden-dialogues/"><u>GPT Linguistic Threshold - Forbidden Dialogues</u></a></li>
-<li><a href="https://facebook.techidaily.com/hints-and-echoes-deciphering-the-art-of-vague-blogging/"><u>Hints & Echoes: Deciphering the Art of Vague Blogging</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlink-apple-id-from-iphone-13-pro-by-drfone-ios/"><u>How To Unlink Apple ID From iPhone 13 Pro</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-net-archives-downloading-personal-tones/"><u>In 2024, Expert Net Archives Downloading Personal Tones</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-secrets-to-perfecting-snapchats-playback-speed-settings/"><u>In 2024, Secrets to Perfecting Snapchat's Playback Speed Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/intuitive-design-mastering-your-newsfeeds-appearance/"><u>Intuitive Design - Mastering Your Newsfeed's Appearance</u></a></li>
-<li><a href="https://facebook.techidaily.com/joe-just-waits-bringing-fb-snap-and-tweet-to-the-vax-scene/"><u>JOE JUST WAITS: Bringing FB, Snap, and Tweet to the Vax Scene</u></a></li>
-<li><a href="https://facebook.techidaily.com/limiting-personal-inbox-a-guide-to-minimizing-contacts/"><u>Limiting Personal Inbox: A Guide to Minimizing Contacts</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/master-your-vision-with-these-6-premier-nft-tools/"><u>Master Your Vision with These 6 Premier NFT Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-avoiding-shadowbanned-content/"><u>Mastering the Art of Avoiding Shadowbanned Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-away-from-unappealing-facebook-pages/"><u>Navigating Away From Unappealing Facebook Pages</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-the-art-of-audio-zoning-implementing-ducking-effects-for-clear-soundscapes-for-2024/"><u>New The Art of Audio Zoning Implementing Ducking Effects for Clear Soundscapes for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/opting-out-of-iphones-personal-data-harvesting/"><u>Opting Out of iPhones' Personal Data Harvesting</u></a></li>
-<li><a href="https://facebook.techidaily.com/owning-facebook-the-current-face/"><u>Owning Facebook: The Current Face</u></a></li>
-<li><a href="https://facebook.techidaily.com/patterns-in-digital-identity-theft/"><u>Patterns in Digital Identity Theft</u></a></li>
-<li><a href="https://facebook.techidaily.com/peeling-back-the-hate-layers-of-social-media-networks/"><u>Peeling Back the Hate Layers of Social Media Networks</u></a></li>
-<li><a href="https://facebook.techidaily.com/personalize-your-social-space-setting-up-an-avatar-themed-fb-cover/"><u>Personalize Your Social Space: Setting Up an Avatar-Themed FB Cover</u></a></li>
-<li><a href="https://facebook.techidaily.com/potential-policy-shift-facebook-and-honest-marketing-link/"><u>Potential Policy Shift: Facebook and Honest Marketing Link</u></a></li>
-<li><a href="https://facebook.techidaily.com/second-lifes-potential-renaissance-as-we-navigate-the-metaverse/"><u>Second Life's Potential Renaissance as We Navigate The Metaverse</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Realme 11 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-displaying-3d-pictures-on-fb/"><u>Step-by-Step: Displaying 3D Pictures on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-swiftly-terminate-online-gatherings/"><u>Strategies to Swiftly Terminate Online Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-intriguing-world-of-vague-social-media-engagement/"><u>The Intriguing World of Vague Social Media Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-privacy-paradox-of-fb/"><u>Unlocking Secrets: The Privacy Paradox of FB</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/unraveling-the-mystery-understanding-why-users-drop-out-of-onboarding-journeys/"><u>Unraveling the Mystery: Understanding Why Users Drop Out of Onboarding Journeys</u></a></li>
-<li><a href="https://facebook.techidaily.com/unwritten-protocols-and-social-norms-on-facebook/"><u>Unwritten Protocols and Social Norms on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-is-the-facebook-whistleblower-and-what-did-they-say-on-60-minutes/"><u>Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-ultimate-selection-identifying-best-12-vloggers-camera-choices/"><u>[New] 2024 Approved The Ultimate Selection Identifying Best 12 Vloggers' Camera Choices</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-innovative-cameras-for-circular-coverage-for-2024/"><u>[New] Innovative Cameras for Circular Coverage for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fast-track-guide-modifying-your-age-and-birthdate-in-fb-settings/"><u>Fast-Track Guide: Modifying Your Age & Birthdate in FB Settings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-13cwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi 13Cwith/without a PC</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-zte-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass ZTE FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/personalizing-your-whatsapp-dialogue-with-social-media-photos/"><u>Personalizing Your WhatsApp Dialogue With Social Media Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/supercharge-your-social-media-with-these-top-fb-app-configs/"><u>Supercharge Your Social Media with These Top FB App Configs</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundation-of-robust-online-communities-rules-and-modifications/"><u>The Foundation of Robust Online Communities: Rules & Modifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/toggle-facebooks-nighttime-display-setting/"><u>Toggle Facebook's Nighttime Display Setting</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unrivaled-video-tech-for-apple-phones/"><u>Unrivaled Video Tech for Apple Phones</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

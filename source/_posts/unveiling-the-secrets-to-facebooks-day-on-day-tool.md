@@ -1,7 +1,7 @@
 ---
 title: Unveiling the Secrets to Facebook's Day-on-Day Tool
-date: 2024-07-12T10:18:37.254Z
-updated: 2024-07-13T10:18:37.254Z
+date: 2024-09-09T19:36:51.722Z
+updated: 2024-09-16T17:26:27.606Z
 tags:
   - facebook
 categories:
@@ -67,6 +67,13 @@ You can save your On This Day posts with the following steps:
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 Close
@@ -93,6 +100,13 @@ Close
 
  Check out the tagged content on Facebook by exploring the On This Day feature. You can look for the posts shared by friends on your wall by viewing and searching your Facebook Activity Log.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Customization Options for the On This Day Feature
 
  If you want to change the way On This Day memories appear on your profile, customization options are also available. This is how you can customize your On This Day memories. This includes [hiding people and dates from Facebook Memories](https://www.makeuseof.com/tag/facebook-day-fix-ewww/) .
@@ -104,6 +118,13 @@ Close
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -117,6 +138,13 @@ Close
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Hide Memories
 
  Facebook enables its users to hide memories from specific people. Under**Hide Memories** in the**Memory Settings** section, tap**People** and search for the names you do not wish to see memories from.
@@ -129,14 +157,11 @@ Close
 
  Users can effectively use the feature to share and save media. You can customize Facebook’s On This Day feature and only access memories of choice. We hope you will be able to manage your On This Day memories in a much better and more convenient way.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,6 +170,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-timeless-tales-the-ultimate-guide-to-learning-from-history-channels/"><u>[New] 2024 Approved Timeless Tales The Ultimate Guide to Learning From History Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-uncover-the-joyful-journey-best-comedy-and-sadness-on-insta/"><u>[New] Uncover the Joyful Journey Best Comedy & Sadness on Insta</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebrands-as-meta-a-leap-towards-a-new-digital-age/"><u>Facebook Rebrands as Meta: A Leap Towards a New Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-strategy-overshadows-traditional-app-purchase-approaches/"><u>Facebook’s Subscription Strategy Overshadows Traditional App Purchase Approaches</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-idea-to-gif-your-ultimate-blueprint-for-2024/"><u>From Idea to GIF Your Ultimate Blueprint for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-windows-10-up-and-running-with-free-realtek-pci-e-fe-family-drivers/"><u>Get Your Windows 10 Up and Running with Free Realtek PCI-E Fe Family Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-tecno-camon-20-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Tecno Camon 20 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-viral-tiktok-sounds-into-personalized-calls/"><u>In 2024, Transforming Viral TikTok Sounds Into Personalized Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-the-marketing-maze-tips-to-avoid-objectionable-ads/"><u>Steering Clear of the Marketing Maze: Tips to Avoid Objectionable Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insight-into-facebook-dating-system/"><u>The Insight Into Facebook Dating System</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-role-of-fbcta-in-shaping-digital-experience/"><u>The Role of FBCTA in Shaping Digital Experience</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/top-video-editor-battle-is-inshot-reigning-supreme-in-2024/"><u>Top Video Editor Battle Is InShot Reigning Supreme, In 2024</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/vlcts-how-to-merge-ts-files-using-vlc-media-player/"><u>VLCメディアプレーヤーでTSファイル連結の手順 - How to Merge TS Files Using VLC Media Player</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-you-turn-a-new-leaf-from-fb/"><u>When You Turn a New Leaf From FB</u></a></li>
+</ul></div>
 

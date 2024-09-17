@@ -1,7 +1,7 @@
 ---
 title: Who Holds the Reins at Facebook?
-date: 2024-09-10T15:06:15.423Z
-updated: 2024-09-11T15:06:15.423Z
+date: 2024-09-13T16:43:13.235Z
+updated: 2024-09-16T18:22:00.806Z
 tags:
   - facebook
 categories:
@@ -19,27 +19,10 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  The rebranding raises a number of intriguing questions, such as who now owns Facebook? We'll answer that question in this article, while taking a quick trip down memory lane to figure out how we got here.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## From The Facebook To Meta
 
@@ -51,43 +34,9 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  Of course, the above roadmap is only a summarized version of Facebook's story. For a more in-depth rundown, check out our coverage of[the evolution of Facebook to Meta](https://www.makeuseof.com/evolution-of-facebook/) .
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Who Owns Facebook Now?
 
 ![Man beside smartphone displaying Facebook icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Man-beside-smartphone-displaying-Facebook-icon.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  In the[statement announcing the rebranding](https://about.fb.com/news/2021/10/facebook-company-is-now-meta/) to Meta, the company clarified that Facebook's corporate structure would remain the same. This means the same controlling interests that had majority shares in Facebook would also be in charge of Meta. So who are the controlling majority shareholders for Facebook that are now in charge of Meta?
 
@@ -99,20 +48,6 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  Zuckerberg owns roughly 13% of Meta stocks,[Bloomberg notes](http://www.bloomberg.com/billionaires/profiles/mark-e-zuckerberg/) . Despite their low volume, these provide him with the required majority voting power.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Why Did Facebook Rebrand to Meta?
 
  Facebook's rebrand happened because the brand outgrew the identity that it had come to be known for.
@@ -121,19 +56,12 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  It is necessary to point out that the social media platform, Facebook, will keep its name, as will WhatsApp and Instagram. All other Facebook-owned businesses will now be subsidiaries of Meta, the parent company.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Zuckerberg Still (Largely) Owns Meta
 
@@ -141,14 +69,11 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
 
  Zuckerberg will remain in charge of Facebook until he sells his shares or the shares' power gets diluted. The Meta rebrand is a change in name but not much else.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,58 +82,19 @@ thumbnail: https://thmb.techidaily.com/cdd8eafd008cf95809620f415b6d0453d80ccae0c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-visioncast-feedback-interface/"><u>[New] 2024 Approved VisionCast Feedback Interface</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-how-to-embed-a-youtube-video-in-powerpoint/"><u>[Updated] 2024 Approved How to Embed a YouTube Video in PowerPoint</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-sony-xperia-1-v-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Sony Xperia 1 V | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-archived-social-networks-on-fb/"><u>Accessing Archived Social Networks on FB</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/apex-legends-2022-deciphering-the-mystery-of-error-code-leaf/"><u>Apex Legends 2022: Deciphering the Mystery of Error Code 'Leaf'</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-affirmed-sign-up-for-us-meta-verified-account/"><u>Authenticity Affirmed: Sign up for US Meta Verified Account</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/become-a-pro-at-hosting-virtual-meetings-with-zoom-an-android-users-guide/"><u>Become a Pro at Hosting Virtual Meetings with Zoom An Android User's Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-news-feed-curation-by-fb/"><u>Behind-the-Scenes of News Feed Curation by FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-facebook-notification-stores/"><u>Clearing Facebook Notification Stores</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-cord-the-essential-steps-before-dismantling-your-fb-life/"><u>Cut the Cord - The Essential Steps Before Dismantling Your FB Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/deciphering-the-refund-regulations-of-social-media-commerce/"><u>Deciphering the Refund Regulations of Social Media Commerce</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-list-of-approved-content/"><u>Decoding Facebook's List of Approved Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/disconnecting-for-enrichment-potential-outcomes/"><u>Disconnecting for Enrichment: Potential Outcomes</u></a></li>
-<li><a href="https://facebook.techidaily.com/dissecting-facts-facebooks-impending-name-switch/"><u>Dissecting Facts: Facebook’s Impending Name Switch</u></a></li>
-<li><a href="https://facebook.techidaily.com/effectively-tapping-into-facebook-on-this-day/"><u>Effectively Tapping Into Facebook On This Day</u></a></li>
-<li><a href="https://facebook.techidaily.com/expect-an-uptick-in-crypto-advertising-on-platforms-like-facebook-and-instagram/"><u>Expect an Uptick in Crypto Advertising on Platforms Like Facebook & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/expertise-in-evading-high-level-social-frauds/"><u>Expertise in Evading High-Level Social Frauds</u></a></li>
-<li><a href="https://blog-min.techidaily.com/exploring-the-best-windows-compatible-solutions-beyond-instagrams-official-desktop-app-for-xp-vista-and-7-users/"><u>Exploring the Best Windows-Compatible Solutions: Beyond Instagram's Official Desktop App for XP, Vista, and 7 Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-impact-a-double-edged-sword/"><u>Facebook's Impact: A Double-Edged Sword</u></a></li>
-<li><a href="https://facebook.techidaily.com/fast-switching-tactics-for-multiple-facebook-ids/"><u>Fast-Switching Tactics for Multiple Facebook IDs</u></a></li>
-<li><a href="https://facebook.techidaily.com/freeing-up-from-facebooks-pervasive-tracking/"><u>Freeing Up From Facebook's Pervasive Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-picture-to-persona-integrating-an-avatar-into-your-fb-cover/"><u>From Picture to Persona: Integrating an Avatar Into Your FB Cover</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-microsoft-auditory-device-drivers-on-windows-free-of-cost/"><u>Get the Latest Microsoft Auditory Device Drivers on Windows Free of Cost</u></a></li>
-<li><a href="https://facebook.techidaily.com/guard-your-cyber-world-elude-this-trio-of-intruders/"><u>Guard Your Cyber World: Elude This Trio of Intruders</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-smoothly-quitting-facebook-groups/"><u>Guide to Smoothly Quitting Facebook Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacking-occurrences-on-digital-platforms/"><u>Hacking Occurrences on Digital Platforms</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-iphone-12-pro-max-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On iPhone 12 Pro Max in the Best Ways</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-vivo-y27-5g-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Vivo Y27 5G Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-lava-yuva-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Lava Yuva 3 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/insider-tips-for-spotting-next-gen-fb-gatherings/"><u>Insider Tips for Spotting Next-Gen FB Gatherings</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-strategic-posts-private-establishing-a-customized-fb-visibility-list/"><u>Keep Strategic Posts Private: Establishing a Customized FB Visibility List</u></a></li>
-<li><a href="https://facebook.techidaily.com/new-trend-instagram-2fa-codes-via-whatsapp-link/"><u>New Trend: Instagram 2FA Codes via WhatsApp Link</u></a></li>
-<li><a href="https://facebook.techidaily.com/peek-into-facebook-bonds-history-of-connections/"><u>Peek Into Facebook Bonds: History of Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/reach-for-spotify-anywhere-even-the-miniplayer/"><u>Reach for Spotify Anywhere, Even the Miniplayer</u></a></li>
-<li><a href="https://facebook.techidaily.com/retrieving-discarded-conversations-from-facebooks-abyss/"><u>Retrieving Discarded Conversations From Facebook's Abyss</u></a></li>
-<li><a href="https://facebook.techidaily.com/survey-public-skepticism-towards-big-tech-companies-rises/"><u>Survey: Public Skepticism Towards Big Tech Companies Rises</u></a></li>
-<li><a href="https://facebook.techidaily.com/tapping-into-resources-from-facebooks-help-center/"><u>Tapping Into Resources From Facebook's Help Center</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-fine-line-between-laughter-and-rude-gestures/"><u>The Fine Line Between Laughter and Rude Gestures</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-3-concerns-the-facebook-metaverses-potential-risks/"><u>Top 3 Concerns: The Facebook Metaverse's Potential Risks</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-deceptive-deals-avoidance-strategies-in-social-media-swap-sites/"><u>Unmasking Deceptive Deals: Avoidance Strategies in Social Media Swap Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-most-practical-crowdfire-technologies/"><u>Unveiling the Most Practical Crowdfire Technologies</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-behind-the-mask-the-psychology-behind-vague-blogging/"><u>What's Behind the Mask? The Psychology Behind Vague Blogging</u></a></li>
-<li><a href="https://facebook.techidaily.com/wind-sun-and-social-media-fbs-energy-makeover/"><u>Wind, Sun, and Social Media: FB's Energy Makeover</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-key-to-unlocking-meanings-behind-online-social-media-symbols/"><u>Your Key to Unlocking Meanings Behind Online Social Media Symbols</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/best-practices-installing-focusrite-scarlett-2i4-audio-drivers-on-windows-pc/"><u>Best Practices: Installing Focusrite Scarlett 2I4 Audio Drivers on Windows PC</u></a></li>
+<li><a href="https://win11.techidaily.com/find-my-missing-f-16-copilot-in-windows-11-steps/"><u>Find My Missing F-16 Copilot In Windows 11 Steps</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-pour-enregistrer-des-sessions-avec-zoom-skype-et-alternatives-similaires-etapes-faciles-a-suivre/"><u>Guide Pour Enregistrer Des Sessions Avec Zoom, Skype Et Alternatives Similaires - Étapes Faciles À Suivre !</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/like-twitter-facebook-is-testing-a-prompt-to-promote-informed-sharing/"><u>Like Twitter, Facebook Is Testing a Prompt to Promote Informed Sharing</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-vivo-y200-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Vivo Y200 Phone? Unlock It Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-scam-prevention-the-critical-role-of-social-media-platforms/"><u>Online Scam Prevention: The Critical Role of Social Media Platforms</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revise-intel-windodrivers-guide/"><u>Revise Intel WindoDrivers Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/revisiting-social-ties-accessing-old-fb-relationships/"><u>Revisiting Social Ties: Accessing Old FB Relationships</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-digital-world-a-comprehensive-guide-to-fb-safety/"><u>Securing Your Digital World: A Comprehensive Guide to FB Safety</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-shine-with-quality-media-facebook-hd-tips/"><u>Social Shine with Quality Media: Facebook HD Tips</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-new-standard-how-does-av1-outperform-vp9-in-2024/"><u>The New Standard How Does AV1 Outperform VP9, In 2024</u></a></li>
 </ul></div>
-
-
-
 

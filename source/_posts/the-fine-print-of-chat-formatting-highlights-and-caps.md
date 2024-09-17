@@ -1,7 +1,7 @@
 ---
 title: "The Fine Print of Chat Formatting: Highlights & Caps"
-date: 2024-07-12T10:19:32.224Z
-updated: 2024-07-13T10:19:32.224Z
+date: 2024-09-09T21:03:39.522Z
+updated: 2024-09-16T18:36:25.210Z
 tags:
   - facebook
 categories:
@@ -42,12 +42,33 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
 ## How to Use Strikethrough Text in Messenger
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Use Monospace Text in Messenger
 ![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
 
@@ -76,14 +97,11 @@ To send text in a block of code:
 
  Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +110,14 @@ To send text in a block of code:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://techtrends.techidaily.com/guide-mastering-splitting-your-windows-11-workspace-into-multiple-tabs/"><u>Guide: Mastering Splitting Your Windows 11 Workspace Into Multiple Tabs</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-honor-x50iplus-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Honor X50i+ Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-linking-solutions-for-recovering-from-social-media-blackouts/"><u>Re-Linking: Solutions for Recovering From Social Media Blackouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-for-configuring-facebook-shortcuts-easily/"><u>Step-by-Step for Configuring Facebook Shortcuts Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprerancers-blockade-how-to-halt-comments-on-social-media/"><u>The Comprerancer's Blockade: How to Halt Comments on Social Media</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>Why does the pokemon go battle league not available On Apple iPhone XR | Dr.fone</u></a></li>
+</ul></div>
 

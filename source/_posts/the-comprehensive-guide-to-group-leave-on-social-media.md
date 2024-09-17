@@ -1,7 +1,7 @@
 ---
 title: The Comprehensive Guide to Group Leave on Social Media
-date: 2024-09-10T14:59:50.090Z
-updated: 2024-09-11T14:59:50.090Z
+date: 2024-09-10T17:38:05.368Z
+updated: 2024-09-16T18:22:48.355Z
 tags:
   - facebook
 categories:
@@ -23,13 +23,10 @@ thumbnail: https://thmb.techidaily.com/f7aa9f91ee25ba92e513ec309ccac0797742d37b7
 
 Here's all you need to know...
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## How to Leave a Facebook Group on Desktop
 
@@ -43,67 +40,13 @@ Here's all you need to know...
 
 ![groups you joined Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/group-you-joined-facebook.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  Click the**…** on the right side of the group, next to the magnifying glass. Then, pick the last option, which is**Leave Group** .
 
 ![leave Facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  You’ll see a popup that asks if you’re sure. In that popup, you can also pick the option that prevents people from adding you to the group again in the future.
 
 ![leave-Facebook-group-are-you-sure](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-are-you-sure.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
  That’s it, you’re no longer a member of that group, and won’t receive any more notifications from it.
 
@@ -113,35 +56,7 @@ Here's all you need to know...
 
 ![mobile Facebook groups](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/mobile-Facebook-groups.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![Your groups on Facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Your-groups-on-Facebook-mobile.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Close
 
@@ -157,20 +72,6 @@ Close
 
 ![leave Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/leave-Facebook-group-mobile.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![feedback about Facebook group mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/feedback-about-Facebook-group-mobile.png)
 
 Close
@@ -185,14 +86,11 @@ Close
 
  You can also choose to unfollow the group, which will block all of its content from your feed but will still allow you to visit it and post in it without interruptions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -201,57 +99,35 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-artisans-shaping-virtual-marvel-universes/"><u>[New] 2024 Approved Artisans Shaping Virtual Marvel Universes</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-unlock-your-content-potential-with-youtubes-movie-maker/"><u>[New] In 2024, Unlock Your Content Potential with YouTube's Movie Maker</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-the-ultimate-6-mac-methods-for-recording-live-tv-shows-like-netflix-for-2024/"><u>[New] The Ultimate 6 Mac Methods for Recording Live TV Shows Like Netflix for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-channel-surge-strategy-using-youtube-outros-for-rapid-expansion-for-2024/"><u>[Updated] Channel Surge Strategy Using YouTube Outros for Rapid Expansion for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-efficient-file-transformation-in-vlc-from-mp4-to-various-formats-for-2024/"><u>[Updated] Efficient File Transformation in VLC From MP4 to Various Formats for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/6-benefits-of-creating-a-facebook-group/"><u>6 Benefits of Creating a Facebook Group</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-things-to-do-before-deleting-your-facebook-account/"><u>8 Things to Do Before Deleting Your Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/anomaly-detection-for-safeguarding-personal-online-space/"><u>Anomaly Detection for Safeguarding Personal Online Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-facebooks-tactile-engagement-value/"><u>Assessing Facebook's Tactile Engagement Value</u></a></li>
-<li><a href="https://facebook.techidaily.com/build-your-career-with-smart-social-media-strategies/"><u>Build Your Career with Smart Social Media Strategies</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehending-online-identity-facebook-vs-unames/"><u>Comprehending Online Identity: FaceBook vs UNAMES</u></a></li>
-<li><a href="https://facebook.techidaily.com/detection-of-fading-chat-evidence-on-messenger/"><u>Detection of Fading Chat Evidence on Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/digging-up-hidden-previous-facebook-content/"><u>Digging up Hidden Previous Facebook Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-your-social-presence-with-striking-covers/"><u>Elevating Your Social Presence with Striking Covers</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/ensured-crisis-averted-dvd-titles-and-intros-functioning-perfectly/"><u>Ensured: Crisis Averted - DVD Titles & Intros Functioning Perfectly!</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-support-explained-what-it-offers/"><u>Facebook Support Explained: What It Offers</u></a></li>
-<li><a href="https://facebook.techidaily.com/germany-says-no-to-facebook-collecting-whatsapp-user-information/"><u>Germany Says No to Facebook Collecting WhatsApp User Information</u></a></li>
-<li><a href="https://facebook.techidaily.com/guaranteeing-your-teens-digital-safety-on-facebook/"><u>Guaranteeing Your Teen's Digital Safety on Facebook</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-install-and-update-hardware-device-drivers-manually-in-windows-11-by-drivereasy-guide/"><u>How to install and update hardware device drivers manually in Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-leave-a-facebook-group/"><u>How to Leave a Facebook Group</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-aimp-pro-streaming-enhancer-without-wmsp/"><u>In 2024, AIMP Pro Streaming Enhancer Without WMSP</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-honor-x50-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Honor X50 Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-stay-on-top-of-your-streaks-must-try-techniques/"><u>In 2024, Stay on Top of Your Streaks Must-Try Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-wipe-your-facebook-activity-trail/"><u>Instructions: Wipe Your Facebook Activity Trail</u></a></li>
-<li><a href="https://facebook.techidaily.com/love-in-the-age-of-algorithms-decoding-facebooks-new-dating-features/"><u>Love in the Age of Algorithms: Decoding Facebook's New Dating Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-home-network-integration-with-facebook-portals-features/"><u>Mastering Home Network Integration with Facebook Portals' Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-engagement-sharing-content-across-various-fb-groups/"><u>Maximizing Engagement: Sharing Content Across Various FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/reel-potential-a-solution-for-tiktok-and-facebook/"><u>Reel Potential: A Solution for TikTok and Facebook?</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-posts-artificinas-tech-for-fb-image-descriptions/"><u>Revolutionizing Posts: Artificinas Tech for FB Image Descriptions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/saga-storytellers-syndicate-quintessential-quartet-for-2024/"><u>Saga Storytellers Syndicate - Quintessential Quartet for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/signals-of-struggle-what-awaits-on-facebook/"><u>Signals of Struggle: What Awaits on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giant-puts-5-million-into-journalist-platform-competition/"><u>Social Media Giant Puts $5 Million Into Journalist Platform Competition</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-people-you-might-know-feature-on-social-media-site/"><u>Stop 'People You Might Know' Feature on Social Media Site</u></a></li>
-<li><a href="https://facebook.techidaily.com/swift-recovery-plan-for-compromised-facebook-profiles/"><u>Swift Recovery Plan for Compromised Facebook Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-essentials-of-vk-russias-online-community-explored/"><u>The Essentials of VK: Russia's Online Community Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-really-useful-podcast-review-of-the-year-2022/"><u>The Really Useful Podcast Review of the Year 2022</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-blueprint-for-an-exceptional-facebook-profile/"><u>The Ultimate Blueprint for an Exceptional Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-fb-event-potential-creating-engaging-invites/"><u>Unlock FB Event Potential: Creating Engaging Invites</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-lenovo-thinkphone-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Lenovo ThinkPhone Phone Password Without Factory Reset Full Guide Here</u></a></li>
-<li><a href="https://win-dash.techidaily.com/update-and-get-amd-radeon-rx-580-graphics-card-drivers-fast-and-simple/"><u>Update and Get AMD Radeon RX 580 Graphics Card Drivers - Fast & Simple</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-should-you-reimagine-your-fb-presence/"><u>When Should You Reimagine Your FB Presence?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/windows-10-icon-troubleshooting-solutions-for-missing-desktop-icons/"><u>Windows 10 Icon Troubleshooting: Solutions for Missing Desktop Icons</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-enhancing-visual-storytelling-on-instagram-with-loops/"><u>[New] Enhancing Visual Storytelling on Instagram With Loops</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoiding-the-trap-key-mistakes-in-leveraging-generative-artificial-intelligence-tools/"><u>Avoiding the Trap: Key Mistakes in Leveraging Generative Artificial Intelligence Tools</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-iphone-14-device-from-icloud-by-drfone-ios/"><u>How to Remove iPhone 14 Device from iCloud</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-money-making-5-essential-facebook-techniques/"><u>Mastering Money Making: 5 Essential Facebook Techniques</u></a></li>
+<li><a href="https://win-blog.techidaily.com/microsoft-initiates-wi-fi-7-trials-on-windows-11-platform/"><u>Microsoft Initiates Wi-Fi 7 Trials on Windows 11 Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-facebook-spotting-unfamiliar-logins-quickly/"><u>Secure Facebook: Spotting Unfamiliar Logins Quickly</u></a></li>
+<li><a href="https://facebook.techidaily.com/sidestepping-sophisticated-scams-a-priority-task/"><u>Sidestepping Sophisticated Scams: A Priority Task</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-voice-of-facebook-erupts-on-60-minutes/"><u>Silent Voice of Facebook Erupts on 60 Minutes</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-like-hiding-techniques-for-fb-users/"><u>Tactical Like Hiding Techniques for FB Users</u></a></li>
+<li><a href="https://program-issues.techidaily.com/top-6-fixes-for-unresponsive-microphone-issues/"><u>Top 6 Fixes for Unresponsive Microphone Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfiltered-living-the-impact-of-quitting-social-networks/"><u>Unfiltered Living: The Impact of Quitting Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-your-targeted-facebook-promotions/"><u>Unpacking Your Targeted Facebook Promotions</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-ultimate-mac-video-editor-adobe-premiere-pro-for-pros/"><u>Updated 2024 Approved The Ultimate Mac Video Editor Adobe Premiere Pro for Pros</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

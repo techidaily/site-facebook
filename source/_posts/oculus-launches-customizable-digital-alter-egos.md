@@ -1,7 +1,7 @@
 ---
 title: Oculus Launches Customizable Digital Alter Egos
-date: 2024-09-10T15:04:24.781Z
-updated: 2024-09-11T15:04:24.781Z
+date: 2024-09-11T20:00:38.559Z
+updated: 2024-09-17T00:09:07.634Z
 tags:
   - facebook
 categories:
@@ -17,27 +17,10 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  Oculus is launching its redesigned avatars that are more expressive and customizable. Initially, these overhauled avatars will only be usable in a few select games, but the company hopes to expand this to more games in the future.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## The New Avatars Come With a Quintillion Feature Combinations
 
@@ -51,20 +34,6 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  With the new update, the Editor allows users to view their Avatar's legs as well. Users can select their desired clothing for the legs, although it won't be visible outside the Editor. Oculus mentioned that "elsewhere in VR, avatars will only display from the waist up."
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Updated Avatars Available For a Few Games
 
  In the blog post, Oculus mentioned that on the release date, new Avatars in a handful of games only—Epic Roller Coasters, Poker Stars VR, and Topgolf with Pro Putt. Naturally, the list of supported games will expand soon. Currently, Facebook has confirmed the new Avatars will soon be supported in Synth Riders, ForeVR Bowling, and Facebook Horizon.
@@ -75,20 +44,6 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  The company also plans to make these Avatars available on platforms such as the Facebook app, Messenger, and Instagram.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## The New Avatars Come With Better Movement
 
  Using a machine-learning based motion prediction technology, Facebook claims to have made Avatar movements much smoother.
@@ -97,14 +52,11 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
 
  It's clear that these new Avatars are going to play an important part in the entire Facebook ecosystem. It will also be exciting to see whether Facebook integrates them into Facebook Gaming as well.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,53 +65,29 @@ thumbnail: https://thmb.techidaily.com/d68b2c77d9bc6992a97b4d45a79ba7275bc346cfc
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-grip-it-right-tips-for-eliminating-jitter-in-action-cam-movies/"><u>[Updated] 2024 Approved Grip It Right Tips for Eliminating Jitter in Action Cam Movies</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience/"><u>[Updated] In 2024, Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-start-smart-free-video-intro-templates/"><u>[Updated] In 2024, Start Smart Free Video Intro Templates</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-deciphering-cameras-smart-hdr-features-and-their-impact/"><u>2024 Approved Deciphering Camera's Smart HDR Features and Their Impact</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-visionblend-editor/"><u>2024 Approved VisionBlend Editor</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-tomorrow-facebook-reimagines-itself-as-the-meta-network/"><u>Embracing Tomorrow: Facebook Reimagines Itself as the Meta Network</u></a></li>
-<li><a href="https://facebook.techidaily.com/fostering-dialogue-implementing-facebook-stories-surveys/"><u>Fostering Dialogue: Implementing Facebook Stories Surveys</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendship-finance-social-networks-money-story/"><u>Friendship Finance: Social Networks' Money Story</u></a></li>
-<li><a href="https://facebook.techidaily.com/highlighting-googles-influential-2022-news/"><u>Highlighting Google's Influential 2022 News</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-block-people-or-dates-in-facebooks-on-this-day-memories/"><u>How to Block People or Dates in Facebook's On This Day Memories</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-samsung-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Samsung?</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-tell-if-someones-peeking-at-your-fb-life/"><u>How to Tell if Someone's Peeking at Your FB Life</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Vivo Y56 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-your-personal-brand-designing-a-facebook-cover-with-yourself-as-the-star/"><u>Master Your Personal Brand: Designing a Facebook Cover with Yourself as the Star</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximizing-reach-posting-on-social-media-careers/"><u>Maximizing Reach: Posting on Social Media Careers</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-accelerates-to-unprecedented-ai-computing-peaks/"><u>Meta Accelerates to Unprecedented AI Computing Peaks</u></a></li>
-<li><a href="https://facebook.techidaily.com/mute-the-mainstream-political-madness/"><u>Mute the Mainstream Political Madness</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-friend-recognition-3-varied-approaches-to-facebook-tags/"><u>Navigating Friend Recognition: 3 Varied Approaches to Facebook Tags</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-giants-gridlock-lasting-six-hours/"><u>Online Giants' Gridlock Lasting Six Hours</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimal-privacy-reducing-unwanted-social-networking/"><u>Optimal Privacy: Reducing Unwanted Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-viewpoint-social-tech-causes-more-harm/"><u>Public Viewpoint: Social Tech Causes More Harm</u></a></li>
-<li><a href="https://facebook.techidaily.com/purging-clutter-a-facebook-transformation/"><u>Purging Clutter: A Facebook Transformation</u></a></li>
-<li><a href="https://facebook.techidaily.com/reclaim-your-space-stop-browsing-facebook/"><u>Reclaim Your Space: Stop Browsing Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeking-solutions-to-privacy-concerns/"><u>Seeking Solutions to Privacy Concerns</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-beyond-big-platforms/"><u>Social Media Beyond Big Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-to-unfreeze-fb-alert-bars-and-posts-display/"><u>Steps to Unfreeze FB Alert Bars and Posts Display</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-maximum-fb-exposure/"><u>Strategies for Maximum Fb Exposure</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-list-unlocking-latest-social-circles/"><u>The Ultimate List: Unlocking Latest Social Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unending-appeal-of-facebook-6-insights-for-users/"><u>The Unending Appeal of Facebook: 6 Insights for Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/transforming-your-pics-into-three-dimensional-social-highlights/"><u>Transforming Your Pics Into Three-Dimensional Social Highlights</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-daily-life-replay-facebook-guide/"><u>Unlocking Daily Life Replay: Facebook Guide</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-top-rated-video-combiner-software-with-no-watermarks-for-2024/"><u>Updated Top-Rated Video Combiner Software with No Watermarks for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-are-facebooks-neighborhood-based-spaces-for-collaboration/"><u>What Are Facebook's Neighborhood-Based Spaces for Collaboration?</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-caused-a-social-media-blackout/"><u>What Caused a Social Media Blackout?</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-happens-when-you-quit-social-media-6-things-i-learned/"><u>What Happens When You Quit Social Media? 6 Things I Learned</u></a></li>
-<li><a href="https://facebook.techidaily.com/whats-missing-from-our-tech-calendar-this-year-max-69-charaters/"><u>What's Missing From Our Tech Calendar This Year? (Max 69 Charaters)</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-users-expect-cross-device-connectivity-soon/"><u>WhatsApp Users Expect Cross-Device Connectivity Soon</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/win-datarescue-the-ultimate-toolkit/"><u>WIN-DataRescue: The Ultimate Toolkit</u></a></li>
-<li><a href="https://driver-install.techidaily.com/yamaha-steinberg-usb-driver-download-windows-11-8-7/"><u>Yamaha Steinberg USB Driver Download | Windows 11, 8, 7</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement-for-2024/"><u>[New] A Visual Guide to Subtitling Techniques for Effective Dialogue Placement for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/op-10-educational-youtube-channels/"><u>[New] Top 10 Educational YouTube Channels</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-mastering-the-art-of-android-clip-inversions/"><u>2024 Approved Mastering the Art of Android Clip Inversions</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-and-google-face-the-call-for-greater-regulation-against-fraudulent-ads/"><u>Facebook & Google Face the Call for Greater Regulation Against Fraudulent Ads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-seamless-audio-junction-expert-logic-pro-x-tips/"><u>In 2024, Seamless Audio Junction Expert Logic Pro X Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-frozen-facebook-accounts/"><u>Navigating the Maze of Frozen Facebook Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/shared-spaces-a-new-era-for-fb-and-instagram/"><u>Shared Spaces: A New Era for FB and Instagram</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-mac-mixer-synchronization/"><u>The Art of Mac-Mixer Synchronization</u></a></li>
+<li><a href="https://facebook.techidaily.com/unconfirmed-social-giant-tightens-ad-standards/"><u>Unconfirmed: Social Giant Tightens Ad Standards</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

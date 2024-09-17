@@ -1,7 +1,7 @@
 ---
 title: The Art of Communication via Facebook's Symbol Language
-date: 2024-07-12T10:16:24.398Z
-updated: 2024-07-13T10:16:24.398Z
+date: 2024-09-15T20:30:09.637Z
+updated: 2024-09-16T19:31:06.880Z
 tags:
   - facebook
 categories:
@@ -102,6 +102,19 @@ What do these Facebook symbols mean?
 
 ![Facebook Post Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/facebook-post-settings.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Other users' posts offer icons for hiding, snoozing, silencing, unfollowing, reporting, embedding, and more. You can customize your posts and feed to get the most out of Facebook.
 
 ## Facebook Navigation Symbols
@@ -114,15 +127,36 @@ What do these Facebook symbols mean?
 
 ![Menu Icons on Facebook Web App](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/menu-icons-on-facebook-web-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The second is a shortcut to Facebook Messenger, where you can get in touch with your friends via direct message and group chat. You can customize your Messenger settings here, too.
 
 ![Chats Icon and Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/chats-icon-and-tools-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The**bell icon** is where you can view your Facebook notifications, broken into two filters:**All** and**Unread** . The**More** button contains icons for marking everything as read, adjusting settings, and opening a notifications window.
 
 ![Facebook Notifications Icon and Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-notifications-icon-and-settings.jpg)
 
  At the center of your menu bar are four more icons. They take you to your**Home** ,**Marketplace** ,**Groups** , and**Gaming** pages. Under them, you'll also find the**Stories** and**Reels** tabs.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Facebook Navigation Icons
 
@@ -169,14 +203,11 @@ What do these Facebook symbols mean?
 
  This technique won't fail you, but read labels and descriptions carefully so you don't mess with anything important. The site is a rabbit hole, but all of these icons on Facebook make diving in all the more tempting.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,6 +216,18 @@ What do these Facebook symbols mean?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-capturing-consoles-step-by-step-pc-playback-guide-for-2024/"><u>[New] Capturing Consoles Step-by-Step PC Playback Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-tecno-camon-20-premier-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-poco-m6-5g-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Poco M6 5G? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/chart-a-new-course-windows-7-to-10-upgrade-map/"><u>Chart a New Course: Windows 7 to 10 Upgrade Map</u></a></li>
+<li><a href="https://win-special.techidaily.com/editor-de-revezamento-de-imagens-o-melhor-software-para-fotografia-e-edicao-fotografica/"><u>Editor De Revezamento De Imagens: O Melhor Software Para Fotografia E Edição Fotográfica</u></a></li>
+<li><a href="https://facebook.techidaily.com/free-ways-to-master-timing-your-facebook-updates-for-maximum-reach/"><u>Free Ways to Master Timing Your Facebook Updates for Maximum Reach</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-social-engagement-outgrew-traditional-forum-systems/"><u>How Social Engagement Outgrew Traditional Forum Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/making-informed-decisions-about-local-legal-language-models-llm-a-look-at-the-9-key-considerations/"><u>Making Informed Decisions About Local Legal Language Models (LLM): A Look at the 9 Key Considerations</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-color-grading-using-luts-to-refine-your-work-in-ae-for-2024/"><u>Navigating Color Grading Using LUTs to Refine Your Work in AE for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-ranking-the-best-hand-drawing-whiteboard-animation-makers/"><u>Updated In 2024, Ranking the Best Hand Drawing Whiteboard Animation Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-venue-vigilance-harnessing-the-power-of-facebook-moderation-capabilities/"><u>Virtual Venue Vigilance: Harnessing the Power of Facebook Moderation Capabilities</u></a></li>
+</ul></div>
 

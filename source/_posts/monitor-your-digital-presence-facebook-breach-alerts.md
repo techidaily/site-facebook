@@ -1,0 +1,183 @@
+---
+title: "Monitor Your Digital Presence: Facebook Breach Alerts"
+date: 2024-09-09T23:48:59.143Z
+updated: 2024-09-16T19:45:58.270Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Monitor Your Digital Presence: Facebook Breach Alerts"
+excerpt: "This Article Describes Monitor Your Digital Presence: Facebook Breach Alerts"
+keywords: Digital Presence Monitoring,Facebook Security Warnings,Social Media Vigilance,Online Profile Safety,Privacy Breach Alerts,Data Leak Prevention,Cybersecurity Notifications
+thumbnail: https://thmb.techidaily.com/9fa9e4346708270d82530e01172580b66a8c63e17b3edbe0866986af1acde6f2.jpg
+---
+
+## Monitor Your Digital Presence: Facebook Breach Alerts
+
+ If someone has unauthorized access to your Facebook account, it's bad news. If you don't react quickly, it probably won't end well. But how do you know if someone else is accessing your account?
+
+ Here's how to tell if someone else has access to your Facebook account and what to do about it.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## How to Check If Someone Else Is Accessing Your Facebook Account
+
+ If someone has access to your account without your knowledge, the situation can quickly become sinister. Luckily, Facebook has made it easy to uncover the truth through your list of logged-in devices.
+
+ To see your list of active sessions and logged-in devices on Facebook, follow these steps:
+
+1. Log in to your account and click your**profile icon** in the upper-right corner of the screen.
+2. Select**Settings & privacy > Settings** .
+3. Click**Password and security** on the panel on the left side of the screen.
+4. Head to the**Account settings** section and click**Password and security** .
+5. Click the**Where you're logged in** option.
+
+![Facebook's where you're logged in page on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-s-where-you-re-logged-in-page-on-desktop.jpg)
+
+ You will see a list of all the devices and locations that are currently authorized to access your account. If you find a notification about**Unrecognized logins** , click**Review devices.** You can also select your Facebook profile and check out the**Logins on other devices** section.
+
+ Look for any devices you don't use or haven't recently used to sign in to Facebook. Also look for devices from locations you don't recognize.
+
+## What to Do if Someone Is Accessing Your Facebook Account
+
+ If you suspect your Facebook account has been breached, you must remove the suspicious device's access. Then you should change your password and set up two-factor authentication (2FA) for an added layer of security. You can also set up alerts for unrecognized logins and log out of all devices.
+
+### How to Remove Device Access to Facebook
+
+ If you see something that looks suspicious, you can use this list to revoke that device's access. Keep in mind that some IP address glitches might occasionally see one of your legitimate devices pop up in an unrecognized location. Using a VPN set to a server in a different location will do this, too. These cases are safe to ignore.
+
+To revoke device access on your Facebook account:
+
+1. Still in the**Where you're logged in** section, click on the suspicious login.
+2. Select the device you want to remove.
+3. Click the**Log out** button.
+
+![Facebook login listed on desktop app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-login-listed-on-desktop-app.jpg)
+
+ The access will be revoked, but the unauthorized person could potentially log in again if they know your password.
+
+### How to Change Your Facebook Password
+
+ Once you've revoked the unauthorized person's access, you need to take steps to make sure it doesn't happen again.
+
+ Of course, the first step is to[change your Facebook password](https://www.makeuseof.com/tag/change-facebook-password/) . You can do so by following the steps below.
+
+1. On the**Password and security** page, click**Change password** .
+2. Choose the relevant account and fill in the form. You will need to enter your current password to complete the process.
+3. Click**Change Password** when you're done.
+
+![Change password form on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/change-password-form-on-facebook-for-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### How to Set Up Two-Factor Authentication (2FA)
+
+ Changing your password is only half the story. You should also consider setting up 2FA. 2FA can use either a text message, a security key, or an authentication app.
+
+To turn on 2FA on Facebook:
+
+1. Back on the**Password and security** page, click**Two-factor authentication** .
+2. Select your profile.
+3. Choose your preferred security method and click**Next** .
+4. Follow the prompts to complete the process. When you're finished, Facebook will confirm that two-factor authentication is enabled. Click**Done** .
+
+![Re-entering password to enable two-factor authentication on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/re-entering-password-to-enable-two-factor-authentication-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### How to Set Up Alerts for Unrecognized Logins
+
+ You should also set up alerts for unrecognized logins. By enabling the feature, Facebook will notify you if it sees a login from a suspicious source. It will allow you to react more quickly in the event of a breach.
+
+To set up the feature:
+
+1. Go back to the**Password and security** page and click**Login alerts** .
+2. Select your Facebook profile.
+3. Choose how you want to receive notifications for logins: either**In-app notifications** or**Emails** (or both), depending on your preferences. Close the window when you're done.
+
+![setting up login alerts on Facebook for desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/setting-up-login-alerts-on-facebook-for-desktop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### How to Log Out of All Devices
+
+ This final step logs you out of all devices except for the one you're currently using.
+
+1. Go back to the**Password and security** page and click**Where you're logged in** .
+2. Select your Facebook profile.
+3. Head to the end of the**Logins on other devices** section and click**Select devices to log out** .
+4. Now click**Select all** in the top-right corner of the list and click the **Log out** button.
+
+![Logging out of all devices on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/logging-out-of-all-devices-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Has Your Facebook Account Been Breached?
+
+Let's quickly summarize what we have learned:
+
+* You can check if someone else is accessing your Facebook account by going to your **profile icon > Settings & privacy > Settings > Password and security >** **Password and security >** **Where you're logged in** .
+* You should enable additional security measures by going to **Settings & Privacy > Settings > Password and security > Password and security** . Click the categories:**Change password** ,**Two-factor authentication** ,**Login alerts** ,**Where you're logged in** , and complete each process.
+
+ If you have confirmed that your account was breached, there are[things to immediately do when your Facebook account has been hacked](https://www.makeuseof.com/tag/4-immediately-facebook-account-hacked/) . There are also[ways to recover your Facebook account when you can't log in](https://www.makeuseof.com/tag/recover-facebook-account-longer-log/) if the hacker has already changed your credentials.
+
+ Unauthorized access to your account can also put your other social media profiles at risk, or allow the hacker to send malware to your friends. Make sure to resolve it as soon as possible.
+
+## Be Wary Around the Web
+
+ Facebook is far from being the only service that has the potential to leave your life in ruins if someone gets unauthorized access to it. To stay safe on the web, ensure you follow basic security principles.
+
+ For example, don't use the same password on two different sites, use 2FA where available, and don't access highly sensitive data on either public computers or public Wi-Fi networks. Always use a VPN, especially when using a public Wi-Fi network.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-detailed-process-of-integrating-subtitles-into-mp4-videos/"><u>[Updated] Detailed Process of Integrating Subtitles Into MP4 Videos</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/updated-elite-gamers-top-10-on-tiktok-unleashed-for-2024/"><u>[Updated] Elite Gamers Top 10 on TikTok Unleashed for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/2024-approved-create-talking-cartoon-images-using-top-tools/"><u>2024 Approved Create Talking Cartoon Images Using Top Tools</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-hidden-secrets-of-copyright-protection-through-drm/"><u>Exploring Hidden Secrets of Copyright Protection Through DRM</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-honor-magic-5-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Honor Magic 5 Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-metaverse-a-new-threat-here-are-three-reasons-to-be-careful/"><u>Is the Metaverse a New Threat? Here Are Three Reasons to Be Careful</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-fb-enabling-two-factor-security/"><u>Mastering FB: Enabling Two-Factor Security</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/navigate-to-the-5-preferred-android-ps2-emulator-apps-for-2024/"><u>Navigate to the 5 Preferred Android PS2 Emulator Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-change-facebook-staff-as-metamates/"><u>Navigating Change: Facebook Staff as Metamates</u></a></li>
+<li><a href="https://techidaily.com/the-easiest-methods-to-hard-reset-motorola-edge-40-neo-drfone-by-drfone-reset-android-reset-android/"><u>The Easiest Methods to Hard Reset Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-content-tiktok-eats-into-facebooks-pieces/"><u>The New Era of Content: TikTok Eats Into Facebook’s Pieces</u></a></li>
+</ul></div>
+

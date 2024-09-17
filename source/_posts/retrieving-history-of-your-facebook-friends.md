@@ -1,7 +1,7 @@
 ---
 title: Retrieving History of Your Facebook Friends
-date: 2024-07-12T10:16:12.992Z
-updated: 2024-07-13T10:16:12.992Z
+date: 2024-09-12T20:06:32.164Z
+updated: 2024-09-16T19:08:25.431Z
 tags:
   - facebook
 categories:
@@ -49,14 +49,11 @@ But that's more time-consuming than necessary.
 
  It can be hard speaking to a friend you haven't spoken to for years, but Facebook already makes it a bit easier to attempt to reconnect. What better way to do it than sending the link to your Friendship History page that particular friend?
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -65,6 +62,26 @@ But that's more time-consuming than necessary.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-streamlining-video-editing-on-windows-11s-movie-maker/"><u>[New] In 2024, Streamlining Video Editing on Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-tap-out-of-tiktok-clutter-editing-guide-for-massive-drafts/"><u>[New] Tap Out of TikTok Clutter Editing Guide for Massive Drafts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-iphones-potential-podcast-harmony/"><u>[New] Unlocking iPhone's Potential - Podcast Harmony</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-simplified-methods-capturing-powerpoint-talks/"><u>[Updated] 2024 Approved Simplified Methods Capturing PowerPoint Talks</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-engaging-podcast-summaries-techniques-and-examples/"><u>[Updated] Crafting Engaging Podcast Summaries Techniques & Examples</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expert-endorsed-8-tripods-for-flawless-4k-footage/"><u>[Updated] Expert-Endorsed 8 Tripods for Flawless 4K Footage</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-from-silent-screens-to-captivating-media-instantly-create-captions-on-fb/"><u>In 2024, From Silent Screens to Captivating Media Instantly Create Captions on FB</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/revolutionize-communication-top-7-free-mac-tts-apps-uncovered/"><u>Revolutionize Communication Top 7 Free Mac TTS Apps Uncovered</u></a></li>
+<li><a href="https://facebook.techidaily.com/set-up-dark-screen-display-on-facebook/"><u>Set Up Dark Screen Display on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-for-configuring-facebook-shortcuts-easily/"><u>Step-by-Step for Configuring Facebook Shortcuts Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-comprerancers-blockade-how-to-halt-comments-on-social-media/"><u>The Comprerancer's Blockade: How to Halt Comments on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-directs-facebook-today/"><u>Who Directs Facebook Today?</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

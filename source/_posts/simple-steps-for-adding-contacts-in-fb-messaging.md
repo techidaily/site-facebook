@@ -1,7 +1,7 @@
 ---
 title: Simple Steps for Adding Contacts in FB Messaging
-date: 2024-07-12T10:15:12.625Z
-updated: 2024-07-13T10:15:12.625Z
+date: 2024-09-09T21:12:28.744Z
+updated: 2024-09-16T20:38:25.102Z
 tags:
   - facebook
 categories:
@@ -49,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/141f2083ce8f9807f7858bc78fabb4787ff1855b3
 
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
 
 Close
@@ -56,6 +63,13 @@ Close
  You don’t need to add someone as a friend on Facebook in order to chat to them on Messenger.
 
  All you have to do is go on Facebook, search for their name, and click on the profile of the person you want to chat to. Underneath their profile picture and banner, you’ll see three icons. You don’t want to click on the ellipsis, or on “Add Friend”. Instead, click**Message** . This will open up the Messenger app and let you talk to them.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can You Add Someone on Messenger Without a Facebook Profile?
 
@@ -89,18 +103,22 @@ So how can you delete old messages on Messenger?
 
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Add Friends on Messenger With Ease
 
  You can now keep in touch with your family and friends easily through Facebook and its associated Messenger app. Of course, there are plenty of instant messaging alternatives, but if you’re intent on sticking with Meta, you can at least make sure your chats are secure by keeping them encrypted too.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,6 +127,22 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-examining-vidma-as-a-video-recorder-for-screens/"><u>[Updated] Examining Vidma as a Video Recorder for Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-audio-clarity-commandments-choosing-from-the-best-6-livestreaming-mics/"><u>[Updated] In 2024, Audio Clarity Commandments Choosing From the Best 6 Livestreaming Mics</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1-ultimate-guide-to-manycam-top-live-streaming-tool-with-virtual-camera-functions/"><u>1. Ultimate Guide to ManyCam: Top Live Streaming Tool with Virtual Camera Functions</u></a></li>
+<li><a href="https://blog-min.techidaily.com/2-ways-to-transfer-text-messages-from-tecno-phantom-v-flip-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>2 Ways to Transfer Text Messages from Tecno Phantom V Flip to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/brilliant-backdrops-using-light-to-enchant-audiences/"><u>Brilliant Backdrops Using Light to Enchant Audiences</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/diy-vhs-to-dvd-upgrade-mastering-the-home-transcription-process-with-your-laptop/"><u>DIY VHS to DVD Upgrade: Mastering the Home Transcription Process with Your Laptop</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendly-directions-share-on-facebook-messenger/"><u>Friendly Directions: Share on Facebook Messenger</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-universal-iptv-broadcasting/"><u>In 2024, Universal IPTV Broadcasting</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Honor Magic 6 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/nft-adoption-meta-drops-tested-on-social-giants/"><u>NFT Adoption: Meta Drops Tested on Social Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/regulating-online-status-viewable-by-fb-friends/"><u>Regulating Online Status Viewable by FB Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/shaping-your-digital-space-the-art-of-fb-feed-customization/"><u>Shaping Your Digital Space: The Art of FB Feed Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-caused-the-social-media-blackout-epidemic/"><u>What Caused the Social Media Blackout Epidemic?</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-post-for-best-social-media-results/"><u>When to Post for Best Social Media Results</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebook-employees-are-now-called-metamates/"><u>Why Facebook Employees Are Now Called Metamates</u></a></li>
+</ul></div>
 

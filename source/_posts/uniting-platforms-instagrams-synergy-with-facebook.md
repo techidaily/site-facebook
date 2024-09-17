@@ -1,0 +1,88 @@
+---
+title: "Uniting Platforms: Instagram's Synergy with Facebook"
+date: 2024-09-09T23:23:01.047Z
+updated: 2024-09-16T18:45:01.189Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Uniting Platforms: Instagram's Synergy with Facebook"
+excerpt: "This Article Describes Uniting Platforms: Instagram's Synergy with Facebook"
+keywords: Instagram-Facebook Linkup,Social Media Merge,Brand Collaboration,Digital Network Unite,Cross Platform Strategies,Advertising Synergy,Multiplatform Growth
+thumbnail: https://thmb.techidaily.com/9ad9147e4fbb8c24ccda197a0486be5c1d9c044a46c11534bd2a1352ab33e591.png
+---
+
+## Uniting Platforms: Instagram's Synergy with Facebook
+
+ Despite concerns that users have over the data-sharing between Instagram and Facebook, parent company Meta has announced that it's testing Accounts Center features that allow users to swap between profiles more easily and receive notifications from both apps.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Meta Tests New Cross-Platform Account Center Features
+
+ Meta announced the test of the new Accounts Center features in a[post on the Meta Newsroom](https://about.fb.com/news/2022/09/accounts-center-facebook-and-instagram/) . The new features will allow you to receive your notifications for Facebook and Instagram in one place, as well as create and link existing accounts.
+
+ The new features are being tested globally on the iOS and Android apps, as well as the web version of the Accounts Center platform. The center is accessible through both the Instagram and Facebook apps, in your account settings menus.
+
+In its press release, Meta explained:
+
+> People will be able to easily switch between their Facebook and Instagram profiles if they’ve added them to the same Accounts Center. Additionally, people can now see their Facebook and Instagram profiles in one place.
+
+ The Accounts Center will also make Facebook and Instagram more centralized as those who do not have a profile on one of the apps can now use their existing credentials on the other to create a new account. Currently, users mostly link accounts for cross-posting and advertising. But the new Accounts Center will bring the two app experiences a lot closer.
+
+Meta notes:
+
+> Each of these new features uses the Meta brand to make it clear and easy to understand that you are interacting with a feature that works across more than one Meta technology, and to make the process as streamlined as possible.
+
+ If you want to[make your Instagram more private](https://www.makeuseof.com/tag/make-instagram-more-private/) , or have concerns about Facebook data leaks, this may not be the feature for you.
+
+## Accounts Center May Expand to More Apps
+
+ The centralization of accounts raises security concerns, since leaks or breaches of one account's credentials could grant access to all linked accounts. Despite this, Meta is not planning to just centralize Instagram and Facebook.
+
+ In its blog post, the company notes that it's exploring how to improve "connected experiences" across all of its technologies. This means that Meta-owned apps and platforms like Oculus and WhatsApp may also see more centralized access.
+
+ In August 2022, Meta introduced Meta Accounts, a change to account structure for Oculus profiles and Meta Horizons.
+
+## Meta Continues to Bring its Apps Closer
+
+ The new Accounts Center feature test won't be the last we see of centralized Meta account access. If all goes according to plan, your profiles across Meta accounts may become a lot more connected than in the past.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-your-soundtrack-anytime-anywhere-6-top-ranked-free-apps-to-download-youtube-music/"><u>[New] Your Soundtrack, Anytime, Anywhere 6 Top-Ranked Free Apps to Download Youtube Music</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Lava Agni 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-c210-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Nokia C210 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-unrivaled-tale-composers-hub/"><u>In 2024, Unrivaled Tale Composers Hub</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ion-audio-tailgater-plus-test-drive-enjoy-exceptional-sound-quality-with-effortless-controls-and-extended-playtime/"><u>ION Audio Tailgater Plus Test Drive: Enjoy Exceptional Sound Quality with Effortless Controls & Extended Playtime.</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-facebooks-tools-for-seamless-team-project-execution/"><u>Leveraging Facebook's Tools for Seamless Team Project Execution</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-social-media-icons-understanding-fb-symbols/"><u>Mastering Social Media Icons - Understanding FB Symbols</u></a></li>
+<li><a href="https://win-blog.techidaily.com/no-more-freezes-overcome-ark-community-survivals-pc-downloads-and-play-smoothly-again/"><u>No More Freezes! Overcome ARK: Community Survival's PC Downloads & Play Smoothly Again</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/primes-favorites-highest-tweets-and-view-counts-analysis-for-2024/"><u>Prime's Favorites Highest Tweets & View Counts Analysis for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-virtual-self-in-the-facebook-world/"><u>Tailoring Your Virtual Self in the Facebook World</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,0 +1,105 @@
+---
+title: What Does FBCTA Mean for You Online?
+date: 2024-09-09T21:07:40.805Z
+updated: 2024-09-16T23:39:58.495Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes What Does FBCTA Mean for You Online?
+excerpt: This Article Describes What Does FBCTA Mean for You Online?
+keywords: FBCTA Meaning Online,FBCTA Impact Web,FBCTA in Digital World,FBCTA and E-Commerce,Understanding FBCTA,FBCTA Significance Net,Online FBCTA Implications
+thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9293b1bce2b9a95dc690dd25.jpg
+---
+
+## What Does FBCTA Mean for You Online?
+
+ Lawmakers want to change the way social media apps set up their feeds, which could ultimately change the way you experience these apps.
+
+ Congress is targeting major social media algorithms like Facebook and Instagram through a new Filter Bubble bill, but what does this mean for you?
+
+ This article will outline how Congress wants Facebook and other tech giants to change their algorithms. Keep reading to find out more about how this proposed bill could affect you.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## What Is the Filter Bubble Transparency Act?
+
+![courtroom gavel](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/03/courtroom-gavel-judge.jpg)
+
+ US Congress is taking aim at social media algorithms with new legislation it's calling the Filter Bill Transparency Act (FBTA). The bill would require companies like Meta (Facebook's parent company) to give users an option to opt out of algorithmic content feeds informed by users' personal data.
+
+ Or, as stated by lawmakers in the[proposal](https://s3.documentcloud.org/documents/21100363/buck%5F030%5Fxml-filter-bubble.pdf) :
+
+> To require that internet platforms give users the option to engage with a platform without being manipulated by algorithms driven by userspecific data.
+
+ The FBTA is sponsored by Senators Mark Warner and John Thune, who've been critical of the tech industry.
+
+ The bill is named after Eli Pariser’s 2011 book The Filter Bubble, which highlights the way tech companies like Facebook optimize content based on what users already engage with.
+
+ The FBTA aims to let people opt out of data-driven algorithms. It seeks to make large companies like Meta notify you if they’re showing you content based on personal information that you didn’t explicitly provide.
+
+ That could be anything like your search history or your location. They'd also have to give you the option to turn off this personalization. The only data they can use, however, is based on the information you explicitly give them—like saved preferences and search items.
+
+ Of course, one of the bill's main targets is Meta, which is already under fire for its algorithm. According to whistleblower and former Facebook employee Frances Haugen, Facebook's algorithm shows you hateful and divisive content that incites violence and other extreme emotions and reactions.
+
+ She also alleges that Instagram is negatively impacting teenagers using the social media app, worse than other apps are. Of course, Facebook has denied these claims.
+
+ Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
+
+## How the Filter Bubble Transparency Act Could Affect You
+
+![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
+
+ The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
+
+[Twitter's tab-switching feature](https://www.makeuseof.com/twitter-switch-between-top-and-latest-tweets/) makes it easy for you to choose and switch between an algorithmic feed and a feed showing you the latest tweets on your timeline.
+
+ This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
+
+## Will Personalized Algorithms Become a Thing of the Past?
+
+ Congress wants big tech companies to stop using unsolicited data from users to inform its algorithms, which is a big ask, considering this is a key part of apps like Facebook and Instagram, and part of what keeps users scrolling and engaging.
+
+ Facebook is known to push back against lawmakers and defending its business, so it will be interesting to see how this plays out. For now though, don't hold your breath on Facebook overhauling its algorithm.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/exploring-the-tech-marvel-of-lg-ud88-w-monitors/"><u>Exploring the Tech Marvel of LG UD88-W Monitors</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-assistance-hub-your-guide-to-usage/"><u>Facebook Assistance Hub: Your Guide to Usage</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-samsung-galaxy-xcover-7mirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Samsung Galaxy XCover 7Mirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-realme-c55-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme C55 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-charting-your-path-podcast-income-expectations/"><u>In 2024, Charting Your Path Podcast Income Expectations</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Apple iPhone 13 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intrigued-by-security-facebookers-buy-300-tech-for-account-recovery/"><u>Intrigued by Security? Facebookers Buy $300 Tech for Account Recovery</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-y78plus-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Y78+</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quest-for-memory-lanes-first-facebook-step/"><u>The Quest for Memory Lane's First Facebook Step</u></a></li>
+<li><a href="https://facebook.techidaily.com/three-dangers-of-metas-social-power/"><u>Three Dangers of Meta's Social Power</u></a></li>
+<li><a href="https://some-tips.techidaily.com/transform-your-videos-with-the-right-dimension-proportions-for-2024/"><u>Transform Your Videos with the Right Dimension Proportions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-historical-facebook-bonds/"><u>Uncovering Historical Facebook Bonds</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

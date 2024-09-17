@@ -1,7 +1,7 @@
 ---
 title: "Digital Connectivity's Silver Lining: 7 Social Perks"
-date: 2024-07-12T10:17:43.396Z
-updated: 2024-07-13T10:17:43.396Z
+date: 2024-09-09T22:17:20.022Z
+updated: 2024-09-16T21:24:50.886Z
 tags:
   - facebook
 categories:
@@ -76,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/721844d81a2674aaafe28cc93fa85dbee744a7d0e
 ## 5\. Social Media Helps You Build Relationships
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
  There is no doubting that having social networking in our lives can lead to relationships breaking up. But there is another side to the story, which is that people are moving onto other, perhaps better, relationships.
@@ -104,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/721844d81a2674aaafe28cc93fa85dbee744a7d0e
 ## 7\. Social Media Helps You Find Common Ground
 ![high fives](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/high-fives-all-around.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Scott Cutler/[Flickr](https://www.flickr.com/photos/wetfeet2000/1489080760/)
 
  As previously mentioned,[social networking sites](https://www.makeuseof.com/tag/top-social-media-apps-sites/) can help you find people you share interests with. Facebook, for example, asks you to list who and what you are interested in right from the start. This makes it much easier to find common ground with other users.
@@ -114,18 +128,22 @@ thumbnail: https://thmb.techidaily.com/721844d81a2674aaafe28cc93fa85dbee744a7d0e
 
  **Social networking sites make fitting in easier, as long as you open up a little.**
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## So, Is Social Media Good for Society?
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,6 +152,16 @@ thumbnail: https://thmb.techidaily.com/721844d81a2674aaafe28cc93fa85dbee744a7d0e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-in-depth-look-nikon-d7500-specifications-for-2024/"><u>[New] In-Depth Look Nikon D7500 Specifications for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-photoplusvideo-integration-with-iphone/"><u>[New] Navigating Photo+Video Integration with iPhone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-oppo-find-n3-flip-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-frp-on-x9b-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass FRP on X9b</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-seamlessly-connect-chatgpt-and-siri-for-enhanced-iphone-interaction/"><u>How to Seamlessly Connect ChatGPT and Siri for Enhanced iPhone Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/lost-in-the-social-void-regain-your-facebook-profile/"><u>Lost in the Social Void: Regain Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-covert-language-in-messenger-texts/"><u>Navigating Covert Language in Messenger Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/stealthy-fb-tips-to-prevent-strangers-from-viewing-posts/"><u>Stealthy FB Tips to Prevent Strangers From Viewing Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/zero-tolerance-for-myth-sharers-on-facebook-now/"><u>Zero Tolerance for Myth Sharers on Facebook Now</u></a></li>
+</ul></div>
 

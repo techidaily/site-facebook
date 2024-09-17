@@ -1,7 +1,7 @@
 ---
 title: Say No to FB Surveillance with Off-Facebook Activity Controls
-date: 2024-07-12T10:17:17.933Z
-updated: 2024-07-13T10:17:17.933Z
+date: 2024-09-11T23:36:06.179Z
+updated: 2024-09-16T20:31:01.990Z
 tags:
   - facebook
 categories:
@@ -58,6 +58,19 @@ thumbnail: https://thmb.techidaily.com/9c17d408eef8eb942c240704209721146d1ae1a43
 
 Close
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Data the Will the Tool Remove?
 
  The tool anonymizes your browsing data so it is no longer linked to your Facebook account. It should take effect within 48 hours, according to a [Facebook engineering blog post](https://engineering.fb.com/data-infrastructure/off-facebook-activity/) . However, an important caveat about this tool is that it will not actually delete your data. It will disconnect the data from your Facebook profile, but it won't allow you to delete your browsing information.
@@ -70,6 +83,13 @@ Close
 
 ![Desktop Monitor Placed on a Table Showing Image of a Man Viewing From a Binocular Covered With Facebook Logo Icons](https://static0.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Desktop-Monitor-Placed-on-a-Table-Showing-Image-of-a-Man-Viewing-From-a-Binocular-Covered-With-Facebook-Logo-Icons.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you want to remove your data from Facebook, it's going to take more work. You can start by going to [Facebook Ad Preferences](https://www.facebook.com/ads/preferences/) . Here you can see the profile Facebook has built of you and your interests based on all the data it has access to. You can also go to [Facebook settings](http://www.facebook.com/settings) and download a copy of the data that Facebook has on you. But be warned: the downloaded file will likely be huge.
 
  The very best way to remove your data from Facebook, however, is to delete your account. If you deactivate your account, it won't erase your personal data. Deleting your account will remove most but not all of your data. To learn more about what happens when you delete your account, see our guide to [what deactivating or deleting Facebook really means for privacy](https://www.makeuseof.com/tag/deactivating-deleting-facebook-privacy/) .
@@ -80,14 +100,11 @@ Close
 
  Controlling the data that Facebook collects about you isn't only important for your personal privacy and security. It can also have a big effect on society as a whole.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -96,6 +113,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-explore-premium-download-options-for-mp4/"><u>2024 Approved Explore Premium Download Options for MP4</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://tools.techidaily.com/epubor/ebook-editor/"><u>Epubor WordMate</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-capturing-screens-seamlessly-with-ezvid-video-maker/"><u>In 2024, Capturing Screens Seamlessly with Ezvid Video Maker</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-12-with-itunes-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 12 with iTunes</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-locked-apple-id-from-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Fix Locked Apple ID from iPhone SE (2022)</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-two-factor-authentication-whatsapp-code-delivery/"><u>Instagram's Two-Factor Authentication: WhatsApp Code Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-altering-facebooks-birthdate/"><u>Mastering the Art of Altering Facebook's Birthdate</u></a></li>
+<li><a href="https://games-able.techidaily.com/procedural-patterns-shaping-video-game-universes/"><u>Procedural Patterns: Shaping Video Game Universes</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-your-fb-profile-with-a-fresh-url/"><u>Rebranding Your FB Profile with a Fresh URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-shortcomings-the-top-5-times-it-lost-its-way-with-us/"><u>Unmasking Facebook's Shortcomings: The Top 5 Times It Lost Its Way with Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-future-3-metaverse-risks-in-social-media/"><u>Unraveling the Future: 3 Metaverse Risks in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-in-store-at-your-fingertips-with-facebook-assistance/"><u>What Is in Store at Your Fingertips with Facebook Assistance?</u></a></li>
+</ul></div>
 

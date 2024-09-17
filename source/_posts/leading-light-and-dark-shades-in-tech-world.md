@@ -1,7 +1,7 @@
 ---
 title: Leading Light and Dark Shades in Tech World
-date: 2024-09-10T15:07:07.487Z
-updated: 2024-09-11T15:07:07.487Z
+date: 2024-09-09T23:41:38.983Z
+updated: 2024-09-16T20:36:23.718Z
 tags:
   - facebook
 categories:
@@ -21,31 +21,14 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  Read on to find out the most polarizing tech tycoons we can't get enough of.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-
-
 ## 1\. Jack Dorsey
 
 ![jack dorsey](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/jack-dorsey.jpeg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Best known for:** Co-founder and CEO of Twitter
 
@@ -56,20 +39,6 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
  The internet was instantly divided into two parties—those who supported the suspension, and others who said Twitter had overstepped the mark. While a majority of Americans supported the ban according to [The Harris Poll](https://theharrispoll.com/twitters-trump-ban-after-capitol-attack-supported-by-most-americans-but-not-most-republicans-harris-poll-says/) , unease at the decision came from the most unexpected places.
 
  Appearing on The Ezra Klein Show, US Senator Bernie Sanders said he did not feel comfortable that the former president was not allowed to express his views on Twitter, noting that "tomorrow it could be somebody else who has a very different point of view."
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 2\. Elizabeth Holmes
 
@@ -85,43 +54,9 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  The disgraced ex-CEO might not be the tech genius she wanted to portray herself as. However, her ability to perpetuate a decade-long fraud and raise more than $700 million from investors and venture capitalists has elevated her to the top of the list of master con artists, subject to countless documentaries and articles in awe and horror of her tale.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 3\. Julian Assange
 
 ![julian assange](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/julian-assange.jpeg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Best known for:** Founder of WikiLeaks
 
@@ -137,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
@@ -151,31 +93,25 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
 ![Free Expression Awards YouTube](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/free-expression-youtube-awards.png)
 
-
-
-
+ The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
- The video highlighting the win has received over 50,000 dislikes at this time of writing.
 
 ## 5\. Bill Gates
 
 ![bill gates](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/bill-gates.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Senator Chris Coons meeting with Bill Gates at the Russell Senate Office Building on November 8, 2019.
 
@@ -192,20 +128,6 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 ## 6\. Mark Zuckerberg
 
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Best known for:** Co-founder of Facebook
 
@@ -225,20 +147,6 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  When Facebook permanently suspended Trump's Facebook account following the 2021 Capitol riot, there were similar cries of outrage from the other side of the aisle, with campaigns urging users to[delete their Facebook accounts](https://www.makeuseof.com/tag/delete-facebook-account/) in protest of free speech.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Least Polarizing Tech Figure?
 
  It is not easy being a public figure. Deciding to do something, or a lack of action, will attract both praise and criticism.
@@ -247,14 +155,11 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -263,55 +168,21 @@ thumbnail: https://thmb.techidaily.com/7677f4cd9df16c6a66672a56bd970deac980e4b07
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-cutting-the-clutter-eschewing-fb-video-ads/"><u>[New] 2024 Approved Cutting the Clutter Eschewing FB Video Ads</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-mirthful-montage-mastering-7-comical-video-vignettes/"><u>[New] In 2024, Mirthful Montage Mastering 7 Comical Video Vignettes</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-creating-a-backup-securing-your-fb-messenger-records/"><u>[Updated] 2024 Approved Creating a Backup Securing Your FB Messenger Records</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-pulsepundit-critique-of-live-performances/"><u>[Updated] 2024 Approved PulsePundit Critique of Live Performances</u></a></li>
-<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-samsung-galaxy-m34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Samsung Galaxy M34 5G | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-honor-90-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Honor 90 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-shield-against-swings-understanding-stablecoin-mechanisms/"><u>A Shield Against Swings: Understanding Stablecoin Mechanisms</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-digital-assistants-dialling-into-personal-preferences/"><u>Are Digital Assistants Dialling Into Personal Preferences?</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-shots-from-the-2022-snowboard-x-games-for-2024/"><u>Best Shots From the 2022 Snowboard X Games for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue-for-2024/"><u>Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor X9b? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/combating-coronavirus-myths-on-online-communities/"><u>Combating Coronavirus Myths on Online Communities</u></a></li>
-<li><a href="https://facebook.techidaily.com/communication-breakdown-major-social-media-failure/"><u>Communication Breakdown: Major Social Media Failure</u></a></li>
-<li><a href="https://facebook.techidaily.com/designing-your-face-in-the-facebook-ecosystem/"><u>Designing Your Face in the Facebook Ecosystem</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-identity-vs-online-alias-whats-the-difference/"><u>Facebook Identity Vs Online Alias: What's The Difference?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-policy-shift-for-trumps-page/"><u>Facebook Policy Shift for Trump's Page</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-itel-s23-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Itel S23 | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/galaxy-buds-3-vs-airpods-an-in-depth-comparison-of-stylish-earbuds/"><u>Galaxy Buds 3 vs AirPods: An In-Depth Comparison of Stylish Earbuds</u></a></li>
-<li><a href="https://facebook.techidaily.com/hidden-technological-evolutions-that-changed-the-game/"><u>Hidden Technological Evolutions That Changed The Game</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-get-a-deceased-family-members-facebook-account-memorialized-or-removed/"><u>How to Get a Deceased Family Member's Facebook Account Memorialized or Removed</u></a></li>
-<li><a href="https://facebook.techidaily.com/ig-live-unplugged-mode-available/"><u>IG Live Unplugged Mode Available</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on Apple iPhone 12 Pro</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-about-realme-note-50-frp-bypass-by-drfone-android/"><u>In 2024, About Realme Note 50 FRP Bypass</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-next-level-capturing-hero-4-and-hero-5-reviewed/"><u>In 2024, Next Level Capturing Hero 4 & Hero 5 Reviewed</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-honor-play-40c-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Honor Play 40C Device</u></a></li>
-<li><a href="https://some-tips.techidaily.com/inside-worlds-of-gigantic-intelligent-language-models/"><u>Inside Worlds of Gigantic, Intelligent Language Models</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-digital-gathering-detection/"><u>Mastering the Art of Digital Gathering Detection</u></a></li>
-<li><a href="https://facebook.techidaily.com/metas-growth-strategy-risks-facebook-and-instagram-eu-markets/"><u>Meta's Growth Strategy Risks Facebook & Instagram EU Markets</u></a></li>
-<li><a href="https://facebook.techidaily.com/professional-growth-on-social-networking-sites-a-guide/"><u>Professional Growth on Social Networking Sites: A Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/riding-the-wave-of-innovation-spotify-and-facebooks-collaborative-dream/"><u>Riding the Wave of Innovation: Spotify & Facebook's Collaborative Dream</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-podcast-streaming-trick-quick-play-upgrade/"><u>Top Podcast Streaming Trick - Quick Play Upgrade</u></a></li>
-<li><a href="https://facebook.techidaily.com/two-factor-authentication-on-facebook-a-complete-tutorial/"><u>Two-Factor Authentication on Facebook – A Complete Tutorial</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-contacts-from-realme-note-50-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Realme Note 50.</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-more-than-headlines-dissecting-fb-dossiers-objectively/"><u>Understanding More than Headlines: Dissecting FB Dossiers Objectively</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-these-five-economical-ways-to-time-your-fb-updates/"><u>Unlock These Five Economical Ways to Time Your FB Updates</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-best-free-video-rotator-apps-for-iphone-2023-edition/"><u>Updated 2024 Approved Best Free Video Rotator Apps for iPhone 2023 Edition</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-delays-introduction-of-updated-user-terms-and-conditions/"><u>WhatsApp Delays Introduction of Updated User Terms & Conditions</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-will-facebook-messenger-provide-e2ee/"><u>When Will Facebook Messenger Provide E2EE?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-social-networks-temporarily-freeze-up/"><u>Why Did Social Networks Temporarily Freeze Up?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebooks-audience-is-diminishing-dramatically/"><u>Why Facebook's Audience Is Diminishing Dramatically</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-daily-playlist-anywhere-you-go-spotify-miniplayer-and-facebook/"><u>Your Daily Playlist, Anywhere You Go – Spotify Miniplayer & Facebook</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>[New] 12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-marketing-mastery-discerning-real-engagement-from-skewed-statistics/"><u>[New] In 2024, Marketing Mastery Discerning Real Engagement From Skewed Statistics</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-essential-musicians-guide-to-copyright-compliance-on-ig/"><u>[New] In 2024, The Essential Musician's Guide to Copyright Compliance on IG</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-tactical-volume-management-in-live-mixing/"><u>[New] Tactical Volume Management in Live Mixing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-aerial-device-typologies/"><u>[Updated] Aerial Device Typologies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-creating-gifs/"><u>[Updated] The Ultimate Guide to Creating GIFs</u></a></li>
+<li><a href="https://techidaily.com/best-fixes-for-samsung-galaxy-xcover-7-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Samsung Galaxy XCover 7 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-interruption-new-rules-for-young-user-engagement/"><u>Instagram Interruption: New Rules for Young User Engagement?</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-mutualities-facebooks-friendlist-shield/"><u>Masked Mutualities: Facebook's Friendlist Shield</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-xiaomi-redmi-note-12-5g-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Xiaomi Redmi Note 12 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/replace-imovie-with-these-top-rated-windows-10-video-editors-for-2024/"><u>Replace iMovie with These Top-Rated Windows 10 Video Editors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-anonymous-admiration-fbig-secret-likes/"><u>The New Era of Anonymous Admiration: FB/IG Secret Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-friendships-storyline-on-facebook/"><u>Unlock Friendships’ Storyline on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-past-social-media-behavior-eternal/"><u>Will Past Social Media Behavior Eternal?</u></a></li>
 </ul></div>
-
-
-
 

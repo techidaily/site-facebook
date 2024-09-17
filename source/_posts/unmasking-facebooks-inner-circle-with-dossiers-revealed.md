@@ -1,7 +1,7 @@
 ---
 title: Unmasking Facebook’s Inner Circle with Dossiers Revealed
-date: 2024-09-10T14:59:23.938Z
-updated: 2024-09-11T14:59:23.938Z
+date: 2024-09-09T16:42:08.579Z
+updated: 2024-09-16T18:10:10.584Z
 tags:
   - facebook
 categories:
@@ -21,53 +21,16 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  However, the Facebook Papers are much more than that, as you'll see with some of the major revelations found in the trove of documents.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## What Are the Facebook Papers?
 
  We've already covered[what the Facebook Papers are in more detail](https://www.makeuseof.com/what-are-facebook-papers/) , but in short,[Facebook whistleblower Frances Haugen](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) turned over heaps of internal Facebook documents to news outlets, the US Securities and Exchange Commission, and Congress.
 
  On Monday, October 25, 2021, at 7am, the news outlets began publishing the information found in the leaked data, delivering unparalleled insight into the inner workings of Facebook.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## 7 Key Revelations From the Facebook Papers
 
@@ -85,14 +48,11 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
 
  As above, this isn't the full scale of the Facebook Papers but offers an eye-opening introduction to what's really going on at Facebook.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,74 +61,27 @@ thumbnail: https://thmb.techidaily.com/59f91e855b8da924b2a0ba83734da21e4ed3929e8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-getting-to-know-apods-downloads-on-mobile-devices/"><u>[New] In 2024, Getting to Know APods Downloads on Mobile Devices</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-instas-secrets-unveiled-the-art-of-selfie-confirmation/"><u>[New] Insta's Secrets Unveiled The Art of Selfie Confirmation</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-premier-mobile-tools-for-dji-footage-enhancement/"><u>[New] Premier Mobile Tools for DJi Footage Enhancement</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-sonys-leap-into-4k-with-xperia-xz-premium-insights/"><u>[New] Sony's Leap Into 4K with Xperia XZ Premium Insights</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-create-logos-via-free-logo-template-customize-and-download-for-free/"><u>[Updated] Create Logos via Free Logo Template Customize and Download for Free</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1724765768623-imgburn/"><u>「ImgBurnのダウンロードと日本語設定：初心者ガイド」</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-leading-plot-coders-space/"><u>2024 Approved Leading Plot Coders Space</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-photographic-purity-and-proficiency-in-chromatic-control/"><u>2024 Approved Photographic Purity and Proficiency in Chromatic Control</u></a></li>
-<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-prestige-exclusive-badge-from-meta/"><u>Achieve Prestige: Exclusive Badge From Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/achieve-serenity-by-shutting-down-fb-alerts/"><u>Achieve Serenity by Shutting Down FB Alerts</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-exploring-life-post-social-media/"><u>Beyond Likes: Exploring Life Post-Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/camouflaging-connections-in-facebook/"><u>Camouflaging Connections in Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-up-deleting-fb-watch-history-and-its-benefits/"><u>Clearing Up: Deleting FB Watch History & Its Benefits</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/common-astro-a10-mic-issues-and-proven-fixes-overcoming-audio-troubles/"><u>Common Astro A10 Mic Issues and Proven Fixes: Overcoming Audio Troubles</u></a></li>
-<li><a href="https://facebook.techidaily.com/controlling-access-to-deceased-friends-facebook-profile-content/"><u>Controlling Access to Deceased Friends' Facebook Profile Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-dialogues-power-7-social-benefits-explored/"><u>Digital Dialogue’s Power: 7 Social Benefits Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/disband-your-digital-haven-on-facebook-quickly/"><u>Disband Your Digital Haven on Facebook Quickly</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/editors-assistant-top-5-portable-devices-for-vfx-artists/"><u>Editor's Assistant Top 5 Portable Devices for VFX Artists</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-safety-settings-for-kids-profile-in-messengers/"><u>Enhancing Safety Settings for Kids’ Profile in Messengers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-launches-a-music-revenue-sharing-program-how-does-it-work/"><u>Facebook Launches a Music Revenue-Sharing Program: How Does It Work?</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-update-unpolitical-and-nonreligious-profiles-ahead/"><u>Facebook's Update: Unpolitical & Nonreligious Profiles Ahead</u></a></li>
-<li><a href="https://facebook.techidaily.com/fb-board-plans-trump-suspension-reevaluation/"><u>FB Board Plans Trump Suspension Reevaluation</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortify-your-digital-life-the-complete-fb-safety-guidebook/"><u>Fortify Your Digital Life: The Complete FB Safety Guidebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/google-and-linkedins-covert-tracking-for-uninterrupted-service/"><u>Google and LinkedIn's Covert Tracking for Uninterrupted Service</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-6-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone 6? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-the-new-facebook-dating-features-will-affect-your-matches/"><u>How the New Facebook Dating Features Will Affect Your Matches</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-iphone-xr-could-not-be-activatedreached-issue-by-drfone-ios/"><u>How To Fix iPhone XR Could Not Be Activated/Reached Issue</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-install-updated-hp-officejet-5255-driver-step-by-step-guide/"><u>How to Install Updated HP OfficeJet 5255 Driver – Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/immediate-steps-for-restoring-and-protecting-your-fb-profile/"><u>Immediate Steps for Restoring & Protecting Your FB Profile</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-meizu-21-pro-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Meizu 21 Pro To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-intro-to-radial-photo-distortion-ps-tutorial/"><u>In 2024, Intro to Radial Photo Distortion PS Tutorial</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-the-secrets-to-collecting-fb-gifs-a-comprehensive-manual/"><u>In 2024, Unlocking the Secrets to Collecting FB GIFs A Comprehensive Manual</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-facebooks-reels-in-the-social-media-race/"><u>Investigating Facebook’s Reels in the Social Media Race</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/latest-supported-graphics-driver-intels-iris-plus-655-for-windows-11-systems/"><u>Latest Supported Graphics Driver: Intel's Iris Plus 655 for Windows 11 Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/linkedin-and-facebook-synergy-for-job-advancement/"><u>LinkedIn & Facebook Synergy for Job Advancement</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/optimal-choices-for-endless-data-preservation-for-2024/"><u>Optimal Choices for Endless Data Preservation for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-your-screen-for-interactive-video-conferences/"><u>Optimizing Your Screen for Interactive Video Conferences</u></a></li>
-<li><a href="https://facebook.techidaily.com/personal-space-protection-escape-from-these-invasive-apps/"><u>Personal Space Protection: Escape From These Invasive Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-boost-removing-facebook-watch-history-details/"><u>Privacy Boost: Removing Facebook Watch History Details</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-concerns-when-will-fb-messaging-go-e2ee/"><u>Privacy Concerns: When Will FB Messaging Go E2EE?</u></a></li>
-<li><a href="https://facebook.techidaily.com/reinventing-online-self-image-mastering-new-nickname-adjustment/"><u>Reinventing Online Self-Image: Mastering New Nickname Adjustment</u></a></li>
-<li><a href="https://facebook.techidaily.com/revamping-your-feed-the-ultimate-guide/"><u>Revamping Your Feed: The Ultimate Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/revised-tips-youngsters-advised-against-insta-use/"><u>Revised Tips: Youngsters Advised Against Insta Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/room-exploration-essentials-for-the-messaging-novice/"><u>Room Exploration Essentials for the Messaging Novice</u></a></li>
-<li><a href="https://facebook.techidaily.com/sharpening-speech-snippets-bold-and-italic-flair/"><u>Sharpening Speech Snippets: Bold & Italic Flair</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotlight-facebook-refining-news-feed-for-business-outreach/"><u>Spotlight: Facebook Refining News Feed for Business Outreach</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/starting-with-a-gopro-essential-upgrades-for-new-filmmakers-for-2024/"><u>Starting with a GoPro Essential Upgrades for New Filmmakers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-newsfeed-to-dodge-objectionable-ads/"><u>Tailoring Your Newsfeed to Dodge Objectionable Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-american-viewpoint-social-networkings-dark-side/"><u>The American Viewpoint: Social Networking's Dark Side</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-engagement-building-lasting-digital-connections/"><u>The Art of Engagement: Building Lasting Digital Connections</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-word-creation-facebooks-image-based-ai-innovation/"><u>The Art of Word Creation: Facebook's Image-Based AI Innovation</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-great-connective-power-of-modern-social-media/"><u>The Great Connective Power of Modern Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-rise-of-metaai-vs-typical-chatbot-platforms/"><u>The Rise of MetaAI vs Typical Chatbot Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-to-clear-your-facebook-chronicle/"><u>The Ultimate Strategy to Clear Your Facebook Chronicle</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-untold-tech-stories-that-could-reshape-our-future/"><u>The Untold Tech Stories That Could Reshape Our Future</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/unmissable-video-capturing-discover-top-5-tools-now/"><u>Unmissable Video Capturing - Discover Top 5 Tools Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/vaccination-push-via-fb-twittersphere-and-snaps-by-jolie/"><u>Vaccination Push via FB, Twittersphere and Snaps by Jolie</u></a></li>
-<li><a href="https://facebook.techidaily.com/vk-unveiled-grasping-russias-digital-landmark/"><u>VK Unveiled: Grasping Russia's Digital Landmark</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-unlock-creative-potential-macs-top-free-drawing-tools/"><u>[New] In 2024, Unlock Creative Potential Mac's Top Free Drawing Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-safety-in-social-commerce-with-these-tips/"><u>Enhance Safety in Social Commerce with These Tips</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-ai-transforms-our-perception-of-reality-and-fantasy-top-8-insights/"><u>How AI Transforms Our Perception of Reality and Fantasy: Top 8 Insights</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/1721834500833-how-these-seven-cutting-edge-apps-harness-the-capabilities-of-gpt-revealed/"><u>How These Seven Cutting-Edge Apps Harness the Capabilities of GPT-# Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unsubscribe-from-all-fb-newsworthy-items/"><u>How To Unsubscribe From All FB Newsworthy Items</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-dive-into-the-dos-and-donts-of-youtube-beauty-channels/"><u>In 2024, Dive Into the Do's and Don'ts of YouTube Beauty Channels</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-evolved-sony-bdp-s6700-unveiled/"><u>In 2024, The Evolved Sony BDP-S6700 Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/less-screen-more-self-my-exploration-post-social-networks/"><u>Less Screen, More Self: My Exploration Post-Social Networks</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-beyond-quik-exploring-the-best-pc-video-editing-software-for-gopro-users/"><u>New In 2024, Beyond Quik Exploring the Best PC Video Editing Software for GoPro Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-graph-of-change-facebook-to-meta-story/"><u>The Graph of Change: Facebook to Meta Story</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/the-ultimate-guide-to-creating-flawless-passport-photos-for-free-for-2024/"><u>The Ultimate Guide to Creating Flawless Passport Photos for Free for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/usb-printing-issues-post-suspend-with-win7/"><u>USB Printing Issues Post-Suspend with Win7</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

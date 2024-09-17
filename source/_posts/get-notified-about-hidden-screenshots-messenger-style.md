@@ -1,0 +1,106 @@
+---
+title: Get Notified About Hidden Screenshots, Messenger Style
+date: 2024-09-14T23:49:51.826Z
+updated: 2024-09-16T16:24:03.445Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Get Notified About Hidden Screenshots, Messenger Style
+excerpt: This Article Describes Get Notified About Hidden Screenshots, Messenger Style
+keywords: SnapNotify Messenger,Hidden Screenshot Alerts,Messaging Screen Share,Secret Images Notification,Covert Photo Updates,Undisclosed Image Alert,Stealthy Screenshots
+thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca41037a408c561029879668d653a.jpg
+---
+
+## Get Notified About Hidden Screenshots, Messenger Style
+
+ Meta has announced updates for end-to-end encrypted chats on Facebook Messenger. Default end-to-end encryption won't arrive on Messenger until sometime in 2023, but now you can opt-in and take advantage of the added features.
+
+ The most noteworthy development is the addition of a control to its disappearing messages that notifies you if your chat partner takes a screenshot of your conversation. Here's what you need to know.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Messenger Now Has Full End-to-End Encryption (E2EE)
+
+ Meta's journey to encrypting our chats on Messenger has been a bit of a winding road. It began when Meta (then Facebook) introduced[Secret Conversations](https://www.makeuseof.com/facebook-messenger-secret-conversation/) to Messenger in 2016.
+
+ Previously, Facebook Messenger allowed you to start a conversation on one device and continue the conversation on another device. Third parties such as government agencies, cybercriminals, and even Meta's employees could easily access your chats because they weren't encrypted.
+
+ Secret Conversations on Messenger changed that by restricting your chat to the device you initiated it on and also encrypted the conversation end to end. Security was further enhanced when Messenger introduced[Vanish Mode](https://www.makeuseof.com/messengers-vanish-mode-make-messages-disappear/) in November 2020, which allowed your messages to disappear after a while and notified you when someone took a screenshot of said messages.
+
+ Although E2EE has been available on Meta's services for a while, it has been rolling it out slowly due to concerns by law enforcement that E2EE would give an unfair advantage to criminals. So, Meta started cautiously testing the feature with users who already had an existing chat thread and were connected, rather than everybody in the world.
+
+ However,[Meta](https://messengernews.fb.com/2022/01/27/express-yourself-in-messengers-end-to-end-encrypted-chats/) has announced that E2EE is rolling out to all 900 million Messenger users globally, but with one caveat; E2EE is not available by default. You have to turn it on every time you send a message. This is out of deference to law enforcement, with whom they are still working things out.
+
+ Related:[How to Chat With a Girl on Facebook Before Asking Her Out](https://www.makeuseof.com/tag/4-effective-tips-girl-facebook/)
+
+ Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
+
+## How to Activate Screenshot Notifications on Messenger
+
+ Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
+
+1. Open the Messenger app. Tap the**Pencil** icon that you'll find in the top-right corner. This will enable you to compose a message.
+2. Select the person or group you wish to chat with.
+3. Toggle the**Padlock** icon (Android) or the**Secret** text (iOS) at the top-right corner (this puts your chat in secret conversation mode). If you reverse this action, you go back to the non-secret mode.
+4. In secret conversation mode, Messenger shows you a**timer** icon beside the chatbox. Tap on it and select your preferred timer option (from five seconds to one day). This will decide how long your message lasts after your chat partner reads it.
+5. Type a message as you normally would and hit**Send** .
+
+![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
+
+![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
+
+![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
+Close
+
+ Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+## Other Updates to Messenger
+
+ Besides the opt-in end-to-end encryption feature, encrypted voice and video calls are also now available to everyone. Users can also reply to specific messages in their end-to-end encrypted chats, either by long pressing or swiping to reply. In addition, typing indicators have been added, so you can now see when others are typing.
+
+ Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-easy-steps-to-activate-a-full-screen-grid-on-google-meet/"><u>[New] In 2024, Easy Steps to Activate a Full-Screen Grid on Google Meet</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-ultimate-playstation-4-guide-to-perfect-gameplay-recording/"><u>[Updated] The Ultimate PlayStation 4 Guide to Perfect Gameplay Recording</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/android-call-history-recovery-recover-deleted-call-logs-from-honor-play-7t-by-fonelab-android-recover-call-logs/"><u>Android Call History Recovery - recover deleted call logs from Honor Play 7T</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/rt-and-edit-wonders-10-best-youtube-tools-feat-audio-for-2024/"><u>Convert & Edit Wonders 10 Best YouTube Tools Feat. Audio for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-fb-profile-to-top-professionals/"><u>Elevating Your FB Profile to Top Professionals</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-restore-excel-2021-file-stellar-by-stellar-guide/"><u>How Do I Restore Excel 2021 File ? | Stellar</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-identify-someone-using-your-tech-gear/"><u>How to Identify Someone Using Your Tech Gear?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/how-to-make-time-lapse-on-samsung-mobile/"><u>How to Make Time Lapse on Samsung Mobile</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovative-designs-unleashed-comprehensive-guide-to-animation-suites/"><u>In 2024, Innovative Designs Unleashed Comprehensive Guide to Animation Suites</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-techniques-for-curbing-excessive-fb-interactions/"><u>Tailored Techniques for Curbing Excessive FB Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-teens-online-reflecting-on-instagram-use-with-facebooks-help/"><u>The Future of Teens Online: Reflecting on Instagram Use with Facebook's Help</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-door-to-metas-account-oversight-domain/"><u>Unlock the Door to Meta's Account Oversight Domain</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-selects-me-for-these-specific-fb-advertisements/"><u>What Selects Me for These Specific FB Advertisements?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

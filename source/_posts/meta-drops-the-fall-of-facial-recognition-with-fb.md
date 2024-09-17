@@ -1,7 +1,7 @@
 ---
 title: "Meta Drops: The Fall of Facial Recognition with FB"
-date: 2024-07-12T10:14:56.672Z
-updated: 2024-07-13T10:14:56.672Z
+date: 2024-09-11T19:56:50.548Z
+updated: 2024-09-16T22:43:42.693Z
 tags:
   - facebook
 categories:
@@ -61,14 +61,11 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 
  Will users have full control of their biometric data in the Metaverse? Will they be requested to provide written consent for it to be used? Or will other forms of abuse that we haven't thought about arise in the Metaverse? It remains to be seen.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,6 +74,33 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-unboxing-the-power-of-yis-high-definition-cam-for-2024/"><u>[New] Unboxing the Power of YI's High Definition Cam for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-crafting-compelling-compositions-effects-on-text/"><u>[Updated] Crafting Compelling Compositions Effects on Text</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-prevent-obss-blackout-while-recording-games-for-2024/"><u>[Updated] How to Prevent OBS's Blackout While Recording Games for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/biz-prowess-boosted-new-era-of-communication-with-gpt-and-whisper/"><u>Biz Prowess Boosted: New Era of Communication with GPT & Whisper</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-donating-5-million-to-the-whos-covid-19-fundraising-campaign/"><u>Facebook Is Donating $5 Million to the WHO's COVID-19 Fundraising Campaign</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-vivo-y100-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Vivo Y100 Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-and-assessment-of-the-premier-samsung-galaxy-s10-device/"><u>In-Depth Analysis and Assessment of the Premier Samsung Galaxy S10 Device</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-windows-troubles-avoiding-sudden-game-stoppages/"><u>Navigating Windows Troubles: Avoiding Sudden Game Stoppages</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-self-sharing-essential-secrets-for-social-security/"><u>Safeguarding Self-Sharing: Essential Secrets for Social Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/speedy-login-cycle-switching-between-various-fb-users/"><u>Speedy Login Cycle: Switching Between Various FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-recovering-forgotten-facebook-comments/"><u>The Ultimate Guide to Recovering Forgotten Facebook Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/twitters-informative-model-influences-facebooks-prompting-strategy/"><u>Twitter’s Informative Model Influences Facebook's Prompting Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-limiting-your-network-is-a-smart-security-move/"><u>Why Limiting Your Network Is a Smart Security Move</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

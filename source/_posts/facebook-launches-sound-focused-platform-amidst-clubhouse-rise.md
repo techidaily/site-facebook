@@ -1,0 +1,94 @@
+---
+title: Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise
+date: 2024-09-16T23:15:51.299Z
+updated: 2024-09-21T22:38:40.907Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise
+excerpt: This Article Describes Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise
+keywords: Facebook's New Audio Social Networking,The Emergence of Sound-Centric Online Communities,Clubhouse Vs. Facebook Audio Platforms,Innovation in Social Media,Rise of Voice Communication Apps,How Facebook's Latest Launch Impacts Digital Trends,Exploring the Future of Podcasting and Spoken Content on Social Media
+thumbnail: https://thmb.techidaily.com/1eb9ced51df0b5377c33b33676973c39490da0549a761ceba775a1dae7d61065.jpg
+---
+
+## Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise
+
+ Facebook is rolling out an array of new features that it dubs "social audio experiences." These audio-based features are clearly meant to compete with Clubhouse, an invite-only app that lets you host audio-only chatrooms.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Facebook's Clubhouse Competitor Is Coming Soon
+
+ Facebook refuses to fall behind the curve, and its upcoming updates demonstrate that. In a post on[the About Facebook blog](https://about.fb.com/news/2021/04/bringing-social-audio-experiences-to-facebook/) , Facebook announced several new audio-based ways to communicate on the platform.
+
+ Live Audio Rooms is but one audio-only feature that Facebook is exploring. So far, it's shaping up to be a lot like Clubhouse, as it will let users take part in live audio chatrooms.
+
+ Related: [Facebook Is Testing a Business Recommendation Tool in Your News Feed](https://www.makeuseof.com/facebook-testing-business-recommendation-tool-news-feed/)
+
+ Facebook will begin testing Live Audio Rooms with Groups and public figures, giving users the chance to "share ideas with new audiences and create a forum for discussion, without the added pressure of being on camera." It plans on officially launching the feature on Messenger this summer.
+
+ Facebook is also introducing Soundbites, which it describes as "short-form creative audio clips for capturing anecdotes, jokes, moments of inspiration, poems, and many other things we haven’t yet imagined." The platform will begin testing the feature in the coming months, starting with a small group of content creators.
+
+ Soundbites will appear in your News Feed, and will be recorded with Facebook's new built-in sound studio. Here, you can add background music, mix audio tracks, and even add voice effects, allowing you to make your Soundbite all the more engaging.
+
+![Facebook Soundbites](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-audio-soundbites.png)
+
+Image Credit: Facebook
+
+ To attract creators to Live Audio Rooms and Soundbites, Facebook is offering some financial incentives. Creators will be able to monetize their Live Audio Rooms, giving them the chance to be compensated through Room access fees, subscriptions, and tips from fans. Facebook is also launching an Audio Creator Fund for those interested in creating quality Soundbites.
+
+ But that's still not all—Facebook is even taking on podcasts. In the next few months, you'll be able to listen to podcasts through Facebook, even if you have the app running in the background.
+
+![Facebook podcasts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-podcasts-feature.png)
+
+Image Credit: Facebook
+
+ Facebook also says that it will help you discover new podcasts, as its algorithm will gauge your interests based on the podcasts you listen to, comment on, and share.
+
+## Facebook Dives Headfirst Into Audio
+
+ Facebook isn't just launching a small audio-based experiment, it's going all out. With podcasts, Soundbites, and Live Audio Rooms in the works, Clubhouse may have to do a little more in order to compete.
+
+ But then again, it is Facebook we're talking about. Users might not want to get sucked into the privacy nightmare that is Facebook, and might opt for Clubhouse instead.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-top-tricks-in-sports-video-production/"><u>[New] Top Tricks in Sports Video Production</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-adobes-photo-jiggle-decrease-enhancing-or-eliminating-for-2024/"><u>[Updated] Adobe's Photo Jiggle Decrease Enhancing or Eliminating for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-comparing-huawei-p10-with-industry-standards-of-smartphones/"><u>[Updated] Comparing Huawei P10 with Industry Standards of Smartphones</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-finding-the-perfect-recorders-outside-microsofts-ecosystem-for-2024/"><u>[Updated] Finding the Perfect Recorders Outside Microsoft's Ecosystem for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mobile-innovators-guide-streamlined-channel-launch-for-entrepreneurs-and-content-makers/"><u>[Updated] In 2024, Mobile Innovators' Guide Streamlined Channel Launch for Entrepreneurs & Content Makers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-english-footballers-refuse-online-engagement-in-anti-harassment-stance/"><u>Elite English Footballers Refuse Online Engagement in Anti-Harassment Stance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Realme 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-profile-picture-revamp-on-facebook/"><u>Navigating the Profile Picture Revamp on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-network-enlist-new-folks-to-facebook-messenger/"><u>Streamline Your Network: Enlist New Folks to Facebook Messenger</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/top-10-royale-arenas-of-thrill/"><u>Top 10 Royale Arenas of Thrill</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-essential-technologies-in-crowdflower-platform/"><u>Uncovering Essential Technologies in CrowdFlower Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-transformation-in-online-privacy-policy/"><u>Understanding Meta’s Transformation in Online Privacy Policy</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

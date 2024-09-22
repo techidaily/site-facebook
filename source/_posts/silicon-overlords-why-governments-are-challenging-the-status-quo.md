@@ -1,7 +1,7 @@
 ---
 title: "Silicon Overlords: Why Governments Are Challenging the Status Quo"
-date: 2024-07-12T10:11:06.817Z
-updated: 2024-07-13T10:11:06.817Z
+date: 2024-09-18T18:14:05.815Z
+updated: 2024-09-21T20:24:03.554Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Big Tech Fails to Catch Misleading Ads
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
 
@@ -58,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 ## Big Tech Limits the Market Access of Smaller Companies
 ![Two people in front of an Apple logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/two-people-in-front-of-an-apple-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Another argument against Big Tech is that such companies make it harder for smaller entities to enter and compete in the marketplace. Big businesses shape how people use the internet and the avenues they go through to get what they need.
 
  In 2023, the [U.S. Department of Justice announced](https://www.justice.gov/opa/pr/justice-department-sues-google-monopolizing-digital-advertising-technologies) that it sued Google for its alleged monopolization of numerous digital advertising practices. The associated complaint alleges the Big Tech company has a 15-year history of “a course of anti-competitive and exclusionary conduct,” making it harder for competitors in the industry.
@@ -67,6 +81,19 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
  Another recent case occurred when the [European Commission sent a statement of objections](https://ec.europa.eu/commission/presscorner/detail/en/ip%5F21%5F2061) to Apple and put it on the hot seat. It took issue with its anti-competitive practices that forbid developers from using the App Store to inform customers of tune-streaming services other than Apple Music.
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
@@ -84,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
  An [investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
@@ -112,14 +146,11 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
 
  Breaking up Big Tech companies could curtail their advantages. Any party with the influence to realistically reduce this corporate dominance must weigh the pros and cons before making final decisions.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,6 +159,19 @@ thumbnail: https://thmb.techidaily.com/9cb4bb095934cdbe52cf30982bf7e5d8440404211
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-expertly-design-your-3d-openers-best-picks/"><u>[New] In 2024, Expertly Design Your 3D Openers Best Picks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-best-free-online-photo-tools-ranked-15-for-2024/"><u>[Updated] Best Free Online Photo Tools Ranked #15 for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-display-decisions-weighing-the-pros-of-ultrawide-and-uhd-4k-for-2024/"><u>[Updated] Display Decisions Weighing the Pros of UltraWide & UHD 4K for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-top-10-must-have-terraria-extensions/"><u>[Updated] Top 10 Must-Have Terraria Extensions</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-gionee-f3-pro-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Gionee F3 Pro Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/factory-pro-hd-video-converter-expert-tips-for-mobile-user-download-and-usage/"><u>Factory Pro HD Video Converter - Expert Tips for Mobile User Download & Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/gain-access-to-your-dormant-facebook-account/"><u>Gain Access to Your Dormant Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unlock-account-without-mobile-after-theft/"><u>How to Unlock Account Without Mobile After Theft</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-anonymous-live-on-instagram-the-sneaky-techniques/"><u>In 2024, Anonymous Live on Instagram The Sneaky Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/resist-the-data-grabbing-from-facebook/"><u>Resist the Data Grabbing From Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/seamless-controller-transfers-between-playstation-and-switch/"><u>Seamless Controller Transfers Between PlayStation & Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtuality-unveiled-what-is-the-metaverse/"><u>Virtuality Unveiled: What Is the Metaverse?</u></a></li>
+</ul></div>
 

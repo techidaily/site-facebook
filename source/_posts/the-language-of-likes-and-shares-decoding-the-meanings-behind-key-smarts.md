@@ -1,7 +1,7 @@
 ---
 title: "The Language of Likes & Shares: Decoding the Meanings Behind Key SMARTs"
-date: 2024-07-12T10:11:11.441Z
-updated: 2024-07-13T10:11:11.441Z
+date: 2024-09-17T22:04:41.860Z
+updated: 2024-09-22T00:04:33.587Z
 tags:
   - facebook
 categories:
@@ -75,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
  Popular on X, ICYMI stands for "in case you missed it". It's used to bring your audience up to speed about something that happened while they were away or that they missed on their timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 14\. IJS
 
  IJS means "I'm just saying". The IJS abbreviation is often added to the end of a post about an unpopular opinion or differing view.
@@ -83,6 +90,19 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
  IMO and IMHO stand for "in my opinion" and "in my honest opinion", respectively. These abbreviations are used when someone expresses their opinion on social media. People may feel the need to add it as a disclaimer when they anticipate that other users may disagree with them.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 16\. OOMF
 
  OOMF means "one of my followers". You'll most likely see this abbreviation on X. It's used when a user refers to someone who follows them but doesn't want to reveal their name or handle.
@@ -90,6 +110,13 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 ## 17\. TBH/TBQH
 
  TBH and TBQH stand for "to be honest" and "to be quite hones"t, respectively. These informal abbreviations are used in different contexts, including opinions, hot takes, and admissions.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 18\. FRFR
 
@@ -111,6 +138,13 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
  TBT means "Throwback Thursday". Thursdays are for walking down memory lane on social media. TBT is used with an old picture you're posting or reposting, and can be used as a hashtag.​​​​​​​
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 23\. FBF
 
  FBF stands for "Flashback Friday". Just like TBT, social media users post memories or repost posts with the abbreviation FBF or the hashtag #FBF on Fridays.​​​​​​​
@@ -131,6 +165,13 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
  IG is short for Instagram. This abbreviation is used in reference to an Instagram account or Instagram itself.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 28\. PM
 
  PM is the abbreviation for private message. Like direct messages or DMs, private messages are used to chat privately on social media.​​​​​​​
@@ -147,14 +188,11 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
 
  It can be hard to keep up with all the new slang on social media. It would probably help if there were a dictionary you could use to keep up with all the new terms. Hopefully, this article helps you understand social media lingo a little better, so you don't experience FOMO next time you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,6 +201,23 @@ thumbnail: https://thmb.techidaily.com/27ed488072176012a10baf6e8c8b898cb859756da
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-revolutionizing-audio-documentation-the-art-of-call-recording/"><u>[New] 2024 Approved Revolutionizing Audio Documentation The Art of Call Recording</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-audio-callback-logger-for-iphone-2024/"><u>[Updated] Audio Callback Logger for iPhone 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-innovative-ways-to-log-ps3-competitive-sessions-for-2024/"><u>[Updated] Innovative Ways to Log PS3 Competitive Sessions for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-vivo-s17-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mp4-files-on-galaxy-s24-ultra-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Galaxy S24 Ultra</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-english-footballers-refuse-online-engagement-in-anti-harassment-stance/"><u>Elite English Footballers Refuse Online Engagement in Anti-Harassment Stance</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/enhancing-your-facebook-presence-with-effective-covers/"><u>Enhancing Your Facebook Presence with Effective Covers</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-steps-to-clean-up-your-facebook-profile/"><u>Essential Steps to Clean Up Your Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/prime-audio-selections-google-podcast-collection/"><u>Prime Audio Selections - Google Podcast Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giants-face-public-doubt-focus-on-facebook/"><u>Tech Giants Face Public Doubt: Focus on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-xs-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone XS</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-essential-technologies-in-crowdflower-platform/"><u>Uncovering Essential Technologies in CrowdFlower Platform</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/unique-and-effective-the-best-username-options-to-dominate-tiktok/"><u>Unique and Effective The Best Username Options to Dominate TikTok</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
+</ul></div>
 

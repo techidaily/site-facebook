@@ -1,7 +1,7 @@
 ---
 title: Revel in Social Network Supporters
-date: 2024-07-12T10:09:57.603Z
-updated: 2024-07-13T10:09:57.603Z
+date: 2024-09-14T23:39:29.501Z
+updated: 2024-09-21T16:23:43.529Z
 tags:
   - facebook
 categories:
@@ -60,6 +60,13 @@ Close
 
  Another possible reason is your current account privacy setting might not allow people to follow you on Facebook—we'll explain how to change this below.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Allow People to Follow You on Facebook
 
  If you've disallowed the public from following you, people who aren't on your friends' list can't follow you on Facebook, limiting your chances of getting more Facebook followers.
@@ -76,6 +83,14 @@ To do this on the desktop browser:
 4. From the left sidebar of the Settings menu, click**Privacy** .  
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
 ![Facebook profile setting follower settings desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-setting-follower-settings-desktop.jpg)
@@ -83,6 +98,13 @@ To do this on the desktop browser:
 To change your followers' preference on the Facebook mobile app:
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
 
@@ -101,14 +123,11 @@ Close
 
  With that in mind, ensure you set your Facebook privacy preferences correctly—so your posts reach only those you want.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,6 +136,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/satoshi-sheep-the-ceos-animal-mashup-moniker/"><u>'Satoshi Sheep': The CEO's Animal Mashup Moniker.</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-scriptwriting-101-decoding-and-writing-slug-lines/"><u>[New] Scriptwriting 101 Decoding and Writing Slug Lines</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-meizu-21-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Meizu 21 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-messenger-and-security-the-e2ee-implementation-date/"><u>FB Messenger & Security: The E2EE Implementation Date</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/flickr-profile-picture-breakdown-area-codec-timeframe/"><u>Flickr Profile Picture Breakdown Area, Codec, Timeframe</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-apple-iphone-13-pro-max-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock Apple iPhone 13 Pro Max with iTunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-discarding-facial-id-influence-user-safety-a-facebook-study/"><u>How Does Discarding Facial ID Influence User Safety? A Facebook Study</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y77t-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y77t</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-xiaomi-redmi-note-12-proplus-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Xiaomi Redmi Note 12 Pro+ 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-periods-for-digital-content-sharing/"><u>Optimal Periods for Digital Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sphere-dangers-the-psychological-impact-analysis/"><u>Social Sphere Dangers: The Psychological Impact Analysis</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/strategies-to-shave-time-off-epic-launcher-downloads/"><u>Strategies to Shave Time Off Epic Launcher Downloads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-interplay-of-real-names-and-screen-names-on-social-media/"><u>The Interplay of Real Names & Screen Names on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-contender-meta-and-its-strategy-to-unseat-facebookinsta-eu/"><u>The New Contender? Meta and Its Strategy to Unseat Facebook/Insta EU</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/upgrade-to-professionalism-the-most-advanced-9-filter-techniques-for-2024/"><u>Upgrade to Professionalism The Most Advanced 9 Filter Techniques for 2024</u></a></li>
+</ul></div>
 

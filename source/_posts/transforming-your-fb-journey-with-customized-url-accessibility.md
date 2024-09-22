@@ -1,7 +1,7 @@
 ---
 title: Transforming Your Fb Journey with Customized URL Accessibility
-date: 2024-07-12T10:13:17.244Z
-updated: 2024-07-13T10:13:17.244Z
+date: 2024-09-18T17:45:20.823Z
+updated: 2024-09-21T22:17:17.268Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 ### Profile
 ![facebook-app-profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-profile.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
 ### Notifications
@@ -69,6 +76,13 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 ### Watch
 ![facebook-app-watch](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-watch.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Watch suggests videos from creators that you might be interested in based on the content you usually interact with. It's a rectangular play button icon and can be removed.
 
 ### Gaming
@@ -76,9 +90,23 @@ thumbnail: https://thmb.techidaily.com/5323ab269b6d5447358ffbce683d20a8b0db809b5
 
  The Gaming shortcut has multiple sections where you can access suggested Facebook games. This shortcut looks like a rectangular box with some lines and can be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Feeds
 
 [In July 2022, Facebook introduced Feeds](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) . This tab allows you to have better control over what you see; you can view posts from All, Favorites, Friends, Groups, or Pages. The shortcut looks like a newspaper icon with a clock and can be removed.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Quickly Remove Facebook Shortcuts
 
@@ -129,6 +157,13 @@ To disable and enable Facebook notification dots by long-pressing:
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Turn Notification Dots On and Off From the Settings
 
  You can also customize the notification dots from your Facebook settings.
@@ -151,14 +186,11 @@ To disable and enable Facebook notification dots from the settings:
 
  Shortcuts are there to make navigation quick and convenient. But let's be real, they can also clog up your screen. Follow the above guide to choose which shortcuts you want to display, get rid of, and whether or not you want to see their notification dots.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,6 +199,21 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-in-depth-asmr-video-insights/"><u>[New] 2024 Approved In-Depth ASMR Video Insights</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-demystifying-youtube-shorts-content-strategy-guide/"><u>[New] In 2024, Demystifying YouTube Shorts Content Strategy Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unlocking-the-potential-of-screen-sharing-on-google-meet-for-2024/"><u>[Updated] Unlocking the Potential of Screen Sharing on Google Meet for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-v30-lite-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-maximize-revenue-the-secret-of-fb-animation-campaigns-for-2024/"><u>How to Maximize Revenue The Secret of FB Animation Campaigns for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-spotify-on-facebook-without-exit/"><u>How to Use Spotify on Facebook without Exit</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-s18-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo S18 Phone without PIN</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-samsung-galaxy-m54-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Samsung Galaxy M54 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-steps-for-swift-account-reactivation-on-fb/"><u>Proven Steps for Swift Account Reactivation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-pre-deletion-must-dos-before-facing-fb/"><u>Secure Your Digital Footprint: Pre-Deletion Must-Dos Before Facing FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-7-pivotal-truths-revealed-in-facebook-dossiers/"><u>Unlocking 7 Pivotal Truths Revealed in Facebook Dossiers</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-illusions-the-factual-side-of-facebook-claims/"><u>Unveiling Internet Illusions: The Factual Side of Facebook Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-and-conquer-join-meta-in-the-states/"><u>Verify and Conquer: Join Meta in the States</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-y55s-5g-2023-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+</ul></div>
 

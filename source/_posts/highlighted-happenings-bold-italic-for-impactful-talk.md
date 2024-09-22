@@ -1,7 +1,7 @@
 ---
 title: "Highlighted Happenings: Bold, Italic for Impactful Talk"
-date: 2024-09-15T16:33:38.578Z
-updated: 2024-09-16T20:06:37.915Z
+date: 2024-09-16T19:32:55.839Z
+updated: 2024-09-21T22:05:01.490Z
 tags:
   - facebook
 categories:
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/99e083d06891d6b9709e3f748eff8a9d6ada1ef30
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Use Strikethrough Text in Messenger
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
@@ -62,10 +55,10 @@ thumbnail: https://thmb.techidaily.com/99e083d06891d6b9709e3f748eff8a9d6ada1ef30
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
@@ -79,16 +72,10 @@ thumbnail: https://thmb.techidaily.com/99e083d06891d6b9709e3f748eff8a9d6ada1ef30
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
@@ -106,6 +93,13 @@ To send text in a block of code:
 5. Type three more backticks and send your text.
 
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
 
@@ -128,18 +122,16 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/he-art-of-flawless-audio-capture-mic-free-for-2024/"><u>[New] The Art of Flawless Audio Capture, Mic-Free for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-email-protection-how-to-set-up-domain-whitelisting-on-mac-os-x/"><u>Effective Email Protection: How to Set Up Domain Whitelisting on Mac OS X</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-group-dynamics-with-structured-rules-on-fb/"><u>Enhancing Group Dynamics with Structured Rules on FB</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/full-time-careers-meet-video-content-a-harmonious-mix/"><u>Full-Time Careers Meet Video Content A Harmonious Mix</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-samsung-galaxy-a54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-how-to-find-the-good-iphone-photography-angles/"><u>In 2024, How to Find the Good iPhone Photography Angles</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Realme GT Neo 5 SE? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-vivo-y36i-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Vivo Y36i.</u></a></li>
-<li><a href="https://facebook.techidaily.com/presidents-platform-status-in-question/"><u>President's Platform Status in Question</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/tips-for-untaging-yourself-in-online-communities/"><u>Tips for Untaging Yourself in Online Communities</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/top-5-hidden-media-extractor-apps-for-2024/"><u>Top 5 Hidden Media Extractor Apps for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-free-meeting-tools-ranked-your-ultimate-video-call-companion/"><u>[Updated] 2024 Approved Free Meeting Tools Ranked - Your Ultimate Video Call Companion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-strategies-for-securely-amassing-one-million-video-watches/"><u>[Updated] Strategies for Securely Amassing One Million Video Watches</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-xiaomi-redmi-note-12t-pro-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Xiaomi Redmi Note 12T Pro to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/digging-into-digital-storefronts-gog-vs-steam-evaluation/"><u>Digging Into Digital Storefronts: GoG Vs Steam Evaluation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-guide-to-video-editing-leveraging-power-of-movies-maker-on-windows-8/"><u>Expert Guide to Video Editing Leveraging Power of Movies Maker on Windows 8</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-metaai-set-to-overtake-common-ai-chatbots/"><u>Is MetaAI Set to Overtake Common AI Chatbots?</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitor-your-digital-presence-facebook-breach-alerts/"><u>Monitor Your Digital Presence: Facebook Breach Alerts</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-insight-your-latest-watches-on-facebook/"><u>Quick Insight: Your Latest Watches on Facebook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/saving-your-digital-dialogue-a-quick-guide-to-fb-chat-recordings-for-2024/"><u>Saving Your Digital Dialogue A Quick Guide to FB Chat Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/veelvoulend-ongemakkooptje-qt-naar-mp4-omzetten-met-movavi-gratis-en-direct-op-internet/"><u>Veelvoulend Ongemakkooptje: QT Naar MP4 Omzetten Met Movavi, Gratis en Direct Op Internet</u></a></li>
 </ul></div>
 

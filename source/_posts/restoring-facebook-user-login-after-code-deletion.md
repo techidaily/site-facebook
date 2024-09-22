@@ -1,7 +1,7 @@
 ---
 title: Restoring Facebook User Login After Code Deletion
-date: 2024-09-10T16:47:57.748Z
-updated: 2024-09-16T17:36:06.712Z
+date: 2024-09-16T16:34:27.113Z
+updated: 2024-09-22T00:31:06.219Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,13 @@ You can obtain a Facebook login code in three different ways:
 
  When you've set up your phone to be the key to your Facebook account, losing or breaking it could be a problem. Here's what you can do in the event that you lose access to Code Generator or your third-party authentication tool.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Let Facebook Text You a Confirmation Code
 
  Do you still have access to the mobile phone number you included under two-factor authentication? Maybe your provider could send you a new SIM with the same number. In that case, let Facebook text you a confirmation code.
@@ -56,13 +63,6 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Two-Factor Authentication Required screen upon trying to log in.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Required.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Use a Saved Recovery Code
 
  After setting up two-factor authentication, you had the chance to save a set of recovery codes as a backup. Maybe you printed the code, took a screenshot, or wrote it down and stored it in a safe location.
@@ -70,13 +70,6 @@ You can obtain a Facebook login code in three different ways:
 ![Facebook recovery codes remaining.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Two-Factor-Authentication-Codes-Remaining.jpg)
 
  If you haven't saved recovery codes, be sure to do it as soon as you regain access to your account. Should you ever again lose access to your authentication tool, you can use one of these codes to log into Facebook from a new device or location.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Approve the Login From an Authorized Device
 
@@ -88,24 +81,18 @@ You can obtain a Facebook login code in three different ways:
 
  Try to access Facebook from a browser or app you've used previously. Maybe you're still logged in on an old laptop, your work computer, or your tablet. When you find a device where you can still access Facebook, you should see a notification asking you to approve the new login.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Confirm Your Identity
 
  Is none of this working? Submit a request to Facebook. In the menu that pops up after you select**Need another way to authenticate** (see option 1), select**Get More Help** , and let Facebook walk you through the steps to recover your account.
 
 ![Facebook Two-Factor Authentication Code Issues](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Ways-to-Authenticate-Login.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You'll have to enter an email address and upload a copy of your ID, which can be a passport, driver's license, national ID card, or other official documents. Once you have provided the requested information, Facebook will email you with further steps for account recovery.
 
@@ -115,18 +102,25 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Can't Get Your Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Cant-Get-Your-Code.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In the next screen, Facebook will tell you to log in from a known browser. If that isn't an option, click**Contact us** . Like above, you'll have to provide an email address, ideally one that was linked to your account, and upload your ID and a message to Facebook.
 
 ![Facebook Recovery Confirm Identity](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-recovery-confirm-identity.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Did you manage to log back into Facebook? Remember to save recovery codes, set up a new authentication app, and update your other recovery options.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Back on Facebook, But Lost Your Mobile Device?
 
@@ -134,24 +128,18 @@ You can obtain a Facebook login code in three different ways:
 
 ![Facebook Accounts Center Where You're Logged In Logging Out](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-accounts-center-where-you-re-logged-in-logging-out.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  At this point, you should**Remove** the number of the lost phone and update your Facebook password to be safe.
 
  Until you get your phone back or can set up an authentication tool on a new phone, you can save a batch of backup codes as described above. You could also set up another third-party app to generate codes.
 
  And in the future, always make sure at least one device, other than your laptop or phone, has an authorized login. It could be a home computer that you'll always have access to. Only ever let Facebook remember devices and locations that are private and safe. And frequently review your list of[**Authorized Logins**](https://www.facebook.com/settings?tab=security&section=authorized%5Flogins&view) and**Remove** outdated items.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Keep Your Facebook Account Safe
 
@@ -174,17 +162,14 @@ You can obtain a Facebook login code in three different ways:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-optimize-game-console-audio-settings-on-sony-platforms/"><u>[New] Optimize Game Console Audio Settings on Sony Platforms</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-integrating-obs-recording-capabilities-into-zoom-sessions/"><u>[Updated] 2024 Approved Integrating OBS Recording Capabilities Into Zoom Sessions</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-speech-on-tiktok/"><u>2024 Approved Mastering the Art of Speech on TikTok</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/discreetly-explore-instagram-stories-with-us/"><u>Discreetly Explore Instagram Stories With Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/extended-timeframe-for-accepting-whatsapps-new-privacy-policy/"><u>Extended Timeframe for Accepting WhatsApp's New Privacy Policy</u></a></li>
-<li><a href="https://win-able.techidaily.com/fixing-the-launch-problems-of-hitman-3-for-pc-gamers-solutions-found/"><u>Fixing the Launch Problems of Hitman 3 for PC Gamers - Solutions Found!</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-a-polished-online-presence-blocking-profiles/"><u>Maintaining a Polished Online Presence: Blocking Profiles</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/navigating-the-world-of-pc-hardware-with-expertise-from-toms-domain/"><u>Navigating the World of PC Hardware with Expertise From Tom's Domain</u></a></li>
-<li><a href="https://facebook.techidaily.com/revisiting-historical-facebook-posts/"><u>Revisiting Historical Facebook Posts</u></a></li>
-<li><a href="https://discover-community.techidaily.com/step-by-step-tutorial-converting-wma-audio-tracks-to-mp3-format-using-a-mac-for-hassle-free-playbacks/"><u>Step-by-Step Tutorial: Converting WMA Audio Tracks to MP3 Format Using a Mac for Hassle-Free Playbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/streaming-smoothly-using-spotify-on-facebook/"><u>Streaming Smoothly: Using Spotify on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-sharing-hd-visuals-facebook-mobile-edition/"><u>The Art of Sharing HD Visuals: Facebook Mobile Edition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-optimizing-your-videography-journey-using-adobe-connects-tools/"><u>[New] Optimizing Your Videography Journey Using Adobe Connect's Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-avatar-architecture-your-uncomplicated-guide-to-virtual-existence-for-2024/"><u>[Updated] Avatar Architecture Your Uncomplicated Guide to Virtual Existence for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/5-ways-change-your-home-address-in-googleapple-map-on-apple-iphone-14ipad-drfone-by-drfone-virtual-ios/"><u>5 Ways Change Your Home Address in Google/Apple Map on Apple iPhone 14/iPad | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-facile-pour-sauvegarder-des-dvd-sur-votre-ordinateur-mac-ou-pc-windows-11107/"><u>Guide Facile Pour Sauvegarder Des DVD Sur Votre Ordinateur Mac Ou PC : Windows 11/10/7</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-metaai-set-to-overtake-common-ai-chatbots/"><u>Is MetaAI Set to Overtake Common AI Chatbots?</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitor-your-digital-presence-facebook-breach-alerts/"><u>Monitor Your Digital Presence: Facebook Breach Alerts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/seamless-compatibility-get-your-acers-bluetooth-driver-now-instantly/"><u>Seamless Compatibility: Get Your Acer's Bluetooth Driver Now, Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-costs-of-friendship-networks-top-10-reasons-to-cut-off-facebook/"><u>The Unseen Costs of Friendship Networks - Top 10 Reasons to Cut Off Facebook</u></a></li>
 </ul></div>
 

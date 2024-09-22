@@ -1,7 +1,7 @@
 ---
 title: "Social Media Visual Impact: Crafting Fb Backgrounds"
-date: 2024-09-12T00:16:37.738Z
-updated: 2024-09-16T21:51:57.773Z
+date: 2024-09-20T00:10:34.723Z
+updated: 2024-09-21T17:05:47.183Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 
  If that sounds too complicated, try one of the many Facebook cover photo tools. They can help you crop your favorite photo to the perfect size, add filters, combine several pictures into a collage, or add your pictures to a fun template. With those helpers, it becomes easy to create a custom and amazing Facebook cover photo.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Canva
 
 ![Canva Free Online Facebook Cover Maker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Canva-Free-Online-Facebook-Cover-Maker.jpg)
@@ -63,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
  Canva offers a free online Facebook cover maker. It's packed with free templates and everything else you could need to produce the perfect cover image. Each template lets you edit every single element, including visuals, text, fonts, borders, and more.
 
 ![Canva Drag and Drop Elements Into Template](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Canva-Drag-and-Drop-Elements-Into-Template.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you'd like to use your own photos, head to**Uploads** and click**Upload files** to add them. You can simply drag and drop images from your**Uploads** or Canva's collection of**Elements** into your template to replace the placeholder stock photo. When you're done, go to**File > Download** to download your creation.
 
@@ -79,35 +79,9 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 
 ![Fotor Facebook Cover Photo Maker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Fotor-Facebook-Cover-Photo-Maker.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Fotor's Facebook cover photo maker bears a stunning resemblance to Canva, but it's not identical. For one, Fotor uses Facebook's recommended 851 x 315 pixels for the cover image, rather than a much larger size, like Canva does. You'll also find different templates, stock photos, and elements. While Fotor's basic functionality is quite similar to Canva, it does use layers, much like Photoshop.
 
  Like Canva, Fotor offers a free trial, but it's only three days, and you have to provide payment details in advance.
-
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add a Cover Photo to Facebook
 
@@ -122,22 +96,22 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 
 ![Facebook Page With Edit Cover Photo Menu Expanded](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Edit-Cover-Photo-Menu-Expanded.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you don't have a cover photo yet, click**Add a Cover** in the bottom right and from the menu, pick either**Select Photo** or**Upload photo** .
 
 ![Facebook Page With Empty Cover Photo Section](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Empty-Cover-Photo-Section.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When you choose**Select Photo** , you'll be able to browse through all your**Recent photos** or**Photo Albums** saved on Facebook.
 
@@ -147,6 +121,13 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 
 ![Facebook Page With Drag to Reposition Cover Photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Page-With-Drag-to-Reposition-Cover-Photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Before you choose to**Save Changes** , note that your cover photo will automatically be visible to the public, regardless of previous[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) ! If you would like to try another photo, click**Cancel** in the top right.
 
  Facebook will also update your Timeline to let your friends and followers know that you changed your cover photo. While you can no longer stop this from happening, you can hide it right away. Reload your Timeline until you see the post, then click on the three-dot button in its top right and select**Hide from profile** from the menu.
@@ -154,6 +135,13 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 ![Facebook Hide Post From Profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Facebook-Hide-Post-From-Profile.jpg)
 
  Screenshot by Tina Sieber, no attribution required.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Make Your Facebook Cover Shine
 
@@ -174,17 +162,20 @@ thumbnail: https://thmb.techidaily.com/74113c2d83645a48c9d2ad195371cc6a07bee43db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/ecoming-a-pro-in-video-game-broadcasts/"><u>[New] Becoming a Pro in Video Game Broadcasts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-minecraft-homestead-blueprint-series/"><u>[New] In 2024, Minecraft Homestead Blueprint Series</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-understanding-whatsapps-sound-conversations/"><u>[Updated] Understanding WhatsApp's Sound Conversations</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/advanced-storage-surveillance-kit/"><u>Advanced Storage Surveillance Kit</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-vivo-s17t-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Vivo S17t | Dr.fone</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/how-to-stop-unexpected-shutdowns-from-watchdogsys-errors-a-step-by-step-guide/"><u>How to Stop Unexpected Shutdowns From watchdog.sys Errors - A Step-by-Step Guide</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovation-in-action-facebook-and-rust-collaborate-on-code-language/"><u>Innovation in Action: Facebook & Rust Collaborate on Code Language</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-privacy-for-passed-on-friends-on-social-media/"><u>Securing Privacy for Passed On Friends on Social Media</u></a></li>
-<li><a href="https://games-able.techidaily.com/streamlining-the-steam-deck-experience-with-keyboard-settings-optimization/"><u>Streamlining the Steam Deck Experience with Keyboard Settings Optimization</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Realme Narzo N53 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebook-truths-the-reality-behind-10-misconceptions/"><u>Unveiling Facebook Truths: The Reality Behind 10 Misconceptions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-chromes-fullscreen-mode-a-complete-guide-to-pip-usage/"><u>[New] Chrome's Fullscreen Mode A Complete Guide to PIP Usage</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-easy-steps-to-locate-recently-viewed-videos-by-you-on-fb/"><u>[New] In 2024, Easy Steps to Locate Recently Viewed Videos by You on FB</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-filmoras-secrets-to-captivating-youtube-trailers/"><u>[Updated] In 2024, Filmora's Secrets to Captivating YouTube Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/formulating-and-implementing-group-rules-a-step-by-step-guide/"><u>Formulating & Implementing Group Rules: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reactivate-after-forgetting-facebook-password/"><u>How to Reactivate After Forgetting Facebook Password</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-nord-ce-3-5g-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Nord CE 3 5G?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-asus-mg28uq-4k-monitor-review/"><u>In 2024, ASUS MG28UQ 4K Monitor Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-governance-structure-with-a-new-platform/"><u>Navigating Through Facebook's Governance Structure with a New Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-oasis-a-guide-to-the-hottest-social-applications-and-websites/"><u>Online Oasis: A Guide to the Hottest Social Applications and Websites</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/surface-dock-peripheral-fast-installation-guide/"><u>Surface Dock Peripheral - Fast Installation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-to-the-newest-version-of-canoscan-lide-120-scan-drivers/"><u>Update to the Newest Version of CanoScan LiDE 120 Scan Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/worldwide-web-woes-social-media-shutdown/"><u>Worldwide Web Woes: Social Media Shutdown</u></a></li>
 </ul></div>
 

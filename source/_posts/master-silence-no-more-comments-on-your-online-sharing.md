@@ -1,7 +1,7 @@
 ---
 title: "Master Silence: No More Comments on Your Online Sharing"
-date: 2024-07-12T10:10:55.248Z
-updated: 2024-07-13T10:10:55.248Z
+date: 2024-09-17T19:53:29.179Z
+updated: 2024-09-21T16:58:14.450Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -52,6 +59,13 @@ Close
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
@@ -72,6 +86,13 @@ Close
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Identify the post for which you'd like to turn off its comment.
@@ -88,14 +109,11 @@ Close
 
  A similar rule applies to groups, if you're not sharing something that requires input from other members, you can simply turn off commenting on the post with the steps shared above.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,6 +122,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-realme-narzo-60-pro-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Realme Narzo 60 Pro 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-synchronizing-with-instagram-perfect-video-integration/"><u>In 2024, Synchronizing With Instagram Perfect Video Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-look-at-amazons-legal-battles-with-facebook-groups-admins/"><u>In-Depth Look at Amazon’s Legal Battles With Facebook Groups Admins</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/movavis-free-online-wmv-converter-convert-videos-without-cost/"><u>Movavi's Free Online WMV Converter: Convert Videos Without Cost</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-iphones-silent-treatment-restore-clear-sounds-easily/"><u>Overcoming iPhone's Silent Treatment: Restore Clear Sounds Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/pausing-connections-severing-a-facebook-relationship/"><u>Pausing Connections: Severing a Facebook Relationship</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-honor-x50i-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Honor X50i has been deleted.</u></a></li>
+<li><a href="https://facebook.techidaily.com/sailing-into-uncertainty-bad-headlines-ahead/"><u>Sailing Into Uncertainty: Bad Headlines Ahead?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-renaissance-embracing-the-metamate-spirit-at-facebook/"><u>The Digital Renaissance: Embracing the Metamate Spirit at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/visualizing-conversations-facebook-avatars-in-whatsapp-use-ceiling-150-characters/"><u>Visualizing Conversations: Facebook Avatars in WhatsApp Use Ceiling: 150 Characters</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Xiaomi 14 | Dr.fone</u></a></li>
+</ul></div>
 

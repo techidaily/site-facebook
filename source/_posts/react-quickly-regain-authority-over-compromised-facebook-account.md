@@ -1,7 +1,7 @@
 ---
 title: "React Quickly: Regain Authority Over Compromised Facebook Account"
-date: 2024-07-12T10:11:01.108Z
-updated: 2024-07-13T10:11:01.108Z
+date: 2024-09-15T16:16:27.901Z
+updated: 2024-09-22T01:01:01.266Z
 tags:
   - facebook
 categories:
@@ -52,6 +52,13 @@ Other signs that your account may have been hacked include:
 
  If you have confirmed that your account has been compromised, here are the steps you should follow.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1a. Change Your Facebook Password
 
  In case your Facebook hacker hasn't changed your password, you got lucky! Immediately update your password before you log out of suspicious sessions; you don't want to alert the hacker. If it's too late, head to step 1b.
@@ -59,6 +66,13 @@ Other signs that your account may have been hacked include:
  To change your password from either your desktop or mobile device, go to**Accounts Center** , select**Password and security,** and then select**Change password** . Pick your account, enter your current password, set a strong new password, and click**Change password** .
 
 ![Facebook Account Center Change Password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-account-center-change-password.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  After a successful password change, you'll see a**Log out of other devices?** screen pop up. Log out all suspicious sessions and click**Log out** .
 
@@ -92,6 +106,13 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using [Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -99,6 +120,13 @@ Do this only if you're sure you can log back in.
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Remove Suspicious Applications
 
@@ -115,6 +143,13 @@ Do this only if you're sure you can log back in.
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Do Damage Control
 
@@ -136,14 +171,11 @@ Do this only if you're sure you can log back in.
 
  Getting hacked is a painful experience. However, it's also a learning opportunity. After setting a strong password, enabling two-factor authentication, and updating all your information, your account will be protected from getting hacked again. Now take these lessons forward and apply them to your other online accounts.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +184,19 @@ Do this only if you're sure you can log back in.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-cutting-edge-editing-strategies-story-remix-meets-windows-photos-for-2024/"><u>[New] Cutting-Edge Editing Strategies Story Remix Meets Windows Photos for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-dive-into-webinar-world-a-noobs-guide-to-zoom/"><u>[New] Dive Into Webinar World A Noob’s Guide to Zoom</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-navigating-links-between-instagram-and-tiktok/"><u>[Updated] Navigating Links Between Instagram and TikTok</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-bring-life-to-graphics-adobe-blur-masterclass/"><u>2024 Approved Bring Life to Graphics Adobe Blur Masterclass</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-your-shorts-are-back-on-youtube/"><u>2024 Approved Your Shorts Are Back on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/free-methods-to-enhance-facebook-update-frequency-and-placement/"><u>Free Methods to Enhance Facebook Update Frequency and Placement</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-nubia-red-magic-8s-proplus-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Nubia Red Magic 8S Pro+ to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-group-recognition-in-status-updates/"><u>Mastering the Art of Group Recognition in Status Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-approach-extending-e2e-encryption-default-to-next-year-why/"><u>Meta's Approach: Extending E2E Encryption Default to Next Year, Why?</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-a-modern-challenge/"><u>Privacy: A Modern Challenge</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-full-potential-of-facebook-must-try-mobile-settings/"><u>Unlock the Full Potential of Facebook: Must-Try Mobile Settings</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/wifi-evolution-demystified-the-essentials-of-80211-be-ax-ac-bgn-and-a-standards/"><u>WiFi Evolution Demystified: The Essentials of 802.11 Be, Ax, Ac, B/G/N & A Standards</u></a></li>
+</ul></div>
 

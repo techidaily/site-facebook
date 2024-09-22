@@ -1,7 +1,7 @@
 ---
 title: "Obscuring Online Networks: FB List Hiding"
-date: 2024-09-10T23:10:34.306Z
-updated: 2024-09-16T21:00:42.342Z
+date: 2024-09-17T21:49:20.390Z
+updated: 2024-09-22T00:46:12.427Z
 tags:
   - facebook
 categories:
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/dfd36bdece1f9de4c3b950ac0cec685d6ee5d1281
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Hiding Your Friends List on Desktop
@@ -82,16 +82,10 @@ The steps are similar on Facebook's desktop website.
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  4\. Scroll to**How people find and contact you** .
@@ -125,20 +119,18 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-howtos.techidaily.com/solved-hid-compliant-touch-screen-missing/"><u>[SOLVED] HID Compliant Touch Screen Missing</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-best-assortment-professional-webcam-platforms/"><u>[Updated] In 2024, Best Assortment Professional Webcam Platforms</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-irecorder-insights-for-tech-enthusiasts/"><u>[Updated] In 2024, IRecorder Insights for Tech Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-family-bonding-setting-up-your-facebook-portal-for-video-calls/"><u>Enhancing Family Bonding: Setting Up Your Facebook Portal for Video Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/every-voice-heard-strategies-for-full-group-mentions-on-fb/"><u>Every Voice Heard: Strategies for Full Group Mentions on FB</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-vivo-v29e-screen-sharing-drfone-by-drfone-android/"><u>How To Do Vivo V29e Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/identity-theft-threat-spotting-and-solving-facebook-hacks/"><u>Identity Theft Threat: Spotting & Solving Facebook Hacks</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-seamless-video-conferencing-zoom-and-xbox-playground/"><u>In 2024, Seamless Video Conferencing Zoom & Xbox Playground</u></a></li>
-<li><a href="https://facebook.techidaily.com/marketing-momentum-shifts-as-carolyn-leaves/"><u>Marketing Momentum Shifts as Carolyn Leaves</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-nirvana-major-social-media-blackouts/"><u>Network Nirvana: Major Social Media Blackouts</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-renaissance-facebooks-transformation-journey-to-meta/"><u>Network Renaissance: Facebook’s Transformation Journey to Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-place-in-verified-meta-circle/"><u>Secure Your Place in Verified Meta Circle</u></a></li>
-<li><a href="https://fox-that.techidaily.com/speedy-solutions-for-ios-predictive-emoji-glitches-7-methods-that-work/"><u>Speedy Solutions for iOS Predictive Emoji Glitches – 7 Methods That Work</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transforming-your-apple-watch-into-a-convenient-on-the-go-mic-techniques-and-tips/"><u>Transforming Your Apple Watch Into a Convenient On-the-Go Mic: Techniques and Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pioneers-of-haptic-technology-unveiled/"><u>[New] Pioneers of Haptic Technology Unveiled</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-photographers-guide-to-maximizing-lunapic-potential/"><u>2024 Approved The Photographer's Guide to Maximizing LunaPic Potential</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-honor-90-frp-bypass-by-drfone-android/"><u>About Honor 90 FRP Bypass</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/elite-internet-recorder-choices-7-to-try-for-2024/"><u>Elite Internet Recorder Choices - 7 to Try for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-clarity-in-facebook-posts-across-languages/"><u>Ensuring Clarity in Facebook Posts Across Languages</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/essential-zoom-techniques-for-captivating-audio-in-podcast-production-for-2024/"><u>Essential Zoom Techniques for Captivating Audio in Podcast Production for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-helping-hand-resources/"><u>Exploring Facebook's Helping Hand Resources</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-asus-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Asus Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-the-complete-guide-to-tecno-spark-10-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Tecno Spark 10 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-fb-messengers-privacy-viable/"><u>Is FB Messenger's Privacy Viable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-with-facts-amidst-covid-19-chaos/"><u>Navigating Social Media with Facts Amidst COVID-19 Chaos</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-digital-footprint-in-facebook/"><u>Streamlining Your Digital Footprint in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-guidelines-behind-accepting-facebook-friends/"><u>The Veiled Guidelines Behind Accepting FACEBOOK Friends</u></a></li>
 </ul></div>
 

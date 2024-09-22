@@ -1,7 +1,7 @@
 ---
 title: "The Evolution of Facebook: From 2004 to Meta"
-date: 2024-09-11T17:43:44.915Z
-updated: 2024-09-16T18:18:46.347Z
+date: 2024-09-14T18:25:53.164Z
+updated: 2024-09-21T17:19:25.959Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/0ab25ce0bb8d4ab2078e845cda986fa9a30d3de55
 
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2013–2015: Facebook Enters New Territories
 
 ![Glowing WhatsApp logo above smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/What-Is-WhatsApp-Featured.jpg)
@@ -68,23 +75,9 @@ thumbnail: https://thmb.techidaily.com/0ab25ce0bb8d4ab2078e845cda986fa9a30d3de55
 
  On its 10th birthday in 2014, Facebook acquired WhatsApp, Oculus, and Atlas. In 2015, Facebook had over 40 million small business pages which later led to the creation of Facebook Marketplace. You should know[how to stay safe on Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) if you use the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2016–2018: Controversies and Scandals
 
 ![Mark Zuckerberg poster](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Mark-Zuckerberg-poster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Along with fame and money, Facebook also received hate and trouble. Although the company had always been in the middle of lawsuits and accusations, things became more intense in 2016 when it faced heavy criticism for being used to spread fake news.
 
@@ -100,6 +93,13 @@ thumbnail: https://thmb.techidaily.com/0ab25ce0bb8d4ab2078e845cda986fa9a30d3de55
 
 ![Logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/meta-logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Post the infamous scandal, Facebook vainly tried to salvage whatever trust people had in the company, but it continued to face accusations regarding privacy concerns.
 
  Throughout 2019, Facebook paid several fines to various governments. And the year ended with yet another major security breach. In December,[Forbes](https://www.forbes.com/sites/johnbbrandon/2019/12/19/267-million-names-and-phone-numbers-leaked-online---and-theyre-all-from-facebook/?sh=3733ada35a6b) reported that account info of over 267 million Facebook users was leaked, including phone numbers and email addresses.
@@ -111,16 +111,16 @@ thumbnail: https://thmb.techidaily.com/0ab25ce0bb8d4ab2078e845cda986fa9a30d3de55
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
+<span id="1424527">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
@@ -156,21 +156,19 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>[New] 2024 Approved Beyond the Basics Transformative Tactics for Facebook Advertising</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-newcomers-journey-to-prosperity-via-periscope-for-2024/"><u>[Updated] Newcomer's Journey to Prosperity via Periscope for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-and-google-face-the-call-for-greater-regulation-against-fraudulent-ads/"><u>Facebook & Google Face the Call for Greater Regulation Against Fraudulent Ads</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fb-cover-videos-strategies-for-maximum-impact/"><u>FB Cover Videos Strategies for Maximum Impact</u></a></li>
-<li><a href="https://games-able.techidaily.com/how-to-experience-google-play-games-on-pc/"><u>How to Experience Google Play Games on PC</u></a></li>
-<li><a href="https://win-able.techidaily.com/how-to-fix-persistent-crashes-in-genshin-impact-on-your-windows-or-mac-computer/"><u>How to Fix Persistent Crashes in Genshin Impact on Your Windows or Mac Computer</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-sony-xperia-10-v-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Sony Xperia 10 V without App | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Nokia C12 | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-oppo-f23-5g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Oppo F23 5G Location | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-realme-c51-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Realme C51 Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-frozen-facebook-accounts/"><u>Navigating the Maze of Frozen Facebook Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-content-meta-drops-in-insta-and-fb-experiment/"><u>Revolutionizing Content: Meta Drops in Insta & FB Experiment</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-every-memory-complete-download-of-facebook-records/"><u>Securing Every Memory: Complete Download of Facebook Records</u></a></li>
-<li><a href="https://facebook.techidaily.com/shared-spaces-a-new-era-for-fb-and-instagram/"><u>Shared Spaces: A New Era for FB and Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/skillful-newsfeed-management-bypassing-fb-reels/"><u>Skillful Newsfeed Management: Bypassing Fb Reels</u></a></li>
-<li><a href="https://facebook.techidaily.com/unconfirmed-social-giant-tightens-ad-standards/"><u>Unconfirmed: Social Giant Tightens Ad Standards</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-smartscreen-capture-v11-professional/"><u>[Updated] SmartScreen Capture V11 Professional</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/defending-artwork-authenticity-against-generative-ai-using-nightshade-solutions/"><u>Defending Artwork Authenticity Against Generative AI Using Nightshade Solutions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/get-yours-before-it-sells-out-simulavr-unveils-linux-version-with-innovative-facial-tracking-features/"><u>Get Yours Before It Sells Out: SimulaVR Unveils Linux Version with Innovative Facial Tracking Features</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Google Pixel 7a? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-premier-music-selections-for-movie-making/"><u>In 2024, Premier Music Selections for Movie Making</u></a></li>
+<li><a href="https://extra-support.techidaily.com/melodies-and-movements-uncovering-three-economical-methods-of-syncing-sound-with-iphone-videos-for-2024/"><u>Melodies and Movements Uncovering Three Economical Methods of Syncing Sound with iPhone Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-yet-significant-top-4-tech-stories-worth-your-attention/"><u>Overlooked Yet Significant: Top 4 Tech Stories Worth Your Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-perception-of-online-communities-more-harm-less-good/"><u>Public Perception of Online Communities: More Harm, Less Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-war-on-untruths-increased-fb-fines-introduced/"><u>Social Media War on Untruths: Increased FB Fines Introduced</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-unreachable-mb-status-on-windows-11-systems/"><u>Tackling Unreachable MB Status on Windows 11 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/timeline-traversal-the-evolution-of-online-companions/"><u>Timeline Traversal: The Evolution of Online Companions</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-gzw-game-crashes-for-pc-users-tips-and-solutions/"><u>Troubleshooting GZW Game Crashes for PC Users - Tips & Solutions</u></a></li>
+<li><a href="https://win-forum.techidaily.com/uncovering-windows-11s-hidden-tools-a-guide-to-checking-your-powershell-version/"><u>Uncovering Windows 11'S Hidden Tools: A Guide to Checking Your PowerShell Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-vk-russias-alternative-online-platform/"><u>Unmasking VK: Russia's Alternative Online Platform</u></a></li>
 </ul></div>
 

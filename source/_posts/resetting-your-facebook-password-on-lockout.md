@@ -1,7 +1,7 @@
 ---
 title: Resetting Your Facebook Password on Lockout
-date: 2024-09-09T19:02:59.338Z
-updated: 2024-09-16T20:51:39.023Z
+date: 2024-09-18T21:03:00.020Z
+updated: 2024-09-21T19:00:19.821Z
 tags:
   - facebook
 categories:
@@ -85,6 +85,13 @@ To change your password:
 
  You can try again, or maybe you'll realize that you don't have access to the account after all.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Log Back Into Your Facebook Account
 
  If you managed to regain access to your account, and if you suspect that[your Facebook account was hacked](https://www.makeuseof.com/tag/facebook-hacked-heres-tell-fix/) , immediately change your password and update your contact information.
@@ -104,16 +111,10 @@ To change your password:
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
@@ -128,16 +129,16 @@ To change your password:
 
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
  You won't get back into your account immediately. First, you have to upload your ID to confirm it's really you who's trying to recover the account. Once you've done that, wait until Facebook gets in touch to confirm your ID verification. Be patient.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Report Your Hacked Facebook Account
 
@@ -145,31 +146,18 @@ To change your password:
 
 ![Report a compromised Facebook account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Report-Compromised-Account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This will actually start a similar process to the one outlined above. While you will use the same information to identify your account, in the following step, you will be able to use either a current or old Facebook password to recover your account.
 
 ![Log into your account with a current or old password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Login-With-Old-Password.jpg)
 
- This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
-
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
 ## 5\. Confirm Your Identity With Facebook
 
@@ -186,10 +174,10 @@ To change your password:
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## If All Else Fails, Create a New Facebook Profile
@@ -213,13 +201,15 @@ To change your password:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-choose-wisely-top-10-expert-picked-gopro-housing/"><u>[Updated] 2024 Approved Choose Wisely Top 10 Expert-Picked GoPro Housing</u></a></li>
-<li><a href="https://techtrends.techidaily.com/avoid-crashing-apps-with-these-8-essential-tricks-to-solve-parse-errors-in-android-development/"><u>Avoid Crashing Apps with These 8 Essential Tricks to Solve Parse Errors in Android Development</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/division-2-optimization-guide-eliminating-low-fps-and-stuttering-issues-in-the-new-year/"><u>Division 2 Optimization Guide: Eliminating Low FPS & Stuttering Issues in the New Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-a-facebook-avatar-on-whatsapp/"><u>How to Use a Facebook Avatar on WhatsApp</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-unlock-from-iphone-13-pro-max-how-to-fix-it-by-drfone-ios/"><u>In 2024, Apple ID Unlock From iPhone 13 Pro Max? How to Fix it?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-power-of-connectivity-8-social-networking-methods/"><u>The Power of Connectivity: 8 Social Networking Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-past-connections-downloading-full-facebook-activity/"><u>Unlocking Past Connections: Downloading Full Facebook Activity</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-pro-audio-in-fcp-expert-tips-for-enhancing-your-video-soundtrack/"><u>Updated 2024 Approved Pro Audio in FCP Expert Tips for Enhancing Your Video Soundtrack</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-the-comprehensive-guide-to-screencasting-techniques/"><u>[New] In 2024, The Comprehensive Guide to Screencasting Techniques</u></a></li>
+<li><a href="https://win-blog.techidaily.com/conversor-online-de-flac-para-mp3-gratuito-site-oficial-do-movavi/"><u>Conversor Online De FLAC Para MP3 Gratuito - Site Oficial Do Movavi</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-gigabyte-gc-wb867d-i-driver-software-download/"><u>Free Gigabyte GC-WB867D-I Driver Software Download</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-top-notch-solutions-for-disabled-apple-id-on-iphone-8-plus-making-it-possible-by-drfone-ios/"><u>In 2024, Top-Notch Solutions for Disabled Apple ID On iPhone 8 Plus Making It Possible</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-friendly-suggestions-facebooks-upcoming-marketplace-tool/"><u>Leveraging Friendly Suggestions: Facebook's Upcoming Marketplace Tool</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-infinix-hot-40i-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Infinix Hot 40i</u></a></li>
+<li><a href="https://win-dash.techidaily.com/official-installation-files-brother-mfc-nw9130cw-firmware-and-drivers/"><u>Official Installation Files: Brother MFC-Nw9130cw Firmware & Drivers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-fixes-for-reducing-unwanted-vibrations-in-your-surfaces-display/"><u>Step-by-Step Fixes for Reducing Unwanted Vibrations in Your Surface's Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-7-main-takeaways-whistleblowers-leak-on-fb/"><u>The 7 Main Takeaways: Whistleblower's Leak on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-concept-and-practical-application-of-sleep-mode-in-messenger-kids/"><u>The Concept & Practical Application of Sleep Mode in Messenger Kids</u></a></li>
 </ul></div>
 

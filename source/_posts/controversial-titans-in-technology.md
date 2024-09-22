@@ -1,7 +1,7 @@
 ---
 title: Controversial Titans in Technology
-date: 2024-07-12T10:13:30.910Z
-updated: 2024-07-13T10:13:30.910Z
+date: 2024-09-18T19:11:33.274Z
+updated: 2024-09-21T19:46:00.140Z
 tags:
   - facebook
 categories:
@@ -64,8 +64,22 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
  Assange is currently being remanded on bail pending a decision on whether to extradite him to the US. While Assange has been criticized for jeopardizing US national security, his supporters outnumber his critics, who praise him as a whistleblower hero.
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Susan Wojcicki
 ![Susan Wojcicki YouTube CEO](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/susan-w-youtube-ceo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Best known for:** CEO of YouTube
 
@@ -97,6 +111,13 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 ## 6\. Mark Zuckerberg
 ![facebook mark zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/mark-zuckerberg.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Best known for:** Co-founder of Facebook
 
  Zuckerberg, along with his Facebook co-founders, pioneered internet social networking as it is known today. Connecting with friends and family from any corner of the globe has never been simpler using Facebook.
@@ -123,14 +144,11 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
 
  Image Credit: Image Credit: Anthony Quintano/[Wikimedia Commons](https://commons.wikimedia.org/wiki/File:Mark%5FZuckerberg%5FF8%5F2018%5FKeynote%5F%2841118893354%29.jpg)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,6 +157,21 @@ thumbnail: https://thmb.techidaily.com/97b0ddc570e6ff11d98aa739ad9094bf8b6916f3c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens-for-2024/"><u>[New] Exploring the Merits of OBS Studio & Fraps for Recording Screens for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-list-7-indispensable-devices-in-the-metaverse-for-2024/"><u>[Updated] The Ultimate List 7 Indispensable Devices in the Metaverse for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-online-potential-essential-fb-advice-for-businesses-for-2024/"><u>[Updated] Unlocking Online Potential Essential FB Advice for Businesses for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-techniques-of-composing-persuasive-content-in-vlogging/"><u>2024 Approved Techniques of Composing Persuasive Content in Vlogging</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Asus ROG Phone 7 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-tecno-pop-8-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-music-from-motorola-moto-g-stylus-5g-2023-by-fonelab-android-recover-music/"><u>How to Rescue Lost Music from Motorola Moto G Stylus 5G (2023)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-broaden-your-messenger-network/"><u>How-To: Broaden Your Messenger Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-in-social-media-twittersphere-to-facebooks-knowledgeable-posting/"><u>Innovation in Social Media: Twittersphere to Facebook's Knowledgeable Posting</u></a></li>
+<li><a href="https://facebook.techidaily.com/maintaining-full-whatsapp-account-ability-post-privacy-policy-refusal/"><u>Maintaining Full WhatsApp Account Ability Post-Privacy Policy Refusal</u></a></li>
+<li><a href="https://review-topics.techidaily.com/nokia-data-recovery-recover-lost-data-from-nokia-c110-by-fonelab-android-recover-data/"><u>Nokia Data Recovery – recover lost data from Nokia C110</u></a></li>
+<li><a href="https://facebook.techidaily.com/techs-intrigue-is-your-device-secretly-curating-commerce/"><u>Tech's Intrigue: Is Your Device Secretly Curating Commerce?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-community-curation-employing-new-features-in-facebook-group-control/"><u>The Art of Community Curation: Employing New Features in Facebook Group Control</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-lenovo-thinkphone-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Lenovo ThinkPhone for Parents | Dr.fone</u></a></li>
+</ul></div>
 

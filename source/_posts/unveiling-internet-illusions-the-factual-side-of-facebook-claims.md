@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Internet Illusions: The Factual Side of Facebook Claims"
-date: 2024-09-12T17:56:24.584Z
-updated: 2024-09-16T18:36:36.011Z
+date: 2024-09-14T20:27:29.004Z
+updated: 2024-09-21T17:10:54.404Z
 tags:
   - facebook
 categories:
@@ -50,16 +50,16 @@ Pixabay free image
 
  Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Facebook Owns My Photos and Sells Them for Ads
 
 ![Young woman using her smartphone and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(7).jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Another rumor claimed that Facebook is selling your photos to advertisers. But Facebook explicitly states: "No, we don't sell your information. Instead, based on the information we have, advertisers and other partners pay us to show you personalized ads on the Facebook family of apps and technologies."
 
@@ -69,16 +69,16 @@ Pixabay free image
 
  Also, it means that if you've liked a certain page, your friends might see a photo of your face showing as a supporter of the page when the page is advertising on Facebook. So be careful what you "like".
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. You Can Post Other People's Content on Facebook
 
 ![Woman's hand handling a phone with a cup of coffee](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/My-project-(4)-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  When it comes to content ownership on Facebook, there are some things you need to know. Facebook is a place where you can post and share content, however, you need to make sure that the content you post is yours. If you post other people's content without their permission, you could be infringing copyright.
 
@@ -98,18 +98,18 @@ Pixabay free image
 
 ![A hand showing someone selecting a photo for social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-5082579.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Facebook is a social network, and if you know a lot of people who use it, chances are that the social network has information about you. It's called a "[shadow profile](https://www.makeuseof.com/tag/facebook-shadow-profiles/) ". When your friends use Facebook, they give it access to their contact book and personal information. Now let's say one of your friends has you and your phone number in their contact book. Facebook stores this. Now let's say another friend has you, your phone number, and your email address in their contact book. Facebook will also store that and match it to the existing information.
 
  Let's say your boss has stored your name with your phone number and home address. Facebook gets that too. And without you ever knowing it, Facebook makes a "shadow profile" for you, which contains your name, your phone number, your address, and your email—even though you never gave it any of that information. That's a simplistic example of how data comes together. Facebook has much more complex algorithms running that can match more sensitive information.
 
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Facebook Is Getting a Dislike Button
 
@@ -121,15 +121,28 @@ Pixabay free image
 
  If you see a Facebook app that adds a Dislike button or even a third-party browser extension, don't install it. It's not made by Facebook and there is a chance some of these have malware.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 9\. Facebook Is Overcrowded and Needs to Delete Inactive Accounts
 
 ![A group of people engaged on their phones](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/pexels-cottonbro-8088495.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Have you ever seen a message saying that if you are not using your account, it will be deleted? The message goes on to ask you to prove you're active by copy-pasting that message or downloading something, otherwise your account will be deleted. There is a high chance that what you received was spam.
@@ -143,13 +156,6 @@ Pixabay free image
 ## 10\. Facebook Requires ID Proof
 
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
 
@@ -179,20 +185,15 @@ Pixabay free image
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-unleashing-popularity-how-to-make-a-youtube-hit/"><u>[New] 2024 Approved Unleashing Popularity How to Make a YouTube Hit</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/erfect-audio-gear-for-streamers/"><u>[New] Perfect Audio Gear for Streamers</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-mastermind-mind-games-trivia-channel-hunt-for-24/"><u>2024 Approved Mastermind Mind Games - Trivia Channel Hunt for '24</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/amplify-detail-top-tips-for-shooting-up-closer-with-videoleap-for-2024/"><u>Amplify Detail Top Tips for Shooting Up Closer with VideoLeap for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/capturing-stardust-the-premier-10-sites-for-hdr-skyscapes-for-2024/"><u>Capturing Stardust The Premier 10 Sites for HDR Skyscapes for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-facebook-traits-boosting-collaboration-in-teams/"><u>Essential Facebook Traits Boosting Collaboration in Teams</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-freeze-unfreezing-the-frozen-features/"><u>Facebook Freeze: Unfreezing the Frozen Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-adolescent-security-in-the-world-of-social-media/"><u>Fortifying Adolescent Security in the World of Social Media</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-to-detect-facebook-banned-friends/"><u>Navigating to Detect Facebook Banned Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-identity-update-made-simple/"><u>Social Media Identity Update Made Simple</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-merging-several-jpeg-images-into-a-single-pdf-document/"><u>Step-by-Step Guide: Merging Several JPEG Images Into a Single PDF Document</u></a></li>
-<li><a href="https://facebook.techidaily.com/steps-for-marking-self-as-safe-on-fb/"><u>Steps for Marking Self as Safe on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/theories-on-the-impending-shift-in-facebooks-name/"><u>Theories on the Impending Shift in Facebook’s Name</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/uncharted-territory-5-advanced-gpt-functions-for-enthusiasts/"><u>Uncharted Territory: 5 Advanced GPT Functions for Enthusiasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-androids-best-practice-for-saving-gameplay-videos/"><u>[New] In 2024, Android's Best Practice for Saving Gameplay Videos</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/balancing-act-weaving-b-roll-into-main-scenes-for-2024/"><u>Balancing Act Weaving B Roll Into Main Scenes for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722964413347-efficient-amd-smbus-driver-installation-get-latest-version-now/"><u>Efficient AMD SMBus Driver Installation: Get Latest Version Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-update-or-downloads-epson-tm-t88v-driver-packs-for-windows-users/"><u>How to Update or Downloads EPSON TM-T88V Driver Packs for Windows Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-playstation-5-title-transfer-and-multiplayer-fun/"><u>Mastering the Art of Playstation 5 Title Transfer and Multiplayer Fun!</u></a></li>
+<li><a href="https://facebook.techidaily.com/unbanned-facebook-profile-section-reverberates-with-anti-vax-sentiments/"><u>Unbanned: Facebook Profile Section Reverberates with Anti-Vax Sentiments</u></a></li>
 </ul></div>
 

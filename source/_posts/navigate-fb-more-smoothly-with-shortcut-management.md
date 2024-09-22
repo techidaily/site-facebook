@@ -1,7 +1,7 @@
 ---
 title: Navigate FB More Smoothly With Shortcut Management
-date: 2024-07-12T10:09:50.730Z
-updated: 2024-07-13T10:09:50.730Z
+date: 2024-09-20T18:12:02.269Z
+updated: 2024-09-21T17:37:48.398Z
 tags:
   - facebook
 categories:
@@ -48,10 +48,24 @@ thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Menu
 ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
  The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Marketplace
 ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
@@ -80,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/92d935200679b107d6e949886541d1fff9656f8b1
 
 [In July 2022, Facebook introduced Feeds](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) . This tab allows you to have better control over what you see; you can view posts from All, Favorites, Friends, Groups, or Pages. The shortcut looks like a newspaper icon with a clock and can be removed.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Quickly Remove Facebook Shortcuts
 
  Long-pressing an icon from the shortcuts bar is the simplest way to remove a shortcut in the Facebook app. But you can only hide or unpin shortcuts with this method, not add them.
@@ -99,6 +120,13 @@ To quickly hide Facebook shortcuts by long-pressing:
 ![facebook-app-menu-options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu-options.JPEG)
 
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
 
@@ -135,6 +163,19 @@ To disable and enable Facebook notification dots by long-pressing:
 
 ![facebook-app-navigation-bar-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-navigation-bar-settings.JPEG)
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
 
 Close
@@ -151,14 +192,11 @@ To disable and enable Facebook notification dots from the settings:
 
  Shortcuts are there to make navigation quick and convenient. But let's be real, they can also clog up your screen. Follow the above guide to choose which shortcuts you want to display, get rid of, and whether or not you want to see their notification dots.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,6 +205,20 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-fullview-pacts-the-art-of-media-company-selection/"><u>[Updated] In 2024, FullView Pacts The Art of Media Company Selection</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-acquiring-igtv-media-easily-a-comprehensive-pcmac-guide/"><u>2024 Approved Acquiring IGTV Media Easily A Comprehensive PC/Mac Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-masterful-marketing-top-strategies-to-thrive-in-fb-video-space/"><u>2024 Approved Masterful Marketing Top Strategies to Thrive in FB Video Space</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-unleashing-the-power-of-fbx-for-in-game-capture/"><u>2024 Approved Unleashing the Power of FBX for In-Game Capture</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-samsung-galaxy-s23-tactical-edition-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Samsung Galaxy S23 Tactical Edition via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-review-how-the-new-apple-iphone-12-sets-the-bar-higher-than-ever/"><u>Expert Review: How the New Apple iPhone 12 Sets the Bar Higher Than Ever</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-activity-securely-archiving-your-fb-content/"><u>Invisible Activity: Securely Archiving Your FB Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/jumpstart-your-photo-editing-essential-pixlr-wisdoms-for-2024/"><u>Jumpstart Your Photo Editing Essential Pixlr Wisdoms for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/master-the-art-of-engaging-with-chatgpt-strategies-for-fitness-aficionados-to-get-better-responses/"><u>Master the Art of Engaging with ChatGPT: Strategies for Fitness Aficionados to Get Better Responses</u></a></li>
+<li><a href="https://facebook.techidaily.com/rescheduled-deadline-for-whatsapp-to-accept-new-privacy-policies/"><u>Rescheduled Deadline for WhatsApp to Accept New Privacy Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-facebook-from-your-private-life-invasion/"><u>Stop Facebook From Your Private Life Invasion</u></a></li>
+<li><a href="https://facebook.techidaily.com/unrestricted-whatsapp-features-with-no-acceptance-to-privacy-changes/"><u>Unrestricted WhatsApp Features with No Acceptance to Privacy Changes</u></a></li>
+<li><a href="https://games-able.techidaily.com/xboxs-remote-play-service-unpacked/"><u>Xbox's Remote Play Service Unpacked</u></a></li>
+</ul></div>
 

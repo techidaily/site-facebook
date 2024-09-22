@@ -1,7 +1,7 @@
 ---
 title: Unpacking Big Tech's Future with America's Strengthened Antitrust Approach
-date: 2024-09-10T17:31:07.796Z
-updated: 2024-09-16T17:33:56.912Z
+date: 2024-09-19T00:39:28.552Z
+updated: 2024-09-21T16:29:02.891Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. The Platform Competition and Opportunity Act of 2021
 
  "Nipping a problem in the bud." Generally harmless at our own consumer level, this notion carries dark connotations when maximized to full scale.
@@ -77,10 +84,10 @@ thumbnail: https://thmb.techidaily.com/27d9679823f15c1f840af178653026beb0d15afa8
 In essence: leave the selling to the sellers.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
@@ -92,19 +99,6 @@ In essence: leave the selling to the sellers.
  It also requires them to maintain "transparent, third-party-accessible," portable APIs of all of their users' data. The idea is to make the services they offer interoperable—i.e., your medical record, as maintained by one app, can be easily transferred to the app of another service provider should you choose to make the switch.
 
  This ensures that users who trust companies with their data are free to leave with it should a more suitable competitor present itself. The user's former company will be legally obligated to transfer this data securely to their new platform of choice, avoiding any associated security risks in transit.
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. The Merger Filing Fee Modernization Act of 2021
 
@@ -143,16 +137,21 @@ Finally, we come to the economic backing to make it all happen.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-audio-capture-essentials-mastering-mac-setup/"><u>[Updated] Audio Capture Essentials Mastering Mac Setup</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-instantaneous-youtube-audiences-trackers-for-2024/"><u>[Updated] Instantaneous YouTube Audiences Trackers for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Nokia G310? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/mastering-money-making-the-ultimate-13-beginners-guide-to-reddit/"><u>Mastering Money-Making The Ultimate 13 Beginner's Guide to Reddit</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-your-facebook-visibility-settings/"><u>Mastering Your Facebook Visibility Settings</u></a></li>
-<li><a href="https://windows11.techidaily.com/pro-win-power-the-ultimate-list-of-apps-to-boost-workflow-on-win-11/"><u>Pro-Win Power: The Ultimate List of Apps to Boost Workflow on Win 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/revive-your-facebook-session-common-fixes-at-hand/"><u>Revive Your Facebook Session: Common Fixes at Hand</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/sequencing-justice-the-definitive-order-to-experience-superman-films/"><u>Sequencing Justice: The Definitive Order to Experience Superman Films</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-vivo-v27-pro-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Vivo V27 Pro FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-tale-of-two-sides-to-joining-expat-groups-online/"><u>The Tale of Two Sides to Joining Expat Groups Online</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-perfect-pace-essential-strategies-to-create-engaging-slow-motion-videos-and-images-for-instagram-audiences/"><u>[New] Perfect Pace Essential Strategies to Create Engaging Slow Motion Videos and Images for Instagram Audiences</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-becoming-a-podcast-writer-pro-strategies-and-comprehensible-script-samples/"><u>[Updated] 2024 Approved Becoming a Podcast Writer Pro Strategies & Comprehensible Script Samples</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-social-network-sites-for-youtube-growth/"><u>[Updated] Top Social Network Sites for YouTube Growth</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-install-your-hp-laserjet-pro-mfp-m127fn-drivers-correctly/"><u>How to Install Your HP Laserjet Pro MFP M127FN Drivers Correctly</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-swiftly-and-silently-remove-a-post-on-facebook/"><u>How to Swiftly and Silently Remove a Post on Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-huawei-p60-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Huawei P60 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-users-preference-towards-privacy/"><u>IPhone Users' Preference Towards Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/life-beyond-likes-7-reasons-for-reducing-social-media-usage/"><u>Life Beyond Likes: 7 Reasons for Reducing Social Media Usage</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/optimal-10-image-storage-solutions-guarantee-photographic-safety-for-2024/"><u>Optimal 10 Image Storage Solutions, Guarantee Photographic Safety for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-evolution-4-key-transformations-influenced-by-platforms/"><u>Social Evolution: 4 Key Transformations Influenced by Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-mention-youth-use-in-social-media/"><u>Strategies to Mention Youth Use in Social Media</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/streamlining-audio-addition-in-creative-cloud-suite-for-2024/"><u>Streamlining Audio Addition in Creative Cloud Suite for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncertain-times-what-lies-in-store-for-fb/"><u>Uncertain Times: What Lies in Store for FB?</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-sheryl-sandbergs-role-at-facebook/"><u>Understanding Sheryl Sandberg’s Role at Facebook</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-the-potential-of-batch-files-via-exes/"><u>Unlock the Potential of Batch Files via EXEs</u></a></li>
 </ul></div>
 

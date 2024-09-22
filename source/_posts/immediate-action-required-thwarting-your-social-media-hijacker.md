@@ -1,7 +1,7 @@
 ---
 title: "Immediate Action Required: Thwarting Your Social Media Hijacker"
-date: 2024-09-15T16:37:14.486Z
-updated: 2024-09-16T22:21:49.162Z
+date: 2024-09-16T00:02:44.360Z
+updated: 2024-09-21T17:56:17.496Z
 tags:
   - facebook
 categories:
@@ -79,22 +79,16 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Login Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-login-page.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This will let you retrieve your password in several ways. First, you'll have to**Find Your Account** . You can either enter the email address you used to register with Facebook or any other secondary email address you added, as well as your phone number.
 
 ![Facebook Find Your Account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2011/11/Find-Facebook-Account.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If Facebook can find your account, you can choose how to**Reset Your Password** .
 
@@ -110,6 +104,13 @@ Do this only if you're sure you can log back in.
 
  If you believe that the Facebook hacker who has access to your account has been abusing it, proceed to step 2.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Report the Facebook Hack
 
  If your account was not only hacked, but is sending out ads and spam to your friends, you must report it as compromised to Facebook using[Facebook.com/hacked/](http://www.facebook.com/hacked/) .
@@ -117,13 +118,6 @@ Do this only if you're sure you can log back in.
 ![Facebook Hacked Report](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-hacked-report.jpg)
 
  You can also use this in case you have lost access to your account by means of a phishing attack. Facebook will help you recover access to your account.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Remove Suspicious Applications
 
@@ -135,31 +129,18 @@ Do this only if you're sure you can log back in.
 
 ![Facebook Apps and Websites Review](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-apps-and-websites-review.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  We also recommend removing all**Expired** apps and websites.
 
  Alternatively, click the**View and Edit** button and change the app's permissions, which include options like app visibility, access to your personal information, and actions it can take.
 
 ![Edit Facebook Apps and Websites Permissions](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Apps-and-Websites-Edit.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Do Damage Control
 
@@ -168,10 +149,10 @@ Do this only if you're sure you can log back in.
  This is a precautionary step in case the hacker has used your account to reach out to people. If you presently can't access your account, contact your Facebook friends through other social networks, by email, or have a mutual friend inform them via Facebook.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Improving Facebook's Privacy and Security Settings
@@ -183,6 +164,13 @@ Do this only if you're sure you can log back in.
 * Under[**Settings > Privacy**](https://www.facebook.com/settings?tab=privacy) , choose the privacy settings you're comfortable with. We recommend letting only friends see your future posts and retroactively limiting the visibility of past posts.
 
  These settings not only[secure your Facebook account](https://www.makeuseof.com/tag/5-secure-facebook-account-recoverable/) , they can also help you recover it. Note that the single most important security feature you can enable on any of your accounts is two-factor authentication. You can[use Microsoft Authenticator](https://www.makeuseof.com/how-to-use-microsoft-authenticator-app/) and Google Authenticator with Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Keep Your Facebook Account Safe?
 
@@ -203,20 +191,20 @@ Do this only if you're sure you can log back in.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ccess-10-free-thumbnail-downloader-apps-for-2024/"><u>[New] Access 10 Free Thumbnail Downloader Apps for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-luminous-levels-in-android-videography/"><u>[New] In 2024, Luminous Levels in Android Videography</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-using-b-roll-to-enhance-cinematic-quality/"><u>[New] Using B-Roll to Enhance Cinematic Quality</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/shutoff-initiated-during-gaming/"><u>[SHUTOFF] Initiated During Gaming</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-hype-understanding-recent-twitter-fraud-alerts-metas-official-verified-badge-rollout-and-demystifying-chatgpt-4-functionality/"><u>Exploring the Hype: Understanding Recent Twitter Fraud Alerts, Meta's Official Verified Badge Rollout and Demystifying ChatGPT-4 Functionality</u></a></li>
-<li><a href="https://common-error.techidaily.com/gloomy-glow-display-anomaly/"><u>Gloomy Glow: Display Anomaly</u></a></li>
-<li><a href="https://facebook.techidaily.com/groups-on-fb-or-linkedin-finding-your-preference/"><u>Groups on FB or LinkedIn: Finding Your Preference</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/y-heavy-hitters-top-ten-youtube-video-rankings-in-a-day/"><u>Hourly Heavy Hitters Top Ten YouTube Video Rankings in a Day</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-total-domination-a-ranking-of-the-7-best-war-based-titans/"><u>In 2024, Total Domination A Ranking of the 7 Best War-Based Titans</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-online-presence-with-ripl-strategies/"><u>Optimize Your Online Presence With Ripl Strategies</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-privacy-fb-safe-status/"><u>Safeguarding Privacy: FB Safe Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/tactical-approaches-to-unfollow-pages-on-facebook/"><u>Tactical Approaches to Unfollow Pages on Facebook</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/the-black-illusion-vs-silver-miracle/"><u>The Black Illusion Vs Silver Miracle</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-science-of-creating-audience-driven-fb-groups-polls/"><u>The Science of Creating Audience-Driven FB Groups Polls</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-higher-interactions-12-insider-facebook-tricks/"><u>Unlocking Higher Interactions: 12 Insider Facebook Tricks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-essential-techniques-for-soundless-video/"><u>[Updated] 2024 Approved Essential Techniques for Soundless Video</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-final-flourishes-crafting-memorable-video-closures/"><u>[Updated] Final Flourishes Crafting Memorable Video Closures</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-guide-to-downloading-your-logitech-driver-on-windows-pc/"><u>Effortless Guide to Downloading Your Logitech Driver on Windows PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-subscription-concept-outshines-tech-industry-standards/"><u>Facebook’s Innovative Subscription Concept Outshines Tech Industry Standards</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/fists-fighting-fames-flame-for-2024/"><u>Fists Fighting Fame's Flame for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-find-old-posts-on-your-facebook-timeline/"><u>How to Find Old Posts on Your Facebook Timeline</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/in-depth-analysis-and-review-of-the-cutting-edge-mole-3d-scanner-by-3dmakerpro-unleashing-a-new-dimension-in-your-pocket/"><u>In-Depth Analysis & Review of the Cutting-Edge Mole 3D Scanner by 3DMakerPro: Unleashing a New Dimension in Your Pocket</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovative-approaches-for-striking-fb-cover-pics/"><u>Innovative Approaches for Striking FB Cover Pics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/las-10-mejores-aplicaciones-gratuitas-con-ia-para-potenciar-tus-videos-compatible-tanto-en-windows-como-en-mac/"><u>Las 10 Mejores Aplicaciones Gratuitas Con IA Para Potenciar Tus Videos, Compatible Tanto en Windows Como en Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-through-facebooks-725-million-payout/"><u>Navigating Your Way Through Facebook's $725 Million Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-sudden-disconnection-from-facespace/"><u>Overcoming Sudden Disconnection From Facespace</u></a></li>
+<li><a href="https://facebook.techidaily.com/receive-instagram-2fa-codes-directly-on-whatsapp/"><u>Receive Instagram 2FA Codes Directly on WhatsApp</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-your-scansnap-device-drivers-with-ease/"><u>Step-by-Step Guide: Updating Your ScanSnap Device Drivers with Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-linksys-wrt1nac-ac-s-mastering-an-open-source-wi-fi-solution/"><u>The Ultimate Guide to the Linksys WRT1nac AC S: Mastering an Open Source Wi-Fi Solution</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus Nord N30 SE | Dr.fone</u></a></li>
 </ul></div>
 

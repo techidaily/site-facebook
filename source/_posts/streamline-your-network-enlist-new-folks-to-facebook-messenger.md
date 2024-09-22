@@ -1,7 +1,7 @@
 ---
 title: "Streamline Your Network: Enlist New Folks to Facebook Messenger"
-date: 2024-09-13T20:28:42.706Z
-updated: 2024-09-16T18:06:13.649Z
+date: 2024-09-14T21:27:29.439Z
+updated: 2024-09-21T18:47:33.081Z
 tags:
   - facebook
 categories:
@@ -54,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/abfdd510a65bfb2974ae748187d91d88c050827e4
 
 ![accepting friends on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-Friend-requests-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![How to add a friend on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Message-a-friend-on-Facebook-1.jpg)
 
 Close
@@ -71,28 +78,15 @@ Close
  Essentially, anyone can use Messenger as long as they have had a Facebook account at some point and haven’t deleted it. In this case, you should be able to add them as you would anyone else, i.e. via your contact list if you have them in your address book, or by clicking on**Message** [on their deactivated profile](https://www.makeuseof.com/tag/deactivate-facebook-account-explained/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Can’t I Add Someone on Messenger?
 
 ![Facebook app in mobile](https://thmb.techidaily.com/d3c3a020a8c3e31354179c514456d8a6b689ea566aeb576eef913d65398f2493.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  This is likely because they’re simply not on Messenger! Another possibility, if you’re searching for them using their phone number, is that they’ve not added it to Facebook. Messenger can’t connect with something it doesn’t know exists.
 
@@ -104,13 +98,6 @@ Close
 
  In most cases, though, Facebook should link people up without their phone numbers, so if you can’t find someone, you should just talk to them and ask if you can connect on the app. If they don’t use it, they’ll tell you. If they do, they’ll let you know the best way to connect with them.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do I Delete Chats From Messenger?
 
  Let’s say you’ve got loads of chat threads open on Messenger now and want to close some. You have a few options to delete the conversations. In case you’re wondering, blocking someone won’t delete the chats on Messenger, but they won’t be able to send new messages from that account.
@@ -120,6 +107,13 @@ So how can you delete old messages on Messenger?
  Open Messenger then tap and hold on the conversation thread you want to get rid of. A box will open underneath with numerous options. From here, you can**Mute** , meaning you won’t get notifications from that person, **Delete** , or**Archive** .
 
  You can find the latter by going on your profile photo then tapping**Archived chats** . This is probably the better option as these conversations won’t litter your feed, but are still just a couple of taps away.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Add Friends on Messenger With Ease
 
@@ -140,20 +134,14 @@ So how can you delete old messages on Messenger?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-insta-vid-techniques-scaling-videos-to-perfect-size-in-fcpx/"><u>2024 Approved Insta-Vid Techniques Scaling Videos to Perfect Size in FCPX</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-streaming-success-easily-convert-srt-formats/"><u>2024 Approved Streaming Success Easily Convert SRT Formats</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-oppo-reno-11-pro-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Oppo Reno 11 Pro 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-photodna-scans-and-verifies-image-authenticity/"><u>How PhotoDNA Scans and Verifies Image Authenticity</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-oppo-reno-11f-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Oppo Reno 11F 5GFRP Lock</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-infinix-smart-8-hd-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Infinix Smart 8 HD Screen | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/increase-conversions-with-these-top-marketing-phrases-for-2024/"><u>Increase Conversions with These Top Marketing Phrases for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/january-decision-day-for-trump-on-social-media/"><u>January Decision Day for Trump on Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/neutralizing-online-presence-by-scrubbing-beliefs-and-policies/"><u>Neutralizing Online Presence by Scrubbing Beliefs & Policies</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-facebook-extensions-use/"><u>Streamlining Your Facebook Extensions Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
-<li><a href="https://some-skills.techidaily.com/transform-your-photos-mastering-time-lapse-with-samsung-mobile-for-2024/"><u>Transform Your Photos Mastering Time Lapse with Samsung Mobile for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-psychological-potential-with-isbms-modernized-cbt-framework/"><u>Unlock Psychological Potential with ISBM's Modernized CBT Framework</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/virtual-reality-film-classics-you-cant-forget-for-2024/"><u>Virtual Reality Film Classics You Can't Forget for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-vigilance-and-validity-empower-your-groups-with-facebooks-moderation-mastery/"><u>Virtual Vigilance & Validity: Empower Your Groups with Facebook's Moderation Mastery</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-embrace-the-world-of-video-design-in-xp/"><u>[New] 2024 Approved Embrace the World of Video Design in XP</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-bring-your-videos-to-life-the-magic-of-cartoon-conversion-explained/"><u>In 2024, Bring Your Videos to Life The Magic of Cartoon Conversion Explained</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://network-issues.techidaily.com/mitigating-phosphor-flash-interruptions/"><u>Mitigating Phosphor Flash Interruptions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/revolutionizing-online-content-the-power-of-time-stamps/"><u>Revolutionizing Online Content The Power of Time-Stamps</u></a></li>
+<li><a href="https://facebook.techidaily.com/shut-down-all-fb-notification-mechanisms/"><u>Shut Down All FB Notification Mechanisms</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-mention-youth-use-in-social-media/"><u>Strategies to Mention Youth Use in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-generated-content-ownership-insight/"><u>User-Generated Content: Ownership Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-influence-sparking-conversations-in-your-fb-collective/"><u>Virtual Influence: Sparking Conversations in Your Fb Collective</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: FB Status Unraveled – How to Know It’s Online
-date: 2024-07-12T10:10:39.743Z
-updated: 2024-07-13T10:10:39.743Z
+date: 2024-09-19T23:38:32.956Z
+updated: 2024-09-21T21:37:07.997Z
 tags:
   - facebook
 categories:
@@ -71,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
  If Facebook's outage only lasts a few minutes, you should be able to access it before long. But if it's not back after 15 minutes or so, it's probably going to be unavailable for longer, so you shouldn't waste your time refreshing manually.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Keep an Eye on Twitter
 
  Earlier, you looked at Twitter to figure out if Facebook was having problems. But that's not the extent of Twitter's usefulness; you can also use it to keep up on the status of longer Facebook outages.
@@ -79,11 +86,25 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
  Keeping a Twitter search page open with "Facebook down" or similar is an easy way to stay current on what's going on. Refresh it every so often to see what people are saying; you should know pretty quickly whether Facebook has come back.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Watch News Sites
 
  If you can't or don't want to use Twitter, you can also stay updated on Facebook's outage status by checking news sites. Any website that covers tech news should have an article up about an extended Facebook outage, and they will update it as events proceed.
 
  Keeping an article open in a separate tab and checking over that every once in a while is more efficient than refreshing Facebook over and over.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Get Alerts When Facebook Goes Down in the Future
 
@@ -99,14 +120,11 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
 
  In this case, don't despair; there's plenty you can do online to kill time, even without Facebook. It could even be an excuse to go outside and get away from your devices for a while.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,6 +133,19 @@ thumbnail: https://thmb.techidaily.com/8eeffb0e6f2c9998156198f379aca60dcf8cc0a81
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-cinematography-simplified-fades-made-easy/"><u>[Updated] Cinematography Simplified Fades Made Easy</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-metaverse-advertising-techniques/"><u>[Updated] Mastering Metaverse Advertising Techniques</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/acpisys-in-windows-11-how-to-identify-and-fix-common-problems-quickly/"><u>acpi.sys in Windows 11: How to Identify and Fix Common Problems Quickly</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/become-a-pip-expert-enhancing-visual-narratives-on-macos-sierra/"><u>Become a PIP Expert Enhancing Visual Narratives on macOS Sierra</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/expert-reviews-best-scanners-for-your-paperwork-and-memories/"><u>Expert Reviews: Best Scanners for Your Paperwork and Memories</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-insight-time-off-for-teens-from-instagram-usage/"><u>Facebook's Insight: Time Off for Teens From Instagram Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-11-prevention-and-solution-drfone-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 11 Prevention & Solution | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-resolving-razer-barracuda-x-mic-problems-for-w10w11-users/"><u>Step-by-Step Guide: Resolving Razer Barracuda X Mic Problems for W10/W11 Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-feed-intelligent-photo-captioning-tech/"><u>Streamline Your Feed: Intelligent Photo Captioning Tech</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-rated-key-trackers-revealed-the-ultimate-guide/"><u>Top-Rated Key Trackers Revealed: The Ultimate Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hints-of-facebooks-upcoming-identity-change/"><u>Unveiling Hints of Facebook's Upcoming Identity Change</u></a></li>
+</ul></div>
 

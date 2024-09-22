@@ -1,7 +1,7 @@
 ---
 title: "Overlooked Yet Significant: Top 4 Tech Stories Worth Your Attention"
-date: 2024-09-10T16:01:16.727Z
-updated: 2024-09-16T20:42:32.242Z
+date: 2024-09-18T21:08:29.701Z
+updated: 2024-09-21T22:52:07.302Z
 tags:
   - facebook
 categories:
@@ -68,22 +68,15 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 
  While this is an exciting time for the metaverse, with even Mark Zuckerberg himself saying that he's not sure what its future holds, we have to be wary of our privacy, as these systems typically run on our data—whether we want to share it or not.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Apple and Facebook's Privacy War
 
 ![facebook app erased on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-app-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  When iOS 14.5 launched in April 2021, it allowed users to opt-out of tracking, thus preventing third-party apps from following you around the internet and selling your data to big tech companies. While this is a welcome feature for many Apple users, this was the first shot of the privacy war that Apple and Facebook are now fighting.
@@ -95,6 +88,19 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
  Related:[How iOS 14.5 Will Hurt Facebook](https://www.makeuseof.com/how-the-ios-14-5-update-is-going-to-really-hurt-facebook/)
 
  That's why the social media company will attempt to stop this precedent, as they count on user data to deliver customized advertising content. In fact, Meta made almost $85 billion from targeted online ads in 2020\. Because when the data taps stop flowing, they can't deliver target ads to their users, thus affecting ad revenue.
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What Tech News Will We See in 2022?
 
@@ -117,19 +123,15 @@ thumbnail: https://thmb.techidaily.com/0e8ec29ee6248aac03a17afe8cf5cfd2ec9d4e36d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-catching-up-in-time-the-instagram-video-inversion-method/"><u>[New] In 2024, Catching Up in Time The Instagram Video Inversion Method</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-mastering-light-and-shadow-in-hdr-portraiture-for-2024/"><u>[New] Mastering Light and Shadow in HDR Portraiture for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-best-8-subtitle-transformers-seamless-switch-from-sub-to-srtr-in-seconds-on-windowsmacos/"><u>2024 Approved Best 8 Subtitle Transformers Seamless Switch From SUB to SRTR in Seconds on Windows/MacOS</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-vs-gemini-ai-by-google-which-artificial-intelligence-reigns-supreme/"><u>ChatGPT Vs. Gemini AI by Google: Which Artificial Intelligence Reigns Supreme?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-pictures-from-edge-40-by-fonelab-android-recover-pictures/"><u>Easy steps to recover deleted pictures from Edge 40.</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-advice-restoring-functionality-to-broken-usb-hotspot-services/"><u>Expert Advice: Restoring Functionality to Broken USB Hotspot Services</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-mechanism-behind-facebook-whitelist/"><u>Exploring the Mechanism Behind Facebook Whitelist</u></a></li>
-<li><a href="https://facebook.techidaily.com/fortifying-digital-presence-practical-steps-to-add-2fa-to-gmail-and-outlook-accounts/"><u>Fortifying Digital Presence: Practical Steps to Add 2FA to Gmail and Outlook Accounts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-investigating-whether-sns-hdr-offers-superior-ux/"><u>In 2024, Investigating Whether SNS HDR Offers Superior UX</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-proven-techniques-to-take-your-obs-studio-videos-to-new-heights/"><u>In 2024, Proven Techniques to Take Your OBS Studio Videos to New Heights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-upward-perspectives-capturing-landscapes-from-your-phone/"><u>In 2024, Upward Perspectives Capturing Landscapes From Your Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/intrigued-by-security-facebookers-buy-300-tech-for-account-recovery/"><u>Intrigued by Security? Facebookers Buy $300 Tech for Account Recovery</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-meta-on-stopping-online-sensitive-pics/"><u>Steering Clear: Meta on Stopping Online Sensitive Pics</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncovering-historical-facebook-bonds/"><u>Uncovering Historical Facebook Bonds</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-pinpointing-personalities-pinning-friends-on-snapchat/"><u>[New] 2024 Approved Pinpointing Personalities Pinning Friends on Snapchat</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-revisiting-video-broadcast-choices-post-wirecast/"><u>[New] Revisiting Video Broadcast Choices Post-Wirecast</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-screen-shot-ease-premium-free-software-for-desktop-recording-on-pcmac/"><u>[Updated] In 2024, Screen Shot Ease Premium FREE Software for Desktop Recording on PC/Mac</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/dvdand-winxdvd/"><u>完璧なDVDコピー&動画変換: WinXDVDで発生する問題とその解決法を学ぶ</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-google-pixel-fold-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Google Pixel Fold Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-and-fb-stickers-a-test-of-brand-engagement/"><u>Instagram and FB Stickers: A Test of Brand Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-as-a-tool-facebook-users-spend-300-on-recovery/"><u>Oculus as a Tool: Facebook Users Spend $300 on Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-quest-update-rescheduled-for-next-fiscal-year/"><u>Oculus Quest Update: Rescheduled for Next Fiscal Year</u></a></li>
+<li><a href="https://facebook.techidaily.com/organizing-connected-tools-a-compreayers-guide-to-fb-integration/"><u>Organizing Connected Tools: A Compreayer's Guide to Fb Integration</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/successful-installation-mbox2-driver-updates-and-downloads-for-windows-no-more-issues/"><u>Successful Installation: MBox2 Driver Updates & Downloads for Windows - No More Issues</u></a></li>
 </ul></div>
 

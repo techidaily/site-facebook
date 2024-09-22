@@ -1,7 +1,7 @@
 ---
 title: "Sharpening Speech Snippets: Bold & Italic Flair"
-date: 2024-07-12T10:12:01.932Z
-updated: 2024-07-13T10:12:01.932Z
+date: 2024-09-17T20:18:01.716Z
+updated: 2024-09-21T19:49:57.084Z
 tags:
   - facebook
 categories:
@@ -39,8 +39,28 @@ thumbnail: https://thmb.techidaily.com/d0be551e2fb6faca9c1b4ad092d1becef6333157c
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Use Strikethrough Text in Messenger
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
@@ -54,6 +74,13 @@ thumbnail: https://thmb.techidaily.com/d0be551e2fb6faca9c1b4ad092d1becef6333157c
  Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Send Blocks of Code in Messenger
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
@@ -76,14 +103,11 @@ To send text in a block of code:
 
  Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +116,20 @@ To send text in a block of code:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-enhance-tv-screens-with-automatic-loops-of-youtube/"><u>[New] In 2024, Enhance TV Screens With Automatic Loops of YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-free-and-paid-video-game-opening-mastery-rank-the-best-of-yt-makers/"><u>[New] In 2024, Free & Paid Video Game Opening Mastery Rank the Best of YT Makers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-into-the-spotlight-learning-youtube-vlogger-etiquette-for-2024/"><u>[Updated] Step Into the Spotlight Learning YouTube Vlogger Etiquette for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-memories-in-motion-a-step-by-step-guide-for-digital-conversion/"><u>2024 Approved Memories in Motion A Step-by-Step Guide for Digital Conversion</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/eliminate-unrequested-podcast-additions-on-spotify-feed/"><u>Eliminate Unrequested Podcast Additions on Spotify Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-erasing-footprints-on-facebook-timeline/"><u>Mastering the Art: Erasing Footprints on Facebook Timeline</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/panorama-pixels-cutting-edge-photo-assembler/"><u>Panorama Pixels Cutting-Edge Photo Assembler</u></a></li>
+<li><a href="https://facebook.techidaily.com/smooth-social-media-transition-from-instagram-to-facebook-reels/"><u>Smooth Social Media Transition: From Instagram to Facebook Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-forging-facebook-identities/"><u>The Art of Forging Facebook Identities</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-transform-your-clips-2-simple-methods-for-creating-time-lapse-masterpieces/"><u>Updated 2024 Approved Transform Your Clips 2 Simple Methods for Creating Time Lapse Masterpieces</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-sign-up-for-meta-verified-in-the-us/"><u>You Can Now Sign Up for Meta Verified in the US</u></a></li>
+</ul></div>
 

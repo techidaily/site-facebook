@@ -1,7 +1,7 @@
 ---
 title: Crafting a Cloak of Secrecy for Your Photos
-date: 2024-07-12T10:12:36.185Z
-updated: 2024-07-13T10:12:36.185Z
+date: 2024-09-14T18:14:06.764Z
+updated: 2024-09-21T17:58:35.869Z
 tags:
   - facebook
 categories:
@@ -112,10 +112,24 @@ Close
 
 ![Your photos in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-your-photos-album-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click to open the photo you want to make private.
 * Next, click the**three dots** in the top right and select**Edit post audience** .
 
 ![Facebook's individual photo setting options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-viewing-photo-facebook-web.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select**Only me** and click**Done** to save your changes.
 
@@ -131,6 +145,19 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
@@ -145,7 +172,27 @@ Close
 
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
 
@@ -163,14 +210,11 @@ Close
 
  Always remember that there are unscrupulous hackers and scammers who are looking for ways to take advantage of other people.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,6 +223,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-youtube-beauty-influencers-10-creators-to-watch/"><u>[Updated] 2024 Approved Essential YouTube Beauty Influencers 10 Creators to Watch</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-essential-screen-recording-software-a-comprehensive-analysis/"><u>[Updated] In 2024, Essential Screen Recording Software A Comprehensive Analysis</u></a></li>
+<li><a href="https://games-able.techidaily.com/budget-savvy-gamers-rejoice-240hz-monitor-deals/"><u>Budget-Savvy Gamers Rejoice: 240Hz Monitor Deals</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-the-ntdlldll-error-resolved-solutions-for-stability-issues-in-windows-11-and-10/"><u>Fixing the ntdll.dll Error: Resolved Solutions for Stability Issues in Windows 11 and 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-fb-access-with-2fa-mechanisms/"><u>Fortifying FB Access with 2FA Mechanisms</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-logitech-t630-support-software-for-windows-7-8-and-10-free/"><u>Get Logitech T630 Support Software for WINDOWS 7, 8 and 10 Free</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-long-is-the-validity-period-of-your-mailcom-email-address/"><u>How Long Is the Validity Period of Your mail.com Email Address?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unbanned-facebook-profile-section-reverberates-with-anti-vax-sentiments/"><u>Unbanned: Facebook Profile Section Reverberates with Anti-Vax Sentiments</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Exploring the Expat Community on FB – Pros, Cons Included
-date: 2024-09-13T21:50:02.204Z
-updated: 2024-09-16T23:55:31.036Z
+date: 2024-09-15T16:15:00.413Z
+updated: 2024-09-21T20:34:28.413Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,20 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
 ![Three women gathered around a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-alexander-suhorucov-6457552.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. You Might Get Crisis Advice
 
  Most of the time, people use expat groups to ask for advice. Expats like to share their experiences and offer recommendations, such as where people can get access to lawyers, where to find a locksmith, or how to file a police report.
@@ -57,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
  Expat groups may also provide you with information about accommodation, such as flats and housing laws. Many expats utilize the groups to let people know of potential changes in tenant laws. These can include things such as rent increases, legal loopholes, and your legal rights when it comes to reporting faults or shortages.
 
 ![Group of friends sitting on the steps](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-keira-burton-6147224.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Lost and Found Posts
 
@@ -74,27 +95,7 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
 ![Unhappy woman behind a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-andrea-piacquadio-3755755.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  This is especially important if you are seeking legal information. Apart from[being aware of Facebook scams](https://www.makeuseof.com/tag/recognise-understand-anatomy-successful-facebook-scam/) , here are a few things you should also expect to experience in an expat group:
-
-<!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Lots of Trolls
 
@@ -102,43 +103,30 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
  Whichever form it takes, be aware that expats can also spread negativity and hostility, especially if there are no anti-harassment policies in place.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. You Don't Get Expert Advice
 
 ![A woman holding a help sign at work](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/pexels-yan-krukov-7640764.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you are seeking some serious advice, it is best not to go and ask the expats. On the slim chance that you may actually get expert advice from the group, be aware that there are a lot of "experts" without the credentials to back up what they're saying.
 
  While they might mean well, getting expert advice on Facebook groups is not something that is advised. Especially because you don't know the people in these groups personally.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. You Might Get Unwanted Messages
 
  If you post in expat groups, there is a chance that people will also try and reach out to you via a private message. Sometimes, you may get messages from people you don't want to talk to. There are[privacy settings on Facebook that you should review](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) , especially if you are receiving unwanted messages.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. You Get Exposed to Scams
@@ -170,20 +158,14 @@ thumbnail: https://thmb.techidaily.com/1d8d4d66e7cc9a5877fb43968732d769c13ca22c3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-seamless-media-conversion-from-avis-to-striking-gif-images-via-filmora-software-windowsmacos/"><u>[New] Seamless Media Conversion From AVIs to Striking GIF Images via Filmora Software (Windows/macOS)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-pro-video-gear-the-ultimate-stabilizers-selection/"><u>[Updated] Pro Video Gear – The Ultimate Stabilizers Selection</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/2024-approved-top-10-robotic-voice-generators-with-comparison-table/"><u>2024 Approved Top 10 Robotic Voice Generators (with Comparison Table)</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-ties-with-giphy-on-the-line-could-they-be-cut/"><u>Facebook’s Ties with Giphy on the Line; Could They Be Cut?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-g42-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia G42 5G Phones with/without a PC</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-infinix-hot-40-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Infinix Hot 40 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-remove-your-virtual-history-on-facebook/"><u>How to Remove Your Virtual History on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-messenger-without-facebook/"><u>How to Use Messenger Without Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/interpreting-silence-from-message-participants/"><u>Interpreting Silence From Message Participants</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-wakes-up-trumps-social-media-history/"><u>Meta Wakes Up Trump's Social Media History</u></a></li>
-<li><a href="https://facebook.techidaily.com/sparkling-conversations-the-magic-of-soundmojis-on-messenger/"><u>Sparkling Conversations: The Magic of Soundmojis on Messenger</u></a></li>
-<li><a href="https://driver-install.techidaily.com/tailor-made-strategies-for-direct-driver-adjustments-in-xp/"><u>Tailor-Made Strategies for Direct Driver Adjustments in XP</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/the-complete-users-manual-on-durecorder/"><u>The Complete User’s Manual on DuRecorder</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-zte-nubia-z60-ultra-frp-bypass-by-drfone-android/"><u>Ultimate Guide from ZTE Nubia Z60 Ultra FRP Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-takes-on-new-it-policies-in-india/"><u>WhatsApp Takes On New IT Policies In India</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-capturing-live-streams-on-fb-top-techniques-revealed/"><u>[Updated] 2024 Approved Capturing Live Streams on FB Top Techniques Revealed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-preserving-your-snapshots-mobile-and-desktop-compatible/"><u>[Updated] In 2024, Preserving Your Snapshots Mobile & Desktop Compatible</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-xiaomi-redmi-note-12-5g-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Xiaomi Redmi Note 12 5G Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-logitech-drivers-for-windows-fast-and-simple/"><u>Download Logitech Drivers for Windows - Fast and Simple</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-oppo-k11-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-apple-iphone-11-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover Apple iPhone 11 Data From iOS iTunes? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinfo-in-pandemic-influencer-role-examined/"><u>Misinfo in Pandemic: Influencer Role Examined</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-your-high-definition-footage-and-pics-on-fb/"><u>Perfecting Your High-Definition Footage & Pics on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-feed-top-10-fb-app-tweaks-for-users/"><u>Streamline Your Feed: Top 10 FB App Tweaks for Users</u></a></li>
 </ul></div>
 

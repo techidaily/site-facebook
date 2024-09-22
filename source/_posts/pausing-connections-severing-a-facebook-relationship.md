@@ -1,7 +1,7 @@
 ---
 title: "Pausing Connections: Severing a Facebook Relationship"
-date: 2024-09-13T17:45:11.616Z
-updated: 2024-09-16T20:41:20.218Z
+date: 2024-09-19T19:43:32.083Z
+updated: 2024-09-21T18:34:40.427Z
 tags:
   - facebook
 categories:
@@ -104,32 +104,45 @@ Here, you'll find three options.
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
 
 ![Reversing you've chosen to see less of a person's post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/reversing-you-ve-chosen-to-see-less-of-a-person-s-post.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select**See X's profile anywhere on Facebook** and click on**Save** .
 
 ![See X's profile anywhere on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/see-x-s-profile-anywhere-on-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Click the back button in the top left corner of the Take a Break menu, and click**Edit** next to**Limit what X's profile will see.**
@@ -141,13 +154,6 @@ Here, you'll find three options.
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
@@ -168,17 +174,17 @@ Here, you'll find three options.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-digital-deception-steering-clear-from-buying-non-existent-followers/"><u>[New] 2024 Approved Digital Deception Steering Clear From Buying Non-Existent Followers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-expert-configuration-clock-integration-for-streaming-software/"><u>[New] Expert Configuration Clock Integration for Streaming Software</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-2024-approved-innovative-pfp-suggestions-to-differentiate-your-tiktok-presence/"><u>[Updated] 2024 Approved Innovative PFP Suggestions to Differentiate Your TikTok Presence</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-filmography-mastering-cinematic-shots-and-lighting/"><u>[Updated] 2024 Filmography Mastering Cinematic Shots and Lighting</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-uptime-understanding-and-tracking-status/"><u>Facebook Uptime: Understanding and Tracking Status</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-technology-firms-with-new-american-regulations/"><u>Future of Technology Firms with New American Regulations</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-apps-from-samsung-galaxy-f14-5g-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Apps from Samsung Galaxy F14 5G to Another | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-infinix-smart-7-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Infinix Smart 7 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/make-friends-start-conversations-crafting-an-avatar-themed-cover-for-facebook/"><u>Make Friends, Start Conversations: Crafting an Avatar-Themed Cover for Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-image-privacy-fb-photo-settings-guide/"><u>Mastering Image Privacy: FB Photo Settings Guide</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-text-in-motion-the-best-tracking-and-animation-tools/"><u>New 2024 Approved Text in Motion The Best Tracking and Animation Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-expert-methods-for-capturing-and-streaming-sports-gems-for-2024/"><u>[New] Expert Methods for Capturing and Streaming Sports Gems for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-lawful-ways-to-attain-a-million-followers-on-youtube/"><u>[Updated] 2024 Approved Lawful Ways to Attain a Million Followers on YouTube</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-total-movement-insights-2023/"><u>[Updated] Total Movement Insights 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-privacy-settings-for-a-sealed-fb-world/"><u>Enhance Privacy Settings for a Sealed FB World</u></a></li>
+<li><a href="https://facebook.techidaily.com/forward-into-unity-facebooks-pivot-to-meta-signals-change/"><u>Forward Into Unity: Facebook's Pivot to Meta Signals Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendship-reborn-or-reimagined-through-facebook/"><u>Friendship Reborn or Reimagined Through Facebook?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-beyond-the-basics-transformative-tactics-for-facebook-advertising/"><u>In 2024, Beyond the Basics Transformative Tactics for Facebook Advertising</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/restoring-system-integrity-on-mac-using-recovery-options/"><u>Restoring System Integrity on Mac Using Recovery Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essence-of-your-digital-footprint-profiles-vs-unames/"><u>The Essence of Your Digital Footprint: Profiles vs UNAMES</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-quintessential-quintet-leading-large-language-technology/"><u>The Quintessential Quintet: Leading Large Language Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-platforms-instagrams-synergy-with-facebook/"><u>Uniting Platforms: Instagram's Synergy with Facebook</u></a></li>
+<li><a href="https://blog-min.techidaily.com/windows-10-pcvob/"><u>Windows 10 PCでVOBファイル鑑賞ガイド - 安全かつ簡単な手順</u></a></li>
 </ul></div>
 

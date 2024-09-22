@@ -1,7 +1,7 @@
 ---
 title: Enhancing Safety Settings for Kids’ Profile in Messengers
-date: 2024-07-12T10:11:32.631Z
-updated: 2024-07-13T10:11:32.631Z
+date: 2024-09-15T19:00:57.128Z
+updated: 2024-09-21T16:40:28.452Z
 tags:
   - facebook
 categories:
@@ -49,6 +49,13 @@ Here's a look at the different fields you can add...
 
  Facebook allows you to do this both on the website or using the mobile app.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Changing Personal Information on Messenger Kids Via Smartphone
 
  You can change your child’s information on Messenger Kids using the Facebook app. Ensure that the account you use is connected to Messenger Kids.
@@ -60,6 +67,13 @@ Here's how to change the information through a smartphone:
 ![Open Facebook Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Facebook-Menu-1.jpg)
 
 ![Open Messenger Kids on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Open-Messenger-Kids-on-Facebook-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Parental Controls on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Parental-Controls-on-Messenger-Kids-1.jpg)
 
@@ -77,6 +91,13 @@ Close
 
 ### How to Change Your Kid's Profile Picture
 ![Change photo on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-photo-on-Messenger-Kids.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Choose photo from gallery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Choose-photo-from-gallery.jpg)
 
@@ -104,6 +125,13 @@ Close
 ### How to Change Pronouns
 ![Edit Messenger Kids account info](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Edit-Messenger-Kids-account-info-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Set pronouns on Messenger Kids](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Set-pronouns-on-Messenger-Kids.jpg)
 
 Close
@@ -128,6 +156,14 @@ Follow these steps:
 5. Select**Controls** to access a menu with all the relevant features. Thanks to [updates in Messenger Kids parental controls](https://www.makeuseof.com/tag/facebook-messenger-kids-parental-controls/) , only parents can open this menu.  
 ![Click on Messenger Kids controls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Click-on-Messenger-Kids-controls.jpg)
 6. From the menu, tap on**Edit Info** to open**Account Settings** . You can change the information like username, date of birth, and gender from here. The desktop version does not allow you to add/change pronouns.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Change account details](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Change-account-settings.jpg)  
  7\. Bring your cursor to the name area and change it accordingly. Remember, it is mandatory to have a first and surname.
 7. Similarly, update the date of birth and gender of your child.
@@ -143,14 +179,11 @@ Follow these steps:
 
  It is possible to perform this activity by using the Facebook app on a smartphone or desktop browser. We hope this step-by-step guide will help you make relevant changes to your kid's Messenger account as desired.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -159,6 +192,20 @@ Follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-simple-steps-making-your-channels-subscription-button-stand-out/"><u>[Updated] 2024 Approved Simple Steps Making Your Channel's Subscription Button Stand Out</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-survival-in-mc-top-house-ideas-and-plans-for-2024/"><u>[Updated] Survival in MC Top House Ideas & Plans for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-screencapture-guide-for-laptop-techies/"><u>[Updated] The Ultimate ScreenCapture Guide for Laptop Techies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/erclockwise-watch-how-to-unravel-your-youtube-sequence-for-2024/"><u>Counterclockwise Watch How to Unravel Your YouTube Sequence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-with-a-new-user-code-for-fb/"><u>Elevating Security with a New User Code for FB</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/1726028798202-gif/"><u>GIFをマスター: 動画化されたドットアート作成手引き</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-pro-without-passcode-by-drfone-ios/"><u>How to Unlock iPhone 12 Pro Without Passcode?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-guide-for-social-media-savvy-content-sharers/"><u>In 2024, Guide for Social Media Savvy Content Sharers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/resolve-to-speak-diverse-tongues-in-24/"><u>Resolve to Speak Diverse Tongues in '24</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-skyrim-forge-edition-launching-error-issues-easily/"><u>Resolving Skyrim Forge Edition Launching Error Issues Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-metamorphosis-from-facebook-to-meta/"><u>The Social Media Metamorphosis: From Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-undercover-messages-a-guide-to-fb-texts/"><u>Unlocking Undercover Messages: A Guide to FB Texts</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-big-techs-future-with-americas-strengthened-antitrust-approach/"><u>Unpacking Big Tech's Future with America's Strengthened Antitrust Approach</u></a></li>
+</ul></div>
 

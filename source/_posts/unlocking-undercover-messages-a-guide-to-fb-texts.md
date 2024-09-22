@@ -1,7 +1,7 @@
 ---
 title: "Unlocking Undercover Messages: A Guide to FB Texts"
-date: 2024-09-15T16:11:04.205Z
-updated: 2024-09-16T18:06:16.652Z
+date: 2024-09-15T17:50:11.753Z
+updated: 2024-09-21T22:44:45.831Z
 tags:
   - facebook
 categories:
@@ -64,11 +64,25 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Potential Connections: Legitimate Requests
 
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
 
  For both of these, opt to have new messages go to**Chats** (your main inbox),**Message requests** , or**Don’t receive requests** to block them.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Other People: Probably Spam
 
@@ -78,23 +92,9 @@ thumbnail: https://thmb.techidaily.com/a2ba2cec543d3cb7d73549581bf87f628b1caa22c
 
 ![01a Messenger Settings Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01a-Messenger-Settings-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -111,10 +111,10 @@ Close
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Block People on Facebook Messenger
@@ -126,16 +126,10 @@ Close
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Seek and Find Hidden Messages on Facebook Messenger
@@ -161,15 +155,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-selecting-the-best-screen-recorders-of-todays-market/"><u>[New] Selecting the Best Screen Recorders of Today's Market</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-a-full-exploration-of-speech-to-text-features-within-gdoc-for-2024/"><u>[Updated] A Full Exploration of Speech-to-Text Features Within GDoc for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-excellent-free-webcam-video-snapper-app/"><u>2024 Approved Excellent Free Webcam Video Snapper App</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/how-to-troubleshoot-when-call-of-duty-warzone-wont-open/"><u>How to Troubleshoot When Call of Duty Warzone Won't Open</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-mastering-clear-sound-recording-without-mic-techniques/"><u>In 2024, Mastering Clear Sound Recording Without Mic Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/reactivate-your-pcs-volume-effective-fixes-for-immediate-sound-restoration/"><u>Reactivate Your PC's Volume: Effective Fixes for Immediate Sound Restoration</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-that-boost-campaign-performance/"><u>Top 8 CrowdFlower Tools That Boost Campaign Performance</u></a></li>
-<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-fixing-full-screen-in-obs-journey-for-2024/"><u>[New] Fixing Full Screen in Obs Journey for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-today-to-tomorrow-the-drone-evolution-story/"><u>[New] From Today to Tomorrow The Drone Evolution Story</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-easily-capturing-iphone-screens-on-the-go/"><u>[Updated] 2024 Approved Easily Capturing iPhone Screens on the Go</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-master-2-screen-grab-tools/"><u>[Updated] In 2024, Master 2 Screen Grab Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/newsfeed-no-more-complicated-facebooks-revolutionary-upgrade/"><u>Newsfeed No More Complicated – Facebook's Revolutionary Upgrade</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/optimize-your-system-today-free-nvidia-geforce-driver-update-for-windows-1110/"><u>Optimize Your System Today: Free Nvidia GeForce Driver Update for Windows 11/10</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-privacy-settings-in-your-childs-facebook-messenger/"><u>Optimizing Privacy Settings in Your Child's Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/pairing-smartphones-with-home-entertainment/"><u>Pairing Smartphones with Home Entertainment</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pc-gaming-tips-how-to-stop-deathloop-from-stuttering-and-enhance-your-experience/"><u>PC Gaming Tips: How to Stop Deathloop From Stuttering and Enhance Your Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/stepwise-strategy-expedite-your-online-purchase-reimbursement-via-fb/"><u>Stepwise Strategy: Expedite Your Online Purchase Reimbursement via FB</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-ultimate-guide-to-asrocks-z79-1-lightning-wi-fi-features-review-a-surprising-blend-of-miniaturization-and-power/"><u>The Ultimate Guide to ASRock's Z79 1 Lightning Wi-Fi Features Review: A Surprising Blend of Miniaturization and Power</u></a></li>
 </ul></div>
 

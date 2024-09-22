@@ -1,7 +1,7 @@
 ---
 title: How to Find Old Posts on Your Facebook Timeline
-date: 2024-09-14T18:30:26.543Z
-updated: 2024-09-16T22:46:52.998Z
+date: 2024-09-20T21:05:44.399Z
+updated: 2024-09-21T16:37:30.763Z
 tags:
   - facebook
 categories:
@@ -69,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
  All the results that appear through this search are related to that specific timeline alone, offering a more focused approach. Note that you can directly search for the keyword with this method without typing "My Posts" or "John Doe Posts". The filters you get to refine the search are pretty much the same as you get in the first method.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Using Filters on the Timeline
@@ -80,19 +80,6 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
  Sometimes, you won't know what to search for to find a particular post. In such cases, the above two search methods might not help, and you'd be better off using the**Filters** on the timeline.
 
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
@@ -107,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
  Once on the Activity Log page, you'll find many options to pinpoint the lost post. On its home page, you can view things like**Videos You've Searched for** ,**Videos You've Watched** , and more. These posts can be pretty challenging to find through search, so using the Activity Log in such cases is better.
 
 ![Different options to find old posts through Facebook Activity Log](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/different-options-to-find-old-posts-through-facebook-activity-log.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  As you can see, a sidebar menu on the left lets you filter the log with**Your Activity Across Facebook** ,**Personal Information** ,**Connections** , and more. Each of these options has a bunch of sub-menus to refine the Activity Log further, but your posts are mostly under**Your Activity Across Facebook** . You can even search through your Activity Log if you still can't find the post you need.
 
@@ -135,18 +129,20 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-steps-to-disable-auto-recommended-podcasts-in-spotify/"><u>[New] In 2024, Steps to Disable Auto-Recommended Podcasts in Spotify</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-integrate-titles-and-descriptions-into-your-youtube-video/"><u>[Updated] How to Integrate Titles and Descriptions Into Your YouTube Video</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quieting-audio-fades-in-ableton-live/"><u>2024 Approved Quieting Audio Fades in Ableton Live</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-shape-individualistic-online-humorous-pieces/"><u>2024 Approved Shape Individualistic Online Humorous Pieces</u></a></li>
-<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-vivo-v30-drfone-by-drfone-virtual-android/"><u>In 2024, Why Your WhatsApp Location is Not Updating and How to Fix On Vivo V30 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastodon-a-new-era-of-discourse/"><u>Mastodon: A New Era of Discourse</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-backdoor-for-anti-immunization-advocates/"><u>Social Media's Backdoor for Anti-Immunization Advocates</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/tailoring-photos-with-photoshops-dynamic-motion-blur-feature/"><u>Tailoring Photos with Photoshop's Dynamic Motion Blur Feature</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-xs-max-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From iPhone XS Max You Should Try Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-intrusion-verifying-third-party-login-on-facebook/"><u>Uncover Intrusion: Verifying Third-Party Login on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-facebooks-inner-circle-with-dossiers-revealed/"><u>Unmasking Facebook’s Inner Circle with Dossiers Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-photo-display-tools-for-iphone-series-upgrades/"><u>Best Photo Display Tools For iPhone Series Upgrades</u></a></li>
+<li><a href="https://win-dash.techidaily.com/boost-your-gaming-experience-download-free-asrock-ab350-pro4-drivers-for-window-pcs-now/"><u>Boost Your Gaming Experience – Download Free ASRock AB350 Pro4 Drivers for Window PCs Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-pages-standards-ban-users-with-confidence/"><u>Fortifying Your Page's Standards: Ban Users with Confidence</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-vivo-v27-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Vivo V27 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-essential-skills-for-efficient-teamsnap-photo-taking/"><u>In 2024, Essential Skills for Efficient TeamSnap Photo Taking</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-kodi-streaming-a-complete-resource-for-all-your-questions-answered/"><u>Mastering Kodi Streaming: A Complete Resource for All Your Questions Answered</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-updated-feeds/"><u>Navigating Through Facebook's Updated Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-facebook-from-suggesting-connections/"><u>Prevent Facebook From Suggesting Connections</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-vivo-y17s-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Vivo Y17s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-under-scrutiny-but-facebook-sees-worst-impact/"><u>Tech Titans Under Scrutiny, but Facebook Sees Worst Impact</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-test-asus-rog-rapture-gt-ax11000-for-gamers-experience-pinnacle-speed-and-features/"><u>Ultimate Test: Asus ROG Rapture GT-AX11000 for Gamers - Experience Pinnacle Speed & Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-top-4-business-meta-analytical-tools/"><u>Unlock Potential: Top 4 Business Meta Analytical Tools</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/videography-virtuoso-glowing-reviews-cited/"><u>Videography Virtuoso - Glowing Reviews Cited</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Samsung Galaxy A24? | Dr.fone</u></a></li>
 </ul></div>
 

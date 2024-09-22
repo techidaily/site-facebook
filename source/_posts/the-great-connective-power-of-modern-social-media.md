@@ -1,7 +1,7 @@
 ---
 title: The Great Connective Power of Modern Social Media
-date: 2024-07-12T10:12:11.208Z
-updated: 2024-07-13T10:12:11.208Z
+date: 2024-09-16T16:44:13.954Z
+updated: 2024-09-21T20:37:03.349Z
 tags:
   - facebook
 categories:
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 ## 4\. Social Media Makes the World Seem Smaller
 ![inflatable globe](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/inflatable-globe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Steve Cadman/[Flickr](https://www.flickr.com/photos/stevecadman/134974908/)
 
  It isn't just your inner circle of close friends and even closer family members that social networking sites allow you to communicate with easily and effectively. One of the good things about social media is its power to open the world up to you, making it a smaller place than it has ever been before.
@@ -76,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 ## 5\. Social Media Helps You Build Relationships
 ![couple holding hands](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/04/relationship-goals.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Katie Tegtmeyer/[Flickr](https://www.flickr.com/photos/katietegtmeyer/124315323/)
 
  There is no doubting that having social networking in our lives can lead to relationships breaking up. But there is another side to the story, which is that people are moving onto other, perhaps better, relationships.
@@ -88,6 +102,13 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
 ## 6\. Social Media Helps News Travel Faster
 ![metal news signs for sale](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/metal-news-sculpture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Gerard Stolk/[Flickr](https://www.flickr.com/photos/gerardstolk/9963870824/)
 
@@ -118,14 +139,11 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
 
  As with most things in life, there are positive and negative things about social networking and the sites that facilitate it. But social isn't inherently good or bad for society. It's capable of having a positive impact on society in the ways outlined above. It all comes down to users and the way they use social media.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,6 +152,23 @@ thumbnail: https://thmb.techidaily.com/06e8346e5608d987194209ad6987c897b2a9a9792
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/updated-a-beginners-guide-the-essentials-of-using-tiktok-macos/"><u>[Updated] A Beginner's Guide The Essentials of Using TikTok (macOS)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gear-for-capturing-journeys-on-camera/"><u>2024 Approved Gear for Capturing Journeys on Camera</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-apple-iphone-12-mini-fix-now-drfone-by-drfone-virtual-ios/"><u>3uTools Virtual Location Not Working On Apple iPhone 12 mini? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/encode-your-digital-memories-on-facebook/"><u>Encode Your Digital Memories on Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-poco-c50-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Poco C50 Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-tecno-camon-20-pro-5g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Tecno Camon 20 Pro 5G Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-era-musicians-income-on-facebook-platform/"><u>Navigating the New Era: Musicians' Income on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-for-change-how-facebook-plans-to-modify-news-sphere/"><u>Platform for Change: How Facebook Plans to Modify News Sphere</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-windows-11-audio-issues-a-step-by-step-guide/"><u>Resolving Windows 11 Audio Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-facebooks-upcoming-identity-change/"><u>Sneak Peek at Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-streaming-disneyplus-on-your-tv-using-chromecast/"><u>Step-by-Step Guide: Streaming Disney+ on Your TV Using Chromecast</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-tips-to-enhance-your-social-media-life-using-fb-app/"><u>Top 10 Tips to Enhance Your Social Media Life Using FB App</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-5-essential-factors-to-evaluate-when-choosing-a-smartwatch/"><u>Top 5 Essential Factors To Evaluate When Choosing A Smartwatch</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-the-path-of-googles-seminal-announcements/"><u>Tracing the Path of Google's Seminal Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-potential-posts-for-every-group-on-facebook/"><u>Unlock the Potential: Posts for Every Group on Facebook</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/winx-dvd-converter-gratuit-transformation-de-dvd-vers-mp4avi-pour-iphone-et-android/"><u>WinX DVD Converter Gratuit : Transformation De DVD Vers MP4/AVI Pour iPhone Et Android</u></a></li>
+</ul></div>
 

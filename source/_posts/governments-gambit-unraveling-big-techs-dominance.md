@@ -1,7 +1,7 @@
 ---
 title: "Government's Gambit: Unraveling Big Tech's Dominance"
-date: 2024-09-15T17:16:55.539Z
-updated: 2024-09-16T21:20:54.416Z
+date: 2024-09-15T19:36:14.293Z
+updated: 2024-09-21T20:10:47.214Z
 tags:
   - facebook
 categories:
@@ -52,19 +52,6 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
  On the other hand, data collection generally enables more personalized services. People are more likely to see search results relevant to the things that matter to them.
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
@@ -74,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
  A[Global Witness investigation](https://www.globalwitness.org/en/campaigns/digital-threats/tiktok-and-facebook-fail-detect-election-disinformation-us-while-youtube-succeeds/) showed such advertisements are a worldwide problem. The organization created experimental ads filled with hate speech and election misinformation about other countries’ political processes. All passed Facebook’s ad controls in the four countries showing them. Ads also nurtured people’s interest in COVID-19 “cures” and helped the anti-vaccine movement flourish.
 
  Ad-targeting isn’t all bad, though, provided there’s accurate content. If someone searches for all-natural house cleaning products on Google, they’ll usually see ads related to those items, which could assist people with their purchases. Similarly, Google and Apple collect information about how customers use their smart assistant services to increase future accuracy.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Big Tech Limits the Market Access of Smaller Companies
 
@@ -89,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
@@ -96,10 +97,10 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
  Furthermore, there are ways that you can[help smaller businesses but still enjoy the convenience of Amazon](https://www.makeuseof.com/help-small-businesses-using-amazon/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Big Tech Can Impact Government Decisions and Operations
@@ -113,19 +114,6 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
  An[investigation from The Intercept](https://theintercept.com/2021/02/27/india-climate-activists-twitter-google-facebook/) suggests Big Tech companies aided the Indian government in targeting climate activists and curbing information access. People argue inaction in regulating Big Tech could limit expression and content distribution while putting citizens at risk.
 
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 
@@ -141,18 +129,18 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
 
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
 
@@ -177,19 +165,16 @@ thumbnail: https://thmb.techidaily.com/ff0b61be790a55820d60db4c7ad60b6e5b6b95574
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-elevating-movie-visuals-applying-cg-centrals-luts-techniques/"><u>[Updated] Elevating Movie Visuals Applying CG Central's Luts Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/enhance-fb-story-visibility-with-these-tips/"><u>Enhance FB Story Visibility with These Tips</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-vivo-y27-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Vivo Y27 5G? Try These Fixes</u></a></li>
-<li><a href="https://win-able.techidaily.com/game-on-without-interruptions-fixes-for-cod-warzone-pacific-disconnects/"><u>Game On Without Interruptions: Fixes for Cod: Warzone Pacific Disconnects</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-tecno-spark-20c-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Tecno Spark 20C Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-skip-two-step-verification-for-fb-post-device-loss/"><u>How to Skip Two-Step Verification for Fb Post Device Loss</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-itel-s23-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Itel S23 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-learn-the-solution-to-instagram-video-issues/"><u>In 2024, Learn the Solution to Instagram Video Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-new-identities-facebook-name-update-guide/"><u>Mastering New Identities: Facebook Name Update Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-privacy-for-group-posters-without-identifiers/"><u>Securing Privacy for Group Posters without Identifiers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-virtual-village-negative-effects-on-our-digital-town/"><u>The Virtual Village: Negative Effects on Our Digital Town</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/time-bending-techniques-in-final-cut-pro-x/"><u>Time-Bending Techniques in Final Cut Pro X</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-google-pixel-8-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Google Pixel 8 FRP Bypass</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-monopoly-myths-of-big-technology-giants/"><u>Unraveling the Monopoly Myths of Big Technology Giants</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-enhancing-video-impact-interpreting-youtube-metrics-wisely-for-2024/"><u>[New] Enhancing Video Impact Interpreting YouTube Metrics Wisely for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-step-by-step-live-tweeting-tactics-for-2024/"><u>[New] Step-by-Step Live Tweeting Tactics for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-masterful-audio-selection-optimal-mics-for-intense-4k-shooting/"><u>[Updated] Masterful Audio Selection Optimal Mics for Intense 4K Shooting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-snap-into-the-loop-mastering-boomerangs-for-max-impact-for-2024/"><u>[Updated] Snap Into the Loop Mastering Boomerangs for Max Impact for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-lockdown-unraveling-your-suspended-status/"><u>Facebook Lockdown: Unraveling Your Suspended Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-prototype-with-dual-camera-enabled-watch/"><u>Facebook Unveils Prototype with Dual Camera-Enabled Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/honoring-the-departed-online-facebook-profile-management-after-death/"><u>Honoring the Departed Online: Facebook Profile Management After Death</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-oppo-find-n3-flip-screen-sharing-drfone-by-drfone-android/"><u>How To Do Oppo Find N3 Flip Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-essential-chromes-leading-fb-video-grabs/"><u>In 2024, Essential Chromes Leading FB Video Grabs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-podcast-mastery-top-10-ai-driven-name-creation-tools/"><u>In 2024, Podcast Mastery Top 10 AI-Driven Name Creation Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-savvy-cultivating-work-relationships-on-fb/"><u>Social Media Savvy: Cultivating Work Relationships on FB</u></a></li>
 </ul></div>
 

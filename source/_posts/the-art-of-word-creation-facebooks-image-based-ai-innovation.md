@@ -1,7 +1,7 @@
 ---
 title: "The Art of Word Creation: Facebook's Image-Based AI Innovation"
-date: 2024-07-12T10:13:09.330Z
-updated: 2024-07-13T10:13:09.330Z
+date: 2024-09-18T18:24:06.889Z
+updated: 2024-09-22T00:30:57.103Z
 tags:
   - facebook
 categories:
@@ -47,14 +47,11 @@ thumbnail: https://thmb.techidaily.com/1285640821abadae64475db5187a42bfa0d643a29
 
  If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -63,6 +60,35 @@ thumbnail: https://thmb.techidaily.com/1285640821abadae64475db5187a42bfa0d643a29
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-maximizing-your-time-best-ways-to-follow-facebook-live/"><u>[New] In 2024, Maximizing Your Time Best Ways to Follow Facebook Live</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-rewind-and-play-instagrams-backwards-videos-unveiled/"><u>[Updated] 2024 Approved Rewind and Play Instagram's Backwards Videos Unveiled</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-masterclass-reclaiming-personal-eyes-only-images-for-2024/"><u>[Updated] Masterclass Reclaiming Personal Eyes-Only Images for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-solutions-for-resolving-logitech-preferences-malfunction-in-windows-environment/"><u>Effective Solutions for Resolving Logitech Preferences Malfunction in Windows Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-clarifies-laugh-worthy-limits/"><u>Facebook Clarifies Laugh-Worthy Limits</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-moto-g84-5g-frp-by-drfone-android/"><u>How Can We Bypass Motorola Moto G84 5G FRP?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-streamlining-gameplay-logs-for-social-media-sharing/"><u>In 2024, Streamlining Gameplay Logs for Social Media Sharing</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-samsung-galaxy-s24-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Samsung Galaxy S24</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-the-comctl32dll-error-a-step-by-step-guide/"><u>Resolving the 'Comctl32.dll' Error: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-giants-face-public-doubt-focus-on-facebook/"><u>Tech Giants Face Public Doubt: Focus on Facebook</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-best-free-video-editing-software-imovie-alternatives-for-2024/"><u>Updated Best Free Video Editing Software IMovie Alternatives for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-does-fbcta-mean-for-you-online/"><u>What Does FBCTA Mean for You Online?</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

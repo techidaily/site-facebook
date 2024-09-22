@@ -1,0 +1,93 @@
+---
+title: "From Silhouette to Style: The Artificial Intelligence Behind Images and Words"
+date: 2024-09-16T01:18:21.784Z
+updated: 2024-09-21T17:34:25.025Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes From Silhouette to Style: The Artificial Intelligence Behind Images and Words"
+excerpt: "This Article Describes From Silhouette to Style: The Artificial Intelligence Behind Images and Words"
+keywords: AI Image Creation,Stylish AI Designs,AI-Driven Content,Artificial Intelligence in Photography,Style Through AI,AI Visualization Techniques,Words & Images AI Interaction
+thumbnail: https://thmb.techidaily.com/bfe527075b76486c457bb40593f28ebdf4420fa39a7d079da9e7faa5dde71ba1.jpg
+---
+
+## From Silhouette to Style: The Artificial Intelligence Behind Images and Words
+
+ The concept of deepfakes scares a lot of people. Most of the time, when these AI-powered projects gain widespread attention, it's because they were used unethically.
+
+ From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## What Is TextStyleBrush?
+
+ Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
+
+ The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
+
+![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+ Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
+
+ Facebook explained the TextStyleBrush model works similar to the way style brush tools work in word processors, but for text aesthetics in images:
+
+> It surpasses state-of-the-art accuracy in both automated tests and user studies for any type of text. (...) We take a more holistic training approach and disentangle the content of a text image from all aspects of its appearance of the entire word box. The representation of the overall appearance can then be applied as one-shot-transfer without retraining on the novel source style samples.
+
+ If you want a more technical breakdown of TextStyleBrush's functions, you can read the full-length article on Facebook's[AI blog](https://ai.facebook.com/blog/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word) .
+
+ The Google Translate mobile app has a function similar to Facebook's new AI in that it also replaces text, but it aims to solve a different problem. Just like its name would suggest, it instead translates text into a language of your choosing.
+
+ Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
+
+## Faces Aren't the Only Thing That Can Be Deepfaked
+
+ We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
+
+ The tech world frequently talks about how concerning deepfake faces are, but doesn't discuss often enough how it's possible now to also use tech to create convincing fakes of handwriting, signage, etc.
+
+ If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-bringing-sketches-to-life-foremost-ipados-apps/"><u>[New] Bringing Sketches to Life Foremost iPadOS Apps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-click-magic-secrets-to-stunning-polished-pics/"><u>[New] Click Magic Secrets to Stunning, Polished Pics</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-elevating-your-facebook-footprint-the-top-20-strategies-for-successful-videos-for-2024/"><u>[Updated] Elevating Your Facebook Footprint The Top 20 Strategies for Successful Videos for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-iphone-silhouette-photography-tips/"><u>[Updated] IPhone Silhouette Photography Tips</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-infinix-smart-7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-change-methodically-updating-your-facebook-handle/"><u>Embracing Change: Methodically Updating Your Facebook Handle</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-old-labels-to-new-beginnings-your-complete-guide-to-facebook-name-modification/"><u>From Old Labels to New Beginnings: Your Complete Guide to Facebook Name Modification</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harnessing-the-power-of-fisheye-photography-for-2024/"><u>Harnessing the Power of Fisheye Photography for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-find-x7-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Find X7</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723204655221-monitors-unseen-solutions-abound/"><u>Monitors Unseen, Solutions Abound!</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-hidden-landscape-of-digital-interactions/"><u>Navigating the Hidden Landscape of Digital Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-implications-of-integrating-meta-ai-into-instagramfacebook/"><u>The Implications of Integrating Meta AI Into Instagram/Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-on-dark-theme-in-facebook-settings/"><u>Turn On Dark Theme in Facebook Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-dread-in-the-facebook-virtual-world/"><u>Understanding Dread in the Facebook Virtual World</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangle-issues-keeping-facebook-unavailable/"><u>Untangle Issues Keeping Facebook Unavailable</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

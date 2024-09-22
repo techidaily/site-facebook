@@ -1,7 +1,7 @@
 ---
 title: Social Cues and Invisible Rules in Facebook Friending
-date: 2024-09-14T18:58:51.297Z
-updated: 2024-09-16T16:35:50.525Z
+date: 2024-09-14T17:37:33.600Z
+updated: 2024-09-21T21:49:37.683Z
 tags:
   - facebook
 categories:
@@ -70,16 +70,16 @@ thumbnail: https://thmb.techidaily.com/fd844f53885e2c32c9ef30bfaf7233832cc28d581
 
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Unwritten Facebook Friend Request Rules
 
  Now that you understand the basics of how to add friends on Facebook, let's review some finer details of managing Facebook friend requests.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Only Add People You Know
 
@@ -94,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/fd844f53885e2c32c9ef30bfaf7233832cc28d581
 * Send your desired contact a message introducing yourself before you add them.
 
  In other words: don't look like a fake account, don't add random strangers, and don't be a stranger yourself.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Add Friends Conservatively
 
@@ -114,13 +121,6 @@ thumbnail: https://thmb.techidaily.com/fd844f53885e2c32c9ef30bfaf7233832cc28d581
  Use the first option to report fake accounts, strangers, or people who harass you.
 
 ![Report an unwelcome friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Report-Friend-Request.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Keep in mind that if you do this, the person may be penalized.
 
@@ -147,10 +147,10 @@ Keep in mind that if you do this, the person may be penalized.
 ![Facebook friend request settings in the Privacy section.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friend-Request-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Hide Your Friends List
@@ -163,6 +163,13 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Choose who can see your Facebook friends list.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-List-Visibility.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You can also access all friends-related settings from your (existing) Facebook friends page. From your profile page, click**See all friends** , then click the**three-dot menu** next to Find Friends and choose**Edit Privacy** .
 
 ![Edit your Facebook friends privacy.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-Edit-Privacy.jpg)
@@ -170,19 +177,6 @@ Keep in mind that if you do this, the person may be penalized.
 ## Why Can't I Friend Someone on Facebook?
 
  If you can't seem to friend someone on Facebook, here are the most likely reasons...
-
-<!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. You Sent an Unsuccessful Friend Request
 
@@ -192,16 +186,16 @@ Keep in mind that if you do this, the person may be penalized.
 
  If your request is still pending, you could send your friend-to-be a message and ask them to approve your request.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. You Blocked the Other Person
 
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. They Don't Permit Friend Requests From Strangers
 
@@ -242,18 +236,17 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-probing-financial-depths-an-analysis-of-mr-beasts-wealth/"><u>[Updated] Probing Financial Depths An Analysis of Mr. Beast's Wealth</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-everlasting-screen-saving-utility/"><u>2024 Approved Everlasting Screen Saving Utility</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-sound-capture-module-for-iphone-24-year/"><u>2024 Approved Sound Capture Module for iPhone '24 Year</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-detective-blind-spots-an-urgent-warning/"><u>AI's Detective Blind Spots: An Urgent Warning</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-the-affordable-asus-chromebook-flip-c302ca-is-a-game-changer-for-budget-tech-enthusiasts/"><u>Discover Why the Affordable Asus Chromebook Flip C302CA Is a Game-Changer for Budget Tech Enthusiasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/fake-friend-alerts-on-facebook/"><u>Fake Friend Alerts on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-reset-your-social-media-browsing-history/"><u>How to Reset Your Social Media Browsing History</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-nokia-c02-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Nokia C02 Fingerprint Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintain-anonymity-no-more-public-likes-on-social-sites/"><u>Maintain Anonymity: No More Public Likes on Social Sites</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-the-unstoppable-social-giant/"><u>Meta: The Unstoppable Social Giant</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-user-choice-top-free-streaming-sites-for-sports/"><u>New 2024 Approved User Choice Top Free Streaming Sites for Sports</u></a></li>
-<li><a href="https://facebook.techidaily.com/setting-up-portals-for-seamless-video-chats/"><u>Setting Up Portals for Seamless Video Chats</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-effects-of-filtering-on-consumers/"><u>Unveiling the Effects of Filtering on Consumers</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-5-best-webcams-for-gaming/"><u>[New] In 2024, 5 Best Webcams for Gaming</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-oneplus-ace-2-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from OnePlus Ace 2 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://win-popular.techidaily.com/exploring-the-fresh-enhancements-in-windows-11-with-the-recent-update-rollout-insights-from-zdnet/"><u>Exploring the Fresh Enhancements in Windows 11 with the Recent Update Rollout - Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
+<li><a href="https://apple-account.techidaily.com/icloud-separation-how-to-disconnect-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>iCloud Separation How To Disconnect Apple iPhone 11 Pro Max and iPad</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-elevate-your-online-engagements-the-ultimate-guide-to-slack-and-filmora/"><u>In 2024, Elevate Your Online Engagements The Ultimate Guide to Slack & Filmora</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-erasing-footprints-on-facebook-timeline/"><u>Mastering the Art: Erasing Footprints on Facebook Timeline</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-endless-fun-top-10-free-online-video-loop-generators/"><u>New In 2024, Endless Fun Top 10 Free Online Video Loop Generators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/reimagining-game-logging-with-no-fbx-technology/"><u>Reimagining Game Logging with No-FBX Technology</u></a></li>
+<li><a href="https://os-tips.techidaily.com/secure-your-iphones-essential-information-learn-how-to-backup-with-itunes/"><u>Secure Your iPhone's Essential Information: Learn How to Backup with iTunes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-forging-facebook-identities/"><u>The Art of Forging Facebook Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-sign-up-for-meta-verified-in-the-us/"><u>You Can Now Sign Up for Meta Verified in the US</u></a></li>
 </ul></div>
 

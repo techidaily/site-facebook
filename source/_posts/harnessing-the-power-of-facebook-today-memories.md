@@ -1,7 +1,7 @@
 ---
 title: Harnessing the Power of Facebook Today Memories
-date: 2024-07-12T10:10:44.948Z
-updated: 2024-07-13T10:10:44.948Z
+date: 2024-09-18T19:30:21.611Z
+updated: 2024-09-21T22:57:16.006Z
 tags:
   - facebook
 categories:
@@ -81,6 +81,19 @@ To access your saved memories:
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can [download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
@@ -105,7 +118,21 @@ Close
 
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
 
@@ -116,6 +143,13 @@ Close
  You can also pick only the important memories. Tap**Highlights** if you wish to get notified about the special posts and events. For instance, your birthday or a special event with your friends.
 
  Select**None** if you do not want to use the On This Day feature of Facebook. You will not be notified about your memories in that case.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Hide Memories
 
@@ -129,14 +163,11 @@ Close
 
  Users can effectively use the feature to share and save media. You can customize Facebook’s On This Day feature and only access memories of choice. We hope you will be able to manage your On This Day memories in a much better and more convenient way.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,6 +176,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-boost-traffic-critical-youtube-seo-instruments-for-video-success-for-2024/"><u>[New] Boost Traffic Critical YouTube SEO Instruments for Video Success for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-dominant-alternatives-to-game-bars-recorder-functionality-for-2024/"><u>[Updated] Dominant Alternatives to Game Bar's Recorder Functionality for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-minecraft-survival-shelter-mastery/"><u>[Updated] In 2024, Minecraft Survival Shelter Mastery</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-scripting-space-and-time-manipulation-for-movies/"><u>2024 Approved Scripting Space & Time Manipulation for Movies</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-insights-on-computer-components-by-toms-electronics-hub/"><u>Expert Insights on Computer Components by Tom's Electronics Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-ray-ban-stories-what-are-they-and-how-much-do-they-cost/"><u>Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-poco-m6-pro-5g-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Poco M6 Pro 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filter-bubble-bill-a-closer-look/"><u>The Filter Bubble Bill: A Closer Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-top-social-app/"><u>Unveiling the Top Social App</u></a></li>
+</ul></div>
 

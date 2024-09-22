@@ -1,7 +1,7 @@
 ---
 title: "Revised Tips: Youngsters Advised Against Insta Use"
-date: 2024-07-12T10:11:57.203Z
-updated: 2024-07-13T10:11:57.203Z
+date: 2024-09-18T20:18:54.701Z
+updated: 2024-09-21T17:27:05.879Z
 tags:
   - facebook
 categories:
@@ -55,6 +55,19 @@ Here's how Clegg explained it:
 
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
 
  While Facebook is doing something to help reduce the harm it allegedly causes children on its platforms, these new measures fall short of making a real impact.
@@ -65,14 +78,11 @@ Here's how Clegg explained it:
 
  For instance, since Facebook is aware of what type of content is potentially harmful, it should work on not showing that content to children in the first place, instead of intervening after it has been viewed multiple times.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -81,6 +91,23 @@ Here's how Clegg explained it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-capturing-your-macs-display-live-easy-steps-included-for-2024/"><u>[Updated] Capturing Your Mac's Display Live - Easy Steps Included for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-detailed-breakdown-complete-test-of-gecata-tracker/"><u>[Updated] Detailed Breakdown Complete Test of Gecata Tracker</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-ultimate-zooid-design-starter-packs/"><u>[Updated] Ultimate Zooid Design Starter Packs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-boosting-zoom-screen-sharpness-essential-tips/"><u>2024 Approved Boosting Zoom Screen Sharpness Essential Tips</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/automated-user-tracking-with-cookiebot-enhancing-your-websites-analytics/"><u>Automated User Tracking with Cookiebot: Enhancing Your Website's Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-posting-to-purchasing-could-a-social-media-platform-open-shops/"><u>From Posting to Purchasing: Could a Social Media Platform Open Shops?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-a23-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy A23 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovative-ways-to-enhance-tech-gadgets-at-home-using-3d-printing-top-10-accessories-for-smartphones-and-computers/"><u>Innovative Ways to Enhance Tech Gadgets at Home Using 3D Printing – Top 10 Accessories for Smartphones & Computers</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/laptop-screenshots-fix-stopped-inconsistent-flashing/"><u>Laptop Screenshots Fix: Stopped Inconsistent Flashing</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-privacy-vs-convenience-with-social-app-sign-ins-via-facebook/"><u>Navigating Network Privacy vs Convenience with Social App Sign-Ins via Facebook</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/recon-70-headset-repair-fixing-your-turtle-beach-microphone-issues/"><u>Recon 70 Headset Repair: Fixing Your Turtle Beach Microphone Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-erase-your-facebook-share/"><u>Step-by-Step Guide: Erase Your Facebook Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
+<li><a href="https://facebook.techidaily.com/tectonic-shifts-ahead-us-antitrust-laws-role-in-controlling-tech-titans/"><u>Tectonic Shifts Ahead: U.S. Antitrust Law's Role in Controlling Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-game-for-facebook-post-ios-145-release/"><u>The New Game for Facebook Post-iOS 14.5 Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-online-presence-under-review/"><u>Trumps Online Presence Under Review</u></a></li>
+</ul></div>
 

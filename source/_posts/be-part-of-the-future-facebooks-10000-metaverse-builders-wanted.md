@@ -1,7 +1,7 @@
 ---
 title: "Be Part of the Future: Facebook's 10,000 Metaverse Builders Wanted!"
-date: 2024-07-12T10:13:29.770Z
-updated: 2024-07-13T10:13:29.770Z
+date: 2024-09-15T20:19:16.260Z
+updated: 2024-09-21T22:26:12.130Z
 tags:
   - facebook
 categories:
@@ -57,20 +57,24 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
 
  And lots more besides. The chances are that there are going to be opportunities for non-tech roles too. So, if you're located in the EU and would love to work for Facebook, this might just be your chance.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Your Chance to Become Part of Facebook's Metaverse
 
  The metaverse is coming and Facebook wants to lead the way. And in order to help it build the metaverse, it's looking for 10,000 people across the EU to help take virtual reality and augmented reality mainstream by building a metaverse that will connect people around the world in a new way.
 
  While many of these jobs are going to be tech-related, there will also be opportunities in non-tech roles too. If working for Facebook sounds like the kind of thing that would interest you, now might be a good time to brush up on your VR/AR skills.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,6 +83,19 @@ thumbnail: https://thmb.techidaily.com/5ed909f597267ef924f41dbe3db988e7da363a5d5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-next-generation-virtual-collaboration-tools-post-zoom-era-for-2024/"><u>[New] Next Generation Virtual Collaboration Tools, Post-Zoom Era for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-comparing-magix-audio-tools/"><u>[Updated] Comparing MAGIX Audio Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>[Updated] Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-profit-driven-tactics-for-successful-snapchat-brands/"><u>2024 Approved Profit-Driven Tactics for Successful Snapchat Brands</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-art-of-initiating-your-youtube-content-compellingly/"><u>2024 Approved The Art of Initiating Your YouTube Content Compellingly</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-channels-make-it-easier-to-connect-in-facebook-groups/"><u>How Channels Make It Easier to Connect in Facebook Groups</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-formulating-a-thrilling-film-outtakes-package/"><u>In 2024, Formulating a Thrilling Film Outtakes Package</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-profile-in-depth-facebook-safety-tips/"><u>Protecting Your Profile: In-Depth Facebook Safety Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-for-dissolving-a-facebook-circle/"><u>Quick Tips for Dissolving a Facebook Circle</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-oppo-reno-11-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-help.techidaily.com/top-8-strategies-to-resolve-obs-encoder-overload-issues-updated-guide-2024/"><u>Top 8 Strategies to Resolve OBS Encoder Overload Issues (Updated Guide 2024)</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722993515097-tower-of-fantasy-pc-game-persistently-fails-find-out-why/"><u>Tower of Fantasy PC Game Persistently Fails – Find Out Why</u></a></li>
+</ul></div>
 

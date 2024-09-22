@@ -1,7 +1,7 @@
 ---
 title: Investing in Your Segment of the $725 Million Facebook Payout
-date: 2024-07-12T10:13:54.114Z
-updated: 2024-07-13T10:13:54.114Z
+date: 2024-09-17T22:08:14.066Z
+updated: 2024-09-22T00:21:11.225Z
 tags:
   - facebook
 categories:
@@ -60,20 +60,30 @@ thumbnail: https://thmb.techidaily.com/ec661044f40b96dbce0a66b5f469594edc1639062
 
  This final number will determine the monetary value for each point. The monetary value will then be multiplied by the number of points assigned to each user filing a claim, determining each individual user’s entitled compensation. For example, if one point is worth $1 and you didn't deactivate your Facebook account for the entire 15.5-year timeframe of the lawsuit, you would receive $186.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook May Owe You, but Don’t Expect Life Changing Cash
 
  The class-action lawsuit against Facebook is major, but don't expect to be swimming in an underground vault filled to the brim with gold coins like Scrooge McDuck if you're awarded a cash settlement. Still, you should submit a claim.
 
  Because let's be real about what happened. If you live in the US, chances are, Facebook unethically and irresponsibly leaked your data to third-parties without your consent. That's wrong —and you shouldn't feel complacent about your misused data in the biggest social media leak in history. Roll the proverbial dice, and see what you get.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -82,6 +92,14 @@ thumbnail: https://thmb.techidaily.com/ec661044f40b96dbce0a66b5f469594edc1639062
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/how-does-discarding-facial-id-influence-user-safety-a-facebook-study/"><u>How Does Discarding Facial ID Influence User Safety? A Facebook Study</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-codec-rivalry-assessing-the-next-step-in-video-encoding/"><u>In 2024, Codec Rivalry Assessing the Next Step in Video Encoding</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-power-packed-film-titles-for-inner-growth-and-strength/"><u>In 2024, Power-Packed Film Titles for Inner Growth & Strength</u></a></li>
+<li><a href="https://extra-support.techidaily.com/iphones-audio-advantages-for-podcast-lovers-for-2024/"><u>IPhone's Audio Advantages for Podcast Lovers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-periods-for-digital-content-sharing/"><u>Optimal Periods for Digital Content Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-interplay-of-real-names-and-screen-names-on-social-media/"><u>The Interplay of Real Names & Screen Names on Social Media</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-avi-editor-for-windows-8-easily-edit-avi-files-on-pc/"><u>Updated AVI Editor for Windows 8 Easily Edit AVI Files on PC</u></a></li>
+</ul></div>
 

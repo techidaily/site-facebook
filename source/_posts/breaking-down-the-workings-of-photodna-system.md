@@ -1,7 +1,7 @@
 ---
 title: Breaking Down the Workings of PhotoDNA System
-date: 2024-07-12T10:12:32.639Z
-updated: 2024-07-13T10:12:32.639Z
+date: 2024-09-19T20:57:22.427Z
+updated: 2024-09-21T20:13:04.657Z
 tags:
   - facebook
 categories:
@@ -67,11 +67,25 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
 
  This will likely be a lot higher now as more people have joined the service, the company operates multiple networks (including Instagram and WhatsApp), and we have easier access to smartphone cameras and reliable internet. Given its role in society, Facebook must reduce and remove CSAM and other illegal material.
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Does PhotoDNA Make the Internet Safer?
 
@@ -81,14 +95,11 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,6 +108,21 @@ thumbnail: https://thmb.techidaily.com/e2b3e6d5f3444ca9eb9fe2e05133bcedc239a2116
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-first-steps-in-telegram-marketing-an-initiation-handbook-for-2024/"><u>[New] First Steps in Telegram Marketing An Initiation Handbook for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-apocalypse-playground-8-best-zombie-game-experiences/"><u>[Updated] The Apocalypse Playground 8 Best Zombie Game Experiences</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-achieving-a-natural-sound-curve-dimming-audio-smoothly/"><u>2024 Approved Achieving a Natural Sound Curve Dimming Audio Smoothly</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-premium-tvs-for-ps5-and-xbox-series-x-gamers-dreams/"><u>2024 Approved Premium TVs for PS5 & Xbox Series X Gamers' Dreams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-a-strong-introduction-url-for-2024/"><u>Crafting a Strong Introduction URL for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/crafting-compelling-movie-previews-for-2024/"><u>Crafting Compelling Movie Previews for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/effective-strategies-for-getting-your-email-list-onto-whoissafe/"><u>Effective Strategies for Getting Your Email List Onto WhoisSafe</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-media-impact-uploading-hd-to-social-media/"><u>Enhancing Media Impact: Uploading HD to Social Media</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-realme-12-pro-5g-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Realme 12 Pro 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-online-activity-camouflaging-your-likes/"><u>Invisible Online Activity: Camouflaging Your Likes</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-yet-significant-top-4-tech-stories-worth-your-attention/"><u>Overlooked Yet Significant: Top 4 Tech Stories Worth Your Attention</u></a></li>
+<li><a href="https://facebook.techidaily.com/public-perception-of-online-communities-more-harm-less-good/"><u>Public Perception of Online Communities: More Harm, Less Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-war-on-untruths-increased-fb-fines-introduced/"><u>Social Media War on Untruths: Increased FB Fines Introduced</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-your-fb-blacklist-entities/"><u>Unraveling Your FB Blacklist Entities</u></a></li>
+</ul></div>
 

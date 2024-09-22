@@ -1,7 +1,7 @@
 ---
 title: The Financial Strategy of Online Communities
-date: 2024-07-12T10:14:12.914Z
-updated: 2024-07-13T10:14:12.914Z
+date: 2024-09-15T01:02:23.721Z
+updated: 2024-09-21T17:12:22.443Z
 tags:
   - facebook
 categories:
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f14
 
  The majority of users won't pay for these premium memberships, which is one of the reasons that the base account is free. However, for those people who are willing to pay, it makes for a good income stream for the social networks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Transaction Fees and Virtual Products
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f14
  For example, on Facebook you can raise money for charity. Facebook used to charge a transaction fee for this, but no longer does. However, it does still charge for personal fundraisers, which it claims is to "cover payment processing" and "taxes".
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Diversifying
 
@@ -88,14 +102,11 @@ thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f14
 
  If you're looking to make some money of your own with social media, there are plenty of services like TikTok, YouTube, and Snapchat that pay out if you meet certain requirements.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,6 +115,16 @@ thumbnail: https://thmb.techidaily.com/61e18062b10a05e50558d2765f20eeedf900f4f14
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-harnessing-microsoft-teams-power-with-simple-snap-camera-use-for-2024/"><u>[New] Harnessing Microsoft Teams' Power with Simple Snap Camera Use for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-pages-standards-ban-users-with-confidence/"><u>Fortifying Your Page's Standards: Ban Users with Confidence</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-free-picture-haven-a-review-of-the-best-10-online-resources/"><u>In 2024, Free Picture Haven A Review of the Best 10 Online Resources</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-xiaomi-14-ultra-easily-by-drfone-android/"><u>In 2024, How To Unlock a Xiaomi 14 Ultra Easily?</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-streamline-your-video-watch-with-borderless-youtube/"><u>In 2024, Streamline Your Video Watch with Borderless YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-twitter-chatter-on-the-hottest-tiktoks/"><u>In 2024, Twitter Chatter on the Hottest TikToks</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-facebook-from-suggesting-connections/"><u>Prevent Facebook From Suggesting Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-titans-under-scrutiny-but-facebook-sees-worst-impact/"><u>Tech Titans Under Scrutiny, but Facebook Sees Worst Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-potential-top-4-business-meta-analytical-tools/"><u>Unlock Potential: Top 4 Business Meta Analytical Tools</u></a></li>
+</ul></div>
 

@@ -1,0 +1,149 @@
+---
+title: Unraveling My Personalized Ad Selection on Facebook
+date: 2024-09-15T18:35:29.411Z
+updated: 2024-09-21T19:38:44.468Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Unraveling My Personalized Ad Selection on Facebook
+excerpt: This Article Describes Unraveling My Personalized Ad Selection on Facebook
+keywords: Facebook Ad Customization,Individual Ad Choices Facebook,Tailored Facebook Advertising,Custom FB Ad Selection,Personalized Ad Preferences FB,Unique FB Ad Selections,Targeted Ads on Facebook
+thumbnail: https://thmb.techidaily.com/468b7a50fb837089e10cec38dd44fa01aaab4078b704b313fd2f69558ac117bb.png
+---
+
+## Unraveling My Personalized Ad Selection on Facebook
+
+ Whether you are new to Facebook or you have been using it for years, you have probably come across some ads that made you wonder, “Why am I seeing this ad?”
+
+ It can be rather eerie seeing an ad that is oddly specific to you, or what you have been searching for. Thus, many users wonder why they are seeing certain ads.
+
+ Facebook’s**Why am I seeing this ad** option can be useful, but if you really want to learn more about ads on Facebook and how to adjust them to your interests, continue reading.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## How Does Facebook Know What Ads to Show You?
+
+ The way Facebook decides which ads to show you is simply based on the information that you provide, both online and offline.
+
+ By using information such as your age, location, app use, page likes, and data from the sites you browse, Facebook is able to learn which advertisements could get your attention.
+
+![Facebook ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-ads.png)
+
+ If Facebook ads seem too frighteningly specific to you, that is simply because Facebook is keeping track of your online activity all the time. Facebook separates its targeting categories into three subcategories:**Interests** ,**Behaviors** , and**Demographics** .
+
+### Interests
+
+ This subcategory will reach the audience by their “interest,” which can be broad. Advertisers can type in any brand, place, or topic they have in mind, and target those users.
+
+ Related:[Why Targeted Ads Are a Serious Threat to Your Privacy](https://www.makeuseof.com/tag/targeted-ads-threat-privacy/)  This category includes posts users share on their timeline, pages that they “Like,” and apps that they use.
+
+### Behaviors
+
+ This subcategory will reach people based on their purchase intents or behaviors, device usage, and so on. Facebook usually acquires this data from third-party data collection companies.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Demographics
+
+ This subcategory will reach people by carefully considering certain details, such as their employment, finance, income, household, education, language, and lifestyle.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Learn More About the Ads You See
+
+ The easiest way to learn why you are seeing a certain post or ad on Facebook is to use its feature “Why am I seeing this ad?”. This will provide you with specific insight as to why that certain ad or post appeared on your feed.
+
+![Facebook why am I seeing this ad](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Why-Am-I-Seeing-This-Ad-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ If you are seeing something that you are not interested in, you are able to block those types of ads, as well as report any data misuse.
+
+ In order to reach out to you through advertisements, advertisers need to clarify that they have obtained your information legally. In addition, other than learning the reason why you are seeing something on your Facebook page, this tool will also give you a couple of options that will help you have better control of your News Feed inputs.
+
+ However, since[Facebook’s News Feed](https://www.facebook.com/help/1155510281178725) is still a mystery to many, it has provided a detailed explanation of how all of this works.
+
+## Adjust Your Ad Preferences on Facebook
+
+ Did you know that you can easily adjust your ad preferences on Facebook?
+
+ You just have to open Facebook. Click on the small triangle in the corner of the screen, then go to**Settings & Privacy** .
+
+![Facebook Settings & Privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings-And-Privacy.jpg)
+
+ After that, click**Settings** .
+
+![Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Settings.jpg)
+
+ You will then have the**Ads** button on the left side of the screen. This allows you to see the advertisers that you have been getting ads from and you can choose to see fewer ads about some topics.
+
+![Facebook Ad Options In Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Click-On-Ads.jpg)
+
+ The**Advertisers** section shows you the advertisers you’ve recently been getting ads from.
+
+ The**Ad Topics** section will give you a list of topics you can choose to see less of, such as parenting, pets, social issues, elections, alcohol, etc.
+
+ The**Ad Settings** section allows you to choose whether you want Facebook to keep showing you personalized ads based on the data from your activity or not.
+
+![Facebook Ad Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook-Ad-Settings.jpg)
+
+ Do keep in mind that while these options will influence your ad preferences, it will not affect the total number of ads you see.
+
+## Let Facebook Know Your Ad Preferences
+
+ In order to specifically target users, Facebook uses a lot of complex math and algorithms. It all boils down to the information that you decided to make public. To make your Facebook experience more pleasant, Facebook has provided its users with ways to adjust their ad preferences.
+
+ That way, you improve your Facebook experience by seeing fewer ads that you're not interested in.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-mastering-photo-enhancement-with-complete-guide-to-facetune-for-2024/"><u>[New] Mastering Photo Enhancement with Complete Guide to Facetune for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-budget-friendly-pc-video-snippet-creators/"><u>[Updated] In 2024, Budget-Friendly PC Video Snippet Creators</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-motorola-moto-g-stylus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Motorola Moto G Stylus (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-oppo-a1-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Oppo A1 5G FRP Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-await-exciting-new-texting-features-from-fb/"><u>Messenger and Instagram Await Exciting New Texting Features From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/polishing-your-digital-footprint-a-facebook-focus-guide/"><u>Polishing Your Digital Footprint: A Facebook Focus Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/seamless-clicking-experience-fixing-unreliable-wireless-mouse-problems/"><u>Seamless Clicking Experience: Fixing Unreliable Wireless Mouse Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-and-recover-navigating-through-fb-security-breach/"><u>Secure & Recover: Navigating Through FB Security Breach</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-your-digital-gathering-space-on-fb/"><u>Setting Up Your Digital Gathering Space on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-frenzy-jbs-anti-covid-strategy-unfolds/"><u>Social Media Frenzy: JB's Anti-COVID Strategy Unfolds</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-strategy-benefits-and-trade-offs-of-fb-events/"><u>Social Media Strategy: Benefits & Trade-Offs of FB Events</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/storage-solutions-increase-your-pcs-capacity/"><u>Storage Solutions: Increase Your PC's Capacity</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-potential-dangers-of-playful-online-quizzes/"><u>Unveiling the Potential Dangers of Playful Online Quizzes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/watching-outdated-facebook-chronicles-mobilelaptop/"><u>Watching Outdated Facebook Chronicles (Mobile/Laptop)</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/why-youll-prefer-playing-with-pcsx2-over-ps5-ps2-emulation-a-comprehensive-guide/"><u>Why You'll Prefer Playing with PCSX2 over PS5 PS2 Emulation - A Comprehensive Guide</u></a></li>
+</ul></div>
+

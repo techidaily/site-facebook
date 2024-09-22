@@ -1,7 +1,7 @@
 ---
 title: The Dark and Bright Sides of the Social Network
-date: 2024-09-12T20:12:02.588Z
-updated: 2024-09-16T16:20:49.051Z
+date: 2024-09-14T18:07:03.530Z
+updated: 2024-09-21T17:29:04.317Z
 tags:
   - facebook
 categories:
@@ -49,21 +49,22 @@ thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefe
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
 
@@ -77,15 +78,22 @@ thumbnail: https://thmb.techidaily.com/b46dbabb50d5277c1ad28a5993cc958234753eefe
 
 So, what are some of the biggest things that affected us negatively?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
@@ -100,23 +108,9 @@ So, what are some of the biggest things that affected us negatively?
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -145,18 +139,16 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-recording-made-simple-your-phone-cookbook-for-snapping-stories/"><u>[New] Recording Made Simple Your Phone' Cookbook for Snapping Stories</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-shine-strategy-top-tools-to-brighten-streams/"><u>[Updated] 2024 Approved Shine Strategy Top Tools to Brighten Streams</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-ditching-xsplit-ideal-splitting-software/"><u>2024 Approved Ditching XSplit Ideal Splitting Software</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-maximizing-your-investment-high-roi-tactics-for-fb-animatons/"><u>2024 Approved Maximizing Your Investment High-ROI Tactics for FB Animatons</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/1725284298158-winxvideo-ai/"><u>動画・写真品質向上のコツを集めた完全マニュアル - Winxvideo AIの手引き</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-how-fbs-adjudicative-panel-operates/"><u>Examining How FB's Adjudicative Panel Operates</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-vivo-y36-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Vivo Y36 Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-revolution-facebook-unveils-end-to-end-encryption-for-direct-and-call-messages/"><u>Privacy Revolution: Facebook Unveils End-to-End Encryption for Direct and Call Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-online-leadership-new-admin-resources-by-fb/"><u>Redefining Online Leadership: New Admin Resources by FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-the-virtual-world-social-medias-new-heroes/"><u>Revolutionizing the Virtual World: Social Media's New Heroes</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-best-apps-for-erasing-past-facebook-faux-pas/"><u>The Best Apps for Erasing Past Facebook Faux Pas</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/the-evolutionary-path-of-roguelike-games/"><u>The Evolutionary Path of Roguelike Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-disappearing-images-from-online-discussions/"><u>Uncover Disappearing Images From Online Discussions</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/download-premium-blu-ray-films-for-free-step-by-step-guide-to-high-definition-content/"><u>Download Premium Blu-Ray Films for Free - Step by Step Guide to High Definition Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/elite-english-footballers-refuse-online-engagement-in-anti-harassment-stance/"><u>Elite English Footballers Refuse Online Engagement in Anti-Harassment Stance</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Vivo Y78t? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-oneplus-12r-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For OnePlus 12R</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-unleash-your-creativity-top-video-animation-apps-for-smartphone-and-tablet-users/"><u>In 2024, Unleash Your Creativity Top Video Animation Apps for Smartphone and Tablet Users</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/mastering-social-media-tweeting-videos-to-facebook/"><u>Mastering Social Media Tweeting Videos to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-profile-picture-revamp-on-facebook/"><u>Navigating the Profile Picture Revamp on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-vax-initiative-featured-in-biden-strategy/"><u>Social Media Vax Initiative Featured in Biden Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-network-enlist-new-folks-to-facebook-messenger/"><u>Streamline Your Network: Enlist New Folks to Facebook Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-transformation-in-online-privacy-policy/"><u>Understanding Meta’s Transformation in Online Privacy Policy</u></a></li>
 </ul></div>
 

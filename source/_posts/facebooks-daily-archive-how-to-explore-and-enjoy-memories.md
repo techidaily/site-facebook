@@ -1,7 +1,7 @@
 ---
 title: Facebook’s Daily Archive – How to Explore & Enjoy Memories
-date: 2024-09-15T00:30:48.023Z
-updated: 2024-09-16T16:07:49.183Z
+date: 2024-09-21T00:38:45.201Z
+updated: 2024-09-22T00:23:23.724Z
 tags:
   - facebook
 categories:
@@ -60,13 +60,6 @@ Close
 
  The memories from On This Day can also be shared with other apps like WhatsApp, Snapchat, and Messenger as a link.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Save and Delete Memories
 
  Another great thing about the On This Day feature is the ability to save memories. This takes the memories to a separate**Save** section, intended for content you wish to view later.
@@ -80,19 +73,19 @@ You can save your On This Day posts with the following steps:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -114,10 +107,10 @@ Close
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
@@ -156,6 +149,19 @@ Close
 
  Also, if you do not like to recall a specific date, tap**Dates** \> Mark**Start** and**End** dates > Tap**Save** . Facebook will stop showing you memories from those specific dates.
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Stay in Touch With Your Past Using Facebook’s On This Day Feature
 
  The On This Day feature of Facebook is a great way to stay in touch with your past and recall memories that have been a part of your life over the years.
@@ -177,18 +183,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-quick-tips-extracting-and-keeping-gif-tweets/"><u>2024 Approved Quick Tips Extracting and Keeping GIF Tweets</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Infinix Note 30 VIP | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-brings-innovation-to-chat-platforms-with-enhanced-features-for-messenger-and-instagram/"><u>Facebook Brings Innovation to Chat Platforms with Enhanced Features for Messenger & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/fighting-deception-on-the-internet-time-for-tech-to-step-up/"><u>Fighting Deception on the Internet: Time for Tech to Step Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/go-wherever-you-want-facebooks-mobility-centric-portal/"><u>Go Wherever You Want: Facebook's Mobility-Centric Portal</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/mastering-webinar-capture-straightforward-steps-for-os-xwindows/"><u>Mastering Webinar Capture Straightforward Steps for OS X/Windows</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/practice-empathy-put-yourself-in-the-speakers-shoes-and-try-to-understand-their-perspective-emotions-and-motivations-for-2024/"><u>Practice Empathy Put Yourself in the Speaker's Shoes and Try to Understand Their Perspective, Emotions, and Motivations for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-dynamics-enhanced-by-7-networking-wonders/"><u>Social Dynamics Enhanced by 7 Networking Wonders</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-backdoor-for-anti-immunization-advocates/"><u>Social Media's Backdoor for Anti-Immunization Advocates</u></a></li>
-<li><a href="https://win11.techidaily.com/the-blueprint-how-to-enhance-your-workflow-via-menus/"><u>The Blueprint: How to Enhance Your Workflow via Menus</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-honor-100-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Honor 100 Location | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/uncover-intrusion-verifying-third-party-login-on-facebook/"><u>Uncover Intrusion: Verifying Third-Party Login on Facebook</u></a></li>
-<li><a href="https://win11.techidaily.com/unlocking-the-microsoft-store-quick-sign-in-fixes/"><u>Unlocking the Microsoft Store: Quick Sign-In Fixes</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-prime-pick-all-angle-action-cameras/"><u>[New] Prime Pick All-Angle Action Cameras</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-join-the-fun-best-gratuitous-meme-tools-available/"><u>[Updated] 2024 Approved Join the Fun Best Gratuitous Meme Tools Available</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/13-effective-techniques-for-converting-video-files-from-vob-format-to-mp4-in-windows-11-and-macos/"><u>13 Effective Techniques for Converting Video Files From VOB Format to MP4 in Windows 11 and macOS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-10-best-high-security-androidios-video-calling-tools-available-for-free/"><u>2024 Approved 10 Best High-Security Android/iOS Video Calling Tools Available for Free</u></a></li>
+<li><a href="https://win11.techidaily.com/a-guide-to-triumph-in-football-fantasyland-at-no-cost/"><u>A Guide to Triumph in Football Fantasyland at No Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-engagement-uploading-instagram-reels-to-facebook-profile/"><u>Enhancing Engagement: Uploading Instagram Reels to Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-photobooks-creating-collages-for-social-sharing/"><u>Mastering Photobooks: Creating Collages for Social Sharing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-the-art-of-selecting-top-online-vhs-image-adjustments/"><u>Mastering the Art of Selecting Top Online VHS Image Adjustments</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-digital-landscapes-smart-use-of-facebooks-timers/"><u>Navigating Digital Landscapes: Smart Use of Facebook’s Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-name-change-process-in-the-social-sphere-of-fb/"><u>Navigating the Name Change Process in the Social Sphere of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reduce-user-specific-promotional-messages-online/"><u>Reduce User-Specific Promotional Messages Online</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/resolving-the-rockaldlldll-is-missing-issue-step-by-step-guide/"><u>Resolving the 'Rockaldll.dll Is Missing' Issue: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-elusive-footage-the-systematic-guide-to-youtube-secrets-for-2024/"><u>Unlocking Elusive Footage The Systematic Guide to YouTube Secrets for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-5-essential-mts-video-editing-software-for-creators/"><u>Updated In 2024, 5 Essential MTS Video Editing Software for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-lies-beneath-your-facebook-timeline/"><u>What Lies Beneath Your Facebook Timeline?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Unbanned: Facebook Profile Section Reverberates with Anti-Vax Sentiments"
-date: 2024-09-14T23:10:22.656Z
-updated: 2024-09-16T23:58:02.450Z
+date: 2024-09-16T16:20:16.166Z
+updated: 2024-09-21T22:45:30.963Z
 tags:
   - facebook
 categories:
@@ -65,32 +65,26 @@ thumbnail: https://thmb.techidaily.com/9658b467055670b82a39baa210ea870282b123ee6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-tackling-inaudible-speech-in-obs-captures/"><u>[New] 2024 Approved Tackling Inaudible Speech in OBS Captures</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-streamlining-your-way-to-high-quality-android-recordings/"><u>2024 Approved Streamlining Your Way to High-Quality Android Recordings</u></a></li>
-<li><a href="https://extra-information.techidaily.com/beginners-guide-to-essential-photo-edits-in-ps/"><u>Beginner's Guide to Essential Photo Edits in PS</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-nokia-c12-prowithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Nokia C12 Prowith/without a PC</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/how-to-effectively-purge-personal-data-from-your-iphone-with-reliable-erasing-applications/"><u>How to Effectively Purge Personal Data From Your iPhone with Reliable Erasing Applications</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-motorola-g54-5g-easily-by-drfone-android/"><u>How To Unlock a Motorola G54 5G Easily?</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-zte-axon-40-lite-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any ZTE Axon 40 Lite Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-best-in-class-meme-modification-software/"><u>In 2024, Best in Class Meme Modification Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/preeminent-locations-aiming-at-freelancer-careers/"><u>Preeminent Locations Aiming at Freelancer Careers</u></a></li>
-<li><a href="https://facebook.techidaily.com/recharge-without-facebook-a-guide-to-unfollowing/"><u>Recharge Without Facebook: A Guide to Unfollowing</u></a></li>
-<li><a href="https://techidaily.com/1723808152090-skyrim-se-upgrade-maximize-your-gameplay-with-revolutionary-fps-improvement-and-beyond/"><u>Skyrim SE Upgrade: Maximize Your Gameplay with Revolutionary FPS Improvement and Beyond!</u></a></li>
-<li><a href="https://facebook.techidaily.com/truth-in-a-tweet-debunking-top-facebook-misconceptions/"><u>Truth in a Tweet: Debunking Top Facebook Misconceptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-hidden-project-the-upcoming-smartwatch/"><u>Unveiling Facebook's Hidden Project: The Upcoming Smartwatch</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-multi-device-support-is-coming-zuckerberg-confirms/"><u>WhatsApp Multi-Device Support Is Coming, Zuckerberg Confirms</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-daily-archive-how-to-explore-and-enjoy-memories/"><u>Facebook’s Daily Archive – How to Explore & Enjoy Memories</u></a></li>
+<li><a href="https://win-answers.techidaily.com/improved-stability-and-fewer-freezes-whats-freshly-updated-on-new-world/"><u>Improved Stability and Fewer Freezes: What's Freshly Updated on New World</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-motorola-defy-2-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Motorola Defy 2 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-removing-tags-from-online-images/"><u>Navigating the Maze of Removing Tags From Online Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundtrack-to-social-interaction-exploring-the-impact-of-facebook-and-spotifys-boombox/"><u>Soundtrack to Social Interaction: Exploring the Impact of Facebook & Spotify's Boombox</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-top-tools-for-restoring-damaged-jpeg-images/"><u>Ultimate Guide: Top Tools for Restoring Damaged JPEG Images</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-procedural-dynamism-in-games/"><u>Understanding Procedural Dynamism in Games</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

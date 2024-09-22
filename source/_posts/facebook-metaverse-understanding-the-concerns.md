@@ -1,7 +1,7 @@
 ---
 title: "Facebook Metaverse: Understanding the Concerns"
-date: 2024-09-09T23:51:45.973Z
-updated: 2024-09-16T22:12:37.480Z
+date: 2024-09-18T18:08:38.758Z
+updated: 2024-09-21T20:03:59.072Z
 tags:
   - facebook
 categories:
@@ -77,16 +77,10 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
@@ -94,16 +88,16 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
@@ -139,20 +133,14 @@ thumbnail: https://thmb.techidaily.com/8ff514e7ae8e73f00c632257f00b6aefbc08dc01d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-excellence-engineers-select-laptop-choices-for-4k-editing-pros/"><u>[New] 2024 Approved Excellence Engineers Select Laptop Choices for 4K Editing Pros</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-elevate-your-tiktok-videos-with-compelling-captions/"><u>[New] In 2024, Elevate Your TikTok Videos with Compelling Captions</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-spin-the-wheels-developing-dances-on-your-macos/"><u>[New] In 2024, Spin the Wheels Developing Dances on Your MacOS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-the-most-extensive-selection-of-free-illustrator-portals/"><u>[New] In 2024, The Most Extensive Selection of Free Illustrator Portals</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-shotchrome-intrinsic-recorder-for-os-x-for-2024/"><u>[New] ShotChrome Intrinsic Recorder for OS X for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/demographics-of-french-language-users-worldwide/"><u>Demographics of French Language Users Worldwide</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-swiftly-adjust-youtube-videos-to-mac-screen-ratios/"><u>In 2024, Swiftly Adjust YouTube Videos to Mac Screen Ratios</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-facebook-linked-app-and-site-management/"><u>Mastering Facebook-Linked App & Site Management</u></a></li>
-<li><a href="https://facebook.techidaily.com/nft-adoption-meta-drops-tested-on-social-giants/"><u>NFT Adoption: Meta Drops Tested on Social Giants</u></a></li>
-<li><a href="https://facebook.techidaily.com/regulating-online-status-viewable-by-fb-friends/"><u>Regulating Online Status Viewable by FB Friends</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaping-your-digital-space-the-art-of-fb-feed-customization/"><u>Shaping Your Digital Space: The Art of FB Feed Customization</u></a></li>
-<li><a href="https://win-able.techidaily.com/tackling-the-critical-issue-why-does-my-pc-frequently-encounter-crashes-in-the-ascent-game/"><u>Tackling the Critical Issue – Why Does My PC Frequently Encounter Crashes in The Ascent Game?</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-caused-the-social-media-blackout-epidemic/"><u>What Caused the Social Media Blackout Epidemic?</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-to-post-for-best-social-media-results/"><u>When to Post for Best Social Media Results</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-employees-are-now-called-metamates/"><u>Why Facebook Employees Are Now Called Metamates</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-video-vanguard-vs-studio-giants/"><u>[New] In 2024, Video Vanguard VS Studio Giants</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-as-a-co-pilot-for-car-modifications-how-to-get-started/"><u>ChatGPT as a Co-Pilot for Car Modifications: How to Get Started</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vision-shifts-oculus-quest-delayed/"><u>Facebook's Vision Shifts: Oculus Quest Delayed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-quick-guide-to-vivo-x100-pro-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Vivo X100 Pro FRP Bypass Instantly</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/is-av1-video-codec-compatible-with-discord-a-comprehensive-guide/"><u>Is Av1 Video Codec Compatible with Discord: A Comprehensive Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-cyber-space-from-unwanted-users/"><u>Secure Your Cyber-Space From Unwanted Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tolls-facebook-and-cos-6-hour-disruption/"><u>Tech Tolls: Facebook and Co.'s 6-Hour Disruption</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-story-behind-facebooks-news-feed-rebranding/"><u>The Story Behind Facebook's News Feed Rebranding</u></a></li>
 </ul></div>
 

@@ -1,0 +1,79 @@
+---
+title: Spotting Hidden Usage in Your Tech Environment
+date: 2024-09-16T22:05:33.648Z
+updated: 2024-09-22T00:55:18.988Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Spotting Hidden Usage in Your Tech Environment
+excerpt: This Article Describes Spotting Hidden Usage in Your Tech Environment
+keywords: Tech Usage Detection,Hidden Tech Insights,Technology Habits Uncovered,Detecting Tech Misuse,Advanced Tech Analysis,Identifying Tech Errors,Internal Tech Auditing
+thumbnail: https://thmb.techidaily.com/1327be62e2a36c04a123df979f8639b0dac23eaf84d67c3864e5678ef96194e7.jpg
+---
+
+## Spotting Hidden Usage in Your Tech Environment
+
+ We take a look at how you can keep your PC safe and check if someone has been using it this week. We also tell you what anyone who has hacked your email account might do with it, and show you how to check your Google activity.
+
+ You can subscribe to the Really Useful Podcast on[Apple Podcasts](https://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) ,[Spotify](https://open.spotify.com/show/283gDxLd6OTNEpRq6tN7ha) ,[Google Podcasts](https://www.google.com/podcasts?feed=aHR0cHM6Ly9hbmNob3IuZm0vcy8zMWJlNDcwL3BvZGNhc3QvcnNz) ,[Amazon Music and Audible](https://music.amazon.co.uk/podcasts/20ab73d4-5da2-46c7-a17f-dc6eb39bdb48/The-Really-Useful-Podcast) ,[Player FM](https://player.fm/series/the-really-useful-podcast-2491856) , or copy the[RSS feed](https://feeds.transistor.fm/the-really-useful-podcast) into your podcast player.
+
+## Shownotes
+
+This week, we chat about the following tech news:
+
+* [Dolly Parton Impersonator's Facebook Page Reinstated](https://www.bbc.co.uk/news/uk-england-south-yorkshire-66395280)
+* [Kenyan Government Advises Caution Over Worldcoin](https://www.bbc.co.uk/news/world-africa-66383325)
+
+We've got these tips and explainers:
+
+* [Has Someone Used Your PC?](https://www.makeuseof.com/tag/has-someone-used-your-pc-3-ways-to-check/)
+* [Use Google HIstory to Delete Activity](https://www.makeuseof.com/google-history-delete-all-my-activity/)
+* [Ways Scammers Can Exploit a Hacked Email Address](https://www.makeuseof.com/tag/5-ways-your-email-address-can-be-exploited-by-scammers/)
+
+We finish the show with the following recommendations:
+
+* [Balder's Gate 3](https://baldursgate3.game/)
+* [AceMagic AM08 Pro](https://www.acemagic.com/collections/mini-pc/products/ace-am08-pro-amd-ryzen-9%E2%84%A2-6900hx)
+
+ Christian Cawley and Gavin Phillips host this podcast. Contact them on Twitter:[@thegadgetmonkey](https://twitter.com/thegadgetmonkey) and[@gavinspavin](https://twitter.com/gavinspavin) , with your suggestions for future topics. Oh, and don't forget to leave us a review on[Apple Podcasts](http://podcasts.apple.com/gb/podcast/the-really-useful-podcast/id1437847131?mt=2) !
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-perfected-practice-of-combining-youtube-videos/"><u>[New] The Perfected Practice of Combining YouTube Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-launchpad-for-novice-gopro-owners-must-have-gear-guide-for-2024/"><u>[Updated] Launchpad for Novice GoPro Owners - Must-Have Gear Guide for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/eradicate-ghost-touch-problems-on-iphones-with-these-10-strategies/"><u>Eradicate Ghost Touch Problems on iPhones with These 10 Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-much-video-can-64gb128gb-hold-for-2024/"><u>How Much Video Can 64GB/128GB Hold for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-apple-iphone-13-pro-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on Apple iPhone 13 Pro online without jailbreak</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-avoid-download-hassle-top-5-online-converters-for-gif-to-video/"><u>In 2024, Avoid Download Hassle Top 5 Online Converters for GIF to Video</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-client-visionaries-shaping-brand-narratives-through-video/"><u>In 2024, Client Visionaries Shaping Brand Narratives Through Video</u></a></li>
+<li><a href="https://facebook.techidaily.com/invisible-online-activity-camouflaging-your-likes/"><u>Invisible Online Activity: Camouflaging Your Likes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quickly-remove-google-frp-lock-on-honor-magic-6-lite-by-drfone-android-unlock-remove-google-frp/"><u>Quickly Remove Google FRP Lock on Honor Magic 6 Lite</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-subscriber-youtube-connection-maximizing-engagement/"><u>The Subscriber-YouTube Connection Maximizing Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-your-fb-blacklist-entities/"><u>Unraveling Your FB Blacklist Entities</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

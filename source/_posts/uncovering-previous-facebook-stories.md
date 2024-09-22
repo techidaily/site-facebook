@@ -1,7 +1,7 @@
 ---
 title: Uncovering Previous Facebook Stories
-date: 2024-07-12T10:13:18.353Z
-updated: 2024-07-13T10:13:18.353Z
+date: 2024-09-17T16:46:38.791Z
+updated: 2024-09-21T21:42:20.767Z
 tags:
   - facebook
 categories:
@@ -69,9 +69,23 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
 
 ![Post Filters on Your Facebook Timeline](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/post-filters-on-your-facebook-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To access the post filters, go to the profile page where you want to find a post and click on**Filters** next to**Posts** . On your timeline, you can filter the posts based on the year, the post author,[Facebook privacy settings](https://www.makeuseof.com/facebook-privacy-settings-you-should-change/) for the post, and tagged posts. This way, you can narrow things down and easily find what you are looking for.
 
  On someone else's timeline, though, you only get to filter the posts by year, making this method not as useful for searching others' posts.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Using the Activity Log on Your Timeline
 
@@ -95,14 +109,11 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
 
  As discussed above, writing captions or descriptions for posts is always a good idea. This helps you find posts easily in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,6 +122,21 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-engaging-audiences-seamlessly-zoom-plus-youtube-and-fb-live-integration/"><u>[Updated] 2024 Approved Engaging Audiences Seamlessly ZOOM + YouTube & FB LIVE Integration</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-launching-a-vlog-top-kit-and-applications/"><u>[Updated] Launching a Vlog Top Kit & Applications</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-the-dbpower-600a-peak-battery-pack-with-18000mah-charges-on-the-go-detailed-analysis/"><u>How the DBPOWER 600A Peak Battery Pack with 18000mAh Charges on the Go - Detailed Analysis</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-iphone-14-by-drfone-ios/"><u>How to Fix Locked Apple ID from iPhone 14</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-oppo-a2-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Oppo A2?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722966658012-install-or-update-your-hp-deskjet-3050-printer-software-on-windows-no-cost/"><u>Install or Update Your HP Deskjet 3050 Printer Software on Windows: No Cost!</u></a></li>
+<li><a href="https://facebook.techidaily.com/joint-venture-in-virtual-spaces-facebook-and-instagram-unite/"><u>Joint Venture in Virtual Spaces: Facebook & Instagram Unite</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/magic-photo-management-decoded-by-reviews/"><u>Magic Photo Management Decoded by Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-to-networking-success-social-media-groups/"><u>Navigating to Networking Success: Social Media Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/sifting-through-clues-for-facebooks-future-nickname/"><u>Sifting Through Clues for Facebook’s Future Nickname</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-instructions-for-crafting-exciting-facebook-live-content/"><u>Step-by-Step Instructions for Crafting Exciting Facebook Live Content</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-battle-adobe-premiere-vs-after-effects-for-video-creators/"><u>The Ultimate Battle Adobe Premiere vs After Effects for Video Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/thrive-in-social-media-economy-with-these-5-steps/"><u>Thrive in Social Media Economy with These 5 Steps</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-download-sites-showcasing-exquisite-text-effects/"><u>Top Download Sites Showcasing Exquisite Text Effects</u></a></li>
+</ul></div>
 

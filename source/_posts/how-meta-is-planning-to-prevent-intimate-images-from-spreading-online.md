@@ -1,7 +1,7 @@
 ---
 title: How Meta Is Planning to Prevent Intimate Images From Spreading Online
-date: 2024-07-12T10:08:38.209Z
-updated: 2024-07-13T10:08:38.209Z
+date: 2024-09-16T00:16:44.276Z
+updated: 2024-09-21T23:22:51.793Z
 tags:
   - facebook
 categories:
@@ -43,14 +43,11 @@ thumbnail: https://thmb.techidaily.com/c11b89b923631ed5d512ccc32ee592a5fb46939b3
 
  With two of the largest social media platforms in the world, Meta is a key player in Take It Down’s mission to prevent the sharing of young people’s intimate images online. Although both Facebook and Instagram have guidelines against sharing these images, it unfortunately happens, and this is another step to prevent it and give control of the images back to their owner.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -59,6 +56,24 @@ thumbnail: https://thmb.techidaily.com/c11b89b923631ed5d512ccc32ee592a5fb46939b3
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-craft-your-creative-identity-mastering-instagram-photowatermarking/"><u>[New] In 2024, Craft Your Creative Identity Mastering Instagram Photowatermarking</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-grab-speech-file-and-review/"><u>[Updated] 2024 Approved Grab Speech File & Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/demystifying-red-x-symbols-in-computer-file-systems/"><u>Demystifying Red “X” Symbols in Computer File Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-flashlight-from-iphone-6-lock-screen-drfone-by-drfone-ios/"><u>How To Remove Flashlight From iPhone 6 Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-17-best-apps-to-remove-image-background/"><u>In 2024, 17 Best Apps to Remove Image Background</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-digital-connection-5-best-platforms-for-companies/"><u>Mastering Digital Connection: 5 Best Platforms for Companies</u></a></li>
+<li><a href="https://facebook.techidaily.com/unbanned-facebook-profile-section-reverberates-with-anti-vax-sentiments/"><u>Unbanned: Facebook Profile Section Reverberates with Anti-Vax Sentiments</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/unveiling-the-secret-acquiring-twitter-gifs-effortlessly-on-pc-for-2024/"><u>Unveiling the Secret Acquiring Twitter GIFs Effortlessly on PC for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-save-big-on-final-cut-pro-explore-our-exclusive-education-offer/"><u>Updated In 2024, Save Big on Final Cut Pro Explore Our Exclusive Education Offer</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

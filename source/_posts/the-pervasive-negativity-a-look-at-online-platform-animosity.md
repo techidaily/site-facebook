@@ -1,7 +1,7 @@
 ---
 title: "The Pervasive Negativity: A Look at Online Platform Animosity"
-date: 2024-09-10T23:40:51.172Z
-updated: 2024-09-16T21:52:05.760Z
+date: 2024-09-17T18:09:53.991Z
+updated: 2024-09-21T18:38:09.564Z
 tags:
   - facebook
 categories:
@@ -52,13 +52,6 @@ thumbnail: https://thmb.techidaily.com/796380b2f6e477c41fdb5986a336623e799bf688b
 
  The most recent breach happened in 2021 and exposed the personal information of over 500 million users. This breach was especially concerning because it happened despite Facebook's claims that it had fixed the problems that caused the Cambridge Analytica scandal.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Its Addictive Potential
 
  Many people also hate Facebook because it can be addictive. They designed it to keep you engaged for as long as possible. This means that you're constantly being bombarded with notifications, new posts, and ads.
@@ -72,28 +65,28 @@ thumbnail: https://thmb.techidaily.com/796380b2f6e477c41fdb5986a336623e799bf688b
 ![fake-news-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/fake-news-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Another big problem with Facebook is the spread of fake news. With so much information shared on the platform, it's hard to know what's true and what's not. This has led to the spread of false information and conspiracy theories.
 
  While Facebook has taken some steps to combat fake news, many people still feel like the problem is out of control.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Its Impact on Mental Health
 
  One of the biggest problems with Facebook is its impact on mental health. The platform can be a breeding ground for negativity and comparison. When you're constantly seeing everyone's highlight reel, it's easy to forget that everyone has struggles and difficulties.
 
  This can lead to feelings of inadequacy, loneliness, and depression.[Several studies have linked social media platforms to increased in anxiety](http://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) and depression, especially in young people. While Facebook is not the only social media platform with this problem, it gets the most criticism because of its size and reach.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Perceived Inaction on Hate Speech
 
@@ -104,6 +97,13 @@ thumbnail: https://thmb.techidaily.com/796380b2f6e477c41fdb5986a336623e799bf688b
  Its role in the Myanmar genocide is a prime example of this. Several groups have accused the social media giant of not doing enough to stop the spread of hate speech and bigotry, which ultimately led to widespread violence in the region.
 
  Facebook was also accused of "continuing to allow activists to incite ethnic massacres in Ethiopia’s escalating war", according to a report by[The Guardian](https://www.theguardian.com/technology/2022/feb/20/facebook-lets-vigilantes-in-ethiopia-incite-ethnic-killing) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Making Sense of It All
 
@@ -126,21 +126,19 @@ thumbnail: https://thmb.techidaily.com/796380b2f6e477c41fdb5986a336623e799bf688b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/updated-aural-tales-the-best-of-radio-plays/"><u>[Updated] Aural Tales The Best of Radio Plays</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-laughter-and-tears-on-insta-the-ultimate-meme-page-list/"><u>[Updated] In 2024, Laughter & Tears on Insta The Ultimate Meme Page List</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-motorola-edge-40-neo-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Motorola Edge 40 Neo</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-donating-5-million-to-the-whos-covid-19-fundraising-campaign/"><u>Facebook Is Donating $5 Million to the WHO's COVID-19 Fundraising Campaign</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-y27s-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo Y27s Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On OnePlus Nord N30 SE? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-oppo-k11x-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Oppo K11x</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-specialized-compilation-choosing-ringtones-with-ease/"><u>In 2024, Specialized Compilation Choosing Ringtones with Ease</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-how-to-translate-tiktok-videos-all-you-want-to-know/"><u>New How to Translate TikTok Videos? All You Want to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-relationships-the-birth-of-meta/"><u>Redefining Relationships : The Birth of Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/safeguarding-self-sharing-essential-secrets-for-social-security/"><u>Safeguarding Self-Sharing: Essential Secrets for Social Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/speedy-login-cycle-switching-between-various-fb-users/"><u>Speedy Login Cycle: Switching Between Various FB Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/surveying-the-digital-community-for-news-feed-insights/"><u>Surveying the Digital Community for News Feed Insights</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-driver-installation-for-windows-devices-windows-10-8-and-7-tips/"><u>Troubleshooting Driver Installation for Windows Devices: Windows 10, 8 & 7 Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitters-informative-model-influences-facebooks-prompting-strategy/"><u>Twitter’s Informative Model Influences Facebook's Prompting Strategy</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-limiting-your-network-is-a-smart-security-move/"><u>Why Limiting Your Network Is a Smart Security Move</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ransform-your-footage-best-free-android-editors-reviewed-for-2024/"><u>[New] Transform Your Footage Best Free Android Editors Reviewed for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-quick-fixes-to-fabricate-impactful-social-media-collage-posts/"><u>[Updated] Quick Fixes to Fabricate Impactful Social Media Collage Posts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-youtube-comment-management-turn-it-on-or-off-for-2024/"><u>[Updated] YouTube Comment Management Turn It On or Off for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-to-add-stickers-to-instagram-story-and-post/"><u>2024 Approved How to Add Stickers to Instagram Story and Post?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/conseils-de-redaction-efficace-traiter-des-interrogations-frequentes-sur-lintelligence-artificielle-avec-winxvideo-reponses-detaillees/"><u>Conseils De Rédaction Efficace: Traiter Des Interrogations Fréquentes Sur L'intelligence Artificielle Avec Winxvideo - Réponses Détaillées</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-cross-team-communication-top-8-facebook-innovations/"><u>Enhancing Cross-Team Communication: Top 8 Facebook Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-a-tale-of-modern-connectivity/"><u>Facebook: A Tale of Modern Connectivity</u></a></li>
+<li><a href="https://facebook.techidaily.com/graphing-the-groups-facebooks-networked-territories/"><u>Graphing the Groups: Facebook’s Networked Territories</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-a-pdf-v11-document-with-electronic-signature-software-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to sign a PDF v1.1 document with electronic signature software</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-seamless-social-interactions-via-facebook-portal-tv/"><u>Initiating Seamless Social Interactions via Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-memories-the-essentials-of-photo-grouping-on-fb/"><u>Making Memories: The Essentials of Photo Grouping on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/messenger-and-instagram-to-get-smarter-with-facebooks-texting-tech-update/"><u>Messenger and Instagram to Get Smarter with Facebook's Texting Tech Update</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-guide-to-parenting-in-a-connected-age-our-top-8-tools-for-online-safety-2024-edition/"><u>The Ultimate Guide to Parenting in a Connected Age: Our Top 8 Tools for Online Safety, 2024 Edition</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/transform-damaged-footage-with-expertise-from-grau-gmbh-leading-providers-of-video-restoration-services/"><u>Transform Damaged Footage with Expertise From Grau GmbH – Leading Providers of Video Restoration Services</u></a></li>
 </ul></div>
 

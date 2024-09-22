@@ -1,7 +1,7 @@
 ---
 title: "Peaceful Pages: The Technique of Deleting Post Comments"
-date: 2024-09-09T21:58:32.669Z
-updated: 2024-09-16T17:04:28.383Z
+date: 2024-09-17T21:44:26.658Z
+updated: 2024-09-21T17:33:27.058Z
 tags:
   - facebook
 categories:
@@ -58,19 +58,6 @@ Close
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
 
@@ -80,6 +67,13 @@ Close
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  And that's all you need to manage comments on your Facebook post.
 
 ## How to Disable Post Comments in a Facebook Group
@@ -88,14 +82,14 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -108,10 +102,10 @@ Close
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
@@ -135,18 +129,17 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-expert-tips-for-smooth-video-trimming-in-photos/"><u>[New] Expert Tips for Smooth Video Trimming in Photos</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-average-revenue-what-every-view-contributes-to-creators/"><u>[New] In 2024, Average Revenue What Every View Contributes to Creators</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-learn-iphone-techniques-for-quick-video-reduction/"><u>[Updated] In 2024, Learn iPhone Techniques for Quick Video Reduction</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-the-complete-guide-to-preserving-ps4-gameplay-moments/"><u>[Updated] The Complete Guide to Preserving PS4 Gameplay Moments</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016101674-ending-earache-solutions-for-crackling-headphones-fast/"><u>Ending Earache: Solutions for Crackling Headphones Fast!</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-digital-literacy-with-facebooks-transparency-resources/"><u>Enhancing Digital Literacy with Facebook’s Transparency Resources</u></a></li>
-<li><a href="https://facebook.techidaily.com/exposing-false-bargains-on-facebook-marketplace-how-to-dodge-them/"><u>Exposing False Bargains on Facebook Marketplace – How to Dodge Them</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>In 2024, Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
-<li><a href="https://facebook.techidaily.com/instructions-for-initiating-interactive-online-gatherings-fb/"><u>Instructions for Initiating Interactive Online Gatherings (FB)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-motorola-moto-g13-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Motorola Moto G13? Fixed | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-needs-a-pause-facebook-urges-teens-on-insta-hiatus/"><u>Networking Needs a Pause: Facebook Urges Teens on Insta Hiatus</u></a></li>
-<li><a href="https://facebook.techidaily.com/reveal-your-location-a-step-by-step-guide-for-fb-users/"><u>Reveal Your Location: A Step by Step Guide for FB Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-meta-verification-value-for-investment/"><u>Understanding Meta Verification: Value for Investment?</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-conquer-the-blackened-canvas-of-youtube/"><u>[New] In 2024, Conquer the Blackened Canvas of YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-giggles-in-the-garage-ingenious-funny-video-concepts-for-youtubers/"><u>[Updated] Giggles in the Garage Ingenious Funny Video Concepts for YouTubers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-hear-and-engage-speech-technology-gratis/"><u>[Updated] Hear & Engage Speech Technology Gratis</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-tecno-pova-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Tecno Pova 5 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-restrict-youtube-viewing-for-safety-and-focus-on-your-ipad-device/"><u>How to Restrict YouTube Viewing for Safety and Focus on Your iPad Device</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/mastering-sound-editing-shorten-audio-sections-in-imovie-for-mac-and-iphone-for-2024/"><u>Mastering Sound Editing Shorten Audio Sections in iMovie for Mac and iPhone for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-group-recognition-in-status-updates/"><u>Mastering the Art of Group Recognition in Status Updates</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-a-modern-challenge/"><u>Privacy: A Modern Challenge</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-fb-tags-discover-3-efficient-methods/"><u>The Ultimate Guide to FB Tags – Discover 3 Efficient Methods</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-10-tips-for-remotely-recording-your-podcasts-for-2024/"><u>Top 10 Tips for Remotely Recording Your Podcasts for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-full-potential-of-facebook-must-try-mobile-settings/"><u>Unlock the Full Potential of Facebook: Must-Try Mobile Settings</u></a></li>
 </ul></div>
 

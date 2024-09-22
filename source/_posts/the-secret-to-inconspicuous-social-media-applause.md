@@ -1,7 +1,7 @@
 ---
 title: The Secret to Inconspicuous Social Media Applause
-date: 2024-07-12T10:11:13.712Z
-updated: 2024-07-13T10:11:13.712Z
+date: 2024-09-16T01:01:35.180Z
+updated: 2024-09-22T01:09:20.858Z
 tags:
   - facebook
 categories:
@@ -55,6 +55,13 @@ Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Understanding Facebook's Reaction Preferences
 
  Facebook’s new reaction preferences settings allow you to hide the number of reactions on your posts as well as posts from other users. But to what extent do these two settings go?
@@ -67,18 +74,22 @@ Your new settings are saved automatically.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or [permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Depressurize Your Experience on Facebook
 
  Facebook’s new reaction count setting is an excellent way to take your mind of the number of reactions a “Facebook friend” gets. The setting takes the pressure of social comparison off your chest, at least as far as the total number of reactions go on the platform. And remember: you can always choose to delete your Facebook account if it does more harm than good.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,6 +98,22 @@ Your new settings are saved automatically.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-how-to-turn-discord-livestreams-into-lasting-digital-memories/"><u>[New] How to Turn Discord Livestreams Into Lasting Digital Memories</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-seconds-for-a-high-quality-20mb-video/"><u>[New] Seconds for a High-Quality 20MB Video</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ideal-set-best-8-macbook-themes-and-skins-for-2024/"><u>[Updated] Ideal Set Best 8 MacBook Themes & Skins for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-top-9-steps-for-safe-marketplace-interactions/"><u>Expert Advice: Top 9 Steps for Safe Marketplace Interactions</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo Y100 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovation-takes-its-time-no-third-oculus-quest-announcement-max-74-characters/"><u>Innovation Takes Its Time: No Third Oculus Quest Announcement (Max 74 Characters)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/logitech-webcam-software-suite-cost-free-downloads-for-windows-users/"><u>Logitech Webcam Software Suite: Cost-Free Downloads for Windows Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-the-art-of-cropping-in-the-digital-age/"><u>Mastering the Art of Cropping in the Digital Age</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-googles-press-highlights/"><u>Navigating Through Google's Press Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-the-nft-space-meta-drops-limited-trial-era/"><u>Pioneering the NFT Space: Meta Drop's Limited Trial Era</u></a></li>
+<li><a href="https://extra-support.techidaily.com/revolutionize-streaming-top-converters-transform-4k-content-for-2024/"><u>Revolutionize Streaming Top Converters Transform 4K Content for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-alerts-and-messages-instantly-tips-and-tricks/"><u>Stop FB Alerts & Messages Instantly: Tips and Tricks</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-facebook-picture-upgrade/"><u>Strategic Timing for Facebook Picture Upgrade</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-samsung-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Samsung Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-project-management-unlocking-facebooks-8-capabilities/"><u>The New Era of Project Management: Unlocking Facebook's 8 Capabilities</u></a></li>
+</ul></div>
 

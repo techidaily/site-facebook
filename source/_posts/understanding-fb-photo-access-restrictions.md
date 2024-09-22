@@ -1,7 +1,7 @@
 ---
 title: Understanding FB Photo Access Restrictions
-date: 2024-09-09T20:28:15.776Z
-updated: 2024-09-16T20:26:04.569Z
+date: 2024-09-14T20:55:46.139Z
+updated: 2024-09-21T16:32:49.958Z
 tags:
   - facebook
 categories:
@@ -61,6 +61,13 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
  Open the photo, and in the upper right-hand corner, you'll see the same dropdown menu as you see when setting inline privacy. Just choose your desired audience.
@@ -72,10 +79,10 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -92,19 +99,6 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Photos You're Tagged In
 
  Great, so that covers everything you've uploaded yourself, but what about photos of you that other people have uploaded? How can you make those private?
@@ -117,16 +111,16 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
  If you feel the image is abusive, you click on the**Report** link to let Facebook know. If the company agrees, it will remove the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -151,14 +145,14 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-step-by-step-lenovo-laptop-screen-recording/"><u>[New] In 2024, Step-by-Step Lenovo Laptop Screen Recording</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-building-a-custom-google-cardboard-for-immersive-experience/"><u>2024 Approved Building a Custom Google Cardboard for Immersive Experience</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/fitbit-charge-4-review-style-and-substance/"><u>Fitbit Charge 4 Review: Style and Substance</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On Realme Narzo 60 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-perfect-your-instagram-vids-with-ease/"><u>In 2024, Perfect Your Instagram Vids with Ease</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-guide-posting-podcast-on-instagram/"><u>In 2024, Quick Guide Posting Podcast on Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-your-facebook-extensions-use/"><u>Streamlining Your Facebook Extensions Use</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlock-psychological-potential-with-isbms-modernized-cbt-framework/"><u>Unlock Psychological Potential with ISBM's Modernized CBT Framework</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-streamlined-shots-in-the-sea-7-easy-to-follow-steps-for-2024/"><u>[New] Streamlined Shots in the Sea 7 Easy-to-Follow Steps for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-your-updated-generic-bluetooth-connectors-drivers-for-pc-now-instant-access/"><u>Get Your Updated Generic Bluetooth Connectors' Drivers for PC Now - Instant Access</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-key-steps-for-flawless-audio-segmentation/"><u>In 2024, Key Steps for Flawless Audio Segmentation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-your-path-to-becoming-a-verified-instagram-user/"><u>Mastering Your Path to Becoming a Verified Instagram User</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-instagram-and-facebook-implementing-advertising/"><u>New Era: Instagram and Facebook Implementing Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-for-dissolving-a-facebook-circle/"><u>Quick Tips for Dissolving a Facebook Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-goodbye-to-facebook-android-account-removal-steps/"><u>Say Goodbye to Facebook (Android): Account Removal Steps</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-the-art-of-storytelling-10-famous-movies-shaped-by-final-cut-pros-creative-freedom/"><u>Updated The Art of Storytelling 10 Famous Movies Shaped by Final Cut Pros Creative Freedom</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/winxvideo-ai-un-essentiel-pour-la-gestion-video-guide-complet-pour-lamelioration-sauvegarde-modification-et-compression/"><u>Winxvideo AI: Un Essentiel Pour La Gestion Video – Guide Complet Pour L'Amélioration, Sauvegarde, Modification Et Compression</u></a></li>
 </ul></div>
 

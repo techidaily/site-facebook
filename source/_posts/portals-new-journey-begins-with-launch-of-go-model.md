@@ -1,0 +1,100 @@
+---
+title: Portal’s New Journey Begins with Launch of Go Model
+date: 2024-09-17T21:44:46.819Z
+updated: 2024-09-21T16:54:45.350Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Portal’s New Journey Begins with Launch of Go Model
+excerpt: This Article Describes Portal’s New Journey Begins with Launch of Go Model
+keywords: Portal's Launch,Portal Go Models,Go Model Launch,New Business Startup,Innovative Portal Journey,Model 0 Launch,Portal 0 Product Launch
+thumbnail: https://thmb.techidaily.com/57b8dccb20eee61b9862d74c48858978ad644b0b3c9c032196c655a977f2efc6.jpg
+---
+
+## Portal’s New Journey Begins with Launch of Go Model
+
+ Facebook is taking its Portal line in a different direction. The social networking giant recently unveiled the new Facebook Portal Go.
+
+ We'll take a look at the new product and how it differs from other devices in the Portal family.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Video Chatting and More on the Go
+
+![facebook portal go charger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-portal-go-charger-1.jpg)
+
+ Portal Go brings the usual smart camera experience but with a unique twist. Thanks to a built-in battery, the device can be taken from room to room in a home during a Zoom video call or anything else.
+
+ Related:[How to Use the 7 Best Features in Zoom](https://www.makeuseof.com/how-to-use-the-7-best-features-in-zoom/)
+
+ There's even a built-in handle to help make the device easier to hold.
+
+ The device sports a 10-inch screen and a 12-megapixel camera with an ultrawide field of view. That will help keep the person talking in view at all times.
+
+ And even when you're not on a video call, the Portal Go has a wide variety of other features. It offers Amazon's Alexa built so you can check the weather, play a song, and more with a simple voice command.
+
+ Related:[What Is Alexa and What Does Alexa Do?](https://www.makeuseof.com/what-does-alexa-do/)
+
+ It's also compatible with a wide variety of other services like Pandora, Spotify, and Plex.
+
+ For privacy, the Portal Go offers a built-in camera cover and a switch that can disable the microphone and camera.
+
+## Pre-Order the Facebook Portal Go Now
+
+ The Facebook Portal Go[retails for $199](https://portal.facebook.com/products/portal-go/) . You can preorder the device now directly from Facebook. Orders will start shipping on October 19.
+
+## A New Way to Use Facebook Portal
+
+ The new Facebook Portal Go provides a unique way to enjoy the social network's video chat-focused hardware. The built-in battery and ability to move between rooms in your house makes it stand out in a sea of other smart speakers with a touchscreen and cameras.
+
+ And if the Portal Go doesn't pique your interest, the Portal TV lets you turn any television into a big-screen video chatting platform.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-x-audiomaster-personal-computing/"><u>[New] 2024 Approved X-AudioMaster Personal Computing</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-8-free-instagram-story-savers-save-instagram-stories-without-limits/"><u>[New] 8 Free Instagram Story Savers-Save Instagram Stories without Limits</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-mastering-video-capture-on-hangouts/"><u>[Updated] In 2024, Mastering Video Capture on Hangouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-shortcomings-highlighting-5-times-users-were-let-down/"><u>Facebook's Shortcomings: Highlighting 5 Times Users Were Let Down</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-vision-shifts-oculus-quest-delayed/"><u>Facebook's Vision Shifts: Oculus Quest Delayed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-add-alt-text-to-your-facebook-photos/"><u>How to Add Alt Text to Your Facebook Photos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-apple-iphone-xr-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Methods to Turn off Life 360 On Apple iPhone XR without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/nvidia-driver-fails-to-remove-resolution-found/"><u>Nvidia Driver Fails to Remove - Resolution Found</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/outstanding-indoor-placement-and-modern-style-the-mohu-blade-television-aerial-assessment/"><u>Outstanding Indoor Placement & Modern Style: The Mohu Blade Television Aerial Assessment</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-humor-crafting-the-meme-text-genrator-way-for-2024/"><u>Quick Humor Crafting The Meme Text Gen'rator Way for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revive-your-feed-10-steps-to-get-facebook-videos-rolling/"><u>Revive Your Feed: 10 Steps to Get Facebook Videos Rolling</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-of-broadcasting-across-multiple-facebook-spaces/"><u>The Blueprint of Broadcasting Across Multiple Facebook Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-to-refresh-your-online-persona-icon/"><u>When to Refresh Your Online Persona Icon</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

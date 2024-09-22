@@ -1,7 +1,7 @@
 ---
 title: The Gentle Giant's Guide to Social Media Silliness
-date: 2024-09-09T21:21:51.669Z
-updated: 2024-09-16T17:04:42.896Z
+date: 2024-09-19T23:30:35.145Z
+updated: 2024-09-21T23:25:08.334Z
 tags:
   - facebook
 categories:
@@ -50,10 +50,10 @@ Close
 ![friends on facebook with poke button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/friends-on-facebook-with-poke-button.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The easiest way to poke someone on Facebook is to use the Poke button. To access this button, search for your friend's name in the Facebook mobile app. Then select the**Poke** button. Once the action has been sent, the button will change to**Poked** .
@@ -71,22 +71,16 @@ To do this, follow these steps:
 
 ![list of friends to poke on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/list-of-friends-to-poke-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When you poke someone, Facebook will send the person a notification to let them know that you used the feature.
 
 ![poke notification on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/04/poke-notification-on-facebook-web.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If they click on the notification, Facebook will open the poke page for you where you can poke them back. You can choose whether to continue the cycle of nudges. While the feature is slightly buried, it's an entertaining tool like[seeing a friendship history on Facebook](https://www.makeuseof.com/tag/see-relationship-history-two-people-facebook/) .
 
@@ -109,12 +103,20 @@ To do this, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/effortlessly-fast-forward-focus-in-video-content/"><u>Effortlessly Fast-Forward Focus in Video Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/expose-revealed-the-name-and-narrative-of-the-whistleblower/"><u>Exposé Revealed: The Name and Narrative of the Whistleblower</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/master-the-art-of-digital-cleanliness/"><u>Master the Art of Digital Cleanliness</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-the-ultimate-list-of-educational-animation-software/"><u>New In 2024, The Ultimate List of Educational Animation Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/report-facebook-users-are-buying-300-oculus-quest-2-headsets-to-reset-hacked-accounts/"><u>Report: Facebook Users Are Buying $300 Oculus Quest 2 Headsets to Reset Hacked Accounts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/windows-application-tutorial-how-to-get-and-operate-chatgpt/"><u>Windows Application Tutorial: How to Get and Operate ChatGPT</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-how-to-screen-record-netflix-on-mac-for-2024/"><u>[New] How to Screen Record Netflix on Mac for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-harmonic-transition-a-playlist-migration-masterclass/"><u>[New] In 2024, Harmonic Transition A Playlist Migration Masterclass</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-instagrams-square-videos-using-imovie-for-2024/"><u>[Updated] The Ultimate Guide to Instagram's Square Videos Using iMovie for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-cross-cultural-communication-via-fb-content/"><u>Enhancing Cross-Cultural Communication via FB Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-dismantle-a-digital-footprint-a-comprehensive-guide-for-businesses-on-facebook/"><u>How to Dismantle a Digital Footprint: A Comprehensive Guide for Businesses on Facebook</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-fix-connection-errors-for-arduino-uno-devices-running-on-windows-computers/"><u>How to Fix Connection Errors for Arduino Uno Devices Running on Windows Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-listen-to-spotify-without-leaving-the-facebook-app/"><u>How to Listen to Spotify Without Leaving the Facebook App</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-redefine-your-birthday-on-the-worlds-most-popular-social-network/"><u>How to Redefine Your Birthday on the World’s Most Popular Social Network</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-many-attempts-to-unlock-iphone-11-pro-by-drfone-ios/"><u>In 2024, How Many Attempts To Unlock iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-flv-into-youtube-hits-with-these-top-alternatives/"><u>In 2024, Transform FLV Into YouTube Hits with These Top Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-commerce-secure-eliminating-scams-and-swindles-on-fb-markets/"><u>Keep Your Social Commerce Secure – Eliminating Scams and Swindles on FB Markets</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/mastering-the-art-of-clarity-the-world-of-4k/"><u>Mastering the Art of Clarity: The World of 4K</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-methods-for-saving-your-favorite-youtube-content-playlists-and-channels/"><u>Step-by-Step Methods for Saving Your Favorite YouTube Content – Playlists & Channels!</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-you-share-your-whereabouts-via-fb-chat/"><u>Teaching You: Share Your Whereabouts via FB Chat</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-not-facebook-the-perspective-on-longevity/"><u>Why Not Facebook: The Perspective on Longevity</u></a></li>
 </ul></div>
 

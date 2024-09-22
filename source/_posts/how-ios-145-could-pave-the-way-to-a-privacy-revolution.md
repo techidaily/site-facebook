@@ -1,7 +1,7 @@
 ---
 title: How iOS 14.5 Could Pave the Way to a Privacy Revolution
-date: 2024-09-14T19:30:08.837Z
-updated: 2024-09-16T20:03:09.564Z
+date: 2024-09-15T20:47:19.972Z
+updated: 2024-09-21T22:47:02.717Z
 tags:
   - facebook
 categories:
@@ -64,33 +64,20 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
 
@@ -101,6 +88,19 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
  While this seems like a disaster for Facebook at first glance, it remains to be seen how badly it will affect the company.
 
  Related:[How to Use App Tracking Transparency in iOS 14.5 to Stop Apps Tracking You](https://www.makeuseof.com/app-tracking-transparency-ios-14-5-iphone/)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook's Likely Response
 
@@ -127,18 +127,15 @@ thumbnail: https://thmb.techidaily.com/95788679327077f3bf6744c4870d74096e3663b00
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-transform-your-tech-experience-learn-how-to-screen-record-efficiently/"><u>[New] In 2024, Transform Your Tech Experience Learn How to Screen Record Efficiently</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-leading-techniques-for-video-transformation-youtube-to-mpeg/"><u>[Updated] In 2024, Leading Techniques for Video Transformation - YouTube-to-MPEG</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-instagram-video-edge-planning-for-maximum-marketing-success/"><u>[Updated] The Instagram Video Edge Planning for Maximum Marketing Success</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-navigate-your-net-worth-with-youtube-the-threefold-approach-to-assessing-earnings/"><u>2024 Approved Navigate Your Net Worth with YouTube The Threefold Approach to Assessing Earnings</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-nobody-else-taps-into-your-facebook-space/"><u>Ensuring Nobody Else Taps Into Your Facebook Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/ethical-engagement-the-new-frontier-for-advertisers/"><u>Ethical Engagement: The New Frontier for Advertisers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-complete-guide-to-inverted-footage-in-instagram/"><u>In 2024, The Complete Guide to Inverted Footage in Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-your-home-screen-configuring-facebook-portals-for-video-calls/"><u>Mastering Your Home Screen: Configuring Facebook Portals for Video Calls</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giants-bold-investment-of-5m-targeting-content-creators-and-writers/"><u>Social Media Giant's Bold Investment of $5M Targeting Content Creators & Writers</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-monetizing-machine-how-reels-and-revenue-are-revolutionized-by-meta/"><u>The Monetizing Machine: How Reels and Revenue Are Revolutionized by Meta</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-list-of-9-best-online-mic-recorder-hacks/"><u>The Ultimate List of 9 Best Online Mic Recorder Hacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-shouldnt-opt-in-to-facebooks-link-history-feature/"><u>Why You Shouldn't Opt In to Facebook's Link History Feature</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-ahead-mastering-upcoming-tools-through-vivetool/"><u>Windows Ahead: Mastering Upcoming Tools Through ViVeTool</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-rehabilitating-faulty-obs-camera-connection/"><u>[Updated] In 2024, Rehabilitating Faulty OBS Camera Connection</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unified-media-exchange-android-ios/"><u>[Updated] Unified Media Exchange Android-iOS</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ancient-pc-modern-atlasos/"><u>Ancient PC, Modern AtlasOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-ray-ban-stories-what-are-they-and-how-much-do-they-cost/"><u>Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-honor-x50i-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Honor X50i? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-precision-screen-capturing-top-tools-reviewed-on-pcmac/"><u>In 2024, Precision Screen Capturing Top Tools Reviewed on PC/Mac</u></a></li>
+<li><a href="https://extra-support.techidaily.com/jestjungle-your-gateway-to-universal-comedy-for-2024/"><u>JestJungle Your Gateway to Universal Comedy for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-filter-bubble-bill-a-closer-look/"><u>The Filter Bubble Bill: A Closer Look</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-top-social-app/"><u>Unveiling the Top Social App</u></a></li>
 </ul></div>
 

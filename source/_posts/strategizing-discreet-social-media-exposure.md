@@ -1,7 +1,7 @@
 ---
 title: Strategizing Discreet Social Media Exposure
-date: 2024-07-12T10:12:06.606Z
-updated: 2024-07-13T10:12:06.606Z
+date: 2024-09-20T21:58:08.376Z
+updated: 2024-09-21T21:31:24.312Z
 tags:
   - facebook
 categories:
@@ -105,11 +105,26 @@ This is different from a full Facebook block.
 3. Select**Block** .  
 ![facebook menu block messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-menu-block-messages.jpg)
 4. Choose the option for**Block messages and calls** .  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![block messages facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/block-messages-facebook.jpg)
 
  This will prevent the person from seeing your online status. It will also prevent them from messaging you and calling you on Facebook.
 
  Disabling your online status is just one of the ways you can ensure [privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Control Who Sees You Online on Facebook
 
@@ -117,14 +132,11 @@ This is different from a full Facebook block.
 
  Use the settings in this article to regain some privacy when it comes to whether or not your contact list can see if you're online.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -133,6 +145,22 @@ This is different from a full Facebook block.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-tips-to-conclusively-separate-from-tiktok-world/"><u>[New] 2024 Approved Tips to Conclusively Separate From TikTok World</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-building-successful-youtube-collaborations-step-by-step-for-2024/"><u>[New] Building Successful YouTube Collaborations Step by Step for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-accelerate-engagement-implementing-the-top-12-video-growth-strategies/"><u>[Updated] 2024 Approved Accelerate Engagement - Implementing the Top 12 Video Growth Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-photocollage-mastery-building-visual-narratives/"><u>[Updated] 2024 Approved PhotoCollage Mastery Building Visual Narratives</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-samsung-galaxy-m34-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Samsung Galaxy M34 System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://discover-able.techidaily.com/windows-mp4-mpeg-2-4/"><u>最新 Windows でフリー MP4 に MPEG- 2 変換ソフトウェア4つのレコメンド</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/compact-5-listing-visuals-with-accompaniment-recorders-for-2024/"><u>Compact 5 Listing Visuals with Accompaniment Recorders for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enabling-discreet-exchange-of-ideas-on-facebook/"><u>Enabling Discreet Exchange of Ideas on Facebook</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-sign-out-of-apple-id-from-apple-iphone-se-without-password-by-drfone-ios/"><u>In 2024, How to Sign Out of Apple ID From Apple iPhone SE without Password?</u></a></li>
+<li><a href="https://facebook.techidaily.com/insider-reveals-privacy-concerns-exposed-on-fb/"><u>Insider Reveals, Privacy Concerns Exposed on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-innovative-move-shift-to-whatsapp-for-2fa-codes/"><u>Instagram's Innovative Move: Shift to WhatsApp for 2FA Codes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/is-there-an-xbox-online-service-disruption-or-are-you-just-experiencing-technical-issues/"><u>Is There an Xbox Online Service Disruption? Or Are You Just Experiencing Technical Issues?</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-social-media-queries-facebook-poll-setups/"><u>Perfecting Social Media Queries: Facebook Poll Setups</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-detox-stopping-automated-content/"><u>Social Media Detox: Stopping Automated Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-synergy-sending-instagram-reels-via-facebook/"><u>Social Media Synergy: Sending Instagram Reels via Facebook</u></a></li>
+</ul></div>
 

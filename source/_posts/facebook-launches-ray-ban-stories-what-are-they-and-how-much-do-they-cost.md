@@ -1,7 +1,7 @@
 ---
 title: "Facebook Launches Ray-Ban Stories: What Are They and How Much Do They Cost?"
-date: 2024-09-09T22:16:48.169Z
-updated: 2024-09-16T20:32:20.802Z
+date: 2024-09-15T22:31:04.967Z
+updated: 2024-09-21T19:03:45.350Z
 tags:
   - facebook
 categories:
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
  If you want a pair of glasses for yourself, they won't break the bank too much. You can pick them up for $299, which is a pretty reasonable price for what you're getting.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115939/19272" target="_top" id="2115939">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115939" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115939/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When Will the Ray-Ban Stories Come Out?
@@ -68,10 +68,16 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
  The best bit is, if you're dying to wear a piece of the future, you can buy them right away. Just head over to the[Ray-Ban Stories store page](https://www.ray-ban.com/usa/electronics/RW4002%20UNISEX%20ray-ban%20stories%20%7C%20wayfarer-shiny%20black/8056597489478) and pick up a pair today.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A New Chapter in the Story of Smart Glasses
@@ -93,16 +99,15 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-adjust-frame-rate-on-your-story-feed-in-instagram/"><u>[Updated] How to Adjust Frame Rate on Your Story Feed in Instagram</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Additional Tips About Sinnoh Stone For Apple iPhone 11 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-visibility-on-social-platforms/"><u>Enhancing Visibility on Social Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-understanding-of-social-media-emojis-and-their-implications/"><u>Essential Understanding of Social Media Emojis & Their Implications</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-6-proven-ways-to-unlock-lava-blaze-2-phone-when-you-forget-the-password-by-drfone-android/"><u>In 2024, 6 Proven Ways to Unlock Lava Blaze 2 Phone When You Forget the Password</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-13t-pro-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi 13T Pro Device</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-90-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor 90 Pro Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/radiance-hdr-examined-value-or-not/"><u>Radiance HDR Examined Value or Not?</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-sphere-success-a-step-by-step-guide/"><u>Social Sphere Success: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-12-promoters-of-covid-19-untruths/"><u>Top 12 Promoters of Covid-19 Untruths</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/zing-jump-cuts-to-amplify-your-vlog-impact/"><u>Utilizing Jump Cuts to Amplify Your Vlog Impact</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-accessible-obs-presets-for-affordable-computers/"><u>[Updated] 2024 Approved Accessible OBS Presets for Affordable Computers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/dvd-to-mp4-mastery-with-winx-free-ripper-compatible-with-windows-10-and-iphone-xs-systems/"><u>DVD to MP4 Mastery with WinX Free Ripper - Compatible with Windows 10 and iPhone XS Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-rationale-behind-fbs-recommended-content/"><u>Examining the Rationale Behind FB's Recommended Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/expanding-your-conversation-realm-with-messenger/"><u>Expanding Your Conversation Realm with Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/get-notified-about-hidden-screenshots-messenger-style/"><u>Get Notified About Hidden Screenshots, Messenger Style</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a2-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Oppo A2 Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/maximizing-chrome-multitasking-via-picture-in-picture-mode-for-2024/"><u>Maximizing Chrome Multitasking via Picture in Picture Mode for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency.</u></a></li>
 </ul></div>
 

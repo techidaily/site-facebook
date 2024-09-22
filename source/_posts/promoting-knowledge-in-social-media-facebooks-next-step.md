@@ -1,0 +1,85 @@
+---
+title: "Promoting Knowledge in Social Media: Facebook's Next Step"
+date: 2024-09-14T23:18:03.081Z
+updated: 2024-09-21T17:41:10.142Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Promoting Knowledge in Social Media: Facebook's Next Step"
+excerpt: "This Article Describes Promoting Knowledge in Social Media: Facebook's Next Step"
+keywords: Social Media Engagement,Facebook Algorithm Advances,Educational Content Strategies,Digital Literacy and Social Networks,Social Media Learning Platforms,Instructional Social Networking Tactics,Knowledge Dissemination Through Social Media
+thumbnail: https://thmb.techidaily.com/157145562d322ac42b18debf7cc17b6e328143a79a361dfc0ab65e3b0afbaf26.jpg
+---
+
+## Promoting Knowledge in Social Media: Facebook's Next Step
+
+ If you try to share a news article without opening it on Facebook, you may soon see a notification that encourages you to read it first. The prompt is currently being tested on the platform, with the goal of promoting more informed sharing.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Facebook Prods Users to Read Before Sharing
+
+ Facebook wants you to look past the headline, and actually read the news article you're about to share with your friends.
+
+ In a Tweet from the Facebook Newsroom, Facebook stated that it's "testing a way to promote more informed sharing of news articles." When users repost an article just based on its headline, they may be inadvertently promoting fake news, misinformation, or inflammatory content—Facebook intends to counteract this issue with its new prompt.
+
+ Now, if you try to share an article you haven't opened on Facebook, you'll see a notification that reads: "You're about to share this article without opening it. Sharing articles without reading them may mean missing key facts."
+
+ Facebook then gives you two ways to reply to this prompt: **Open Article** and **Continue Sharing** . In other words, you can choose to read the article you're about to post, or continue to share it without reading.
+
+## Twitter Already Unveiled a Similar Prompt
+
+ Facebook clearly took this prompt directly from Twitter's playbook. In September 2020,[Twitter launched a notification](https://www.makeuseof.com/twitter-encourages-to-read-before-retweeting/) that appears when users try to Retweet an article they didn't open. Surprisingly enough, Twitter saw some success with this feature—the prompt actually increased the likelihood of users reading the article before Retweeting it.
+
+ Twitter and Facebook have both been working to crack down on misinformation, with each employing similar measures to do so. The similarities in both platforms' responses became especially prominent amidst the COVID-19 pandemic.
+
+ While[Twitter bans users who repeatedly post misinformation](https://www.makeuseof.com/twitter-ban-users-continuously-post-covid19-misinformation/) about the COVID-19 vaccines,[Facebook removes posts containing false claims](https://www.makeuseof.com/facebook-wont-tolerate-covid19-vaccine-misinformation/) about the vaccines. With both platforms feeding off one another's misinformation-fighting techniques, it's no surprise that Facebook is also exploring a notification to promote informed sharing.
+
+## Will Facebook Ever Be Free of Misinformation?
+
+ Facebook's new prompt will only make a tiny impact on a much larger problem. It's likely that many users will end up sharing unread articles in the heat of the moment, especially if the headline is shocking enough.
+
+ And since Facebook can't force you not to post certain things (unless it breaks Facebook's rules), misinformation will always be an issue. That's why it's important to know how to identify misinformation, as well as how to find reliable news sources.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-the-art-of-influential-facebook-video-marketing/"><u>[New] In 2024, The Art of Influential Facebook Video Marketing</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-whos-leading-in-screen-capture-tech-obs-studios-vs-bandicam-for-2024/"><u>[New] Who's Leading in Screen Capture Tech OBS Studios Vs. Bandicam for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-navigating-snapchat-spotlight-feature/"><u>2024 Approved Navigating Snapchat Spotlight Feature</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-vivo-t2x-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Vivo T2x 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-poco-x6-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-post-to-multiple-facebook-groups/"><u>How to Post to Multiple Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-search-of-real-connections-heres-why-you-should-stop-using-facebook/"><u>In Search of Real Connections? Here's Why You Should Stop Using Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-enhances-trust-with-american-users/"><u>Meta Enhances Trust with American Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-your-high-definition-footage-and-pics-on-fb/"><u>Perfecting Your High-Definition Footage & Pics on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/swipe-through-facebook-downtime-real-time-monitoring-tips/"><u>Swipe Through Facebook Downtime: Real-Time Monitoring Tips</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oneplus-11r-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to OnePlus 11R FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-metaverse-explained-and-why-you-should-care/"><u>The Facebook Metaverse, Explained (And Why You Should Care)</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/visionary-visual-effects-the-best-text-ideas-for-video-artistry/"><u>Visionary Visual Effects The Best Text Ideas for Video Artistry</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

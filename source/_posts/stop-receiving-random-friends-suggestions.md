@@ -1,7 +1,7 @@
 ---
 title: Stop Receiving Random Friends Suggestions
-date: 2024-07-12T10:14:07.716Z
-updated: 2024-07-13T10:14:07.716Z
+date: 2024-09-19T20:44:39.327Z
+updated: 2024-09-21T17:35:46.707Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/3616fb63d3712b98cc05f9583f4211869f6e4c453
  Here's how to hide the "People You May Know" feature on Facebook:
 
 ![android screenshot showing facebook newsfeed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-facebook-newsfeed.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![android screenshot showing how to hide people you may know feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/android-screenshot-showing-how-to-hide-people-you-may-know-feature-1.jpg)
 
@@ -84,23 +91,43 @@ Close
 2. Click on**Settings & Privacy.**
 3. ![desktop screenshot showing facebook profile menu option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-profile-menu-option.jpg)  
  Then, click on**Settings** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. ![desktop screenshot showing facebook settings option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-settings-option.jpg)  
  Scroll down the left menu until you find**Notifications** . Select this.
 5. ![desktop screenshot showing facebook notification settings option-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-notification-settings-option-1.jpg)  
  Scroll down and click on the**People You May Know** option.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. ![desktop screenshot showing facebook people you may know alerts option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/desktop-screenshot-showing-facebook-people-you-may-know-alerts-option.jpg)  
  You have the option to either turn off each type of notification (Push, Email, and SMS). You can also disable all the notifications by turning off the**Allow Notifications on Facebook** toggle.
 
- Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
+ Once you've disabled this feature and these alerts, you should be able to navigate Facebook in peace. Unfortunately, while switching off alerts is permanent, you'll have to hide the friend suggestions box again when it reappears in your feed.
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,6 +136,19 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-enhancing-interactivity-tips-for-hosting-splitting-screen-events-on-facebook/"><u>[New] 2024 Approved Enhancing Interactivity Tips for Hosting Splitting-Screen Events on Facebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-making-mp3-from-instagram-visual-content-for-2024/"><u>[New] Making MP3 From Instagram Visual Content for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-superior-fb-video-tools-save-as-top-quality-mp4s-for-2024/"><u>[New] Superior FB Video Tools – Save as Top Quality MP4s for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-visionary-video-snatcher-tools-guide/"><u>[Updated] In 2024, Visionary Video Snatcher Tools Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-premium-gopro-editing-applications-on-smartphones/"><u>2024 Approved Premium GoPro Editing Applications on Smartphones</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-infinix-smart-7-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Infinix Smart 7</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-xiaomi-redmi-k70-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Xiaomi Redmi K70 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-facebooks-hidden-user-drop/"><u>Peeling Back Facebook's Hidden User Drop</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-for-change-how-facebook-plans-to-modify-news-sphere/"><u>Platform for Change: How Facebook Plans to Modify News Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-the-path-of-googles-seminal-announcements/"><u>Tracing the Path of Google's Seminal Announcements</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-adoption-of-high-tech-solutions-post-hacking-scandals/"><u>User Adoption of High-Tech Solutions Post Hacking Scandals</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-navigating-to-this-years-prime-online-gatherings/"><u>Virtual Voyage: Navigating to This Year's Prime Online Gatherings</u></a></li>
+</ul></div>
 

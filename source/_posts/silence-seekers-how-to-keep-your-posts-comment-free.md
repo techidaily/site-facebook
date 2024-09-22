@@ -1,7 +1,7 @@
 ---
 title: "Silence Seekers: How to Keep Your Posts Comment-Free"
-date: 2024-09-15T20:28:20.745Z
-updated: 2024-09-16T18:07:58.293Z
+date: 2024-09-14T22:06:22.101Z
+updated: 2024-09-21T17:04:57.376Z
 tags:
   - facebook
 categories:
@@ -49,13 +49,6 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -64,6 +57,13 @@ Close
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
@@ -74,7 +74,21 @@ Close
 
 ![screenshot of facebook post filters and tools page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-post-filters-and-tools-page.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  And that's all you need to manage comments on your Facebook post.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
 
@@ -82,21 +96,7 @@ Close
 
 ![screenshot showing facebook group post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-facebook-group-post.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -129,17 +129,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-mastering-minecraft-survival-housing-for-2024/"><u>[New] Mastering Minecraft Survival Housing for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-leading-selection-top-6-fb-lite-vids-for-2024/"><u>[Updated] Leading Selection #Top 6 FB Lite Vids for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-vivo-v27-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Vivo V27 without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-proposed-features-additions-of-reels-and-rooms-to-stories/"><u>Facebook's Proposed Features: Additions of Reels & Rooms to Stories</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-faceless-watchers-of-fb-flashbacks/"><u>In 2024, Faceless Watchers of Fb Flashbacks</u></a></li>
-<li><a href="https://facebook.techidaily.com/influencer-network-behind-widespread-covid-19-misinformation/"><u>Influencer Network Behind Widespread Covid-19 Misinformation</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-free-mpeg-video-concatenation-top-5-options-for-2024/"><u>New Free MPEG Video Concatenation Top 5 Options for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/reactivating-without-a-mobile-deactivating-fb-2fa/"><u>Reactivating Without a Mobile: Deactivating FB 2FA</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-apple-airtag-evaluation-ultimate-gadget-for-iphone-owners/"><u>Top Apple AirTag Evaluation: Ultimate Gadget for iPhone Owners</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-realme-narzo-n53-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Realme Narzo N53 Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-does-meta-forsake-facial-recognition-on-facebook-platform/"><u>Why Does Meta Forsake Facial Recognition on Facebook Platform?</u></a></li>
-<li><a href="https://program-issues.techidaily.com/world-of-warcraft-optimization-overcoming-low-fps-challenges/"><u>World of Warcraft Optimization: Overcoming LOW FPS Challenges</u></a></li>
+<li><a href="https://facebook.techidaily.com/satoshi-sheep-the-ceos-animal-mashup-moniker/"><u>'Satoshi Sheep': The CEO's Animal Mashup Moniker.</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capture-king-review-the-screen-recorder-showdown-for-2024/"><u>[New] Capture King Review The Screen Recorder Showdown for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-8-sbt-to-srtr-conversion-tools-pcmac-compatibility/"><u>[Updated] Best 8 SBT to SRTR Conversion Tools - PC/Mac Compatibility</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/experience-the-difference-of-a-cookiebot-empowered-website/"><u>Experience the Difference of a Cookiebot Empowered Website!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-discarding-facial-id-influence-user-safety-a-facebook-study/"><u>How Does Discarding Facial ID Influence User Safety? A Facebook Study</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-decoding-youtubes-revenue-model-for-video-clips/"><u>In 2024, Decoding YouTube's Revenue Model for Video Clips</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-6-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 6</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimal-periods-for-digital-content-sharing/"><u>Optimal Periods for Digital Content Sharing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/screenplay-grooves-best-background-tunes-for-yt-shorts-for-2024/"><u>Screenplay Grooves Best Background Tunes For YT Shorts for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-interplay-of-real-names-and-screen-names-on-social-media/"><u>The Interplay of Real Names & Screen Names on Social Media</u></a></li>
 </ul></div>
 

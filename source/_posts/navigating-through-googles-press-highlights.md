@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Google's Press Highlights
-date: 2024-09-14T19:18:27.318Z
-updated: 2024-09-16T23:39:35.181Z
+date: 2024-09-14T17:06:58.232Z
+updated: 2024-09-21T17:40:21.785Z
 tags:
   - facebook
 categories:
@@ -58,18 +58,18 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
 
  In early 2022, the US International Trade Commission ruled that Google did indeed violate a total of five Sonos patents. But in August of the same year, Google hit Sonos back with its own lawsuit, claiming that Sonos had actually violated seven of Google's patents, such as its voice assistant technology.
 
  Google and Sonos have now been in a back-and-forth dispute for over two years. We may see who comes out as the true winner of these ongoing legal battles in 2023, or this may extend into further years if a conclusive verdict cannot be met.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. A "Secret" Facebook Deal
 
@@ -81,16 +81,16 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
  What was particularly controversial about this deal, dubbed "Jedi Blue", is that it allegedly sought to benefit Google and Facebook in the online ad space by granting platform privileges to Facebook in Google's ad-buying auctions. In return, Facebook was asked by Google to pull back in its ad competitiveness.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. The FTC Pixel Lawsuit
 
 ![person holding google pixel phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/google-pixel-phone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In late 2022, it was revealed that the US Federal Trade Commission was suing Google and iHeartMedia Inc. for airing almost 30,000 deceptive endorsements for the Pixel 4\. These endorsements contained the voices of radio hosts discussing their positive experiences with the Pixel 4 phone when in reality they had never used it.
 
@@ -100,16 +100,16 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 ![birds eye shot of court hammer on marbled surface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/court-hammer-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In September 2022, it was reported by numerous news outlets that Google was facing a $25 billion fine via two separate lawsuits being filed in both the UK and Netherlands. The two suits alleged that Google took part in unfair or anti-competitive ad practices which negatively affected publishers.
 
  While Google has criticized these lawsuits, it remains to be seen whether the tech giant will have to fork out this $25 billion in compensation in 2023.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Google Has Gone Through a Lot in 2022
 
@@ -130,19 +130,16 @@ thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b206
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-busting-barriers-with-laughs-the-best-facebook-prisoner-wit-quotes/"><u>[New] Busting Barriers with Laughs The Best Facebook Prisoner-Wit Quotes</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-comprehensive-ultimate-guide-to-instagram-stories/"><u>[New] Comprehensive Ultimate Guide to Instagram Stories</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-elite-15-luts-transforming-gopro-action-footage-for-2024/"><u>[New] Elite 15 LUTs Transforming GoPro Action Footage for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-effortless-techniques-to-share-igtv-in-stories/"><u>[New] In 2024, Effortless Techniques to Share IGTV in Stories</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/2-easy-ways-to-open-control-panel-in-windows-7/"><u>2 Easy Ways to Open Control Panel in Windows 7</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/audio-alchemy-transforming-your-windows-11-projects-with-sound-for-2024/"><u>Audio Alchemy Transforming Your Windows 11 Projects with Sound for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-address-failure-in-sending-facebook-security-token/"><u>How to Address Failure in Sending Facebook Security Token</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-shut-down-the-social-conversation-a-guide-for-fb-users/"><u>How to Shut Down the Social Conversation: A Guide for FB Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/set-up-dark-screen-display-on-facebook/"><u>Set Up Dark Screen Display on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-for-configuring-facebook-shortcuts-easily/"><u>Step-by-Step for Configuring Facebook Shortcuts Easily</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-comprerancers-blockade-how-to-halt-comments-on-social-media/"><u>The Comprerancer's Blockade: How to Halt Comments on Social Media</u></a></li>
-<li><a href="https://techidaily.com/undeleted-lost-videos-from-lava-agni-2-5g-by-fonelab-android-recover-video/"><u>Undeleted lost videos from Lava Agni 2 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-directs-facebook-today/"><u>Who Directs Facebook Today?</u></a></li>
-<li><a href="https://howto.techidaily.com/xiaomi-redmi-note-12-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Xiaomi Redmi Note 12 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-best-8-linux-platforms-for-video-mastery/"><u>[New] 2024 Approved Best 8 Linux Platforms for Video Mastery</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-fire-up-your-dreams-with-these-10-movie-gems/"><u>[Updated] Fire Up Your Dreams with These 10 Movie Gems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-chat-to-tune-downloader-for-fb/"><u>2024 Approved Chat to Tune Downloader for FB</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-revolutionize-your-content-with-innovative-tagging-approaches/"><u>2024 Approved Revolutionize Your Content with Innovative Tagging Approaches</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/animated-photos-made-easy-top-picks-for-2024/"><u>Animated Photos Made Easy Top Picks for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-innovative-subscription-concept-outshines-tech-industry-standards/"><u>Facebook’s Innovative Subscription Concept Outshines Tech Industry Standards</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-through-facebooks-725-million-payout/"><u>Navigating Your Way Through Facebook's $725 Million Payout</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-sudden-disconnection-from-facespace/"><u>Overcoming Sudden Disconnection From Facespace</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/rapid-races-recap-olympic-2022-short-track-sprints/"><u>Rapid Races Recap Olympic 2022 Short-Track Sprints</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/stop-motion-made-easy-best-apps-for-mobile-animation-for-2024/"><u>Stop Motion Made Easy Best Apps for Mobile Animation for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-bridging-gaps-in-storytelling-effective-scene-connections-for-2024/"><u>Updated Bridging Gaps in Storytelling Effective Scene Connections for 2024</u></a></li>
 </ul></div>
 

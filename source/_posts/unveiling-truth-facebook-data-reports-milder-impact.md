@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Truth: Facebook Data Reports Milder Impact"
-date: 2024-07-12T10:12:18.160Z
-updated: 2024-07-13T10:12:18.160Z
+date: 2024-09-19T22:38:01.494Z
+updated: 2024-09-22T00:44:44.311Z
 tags:
   - facebook
 categories:
@@ -79,6 +79,13 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
 
  The Facebook Papers did reveal that the company has done some massive things wrong. For example, setting up a test account which was led to QAnon posts and not doing anything about it, or weighting angry reactions against normal reactions are huge concerns.
@@ -87,14 +94,11 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
 
  The Facebook Papers are damning for the company, but certainly not as damning as they seem. Perhaps the saying should be “Don't judge a book by its hundreds of pages of whistleblown reports missing context”, though it's not quite as catchy.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,6 +107,18 @@ thumbnail: https://thmb.techidaily.com/08bfc68ca7424de532f1e4f97e0746486dfe84c13
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-solutions.techidaily.com/fixed-6-fixes-for-dreamlight-valley-crashing-on-pc/"><u>[Fixed] 6 Fixes for Dreamlight Valley Crashing on PC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-canvas-beats-the-art-of-cropping-and-editing-video-sound/"><u>[New] Canvas Beats The Art of Cropping and Editing Video Sound</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-mastering-zoom-incorporating-video-effects-step-by-step/"><u>[Updated] 2024 Approved Mastering Zoom Incorporating Video Effects Step by Step</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-youtube-thumbnails-triple-neon-border-techniques/"><u>[Updated] In 2024, Elevate Your YouTube Thumbnails - Triple Neon Border Techniques</u></a></li>
+<li><a href="https://some-tips.techidaily.com/easy-steps-transforming-your-old-vhs-tapes-into-digital-files-with-top-conversion-tools/"><u>Easy Steps: Transforming Your Old VHS Tapes Into Digital Files with Top Conversion Tools</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-how-to-overcome-the-persistent-loading-issue-in-fortnite-gameplay/"><u>Resolved! How to Overcome the Persistent Loading Issue in Fortnite Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sneak-peek-to-exceptional-cyber-week-offers-grab-great-deals-on-premium-tribit-earphones-and-speakers/"><u>Sneak-Peek to Exceptional Cyber Week Offers: Grab Great Deals on Premium Tribit Earphones and Speakers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-strategy-for-silencing-fb-noises/"><u>The Ultimate Strategy for Silencing FB Noises</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-costs-of-friendship-networks-top-10-reasons-to-cut-off-facebook/"><u>The Unseen Costs of Friendship Networks - Top 10 Reasons to Cut Off Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/trend-of-doubt-grows-for-large-internet-entities-facebook-most-targeted/"><u>Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-test-drives-the-ultimate-guide-to-holy-stone-racing-cartoon-vehicles-for-family-entertainment/"><u>Unboxing & Test Drives: The Ultimate Guide to Holy Stone Racing Cartoon Vehicles for Family Entertainment</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Facebook Mirage: Deceptive Identity Reproduction"
-date: 2024-07-12T10:13:42.782Z
-updated: 2024-07-13T10:13:42.782Z
+date: 2024-09-17T21:10:17.678Z
+updated: 2024-09-21T18:30:24.683Z
 tags:
   - facebook
 categories:
@@ -75,6 +75,13 @@ thumbnail: https://thmb.techidaily.com/d920c3b28ccc2d1f3bea454c7e3d7fac6d650bb29
 
  Also, set your friends list to private so scammers can’t target them.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Check If Your Facebook Account Is Public
 
  There might have been times when you shared something without knowing that it was set to "Public". To check what the public can see, go to your profile. Then click the three dots on the top right corner, below your cover photo. Click the eye icon that says**View As** .
@@ -91,20 +98,24 @@ thumbnail: https://thmb.techidaily.com/d920c3b28ccc2d1f3bea454c7e3d7fac6d650bb29
 
  If you don’t have a Facebook account and someone has made a fake account, you can fill out [this form](https://www.facebook.com/help/contact/295309487309948?helpref=faq%5Fcontent) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Protect Your Friends and Family From Scammers
 
  Keeping your privacy and security settings updated helps protect not just you, but all the people you love too.
 
  Remember that whatever you share publicly can be used to clone your accounts and target your friends and family. Scammers will use tactics like [social engineering to trick your connections](https://www.makeuseof.com/tag/social-engineering-makeuseof-explains/) . By being mindful about what you share, you keep yourself and your loved ones safe from scammers.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,6 +124,19 @@ thumbnail: https://thmb.techidaily.com/d920c3b28ccc2d1f3bea454c7e3d7fac6d650bb29
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-unlock-creative-potential-with-xps-movie-creation-toolkit/"><u>[New] In 2024, Unlock Creative Potential with XP’s Movie Creation Toolkit</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-low-cost-pc-monitoring-solutions-reviewed-and-compared/"><u>[Updated] 2024 Approved Low-Cost PC Monitoring Solutions Reviewed & Compared</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-enhancing-home-media-with-fb-video-integration/"><u>[Updated] In 2024, Enhancing Home Media with FB Video Integration</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ace-pinterest-with-these-top-5-time-saving-organizing-utilities/"><u>Ace Pinterest with These Top 5 Time-Saving Organizing Utilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-dynamics-between-facebook-and-twitter-identities/"><u>Exploring the Dynamics Between Facebook and Twitter Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-2d-to-3d-a-tutorial-for-social-media-success/"><u>From 2D to 3D: A Tutorial for Social Media Success</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-apple-iphone-7-plus-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase Apple iPhone 7 Plus When Its Locked Within Seconds</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-navigating-common-youtube-short-glitches/"><u>In 2024, Navigating Common YouTube Short Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-instagrams-sponsored-reels-and-fb-story-ads/"><u>Introducing Instagram's Sponsored Reels & FB Story Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-increase-in-crypto-advertising-on-facebook-and-instagram/"><u>The Increase in Crypto Advertising on Facebook & Instagram</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/transforming-vision-into-visual-storytelling-with-windows-11-techniques-for-2024/"><u>Transforming Vision Into Visual Storytelling with Windows 11 Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-metaverse-top-6-facebook-revolutions/"><u>Unveiling the Metaverse: Top 6 Facebook Revolutions</u></a></li>
+</ul></div>
 

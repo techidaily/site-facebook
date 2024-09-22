@@ -1,7 +1,7 @@
 ---
 title: "Understanding PhotoDNA: A Tool Against Piracy"
-date: 2024-07-12T10:13:19.473Z
-updated: 2024-07-13T10:13:19.473Z
+date: 2024-09-17T16:10:48.799Z
+updated: 2024-09-21T20:21:56.393Z
 tags:
   - facebook
 categories:
@@ -63,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does PhotoDNA Make the Internet Safer?
 
  The Microsoft-developed service is undoubtedly an essential tool. PhotoDNA plays a crucial role in preventing these images from spreading and may even help to help at-risk children.
@@ -81,14 +95,11 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
 
  It's easier than ever to take and upload high-resolution abuse images online, and the abusers are increasingly taking to more secure platforms like the Dark Web and encrypted messaging apps to share the illegal material. If you've not come across the Dark Web before, it's worth reading about the risks associated with the hidden side of the internet.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,6 +108,19 @@ thumbnail: https://thmb.techidaily.com/b88f149e018190d8db992f5fa62ce84a76816eeb0
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-funny-image-editor-hub/"><u>[Updated] Leading Funny Image Editor Hub</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-practices-zooming-into-fb-live-excellence/"><u>Best Practices Zooming Into FB Live Excellence</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/confidentiality-concerns-why-using-chatgpt-for-private-info-can-be-dangerous/"><u>Confidentiality Concerns: Why Using ChatGPT for Private Info Can Be Dangerous</u></a></li>
+<li><a href="https://facebook.techidaily.com/financial-networking-fundamentals/"><u>Financial Networking Fundamentals</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-poco-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Poco .</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-11-pro-unavailable-issue-with-ease-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 11 Pro Unavailable Issue With Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-assessment-discovering-the-pinnacle-of-premium-smartphones-with-the-samsung-galaxy-s10/"><u>In-Depth Assessment: Discovering the Pinnacle of Premium Smartphones with the Samsung Galaxy S10</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-hp-laserjet-1018-driver-version-download-now/"><u>Latest HP LaserJet 1018 Driver Version Download Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-symphony-orchestrating-photographic-collections-on-fb/"><u>Social Media Symphony: Orchestrating Photographic Collections on FB</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-507-instagram-caption-ideas-for-your-2024-posts/"><u>Top 507 Instagram Caption Ideas for Your 2024 Posts</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-no-watermark-no-problem-top-video-merger-tools/"><u>Updated In 2024, No Watermark, No Problem Top Video Merger Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-meta-ai-on-sites/"><u>Weighing the Advantages and Disadvantages of Meta AI on Sites</u></a></li>
+</ul></div>
 

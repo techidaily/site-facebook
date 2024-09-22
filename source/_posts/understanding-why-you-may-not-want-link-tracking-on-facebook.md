@@ -1,7 +1,7 @@
 ---
 title: Understanding Why You May Not Want Link Tracking on Facebook
-date: 2024-09-15T18:42:35.194Z
-updated: 2024-09-16T19:50:34.263Z
+date: 2024-09-19T00:50:44.057Z
+updated: 2024-09-21T22:20:18.269Z
 tags:
   - facebook
 categories:
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
@@ -64,13 +64,20 @@ thumbnail: https://thmb.techidaily.com/606be4e6c5a29affde6b0062eb01d7884930a95dd
 
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -89,28 +96,15 @@ Close
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
@@ -135,21 +129,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://ai-topics.techidaily.com/2024-approved-exploring-the-magic-of-ai-selfie-generators/"><u>2024 Approved Exploring the Magic of AI Selfie Generators</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/choosing-the-right-chatgpt-tool-browser-based-or-plugin-options/"><u>Choosing the Right ChatGPT Tool: Browser-Based or Plugin Options?</u></a></li>
-<li><a href="https://facebook.techidaily.com/hacker-breach-users-pay-300-for-oculus-rift-solutions/"><u>Hacker Breach: Users Pay $300 for Oculus Rift Solutions</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-google-pixel-8-pro-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Google Pixel 8 Pro? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-become-a-yt-hub-pro-complete-guide-revealed/"><u>In 2024, Become a YT Hub Pro Complete Guide Revealed</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-how-to-change-the-privacy-setting-on-your-youtube-videos/"><u>In 2024, How to Change the Privacy Setting on Your YouTube Videos</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-maximize-engagement-crafting-vids-with-3-powerful-descriptors-on-insta/"><u>In 2024, Maximize Engagement Crafting Vids with 3 Powerful Descriptors on Insta</u></a></li>
-<li><a href="https://win-able.techidaily.com/install-and-enable-virtualization-with-hyper-v-a-guide-for-windows-11-users/"><u>Install and Enable Virtualization with Hyper-V: A Guide for Windows 11 Users</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/kinemaster-guide-to-seamless-green-screen-implementation/"><u>Kinemaster Guide to Seamless Green Screen Implementation</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-unveils-mega-ai-powerhouse-to-dominate-tech/"><u>Meta Unveils Mega AI Powerhouse to Dominate Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagining-online-life-navigating-through-six-key-reasons-for-fbs-metaverse/"><u>Reimagining Online Life: Navigating Through Six Key Reasons for FB’s Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-dilemma-to-use-or-not-to-use-facebook-events/"><u>Social Networking Dilemma: To Use or Not to Use Facebook Events?</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-into-the-future-crafting-immersive-3d-photos-for-fb/"><u>Step Into the Future: Crafting Immersive 3D Photos for FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/stop-intruder-alert-check-for-pcemail-misuse-indicators/"><u>Stop Intruder Alert! Check for PC/Email Misuse Indicators</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/streamline-your-slide-show-secrets-to-excellent-ppt-recording-for-2024/"><u>Streamline Your Slide Show Secrets to Excellent PPT Recording for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-effective-crowdflower-tools/"><u>The Ultimate Guide to Effective CrowdFlower Tools</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-navigating-instagrams-question-marker-magic/"><u>[New] Navigating Instagram’s Question Marker Magic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-inside-perspectives-unveiling-what-you-dont-know-about-story-watching/"><u>[Updated] 2024 Approved Inside Perspectives Unveiling What You Don't Know About Story Watching</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-navigating-the-landscape-of-color-correction-innovative-uses-of-luts-in-video-editing/"><u>[Updated] In 2024, Navigating the Landscape of Color Correction Innovative Uses of LUTs in Video Editing</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/1722959807358-choosing-your-device-a-comprehensive-guide-to-ipad-pro-vs-macbook-pro/"><u>Choosing Your Device: A Comprehensive Guide to IPad Pro Vs. MacBook Pro</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/decode-ieframedll-problems-effective-strategies-for-a-smooth-online-experience/"><u>Decode Ieframe.dll Problems: Effective Strategies for a Smooth Online Experience</u></a></li>
+<li><a href="https://win11.techidaily.com/overcome-endless-scrolls-on-large-datasheets-windows/"><u>Overcome Endless Scrolls on Large Datasheets, Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-steps-for-swift-account-reactivation-on-fb/"><u>Proven Steps for Swift Account Reactivation on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-pre-deletion-must-dos-before-facing-fb/"><u>Secure Your Digital Footprint: Pre-Deletion Must-Dos Before Facing FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-illusions-the-factual-side-of-facebook-claims/"><u>Unveiling Internet Illusions: The Factual Side of Facebook Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-and-conquer-join-meta-in-the-states/"><u>Verify and Conquer: Join Meta in the States</u></a></li>
 </ul></div>
 

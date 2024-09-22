@@ -1,7 +1,7 @@
 ---
 title: "Unmasking VK: Russia's Alternative Online Platform"
-date: 2024-09-15T22:30:16.180Z
-updated: 2024-09-17T00:04:21.477Z
+date: 2024-09-20T18:31:56.491Z
+updated: 2024-09-21T20:00:59.785Z
 tags:
   - facebook
 categories:
@@ -62,13 +62,6 @@ Some potential explanations for this difference include:
 
  This level of detail carries over to nearly every part of your profile. By collecting data in this way, VK can unite me not only with others in my graduating class currently living in my city, but with those who participated in my program of study specifically.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. VK Has a Complicated Political History
 
  Just like Facebook, VK was created by a young person, fresh out of college. Pavel Durov enjoyed a lot of success before running into trouble with the law in 2012.
@@ -76,13 +69,6 @@ Some potential explanations for this difference include:
  Many activist groups at odds with the Russian establishment used the platform frequently, both as ordinary users and as a means to advance their causes. When asked to permanently ban these groups and individuals, Durov refused.
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Russian Users Believe VK is Better than Facebook
 
@@ -93,10 +79,10 @@ Some potential explanations for this difference include:
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. VK Has Suffered Major Security Breaches
@@ -117,6 +103,13 @@ Some potential explanations for this difference include:
 
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
 
  Related:[How to Get the Old Facebook Layout Back... It's Easy!](https://www.makeuseof.com/how-to-get-old-facebook-layout-back/)
@@ -126,6 +119,19 @@ Some potential explanations for this difference include:
 > We like minimalism and simplicity. This is the way that is \[sic\] looked in the beginning, and this is the way that it looks now.
 
  It's a brilliant ethos to live by; VK keeps things comfortable and consistent, just like an old blanket.
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## There's a World Outside of Facebook
 
@@ -148,15 +154,17 @@ Some potential explanations for this difference include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-explore-mastery-in-photography-and-videography-on-apple-and-android-phones-for-2024/"><u>[New] Explore Mastery in Photography & Videography on Apple & Android Phones for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-image-enhancement-made-simple-how-to-inject-text-into-pictures-on-windowsmacos/"><u>[New] In 2024, Image Enhancement Made Simple How to Inject Text Into Pictures on Windows/MacOS</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-inside-look-whatsapps-voice-message-technology-for-2024/"><u>[New] Inside Look WhatsApp's Voice Message Technology for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-maintaining-continuous-connections-on-snapchat-tips-and-tricks-for-2024/"><u>[New] Maintaining Continuous Connections on Snapchat Tips & Tricks for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-professional-level-edits-made-simple-10-pixlr-strategies/"><u>[New] Professional-Level Edits Made Simple 10 Pixlr Strategies</u></a></li>
-<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-google-pixel-7a-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-vivo-y78plus-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Vivo Y78+ Phone Hassle-Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
-<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-5-gatherings-of-freelance-professionals/"><u>Top 5 Gatherings of Freelance Professionals</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-freeze-whole-website-panel-for-2024/"><u>[Updated] Freeze Whole Website Panel for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-mastering-digital-asset-preservation-with-adobe-and-exploring-best-non-adobe-options/"><u>2024 Approved Mastering Digital Asset Preservation with Adobe & Exploring Best Non-Adobe Options</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/additional-tips-about-sinnoh-stone-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/comparing-operating-systems-windows-11-versus-macos-monterey-which-performs-superiorly/"><u>Comparing Operating Systems: Windows 11 versus MacOS Monterey - Which Performs Superiorly?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/converti-i-tuoi-filmati-in-qualita-superiori-con-questi-2-primissimi-convertitori-4k-per-computer-nel-2019/"><u>Converti I Tuoi Filmati in Qualità Superiori Con Questi 2 Primissimi Convertitori 4K per Computer Nel 2019!</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-dynamics-between-facebook-and-twitter-identities/"><u>Exploring the Dynamics Between Facebook and Twitter Identities</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fix-failed-next-steps-for-advanced-video-repair/"><u>Fix Failed? Next Steps for Advanced Video Repair</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/how-to-write-amazing-podcast-descriptions-with-examples-for-2024/"><u>How to Write Amazing Podcast Descriptions (With Examples) for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-vivo-y78-5g-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Vivo Y78 5G FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/introducing-instagrams-sponsored-reels-and-fb-story-ads/"><u>Introducing Instagram's Sponsored Reels & FB Story Ads</u></a></li>
+<li><a href="https://facebook.techidaily.com/must-see-update-giphys-future-linked-to-fb-sale/"><u>Must-See Update: Giphy's Future Linked to FB Sale?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-pings-or-sounds/"><u>No More FB Pings or Sounds</u></a></li>
 </ul></div>
 

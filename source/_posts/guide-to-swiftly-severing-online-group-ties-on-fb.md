@@ -1,7 +1,7 @@
 ---
 title: Guide to Swiftly Severing Online Group Ties on FB
-date: 2024-07-12T10:10:43.724Z
-updated: 2024-07-13T10:10:43.724Z
+date: 2024-09-15T19:19:41.359Z
+updated: 2024-09-21T18:22:03.817Z
 tags:
   - facebook
 categories:
@@ -72,6 +72,13 @@ Here's how to pause your group on the web:
 
 ![facebook pause group feature](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-pause-group-feature.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you’re just plain tired of the group or its members are just too inactive to be worth it anymore, you can go ahead and delete it. That's assuming you don't want to just [leave the Facebook group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 ## How to Delete Your Facebook Group
@@ -82,6 +89,19 @@ This makes it a tedious process for larger groups.
 
 ### How to Delete Your Facebook Group on Mobile
 ![screenshot facebook group home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-facebook-group-home-page.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screenshot showing facebook group members](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screenshot-showing-facebook-group-members.jpg)
 
@@ -99,6 +119,13 @@ Follow these steps to delete your group on mobile:
 6. Once you’re done removing other members, tap the**three dots** next to your name and select**Leave group** .
 
  Facebook will automatically delete the group once there are no members in it.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Group on the Web
 ![screen showing admin removing a member from a facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/screen-showing-admin-removing-a-member-from-a-facebook-group.JPG)
@@ -121,20 +148,24 @@ Again, once the group is empty, Facebook will delete it.
 
  However, Facebook has removed the archive group option. If you need a break from your group, you’ll have to choose between pausing or permanently deleting the group.
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Happens When You Delete a Facebook Group?
 
  Deleting a group is a permanent action that can’t be reversed. Once you remove every member and yourself from the group, Facebook instantly deletes all posts, files, comments, and reactions shared in the group.
 
  Be sure you want to delete the group before going this far because at this point there’s no going back.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,6 +174,19 @@ Again, once the group is empty, Facebook will delete it.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-elite-applications-facilitating-video-discussions/"><u>[New] Elite Applications Facilitating Video Discussions</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-from-broadcasts-to-bitstreams-online-recording-for-professionals-for-2024/"><u>[New] From Broadcasts to Bitstreams Online Recording for Professionals for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-your-ultimate-guide-best-mac-screen-recorders/"><u>[Updated] Your Ultimate Guide Best Mac Screen Recorders</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-into-new-dimensions-understanding-and-importance-of-facebooks-metaverse/"><u>Embarking Into New Dimensions: Understanding and Importance of Facebook's Metaverse</u></a></li>
+<li><a href="https://app-tips.techidaily.com/enterprise-tech-adopts-ops-approach-amidst-growing-pains-and-opportunities-for-innovation/"><u>Enterprise Tech Adopts 'Ops' Approach Amidst Growing Pains and Opportunities for Innovation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/free-winx-dvd-creator-software-ultimate-guide-to-burning-and-creating-dvds-on-windows-10-and-11/"><u>Free WinX DVD Creator Software: Ultimate Guide to Burning and Creating DVDs on Windows 10 & 11</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-infinix-smart-7-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Infinix Smart 7 Phone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-iphone-11-pro-maxipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled iPhone 11 Pro Max/iPad Without Computer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-most-heated-technological-minds-in-action/"><u>The Most Heated Technological Minds in Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-smart-way-to-benefit-from-facebooks-725m-class-action/"><u>The Smart Way to Benefit From Facebook's 725M Class Action</u></a></li>
+<li><a href="https://facebook.techidaily.com/twinning-trends-exploring-the-affinity-between-fb-and-insta/"><u>Twinning Trends: Exploring the Affinity Between FB & Insta</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-generative-artificn-intelligence-an-in-depth-guide/"><u>Understanding Generative Artificn Intelligence: An In-Depth Guide</u></a></li>
+</ul></div>
 

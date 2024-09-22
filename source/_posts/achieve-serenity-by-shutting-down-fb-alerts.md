@@ -1,7 +1,7 @@
 ---
 title: Achieve Serenity by Shutting Down FB Alerts
-date: 2024-07-12T10:11:24.614Z
-updated: 2024-07-13T10:11:24.614Z
+date: 2024-09-16T00:23:15.563Z
+updated: 2024-09-21T23:45:33.643Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892
 ### Healthy Lifestyle
 
  Addiction to social media apps can lead to a sedentary lifestyle and lack of activity. Instead of spending time clicking every notification you receive on Facebook, we recommend going out to grab some fresh air and refrain from using the phone.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### More Confidence
 
@@ -77,7 +84,21 @@ Close
 
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
 
@@ -101,12 +122,27 @@ Close
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
@@ -118,14 +154,11 @@ Close
 
  We hope that blocking all Facebook notifications improves your productivity, reduces stress, and helps you embrace a healthy and active lifestyle.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,6 +167,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-maximizing-visual-clarity-on-kinemaster-projects-for-2024/"><u>[New] Maximizing Visual Clarity on Kinemaster Projects for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-sierra-sovereign-dvd-and-media-cutting-tools/"><u>[Updated] In 2024, Sierra Sovereign Dvd & Media Cutting Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-navigating-through-complete-circles-on-screen/"><u>[Updated] Navigating Through Complete Circles on Screen</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-viewer-interest-6-essential-video-formats/"><u>2024 Approved Mastering Viewer Interest 6 Essential Video Formats</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/achieve-seamless-audio-streaming-on-bluetooth-devices/"><u>Achieve Seamless Audio Streaming on Bluetooth Devices</u></a></li>
+<li><a href="https://driver-error.techidaily.com/correcting-invalid-service-inf-details/"><u>Correcting Invalid Service INF Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-your-social-media-identity-whatsapp-and-fb-avatars/"><u>Embracing Your Social Media Identity: WhatsApp and FB Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-fossil-to-green-facebooks-total-energy-transformation/"><u>From Fossil to Green: Facebook's Total Energy Transformation</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Stop Life360 from Tracking You On Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-quickcapture-stopping-and-saving-screen-moments/"><u>In 2024, QuickCapture Stopping & Saving Screen Moments</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-unveiling-the-secrets-of-slow-motion-video-production-for-instagram-impact/"><u>In 2024, Unveiling the Secrets of Slow Motion Video Production for Instagram Impact</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-maze-of-removing-tags-from-online-images/"><u>Navigating the Maze of Removing Tags From Online Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giant-defines-humor-regulations/"><u>Social Media Giant Defines Humor Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundtrack-to-social-interaction-exploring-the-impact-of-facebook-and-spotifys-boombox/"><u>Soundtrack to Social Interaction: Exploring the Impact of Facebook & Spotify's Boombox</u></a></li>
+<li><a href="https://facebook.techidaily.com/which-app-connects-you-best-survey-here/"><u>Which App Connects You Best? Survey Here</u></a></li>
+</ul></div>
 

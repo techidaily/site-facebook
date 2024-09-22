@@ -1,7 +1,7 @@
 ---
 title: Essential Steps to Clean Up Your Facebook Profile
-date: 2024-09-10T21:35:44.656Z
-updated: 2024-09-16T18:08:37.751Z
+date: 2024-09-17T19:42:21.078Z
+updated: 2024-09-21T16:03:24.619Z
 tags:
   - facebook
 categories:
@@ -66,28 +66,21 @@ Now:
 
 ![Opening the Follow Settings window for a page from the Liked Pages tab](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/4-opening-the-follow-settings-window-for-a-page-in-the-liked-pages-window.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135476/26400" target="_top" id="2135476">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135476/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  From there, turn on the toggle next to**Unfollow this page** and click the**Update** button to unfollow the page successfully.
 
 ![Unfollowing a Facebook Page From the Follow Settings Window on Facbeook Website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/unfollowing-a-facebook-page-from-the-follow-settings-window-on-facbeook-website.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Follow the same procedure for all the pages you want to unfollow.
@@ -98,20 +91,27 @@ Follow the same procedure for all the pages you want to unfollow.
 
 ![Opening the Feed Settings from the Settings and Privacy Menu on Facbeook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/6-opening-the-feed-settings-from-the-settings-and-privacy-window-on-facbeook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  From there, select**Unfollow people and groups** .
 
 ![Opening the Feed Preference to Unfollow People and Groups in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/7-opening-the-feed-preference-to-unfollow-people-and-groups-in-the-manage-your-feed-window.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Select**Pages Only** from the sort menu in the top right to see only the pages you follow. Click the**Following icon** next to the pages you want to unfollow.
 
 ![Unfollowing Pages in Bulk From the Unfollow Window in the Manage Your Feed Window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/10/8-unfollowing-pages-in-bulk-from-the-unfollow-window-in-the-manage-your-feed-window.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Unfollow Facebook Pages From the Mobile App
 
@@ -132,15 +132,17 @@ Follow the same procedure for all the pages you want to unfollow.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-how-much-footage-does-instagram-allow/"><u>2024 Approved How Much Footage Does Instagram Allow?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/customize-twitter-video-snapshot-for-2024/"><u>Customize Twitter Video Snapshot for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/elevate-your-3d-printing-experience-top-cura-software-upgrades/"><u>Elevate Your 3D Printing Experience: Top Cura Software Upgrades</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbtwitters-new-sports-showcase-feature/"><u>FB/Twitter's New Sports Showcase Feature</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/fixing-warzone-memory-error-code-0-1766-on-xbox-and-pc-a-step-by-step-guide/"><u>Fixing Warzone Memory Error Code 0-1766 on Xbox and PC: A Step-by-Step Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-pinnacle-photo-narrative-directors-set/"><u>In 2024, Pinnacle Photo Narrative Director's Set</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-your-smartphone-as-an-artists-canvas-producing-quality-youtube-video-content/"><u>In 2024, Your Smartphone as an Artist’s Canvas Producing Quality YouTube Video Content</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-facebook-fan-count-privacy/"><u>Securing Your Facebook Fan Count Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/silence-in-the-friend-zone-ending-fb-connections/"><u>Silence in the Friend Zone: Ending FB Connections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[New] 2024 Approved Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-investigating-the-economics-of-t-series-on-youtube/"><u>2024 Approved Investigating the Economics of T-Series on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-love-the-cut-filmoras-top-10-edits-unveiled/"><u>2024 Approved Love the Cut Filmora's Top 10 Edits Unveiled</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/artificeintelligent-advancements-transforming-academic-research-methods/"><u>ArtificeIntelligent Advancements: Transforming Academic Research Methods</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/effortlessly-watch-mkv-files-top-3-fixes-for-troublesome-player-errors/"><u>Effortlessly Watch MKV Files: Top 3 Fixes for Troublesome Player Errors</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ios-revolutionized-with-chatgpt-innovation/"><u>IOS Revolutionized with ChatGPT Innovation</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-americans-think-social-media-does-more-harm-than-good/"><u>Most Americans Think Social Media Does More Harm Than Good</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-through-stormy-skies-top-storm-tracking-tech-for-safer-journeys/"><u>Navigating Through Stormy Skies: Top Storm Tracking Tech for Safer Journeys</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-blueprint-behind-facebooks-network-structure/"><u>The Blueprint Behind Facebook's Network Structure</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-threefold-menace-of-metas-dominance/"><u>The Threefold Menace of Meta's Dominance</u></a></li>
+<li><a href="https://facebook.techidaily.com/transformative-role-of-channels-in-social-media-groups/"><u>Transformative Role of Channels in Social Media Groups</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-on-iphone-7-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives On iPhone 7</u></a></li>
 </ul></div>
 

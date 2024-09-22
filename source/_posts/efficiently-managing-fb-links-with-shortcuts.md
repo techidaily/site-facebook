@@ -1,7 +1,7 @@
 ---
 title: Efficiently Managing FB Links with Shortcuts
-date: 2024-07-12T10:08:29.085Z
-updated: 2024-07-13T10:08:29.085Z
+date: 2024-09-19T20:58:14.997Z
+updated: 2024-09-21T17:10:58.041Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
  The Profile shortcut is a circular avatar icon and it's where you can access your profile and all your posts. You can remove it, and if you do, your profile is still accessible from the Menu page via the hamburger icon.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Notifications
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
@@ -56,9 +63,23 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 ### Marketplace
 ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow [safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
  The Marketplace section comes with its own list of settings where you can filter through specific items. Listings will be based on your location by default, but you can change it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Groups
 
@@ -135,6 +156,13 @@ To disable and enable Facebook notification dots by long-pressing:
 
 ![facebook-app-navigation-bar-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-navigation-bar-settings.JPEG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
 
 Close
@@ -147,18 +175,22 @@ To disable and enable Facebook notification dots from the settings:
 4. Select**Navigation bar > Manage notification dots** . You will be taken to a section where you can manage your shortcut notification dots preferences.
 5. Toggle the blue tabs on and off to enable or disable notification dots for a shortcut. Only the shortcuts that you currently have pinned to your navigation bar will appear here.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Customize Your Facebook Shortcuts
 
  Shortcuts are there to make navigation quick and convenient. But let's be real, they can also clog up your screen. Follow the above guide to choose which shortcuts you want to display, get rid of, and whether or not you want to see their notification dots.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,6 +199,18 @@ To disable and enable Facebook notification dots from the settings:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-top-tier-affordable-photo-enhancement-software-online-for-2024/"><u>[New] Top-Tier Affordable Photo Enhancement Software Online for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-maximizing-visuals-a-step-by-step-guide-for-buying-a-4k-monitor/"><u>[Updated] 2024 Approved Maximizing Visuals A Step-by-Step Guide for Buying a 4K Monitor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-flip-order-3-easy-steps-to-rewind-youtube-listeners/"><u>[Updated] In 2024, Flip Order 3 Easy Steps to Rewind Youtube Listeners</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-making-online-gaming-more-intimate-via-xbox-zoom/"><u>[Updated] Making Online Gaming More Intimate via Xbox Zoom</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-oppo-a1x-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Oppo A1x 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-fb-shielding-against-prying-onlookers/"><u>Fortify Your Fb Shielding Against Prying Onlookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-anonymous-posting-in-a-facebook-group/"><u>How to Enable Anonymous Posting in a Facebook Group</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-motorola-moto-g-stylus-2023-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Motorola Moto G Stylus (2023) Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-oppo-reno-11-pro-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Oppo Reno 11 Pro 5G Phone Network-Ready</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-algorithm-behind-my-fb-promotions/"><u>Unveiling the Algorithm Behind My Fb Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-antitrust-regulations-impacting-silicon-valley-giants/"><u>US Antitrust Regulations: Impacting Silicon Valley Giants</u></a></li>
+</ul></div>
 

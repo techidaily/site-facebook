@@ -1,7 +1,7 @@
 ---
 title: Friendship Reborn or Reimagined Through Facebook?
-date: 2024-09-10T18:14:16.077Z
-updated: 2024-09-16T23:00:32.861Z
+date: 2024-09-14T19:09:14.315Z
+updated: 2024-09-21T23:56:14.311Z
 tags:
   - facebook
 categories:
@@ -48,22 +48,15 @@ thumbnail: https://thmb.techidaily.com/1f190d8040197877fe9d91a786d037cb715f0068f
 
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
 
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
@@ -87,30 +80,37 @@ So, what are some of the biggest things that affected us negatively?
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -139,15 +139,20 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://techtrends.techidaily.com/das-umfassende-handbrake-tutorial-zur-aktivierung-und-nutzung-des-nvenc-videoencoders-funktionsweise-erklart/"><u>Das Umfassende HandBrake Tutorial Zur Aktivierung Und Nutzung Des NVENC Videoencoders - Funktionsweise Erklärt</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/deciphering-ais-milestones-an-in-depth-comparison-of-each-generation-of-openais-language-models-from-gpt-1-to-gpt-4/"><u>Deciphering AI's Milestones: An In-Depth Comparison of Each Generation of OpenAI's Language Models - From GPT-1 to GPT-4</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/download-tools-for-eliminating-epub-digital-rights-management-drm/"><u>Download Tools for Eliminating EPUB Digital Rights Management (DRM)</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-itel-a70-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Itel A70 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-navigating-obs-livestream-integration-for-maximum-facebook-reach/"><u>In 2024, Navigating OBS Livestream Integration for Maximum Facebook Reach</u></a></li>
-<li><a href="https://facebook.techidaily.com/internet-influence-backs-who-aims-for-covid-19-success/"><u>Internet Influence Backs WHO, Aims for COVID-19 Success</u></a></li>
-<li><a href="https://driver-download.techidaily.com/logitech-rx250-driver-and-software-installation-guide-for-windows-os-versions-win-7-8-10/"><u>Logitech RX250 Driver & Software Installation Guide for Windows OS Versions (Win 7, 8, 10)</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-safety-status-update-on-fb/"><u>Mastering Safety Status Update on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-6-benefits-why-facebook-remains-essential/"><u>Top 6 Benefits: Why Facebook Remains Essential</u></a></li>
-<li><a href="https://facebook.techidaily.com/unseen-web-sites-discover-facebooks-banned-countries/"><u>Unseen Web Sites: Discover Facebook’s Banned Countries</u></a></li>
+<li><a href="https://facebook.techidaily.com/not-so-goodbye-exploring-reasons-behind-facebooks-survival/"><u>'Not So Goodbye': Exploring Reasons Behind Facebook’s Survival</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-comparing-sharex-with-industry-leaders-for-2024/"><u>[New] Comparing ShareX with Industry Leaders for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-insights-into-instagram-follower-exits-for-2024/"><u>[New] Insights Into Instagram Follower Exits for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unleash-creative-potential-with-free-effs/"><u>[New] Unleash Creative Potential with Free Effs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-adaptive-sharing-techniques-for-igtv-on-fb-for-2024/"><u>[Updated] Adaptive Sharing Techniques for IGTV on FB for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-x100-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-take-your-edits-to-the-next-level-10-free-fcpx-plugins-for-2024/"><u>New Take Your Edits to the Next Level 10 Free FCPX Plugins for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/printer-setup-puzzle-resolved-error-0x00000709/"><u>Printer Setup Puzzle: Resolved Error 0X00000709</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/to-ps5-or-not-to-ps5-understanding-its-merit-a-closer-look-at-4-strong-buying-points/"><u>To PS5 or Not to PS5: Understanding Its Merit - A Closer Look at 4 Strong Buying Points</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
 </ul></div>
 

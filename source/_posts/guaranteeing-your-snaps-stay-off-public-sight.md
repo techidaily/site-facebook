@@ -1,7 +1,7 @@
 ---
 title: Guaranteeing Your Snaps Stay Off Public Sight
-date: 2024-07-12T10:10:42.589Z
-updated: 2024-07-13T10:10:42.589Z
+date: 2024-09-14T18:41:38.934Z
+updated: 2024-09-22T00:25:14.521Z
 tags:
   - facebook
 categories:
@@ -96,11 +96,25 @@ To make a single photo on Facebook private, follow these steps:
 
 ![Viewing a photo on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-photo-uploaded-to-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Photo settings options on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-facebook-photo-settings-options.jpg)
 
 ![Editing photo privacy settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-photo-privacy-settings-facebook.jpg)
 
 Close
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Make Individual Facebook Photos Private on the Web
 
@@ -131,6 +145,13 @@ Close
 
 ![View as on Facebook.com](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/view-as-option-facebook-website.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  This will show you all the previous posts that people outside your Facebook friends list and the platform can see. You can not change the [privacy settings of your Facebook you're](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) while you’re in the View As mode, but you can take note of the photos and the dates so that you can find them later.
 
  Once you know which photos you want to set to private, leave View As public mode by clicking on your thumbnail in the top right corner of your screen or clicking back. Alternatively, tap**Exit View As** . On mobile, tap the**X** button at the top to exit View As mode.
@@ -145,9 +166,23 @@ Close
 
 ![Making a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/01-posting-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook audience options for a post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/02-post-audience-facebook.jpg)
 
 ![Adjusting audience settings on a Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/03-facebook-default-audience-option.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -163,14 +198,11 @@ Close
 
  Always remember that there are unscrupulous hackers and scammers who are looking for ways to take advantage of other people.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,6 +211,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-expressive-youtube-aesthetics-at-no-cost-for-2024/"><u>[New] Expressive YouTube Aesthetics at No Cost for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-game-changers-discovering-top-tier-gaming-webcam-technology/"><u>[Updated] In 2024, Game Changers Discovering Top-Tier Gaming Webcam Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-opens-new-horizons-for-oculus-go-with-root-access-unveiled/"><u>Facebook Opens New Horizons for Oculus Go with Root Access Unveiled</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-lenovo-bluetooth-hitches-in-win11/"><u>Fixing Lenovo Bluetooth Hitches in Win11</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/revive-your-sonos-speakers-a-guide-on-fixing-common-problems-with-an-outdated-third-party-application/"><u>Revive Your Sonos Speakers: A Guide on Fixing Common Problems with an Outdated Third-Party Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-paradox-why-do-people-reject-online-communities/"><u>The Facebook Paradox: Why Do People Reject Online Communities?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-process-to-ignore-member-names-on-fb-groups/"><u>Unveiling the Process to Ignore Member Names on FB Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/webworld-woe-all-big-social-platforms-go-dark/"><u>Webworld Woe: All Big Social Platforms Go Dark</u></a></li>
+</ul></div>
 

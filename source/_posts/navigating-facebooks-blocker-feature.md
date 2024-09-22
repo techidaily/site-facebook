@@ -1,7 +1,7 @@
 ---
 title: Navigating Facebook's Blocker Feature
-date: 2024-07-12T10:08:49.722Z
-updated: 2024-07-13T10:08:49.722Z
+date: 2024-09-16T00:31:18.690Z
+updated: 2024-09-21T23:50:31.738Z
 tags:
   - facebook
 categories:
@@ -58,18 +58,22 @@ Close
 
  Fortunately, all these signs are subtle and can easily be overlooked if they don't know what to look for. So there's no need to worry about them knowing if you've blocked them on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Checking Your Facebook Blocked List
 
  It's fairly easy to view your blocked list on both the mobile app and web browser. It's important to periodically check this list to make sure you're not blocking people accidentally or by mistake. If you do find someone who shouldn't be there, simply unblock them with a click of a button. And if you want to re-establish a connection, go ahead and send them a friend request.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -78,6 +82,17 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/2024-approved-ultimate-mac-gif-videographer/"><u>2024 Approved Ultimate Mac Gif Videographer</u></a></li>
+<li><a href="https://win11.techidaily.com/advanced-graphics-techniques-in-edge-app-guard/"><u>Advanced Graphics Techniques in Edge App Guard</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-frenemies-to-allies-on-social-media/"><u>From Frenemies to Allies on Social Media</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/hearthstone-stability-tips-preventing-your-game-from-collapsing-on-pc/"><u>Hearthstone Stability Tips: Preventing Your Game From Collapsing on PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-yuva-2-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Yuva 2 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/keep-everyone-on-track-the-best-7-apps-for-busy-family-scheduling/"><u>Keep Everyone on Track: The Best 7 Apps for Busy Family Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/misinfo-in-pandemic-influencer-role-examined/"><u>Misinfo in Pandemic: Influencer Role Examined</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-your-high-definition-footage-and-pics-on-fb/"><u>Perfecting Your High-Definition Footage & Pics on Fb</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/social-trends-in-visual-forms-23-edition-for-2024/"><u>Social Trends in Visual Forms, '23 Edition for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-feed-top-10-fb-app-tweaks-for-users/"><u>Streamline Your Feed: Top 10 FB App Tweaks for Users</u></a></li>
+</ul></div>
 

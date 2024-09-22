@@ -1,7 +1,7 @@
 ---
 title: Examining the Repercussions of Facial Recognition Erasure on Safety
-date: 2024-07-12T10:09:32.178Z
-updated: 2024-07-13T10:09:32.178Z
+date: 2024-09-18T19:14:37.174Z
+updated: 2024-09-21T20:02:38.755Z
 tags:
   - facebook
 categories:
@@ -55,8 +55,22 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 
  Facebook made security changes then, too, such as making it easier for people to select data and privacy preferences. It’s easy to suspect, then, that pledges to strengthen security by deleting facial recognition data is a mere scramble to fix the company’s image. It’s too early to say whether this change alone will positively affect how people view the business, though.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## No Major Security Improvements Here
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
@@ -64,14 +78,11 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 
  Since people will still opt in to future facial recognition features, it’s critical they read the details before activating anything new on their profiles.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,6 +91,20 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-from-picture-to-paragraph-text-on-windows-and-mac-photos/"><u>[New] From Picture to Paragraph Text on Windows & Mac Photos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-assessing-hdr-standards-luminances-role/"><u>2024 Approved Assessing HDR Standards Luminance's Role</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/a-comprehensive-guide-to-building-facebook-slideshow-mastery-for-2024/"><u>A Comprehensive Guide to Building Facebook Slideshow Mastery for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/cha-tting-with-ai-androids-voice-controlled-gpt-explained/"><u>Cha [T]ting with AI? Android's Voice Controlled GPT Explained</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effortless-smartphone-image-transfer-iphone-and-android-guide/"><u>Effortless Smartphone Image Transfer: IPhone and Android Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-itops-expert-selection-best-windows-screencasters/"><u>In 2024, ITop's Expert Selection Best Windows Screencasters</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-y78plus-t1-edition-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo Y78+ (T1) Edition and Browser | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722865401791-master-any-language-for-free-explore-these-9-highly-recommended-online-language-platforms/"><u>Master Any Language for Free? Explore These 9 Highly Recommended Online Language Platforms</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-infinix-note-30-vip-racing-edition-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quantum-shift-meta-engineers-the-worlds-swiftest-ai-hub/"><u>The Quantum Shift: Meta Engineers the World's Swiftest AI Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-metamorphosis-from-facebook-to-meta/"><u>The Social Media Metamorphosis: From Facebook to Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-big-techs-future-with-americas-strengthened-antitrust-approach/"><u>Unpacking Big Tech's Future with America's Strengthened Antitrust Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-artificial-intelligence-in-facebook-posts/"><u>Unveiling the Power of Artificial Intelligence in Facebook Posts</u></a></li>
+</ul></div>
 

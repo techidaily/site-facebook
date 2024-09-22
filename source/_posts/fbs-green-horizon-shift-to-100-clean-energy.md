@@ -1,0 +1,95 @@
+---
+title: "FB's Green Horizon: Shift to 100%% Clean Energy"
+date: 2024-09-19T20:26:21.042Z
+updated: 2024-09-22T00:02:45.446Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes FB's Green Horizon: Shift to 100%% Clean Energy"
+excerpt: "This Article Describes FB's Green Horizon: Shift to 100%% Clean Energy"
+keywords: Facebook Renewable Energy Transition,Social Media Giants Sustainability Efforts,Comprehensive Guide to Facebook’s Clean Energy Goals,Initiatives for Corporate Greenhouse Gas Reduction by FB,100%% Renewable Power Future in Tech Companies,Sustainability Milestones of Social Media Leaders Like Facebook,Impact of Facebook’s Energy Strategy on Climate Change
+thumbnail: https://thmb.techidaily.com/9dc3437ed1a0c4e12ecf0fe73c74b8d72b51654a1b0d3ea6af6735c5a10c75f4.jpg
+---
+
+## FB's Green Horizon: Shift to 100% Clean Energy
+
+ Over the last few years, tech giants have been trying hard to become more eco-friendly. Facebook committed to addressing climate change issues some time ago and the social network has already hit its renewable energy goal set back in 2018 and reached net-zero emissions.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Facebook Becomes the World’s Largest Corporate Purchaser of Renewable Energy
+
+ Climate change presents risks for everyone and everything—from plant species to human beings. Google, Apple, Amazon, as well as Facebook, understand how serious the issues are and have all created environmental targets to eliminate carbon emissions.
+
+ Related:[Sustainable Sites and Apps to Reduce Waste for an Eco-Friendly World](https://www.makeuseof.com/sustainable-sites-and-apps-to-reduce-waste-eco-friendly-world/)
+
+ In 2018,[Facebook set a comprehensive goal](https://engineering.fb.com/2020/09/14/data-center-engineering/net-zero-carbon/) of reaching a 75 percent reduction in operational greenhouse gas emissions. Along with that, the company promised to support its global operations with 100 percent renewable energy.
+
+ In a post on[Tech@Facebook](https://tech.fb.com/renewable-energy/) , the company announced that it has now achieved its previously set environmental goal and successfully reached net-zero emissions. Moreover, it exceeded the greenhouse gas emissions goal and has reduced them by 94 percent.
+
+ Related:[Carbon Offsetting Flights: How You Can Help Save the World](https://www.makeuseof.com/tag/carbon-offsetting-flights/)
+
+ Facebook’s journey of building a portfolio of renewable energy projects began back in 2011\. Since then, the results that the company has accomplished are pretty impressive:
+
+> Our commitment to renewable energy has resulted in 63 new wind and solar power plants, representing an estimated $8 billion of investment. These projects support tens of thousands of jobs during construction, when solar panels and wind turbines are installed on-site, as well as along the global supply chain to produce solar panels and wind turbines and towers.
+
+ Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
+
+## Facebook Has Already Set Its Next Environmental Target
+
+![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+ The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
+
+> We will continue to contract for new renewable energy projects to ensure that our global operations remain supported by 100 percent renewable energy as our business grows. We remain committed to innovative solutions that increase the amount of renewable energy on electricity grids around the world, including energy storage. This year alone, we’ve already announced 720 MWh of new energy storage projects paired to solar power plants.
+
+ More and more tech companies, including Microsoft (which is[hoping to be carbon-neutral by 2030](https://www.makeuseof.com/one-year-on-microsoft-details-progress-in-push-to-become-carbon-neutral-by-2030/) ) and Razer (which is also[targeting carbon neutral status by 2030](https://www.makeuseof.com/razer-pledges-carbon-neutrality-2030/) ), are joining forces to reduce greenhouse gas emissions and help with climate change.
+
+So, things may, finally, be moving in the right direction.
+
+ Image Credit: SkyLuke8/[Flickr](https://www.flickr.com/photos/76908970@N07/6917649908/)
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-harmonizing-youtube-production-with-a-9-to-5-routine/"><u>[New] Harmonizing YouTube Production with a 9-to-5 Routine</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-creating-powerful-teacher-content-on-youtube-top-10-insights/"><u>[New] In 2024, Creating Powerful Teacher Content on YouTube Top 10 Insights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-top-strategies-for-integrating-facebook-live-into-your-site-for-2024/"><u>[New] Top Strategies for Integrating Facebook Live Into Your Site for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ransforming-from-obscure-to-popular-on-youtube/"><u>[New] Transforming From Obscure to Popular on Youtube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-resolving-bandwidth-issues-in-high-quality-obs/"><u>[Updated] In 2024, Resolving Bandwidth Issues in High Quality OBS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-swift-simplified-steps-mastering-iphone-screen-recordings-for-2024/"><u>[Updated] Swift, Simplified Steps Mastering Iphone Screen Recordings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/isbm-enhances-mental-wellness-with-groundbreaking-cbt-strategies/"><u>ISBM Enhances Mental Wellness with Groundbreaking CBT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/responsible-networking-on-social-media-platforms/"><u>Responsible Networking on Social Media Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/shift-the-look-of-your-facebook-profile-with-a-new-theme/"><u>Shift the Look of Your Facebook Profile with a New Theme</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-messenger-location-sharing/"><u>Step-by-Step Guide to Messenger Location Sharing</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-everyone-emoticons-in-comments/"><u>Stop @Everyone Emoticons in Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailor-your-soundtrack-listen-to-spotifys-mini-player-on-fb/"><u>Tailor Your Soundtrack: Listen to Spotify's Mini Player on FB</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-the-tfla0002-finals-error/"><u>Ultimate Guide: Resolving the TFLA0002 Finals Error</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-troubleshooting-tips-resolving-chromes-screen-flicker-issue-on-windows-pcs-a-comprehensive-guide-for-2n24/"><u>Ultimate Troubleshooting Tips: Resolving Chrome's Screen Flicker Issue on Windows PCs - A Comprehensive Guide for 2N24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-mediapad-m5-by-huawei-where-impeccable-vision-meets-superior-sound-quality/"><u>Unveiling the MediaPad M5 by Huawei: Where Impeccable Vision Meets Superior Sound Quality</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

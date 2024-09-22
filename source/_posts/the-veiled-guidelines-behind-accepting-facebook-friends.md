@@ -1,7 +1,7 @@
 ---
 title: The Veiled Guidelines Behind Accepting FACEBOOK Friends
-date: 2024-09-13T18:18:47.778Z
-updated: 2024-09-16T16:55:26.415Z
+date: 2024-09-15T20:31:16.186Z
+updated: 2024-09-21T23:25:58.893Z
 tags:
   - facebook
 categories:
@@ -71,22 +71,15 @@ thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538
 ![Unfollow a Facebook friend from their profile page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Unfollow-Friend-Profiile-Page.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Unwritten Facebook Friend Request Rules
 
  Now that you understand the basics of how to add friends on Facebook, let's review some finer details of managing Facebook friend requests.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Only Add People You Know
 
@@ -112,22 +105,29 @@ thumbnail: https://thmb.techidaily.com/2531084f8c85679ae61e8759b52e3fe4836202538
 
  If you just want to follow someone's Facebook posts, and if there is an option to follow them, rather choose that option. From their profile, click the three-dot menu, and select**Follow** . This allows you to see what they are up to, but your timeline is not shared with them.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Report Spammy Friend Requests
 
  When you delete a friend request, Facebook promises that the sender won't be notified. But they might send you a new request. If you can't get rid of them, you can use either the**Find support or report offline** or**Block** options, available from the three-dot menu, to prevent further friend requests from that person.
 
 ![Block person after unsolicited friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Block-Friend-Request.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Use the first option to report fake accounts, strangers, or people who harass you.
 
 ![Report an unwelcome friend request on Facebook.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Report-Friend-Request.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Keep in mind that if you do this, the person may be penalized.
 
@@ -138,6 +138,13 @@ Keep in mind that if you do this, the person may be penalized.
  Go to**Friends > Friend Requests > View Sent Requests** . From here, you can cancel pending requests.
 
 ![Cancel Facebook friend requests you've sent.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Cancel-Friend-Requests.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You may want to do this if you're one of the people who experienced a Facebook friend request bug in 2023\. The bug meant that if you searched for a profile on Facebook, the website would automatically send a friend request.
 
@@ -167,6 +174,13 @@ Keep in mind that if you do this, the person may be penalized.
 
 ![Edit your Facebook friends privacy.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-Friends-Edit-Privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Can't I Friend Someone on Facebook?
 
  If you can't seem to friend someone on Facebook, here are the most likely reasons...
@@ -179,13 +193,6 @@ Keep in mind that if you do this, the person may be penalized.
 
  If your request is still pending, you could send your friend-to-be a message and ask them to approve your request.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. You Blocked the Other Person
 
  You can't friend someone you've blocked. See if you can[unblock the Facebook contact](https://www.makeuseof.com/tag/unblock-someone-facebook/) and then try sending a new friend request.
@@ -193,13 +200,6 @@ Keep in mind that if you do this, the person may be penalized.
 ### 3\. They Don't Permit Friend Requests From Strangers
 
  As outlined above, Facebook allows you to restrict who can send you a friend request. If that's the reason you can't friend someone, ask them to send you a friend request instead.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Someone Has Too Many Friends Already
 
@@ -236,17 +236,21 @@ Follow our guidelines above to avoid this from happening again.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-tips-for-recording-high-quality-video-in-zoom/"><u>[New] In 2024, Tips for Recording High-Quality Video in Zoom</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1722968416950-download-and-setup-brother-hl-3170cdw-driver-software-in-minutes/"><u>Download & Setup: Brother HL-^3170cdw Driver Software in Minutes</u></a></li>
-<li><a href="https://facebook.techidaily.com/friendly-directions-share-on-facebook-messenger/"><u>Friendly Directions: Share on Facebook Messenger</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgotten-the-voicemail-password-of-infinix-smart-8-hd-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Infinix Smart 8 HD? Try These Fixes</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-poco-c55-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Poco C55 | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-tecno-spark-10-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Tecno Spark 10 5G Device</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/language-leap-forward-easy-learning-for-an-extraordinary-savings/"><u>Language Leap Forward - Easy Learning for an Extraordinary Savings</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-resurrects-trumps-social-media-presence/"><u>Meta Resurrects Trump's Social Media Presence</u></a></li>
-<li><a href="https://facebook.techidaily.com/reactivate-facebook-post-phone-loss-quick-2fa-guide/"><u>Reactivate Facebook Post-Phone Loss: Quick 2FA Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/regaining-access-when-facebook-fails-to-send-verification-codes/"><u>Regaining Access: When Facebook Fails to Send Verification Codes</u></a></li>
-<li><a href="https://facebook.techidaily.com/survey-shows-growing-doubt-towards-technology-leaders-facebook-noted/"><u>Survey Shows Growing Doubt Towards Technology Leaders, Facebook Noted</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/visual-victory-quick-fix-for-blank-monitors/"><u>Visual Victory: Quick FIX for Blank Monitors</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-aural-adventures-tech-updates-for-2024/"><u>[New] Aural Adventures Tech Updates for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-deciding-between-30fps-and-60fps-whats-best-for-video/"><u>[Updated] Deciding Between 30Fps and 60Fps What's Best For Video?</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-virtual-producers-showdown-for-2024/"><u>[Updated] Virtual Producer's Showdown for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-instagram-edge-strategic-use-of-descriptive-texts-in-videos/"><u>2024 Approved The Instagram Edge Strategic Use of Descriptive Texts in Videos</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/features-face-off-can-kobo-nia-outshine-amazons-beloved-kindle/"><u>Features Face-Off: Can Kobo Nia Outshine Amazon's Beloved Kindle?</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-posting-to-purchasing-could-a-social-media-platform-open-shops/"><u>From Posting to Purchasing: Could a Social Media Platform Open Shops?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-samsung-galaxy-s23-fe-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Samsung Galaxy S23 FE Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-motorola-moto-g04-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Motorola Moto G04 FRP Without Computer</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-what-to-use-instead-of-virtualdub-top-recommendations/"><u>In 2024, What to Use Instead of VirtualDub Top Recommendations</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-network-privacy-vs-convenience-with-social-app-sign-ins-via-facebook/"><u>Navigating Network Privacy vs Convenience with Social App Sign-Ins via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-erase-your-facebook-share/"><u>Step-by-Step Guide: Erase Your Facebook Share</u></a></li>
+<li><a href="https://facebook.techidaily.com/tectonic-shifts-ahead-us-antitrust-laws-role-in-controlling-tech-titans/"><u>Tectonic Shifts Ahead: U.S. Antitrust Law's Role in Controlling Tech Titans</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-game-for-facebook-post-ios-145-release/"><u>The New Game for Facebook Post-iOS 14.5 Release</u></a></li>
+<li><a href="https://facebook.techidaily.com/trumps-online-presence-under-review/"><u>Trumps Online Presence Under Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/visual-voice-in-verse-crafting-textual-contrast/"><u>Visual Voice in Verse: Crafting Textual Contrast</u></a></li>
 </ul></div>
 

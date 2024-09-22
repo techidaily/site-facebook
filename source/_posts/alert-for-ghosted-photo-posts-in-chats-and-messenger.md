@@ -1,7 +1,7 @@
 ---
 title: Alert for Ghosted Photo Posts in Chats and Messenger
-date: 2024-07-12T10:10:21.491Z
-updated: 2024-07-13T10:10:21.491Z
+date: 2024-09-20T17:18:52.272Z
+updated: 2024-09-21T23:03:26.715Z
 tags:
   - facebook
 categories:
@@ -61,14 +61,11 @@ Close
 
  Meta has also added Verified Badges to help identify authentic accounts and have meaningful interactions. The new Save Media feature will let you save a video or image by long-pressing any media you receive. And lastly, the Video edits feature will enable you to edit a photo or video from your gallery before sending it, meaning you can add stickers, text, or crop and edit audio (for videos).
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -77,6 +74,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-access-your-screen-star-downloadable-rights/"><u>2024 Approved Access Your Screen Star Downloadable Rights</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-tutorial-on-making-an-impact-with-instagram-live/"><u>2024 Approved The Ultimate Tutorial on Making an Impact with Instagram Live</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-video-text-synthesizer/"><u>2024 Approved Video Text Synthesizer</u></a></li>
+<li><a href="https://windows11.techidaily.com/batch-heic-to-jpeg-images-in-windows-environment/"><u>Batch Heic to Jpeg Images in Windows Environment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/blue-badge-on-facebook-your-pathway-unveiled-for-2024/"><u>Blue Badge on Facebook Your Pathway Unveiled for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-the-horizon-for-meta-set-for-23-implementation/"><u>End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation</u></a></li>
+<li><a href="https://facebook.techidaily.com/governments-gambit-unraveling-big-techs-dominance/"><u>Government's Gambit: Unraveling Big Tech's Dominance</u></a></li>
+<li><a href="https://extra-information.techidaily.com/maximize-space-not-time-discover-the-coolest-34-phone-apps-for-slashing-size/"><u>Maximize Space, Not Time Discover the Coolest 34 Phone Apps for Slashing Size</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-latest-revelations-from-facebook-papers/"><u>The Latest Revelations From Facebook Papers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-for-non-responsive-steam-platforms/"><u>Troubleshooting Guide for Non-Responsive Steam Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/unearthing-did-my-phone-number-surface-due-to-facebook-glitches/"><u>Unearthing: Did My Phone Number Surface Due to Facebook Glitches?</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-9-benefits-the-positive-impact-of-social-networking/"><u>Unveiling 9 Benefits: The Positive Impact of Social Networking</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

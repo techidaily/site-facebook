@@ -1,7 +1,7 @@
 ---
 title: Unlocking Remote Relationships Through Facebook Portals' Video Chats
-date: 2024-09-11T22:16:24.020Z
-updated: 2024-09-16T17:15:15.859Z
+date: 2024-09-17T19:54:35.386Z
+updated: 2024-09-21T22:07:48.411Z
 tags:
   - facebook
 categories:
@@ -73,10 +73,10 @@ thumbnail: https://thmb.techidaily.com/23c1e788c86a1fe74b0e576c3c163c7e8cc36d0f7
 3. Select the input after turning on your TV.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Finding the Right Spot for Your Portal TV
@@ -99,21 +99,28 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Selecting Your Language and Connecting to Wi-Fi
 
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
@@ -126,16 +133,10 @@ Your Portal TV has two clips.
  If the software on your Portal TV isn’t up to date, you'll be required to download the latest version. You may need to restart your Portal TV to proceed with the setup.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Choosing a Name for Your Portal TV and Logging In With Facebook or WhatsApp
@@ -145,19 +146,6 @@ Your Portal TV has two clips.
  You’ll be asked to log in via Facebook or WhatsApp. Select either of them and Tap**Next** . Follow the instructions to connect your Facebook or WhatsApp account.
 
  Your Portal TV is ready for use once it's connected to your Facebook or WhatsApp account. You can explore several features such as adding your favorite contacts, connecting Alexa to your Portal TV, displaying your Facebook photos, or video chatting with people you know.
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook Portal Voice Commands You Need to Know
 
@@ -192,18 +180,18 @@ Your Portal TV has two clips.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-convert-and-share-optimal-tools-for-youtube-to-avi-transfers/"><u>[New] In 2024, Convert & Share Optimal Tools for YouTube-to-AVI Transfers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-navigating-through-vivas-video-content/"><u>[Updated] Navigating Through Viva's Video Content</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-mirror-your-gameplay-today/"><u>2024 Approved Mirror Your Gameplay Today</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-pixlr-essentials-10-pro-tips-to-transform-your-images/"><u>2024 Approved Pixlr Essentials 10 Pro Tips to Transform Your Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/every-voice-heard-strategies-for-full-group-mentions-on-fb/"><u>Every Voice Heard: Strategies for Full Group Mentions on FB</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-itel-a05s-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Itel A05s Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/marketing-momentum-shifts-as-carolyn-leaves/"><u>Marketing Momentum Shifts as Carolyn Leaves</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/masterclass-in-modern-devices-from-toms-hardware-analysis/"><u>Masterclass in Modern Devices From Tom's Hardware Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-verification-are-the-benefits-justifiable/"><u>Meta Verification: Are The Benefits Justifiable?</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-the-challenges-keeping-tower-of-fantasy-running-smoothly-on-pc/"><u>Overcoming the Challenges: Keeping Tower of Fantasy Running Smoothly on PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-risks-lurking-in-entertainment-based-fb-quizzes/"><u>The Risks Lurking in Entertainment-Based FB Quizzes</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-fixing-the-astro-a40-microphone-issue/"><u>Troubleshooting Tips: Fixing the Astro A40 Microphone Issue</u></a></li>
-<li><a href="https://techidaily.com/turn-off-screen-lock-oppo-a2-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Oppo A2</u></a></li>
+<li><a href="https://facebook.techidaily.com/just-chill-decoding-instagrams-encouragement-to-reduce-tech-time/"><u>'Just Chill': Decoding Instagram’s Encouragement to Reduce Tech Time</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-pixelpilot-studio-direct-access-screen-recorder/"><u>[Updated] In 2024, PixelPilot Studio Direct-Access Screen Recorder</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-skyrocket-on-instagram-unveiling-your-path-with-top-9-secrets/"><u>[Updated] Skyrocket on Instagram Unveiling Your Path with Top 9 Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-familiarity-or-isolation-the-impact-of-joining-a-fb-expat-group/"><u>Finding Familiarity or Isolation? The Impact of Joining a FB Expat Group</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-pages-adopting-additional-admins/"><u>Fortify Your Pages: Adopting Additional Admins</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-overcome-the-life-is-strange-true-colors-glitch-solved/"><u>How to Overcome the Life Is Strange: True Colors Glitch - Solved</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-restrictions-under-consideration-facebooks-upcoming-youth-initiative/"><u>Instagram Restrictions Under Consideration: Facebook's Upcoming Youth Initiative</u></a></li>
+<li><a href="https://fox-that.techidaily.com/thaw-out-your-icy-iphone-expert-tips-and-tricks/"><u>Thaw Out Your Icy iPhone: Expert Tips and Tricks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-ultimate-list-of-serene-pc-gaming-for-2024/"><u>The Ultimate List of Serene PC Gaming for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-pc-with-a-win11-pro-update/"><u>Transform Your PC with a Win11 Pro Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-iconography-in-digital-communication-fb-messenger/"><u>Understanding Iconography in Digital Communication: FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-online-dialogue-is-now-in-the-hands-of-social-giants/"><u>Why Online Dialogue Is Now in the Hands of Social Giants</u></a></li>
 </ul></div>
 

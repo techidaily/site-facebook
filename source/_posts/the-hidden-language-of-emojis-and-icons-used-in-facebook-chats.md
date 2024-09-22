@@ -1,0 +1,170 @@
+---
+title: The Hidden Language of Emojis & Icons Used in Facebook Chats
+date: 2024-09-14T20:25:23.787Z
+updated: 2024-09-21T23:31:05.771Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes The Hidden Language of Emojis & Icons Used in Facebook Chats
+excerpt: This Article Describes The Hidden Language of Emojis & Icons Used in Facebook Chats
+keywords: Emoji Communication,Social Media Symbols,Iconic Expressions,Digital Emoticons,Chat Icons Analysis,Facebook Symbol Language,Online Emoji Usage
+thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b9ff66af20d69e9744d56a33.jpeg
+---
+
+## The Hidden Language of Emojis & Icons Used in Facebook Chats
+
+ The many icons and symbols used across Facebook Messenger can be pretty confusing. So, what do they all mean?
+
+ We've researched the most common icons and symbols on Facebook Messenger to find out what purpose they serve. Here's everything you need to know.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## 1\. Open Blue Circle
+
+![blue circle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle.jpg)
+
+ The open blue circle Facebook Messenger icon means that your message is currently being sent.
+
+ If you navigate away from the message or lose network connectivity while the open blue circle is present, Facebook still sends the message once the connection is restored.
+
+## 2\. Open Blue Circle + Checkmark
+
+![blue circle tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-tick.jpg)
+
+ The open blue circle with a checkmark means that your message has been delivered.
+
+ At this point, the recipient will see your message as soon as they open the Messenger app. But if they're not online, they may not be able to see it yet.
+
+## 3\. Filled Blue Circle + Check
+
+![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
+
+ A filled blue circle with a checkmark means that your message has been delivered.
+
+ While the person may not have seen your message yet, you can be confident that it'll be available to them whenever they next check their phone, tablet, or computer.
+
+## 4\. Red Triangle + Exclamation
+
+![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
+
+ A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
+
+ A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 5\. Green Dot
+
+![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
+
+ If you send a message to someone with a green dot next to their display picture, they're more likely to receive, read, and reply to your chat.
+
+ However, you can also[change which Facebook friends can see you online](https://www.makeuseof.com/tag/decide-which-facebook-friends-see-you-online-and-which-dont-the-easy-way/) , which hides the activity status green dot from certain users.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 6\. Blue Dot
+
+![Facebook messenger blue icon-2](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-blue-icon-2.jpg)
+
+ A blue dot to the right of a chat indicates an unread message. The sender won't get a message read confirmation until you click the chat.
+
+ Opening a chat with a blue dot removes the dot and shows the sender that you've opened and read their message. This feature is also handy for quickly sorting and identifying messages you don't want to read.
+
+## 7\. A Gray Crossed-Out Bell
+
+![Facebook messenger cross bell icon-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-cross-bell-icon-1.jpg)
+
+ The gray crossed bell to the right of a chat indicates that you've muted the chat. A muted person can send you messages,but you won't be notified that they've sent you a message.
+
+ You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## 8\. The Lock Icon
+
+![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
+
+ The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## How to Know if Someone Saw Your Facebook Message
+
+![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
+
+ If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
+
+ You'll also see the word “Seen” displayed under a message that has been read, along with a timestamp to let you know when the recipient opened it.
+
+## Facebook Messenger Alternatives
+
+ Although many users have taken issue with Messenger's permission requirements, it remains one of the most-used messaging apps around. At the last count, it had over 1.3 billion active users, with 20 billion messages sent monthly. That means you'll almost always be able to contact the person you want to connect with.
+
+ Other popular alternatives to Messenger include WhatsApp, Viber, and Telegram. If you live in Asia, check out WeChat and Line. And remember, Messenger also works with Facebook's other major service, Instagram.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-essential-screen-capture-best-mac-apps-reviewed-and-rated/"><u>[New] Essential Screen Capture Best Mac Apps Reviewed & Rated</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-aces-cache-the-premier-choice-for-twitterscape-animation-preservation/"><u>[New] In 2024, Ace's Cache The Premier Choice for Twitterscape Animation Preservation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-premium-voice-recorder-tools-for-mac-discovering-the-five-top-apps/"><u>[New] In 2024, Premium Voice Recorder Tools for Mac Discovering The Five Top Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-navigating-picture-in-picture-mode-with-confidence-using-microsoft-edge/"><u>[New] Navigating Picture-In-Picture Mode with Confidence Using Microsoft Edge</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-add-featured-channels-on-youtube-a-complete-guide/"><u>[Updated] In 2024, How to Add Featured Channels on YouTube A Complete Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-financial-push-in-the-content-war-with-a-5m-dollar-investment/"><u>Facebook's Financial Push in the Content War with a $5M Dollar Investment</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-realme-narzo-60x-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Realme Narzo 60x 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-fraternity-7-social-media-techniques-that-bond-us/"><u>Fostering Fraternity: 7 Social Media Techniques That Bond Us</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-xiaomi-14-ultra-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Xiaomi 14 Ultra</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quantum-shift-meta-engineers-the-worlds-swiftest-ai-hub/"><u>The Quantum Shift: Meta Engineers the World's Swiftest AI Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-metamorphosis-from-facebook-to-meta/"><u>The Social Media Metamorphosis: From Facebook to Meta</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-ultimate-guide-to-tweaking-mouse-speeds-in-win-1011/"><u>The Ultimate Guide to Tweaking Mouse Speeds in Win 10/11</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-10-telegram-spy-tools-on-apple-iphone-12-for-parents-drfone-by-drfone-virtual-ios/"><u>Top 10 Telegram Spy Tools On Apple iPhone 12 for Parents | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-artificial-intelligence-in-facebook-posts/"><u>Unveiling the Power of Artificial Intelligence in Facebook Posts</u></a></li>
+</ul></div>
+

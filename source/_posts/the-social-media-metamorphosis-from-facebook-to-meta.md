@@ -1,7 +1,7 @@
 ---
 title: "The Social Media Metamorphosis: From Facebook to Meta"
-date: 2024-09-09T17:52:49.746Z
-updated: 2024-09-16T17:19:18.707Z
+date: 2024-09-17T16:42:45.191Z
+updated: 2024-09-21T19:49:14.414Z
 tags:
   - facebook
 categories:
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  In 2012, Facebook acquired Instagram for $1 billion and made the company public soon after. In May 2012, Facebook held its initial public offering (IPO) at $38 a share and raised $16 billion on the first day. On top of this, the company ended the year crossing another milestone of one billion active users on the platform.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2013–2015: Facebook Enters New Territories
@@ -104,15 +104,22 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
  Shortly after this fiasco, on October 29, 2021, Zuckerberg announced that Facebook is rebranding to Meta in light of its new mission to build the metaverse. Many see this as a desperate attempt to drive away from the bad name "Facebook" has.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2022 and Beyond: Layoffs, Chaos, and Recovery
 
 ![Mark Zuckerberg](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/mark-zuckerberg-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit:[Billionaires Success](http://www.flickr.com/photos/184851290@N06/48847390147/) /Flickr
 
@@ -121,13 +128,6 @@ thumbnail: https://thmb.techidaily.com/2fbc3e6f44db715797c33edc684fdec869f92d47c
 What comes next? Massive layoffs.
 
  We're talking about 11,000 people or roughly 13% of the company's entire workforce suddenly out of a job. It's clear the company is scaling back, trying to cut costs wherever possible, and recover its market value. And given that[no one cares about the metaverse](https://www.makeuseof.com/reasons-why-no-one-cares-about-metaverse/) , maybe that's the right thing to do for now.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta Is in a Rough Place, But When Is It Not?
 
@@ -150,14 +150,12 @@ What comes next? Massive layoffs.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-best-global-music-stream-service/"><u>[New] In 2024, Best Global Music Stream Service</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-setting-up-a-sports-channel-from-scratch-mac-style/"><u>[New] In 2024, Setting up a Sports Channel From Scratch, Mac-Style</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-top-picks-for-perfect-stabilization-in-dslr-and-mirrorless/"><u>[New] In 2024, Top Picks for Perfect Stabilization in DSLR & Mirrorless</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/battle-with-shadows-overcome-launching-difficulties-in-resident-evil-village/"><u>Battle with Shadows? Overcome Launching Difficulties in Resident Evil Village</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/designing-captivating-instagram-feed-summaries/"><u>Designing Captivating Instagram Feed Summaries</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-interactive-elements-necessity-or-novelty/"><u>Facebook’s Interactive Elements: Necessity or Novelty?</u></a></li>
-<li><a href="https://facebook.techidaily.com/pioneering-promotion-the-5-leading-social-tools-for-trade/"><u>Pioneering Promotion: The 5 Leading Social Tools for Trade</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-vivo-y78plus-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Vivo Y78+ Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-you-should-incorrantegate-sleep-mode-into-your-daily-routine-with-messenger-kids/"><u>Why You Should Incorrantegate Sleep Mode Into Your Daily Routine with Messenger Kids</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-no-frills-screensaver-windows-compatible/"><u>[New] 2024 Approved No Frills Screensaver - Windows Compatible</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-essential-steps-to-record-your-macbooks-display-for-2024/"><u>[New] Essential Steps to Record Your MacBook's Display for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/shut-down-all-fb-notification-mechanisms/"><u>Shut Down All FB Notification Mechanisms</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-guide-correcting-user32dll-cannot-be-found-mistake-on-your-pc/"><u>Step-by-Step Guide: Correcting 'User32.dll' Cannot Be Found Mistake on Your PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-k70-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi K70 Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-generated-content-ownership-insight/"><u>User-Generated Content: Ownership Insight</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-influence-sparking-conversations-in-your-fb-collective/"><u>Virtual Influence: Sparking Conversations in Your Fb Collective</u></a></li>
 </ul></div>
 

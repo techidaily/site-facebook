@@ -1,7 +1,7 @@
 ---
 title: "Stop FB Alerts & Messages Instantly: Tips and Tricks"
-date: 2024-09-14T23:51:58.883Z
-updated: 2024-09-16T16:15:07.445Z
+date: 2024-09-20T01:05:00.650Z
+updated: 2024-09-21T18:40:54.638Z
 tags:
   - facebook
 categories:
@@ -63,13 +63,6 @@ thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ce
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Turn Off Facebook Notifications as They Arrive
 
  The process to turn off Facebook notifications as they arrive is similar to the process for deleting Facebook notifications.
@@ -89,6 +82,13 @@ Follow the steps below to learn about the process on the web app:
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -112,10 +112,10 @@ Follow the steps below to learn about the process on the web app:
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Stop Facebook Notifications on Android
@@ -123,10 +123,10 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
@@ -174,19 +174,13 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-leading-low-cost-audio-tools-1-to-10-desktop-recorder-guide/"><u>[New] In 2024, Leading Low-Cost Audio Tools #1 to #10 Desktop Recorder Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-avoiding-the-common-path-the-route-to-unique-streamer-identities-for-2024/"><u>[Updated] Avoiding the Common Path The Route to Unique Streamer Identities for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-building-a-loyal-following-with-respectful-requests/"><u>2024 Approved Building a Loyal Following with Respectful Requests</u></a></li>
-<li><a href="https://fox-that.techidaily.com/1721471268647-cant-access-the-control-center-on-your-iphone-try-these-8-effective-remedies-now/"><u>Can't Access the Control Center on Your iPhone? Try These 8 Effective Remedies Now</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effectively-managing-high-cpu-utilization-post-software-enhancements/"><u>Effectively Managing High CPU Utilization Post-Software Enhancements</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-name-change-from-news-feed-to-just-feed/"><u>Facebook's Name Change - From News Feed to Just Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/masterful-fb-configuration-key-settings-for-maximum-engagement/"><u>Masterful FB Configuration: Key Settings for Maximum Engagement</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-facebooks-mobile-code-creation/"><u>Navigating Facebook's Mobile Code Creation</u></a></li>
-<li><a href="https://facebook.techidaily.com/redefining-relationships-on-facebook-through-feed-tailoring/"><u>Redefining Relationships on Facebook Through Feed Tailoring</u></a></li>
-<li><a href="https://fox-links.techidaily.com/revolutionizing-cinematography-with-advanced-3d-luts-for-2024/"><u>Revolutionizing Cinematography with Advanced 3D LUTs for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/screenless-laptop-aesthetics-meet-elite-performance-the-atomman-g7-ti-with-i9-cpu-rtx-graphics-and-massive-ram-capacity/"><u>Screenless Laptop Aesthetics Meet Elite Performance: The AtomMan G7 Ti with I9 CPU, RTX Graphics & Massive RAM Capacity</u></a></li>
-<li><a href="https://facebook.techidaily.com/societys-growth-catalyst-the-top-7-of-social-media-impacts/"><u>Society's Growth Catalyst: The Top 7 of Social Media Impacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-what-changed-with-facebooks-news-to-feed-transition/"><u>Understanding What Changed with Facebook's News to Feed Transition</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/windows-10-kernel-error-resolved-fixing-the-kernal-security-check-issue/"><u>Windows 10 Kernel Error Resolved: Fixing the 'Kernal Security Check' Issue</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-unlock-the-potential-of-your-phone-individual-ringtone-creation-on-android/"><u>[Updated] Unlock the Potential of Your Phone Individual Ringtone Creation on Android</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/dvd-in-mkv-konvertieren-fur-mac-nutzer-einfache-und-qualitatssichernde-methoden-erklart/"><u>DVD in MKV Konvertieren Für Mac Nutzer – Einfache Und Qualitätssichernde Methoden Erklärt</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/elevate-your-ios-experience-top-5-ps2-simulators-for-2024/"><u>Elevate Your iOS Experience Top 5 PS2 Simulators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-big-secret-an-examination-of-its-files/"><u>Facebook's Big Secret: An Examination of Its Files</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nokia-g22-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nokia G22 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/hp-laptop-keyboard-troubles-heres-how-to-make-it-work-again/"><u>HP Laptop Keyboard Troubles? Here's How to Make It Work Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/unity-and-progress-unveiling-7-social-benefits/"><u>Unity and Progress: Unveiling 7 Social Benefits</u></a></li>
 </ul></div>
 

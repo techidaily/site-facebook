@@ -1,7 +1,7 @@
 ---
 title: Facebook Logging You Out Randomly? 7 Ways to Fix It
-date: 2024-07-12T10:13:41.640Z
-updated: 2024-07-13T10:13:41.640Z
+date: 2024-09-20T20:25:42.658Z
+updated: 2024-09-21T19:10:04.374Z
 tags:
   - facebook
 categories:
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/26e5a5bed3537105229e89d2df536f43cfadace1d
 
 Close
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Ensure the Issue Isn't Account-Specific
 
  Once you are confident that multi-login isn't causing the issue, ensure the problem isn't with your Facebook account. To test your hypothesis, log in with a different account (create a new account if you don't have one already) and see how Facebook treats it.
@@ -85,6 +92,13 @@ Close
  If Facebook doesn’t log you out when using a different account, the problem might rest with your account. You can test it further by logging in to the same account on another device and seeing whether Facebook behaves the same way.
 
  If it's an account-related issue, you can raise a support ticket with Facebook, as explained at the end of this article. However, if Facebook kicks you out of all of your accounts, the issue might be with your browser or third-party apps.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Remove Facebook Sign-Ins From Third-Party Websites and Apps
 
@@ -97,6 +111,14 @@ Close
 4. In the left sidebar, click**Apps and websites** .  
 ![Opening Apps and Websites Linked to Our Facebook Account in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-5-Opening-Apps-and-Websites-Linked-to-Our-Facebook-Account-in-Facebook-Settings.jpg)
 5. Click**Remove** right next to the app you'd like to unlink.  
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Unlinking the Linked App to Our Facebook Account by Clicking on Remove Button Next in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-6-Unlinking-the-Linked-App-to-Our-Facebook-Account-by-Clicking-on-Remove-Button-Next-in-Facebook-Settings.jpg)
 6. When the confirmation pop-up appears, click**Remove** again.
 
@@ -131,6 +153,13 @@ Close
 * Remove all extensions related to Facebook in your browser. We have an article about [removing extensions from your browser](https://www.makeuseof.com/tag/how-to-clean-up-your-browser-extensions-the-easy-way/) ; if you don't know the process, you can check it out.
 * Clear your browser's cache and cookies to ensure the accumulated data in the cache isn't interfering. If you're unfamiliar with the process, you can check out our guides that explain the [process of clearing cookies and cache in Edge](https://www.makeuseof.com/how-to-clear-microsoft-edge-cache-browsing-data/) ,[Chrome](https://www.makeuseof.com/how-to-clear-cookies-cache-in-chrome/) , and [Firefox](https://www.makeuseof.com/clear-cache-firefox/) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Clean the Cache of Your App
 
  For the same reason we cleared the cache on a browser to eliminate chances of cached data causing the problem, you should also clear your app cache. Check out our guide explaining [how to clear the app cache in Android](https://www.makeuseof.com/tag/clear-cache-android/) and [iOS](https://www.makeuseof.com/tag/how-to-clear-cache-on-iphone-ipad/) if you've never done so before.
@@ -144,6 +173,14 @@ Close
 3. Select**Help & support** from the menu.  
 ![Opening Help and Support Option from the Menu by Clicking on Profile Icon on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-7-Opening-Help-and-Support-Option-from-the-Menu-by-Clicking-on-Profile-Icon-on-Facebook.jpg)
 4. Click on**Report a problem** .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Choose**Something went wrong** in the menu.  
 ![Choosing Something Went Wrong Option by Clicking on Report a Problem Button on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-8-Choosing-Something-Went-Wrong-Option-by-Clicking-on-Report-a-Problem-Button-on-Facebook.jpg)
 6. Fill out the required information and click**Submit** .  
@@ -155,14 +192,11 @@ Close
 
  Like Facebook may log you out without apparent reason, Facebook Messenger may also suddenly stop working.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -171,6 +205,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-affordable-strategies-for-engaging-youtube-opening-and-end-titles-for-2024/"><u>[New] Affordable Strategies for Engaging YouTube Opening & End Titles for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-bloodthirsty-horror-your-ultimate-8-zombie-game-compilation-for-2024/"><u>[Updated] Bloodthirsty Horror Your Ultimate 8 Zombie Game Compilation for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-a-seamless-google-podcast-upload-experience-for-2024/"><u>Expert Tips for a Seamless Google Podcast Upload Experience for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-cloudy-to-crisp-how-to-remove-background-in-picsart/"><u>In 2024, From Cloudy to Crisp How to Remove Background in Picsart</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-your-social-impact-with-these-easy-to-follow-fb-tags-techniques/"><u>Maximize Your Social Impact with These Easy-to-Follow Fb Tags Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/must-see-update-giphys-future-linked-to-fb-sale/"><u>Must-See Update: Giphy's Future Linked to FB Sale?</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-fb-pings-or-sounds/"><u>No More FB Pings or Sounds</u></a></li>
+<li><a href="https://app-tips.techidaily.com/ultimate-tutorial-on-clearing-out-your-visual-memories-photosimages-from-icloud-storage/"><u>Ultimate Tutorial on Clearing Out Your Visual Memories (Photos/Images) From iCloud Storage</u></a></li>
+</ul></div>
 

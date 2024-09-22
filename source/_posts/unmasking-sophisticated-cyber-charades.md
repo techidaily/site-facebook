@@ -1,7 +1,7 @@
 ---
 title: Unmasking Sophisticated Cyber Charades
-date: 2024-07-12T10:13:20.698Z
-updated: 2024-07-13T10:13:20.698Z
+date: 2024-09-16T21:24:20.310Z
+updated: 2024-09-22T00:41:52.222Z
 tags:
   - facebook
 categories:
@@ -99,6 +99,13 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -107,14 +114,11 @@ Of course, that's all fake.
 
  According to the US's [Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +127,22 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/levate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[New] Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-best-fast-photo-viewer-for-windows-11/"><u>[New] Top Best Fast Photo Viewer for Windows 11?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/an-insider-look-at-vegaspro-2019-for-2024/"><u>An Insider Look at VegasPro 2019 for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/easy-fixes-for-improving-your-audio-experience-while-playing-outriders/"><u>Easy Fixes for Improving Your Audio Experience While Playing Outriders</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-nokia-105-classic-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-most-common-facebook-snafus-in-no-time/"><u>Fixing the Most Common Facebook Snafus in No Time</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-poco-x5-pro-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Poco X5 Pro If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-itel-a70-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Itel A70 to Roku | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-top-7-crypto-creators-for-nft-conversion/"><u>In 2024, Unveiling Top 7 Crypto-Creators for NFT Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-seamless-social-interactions-via-facebook-portal-tv/"><u>Initiating Seamless Social Interactions via Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-memories-the-essentials-of-photo-grouping-on-fb/"><u>Making Memories: The Essentials of Photo Grouping on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/regain-facebook-entry-the-password-reset-manual/"><u>Regain Facebook Entry: The Password Reset Manual</u></a></li>
+<li><a href="https://win11.techidaily.com/remedying-couldnt-access-page-issue-with-ms-store/"><u>Remedying 'Couldn't Access' Page Issue with MS Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-semantic-powerhouse-fbs-message-symbol-interpretation-guide/"><u>The Semantic Powerhouse: FB's Message Symbol Interpretation Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-move-against-facebooks-faces/"><u>Understanding Meta's Move Against Facebook's Faces</u></a></li>
+</ul></div>
 

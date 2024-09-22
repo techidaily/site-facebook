@@ -1,7 +1,7 @@
 ---
 title: "Breaking Down the Big Lie: Uncovering 10 Facebook Misconceptions"
-date: 2024-07-12T10:08:16.982Z
-updated: 2024-07-13T10:08:16.982Z
+date: 2024-09-15T19:28:01.071Z
+updated: 2024-09-21T18:13:37.495Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ Pixabay free image
 
  Facebook is not going to make you pay to use its services. However, they charge advertisers to show ads on Facebook family of apps and technologies. This is how Facebook makes itself available to everyone without having to charge you. However, there are exceptions, such as when Facebook earns a commission or a transaction fee from your activities.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Facebook Owns My Photos and Sells Them for Ads
 ![Young woman using her smartphone and smiling](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(7)
 
@@ -63,6 +70,13 @@ Pixabay free image
 ## 6\. It's Easy to Quit Facebook
 ![Person holding phone with social media apps as icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(53)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  There are so many [privacy benefits of deleting social media accounts](https://www.makeuseof.com/privacy-benefits-deleting-social-media-accounts/) . While one option to keep Facebook away from using your data is to just quit Facebook, you'll be surprised how difficult it is to delete your account. Facebook has an entire help section on deactivating and deleting accounts, but it's still not as simple as that!
 
  For starters, even if you [tell Facebook to delete your account](https://www.makeuseof.com/tag/delete-facebook-account/) , it doesn't happen immediately. You will have to wait at least 30 days and Facebook says that deleting every single instance of you from its social network might take months. It also says that, "Some information, like messages you sent to friends, may still be visible to them after you delete your account."
@@ -77,6 +91,13 @@ Pixabay free image
  Let's say your boss has stored your name with your phone number and home address. Facebook gets that too. And without you ever knowing it, Facebook makes a "shadow profile" for you, which contains your name, your phone number, your address, and your email—even though you never gave it any of that information. That's a simplistic example of how data comes together. Facebook has much more complex algorithms running that can match more sensitive information.
 
  In today's connected world, unfortunately, there is almost nothing you can do to stop this other than to go completely off the grid and make sure no-one takes any photos of you. But that's easier said than done these days.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Facebook Is Getting a Dislike Button
 ![Facebook-myths-dislike-button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/10/Facebook-myths-dislike-button.jpg)
@@ -101,6 +122,13 @@ Pixabay free image
 ## 10\. Facebook Requires ID Proof
 ![login page displayed on tablet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/tablet-login-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook stresses it wants to be community of real people and not fake names, and scammers try to take advantage of this. New users are therefore more likely to see this scam than others. You might come across a message—especially a private message—saying something like, "Facebook requires you to scan and send a valid photo ID to prove your identity. This is for the safety and security of all users. If you don't, Facebook will have to delete your account." Ignore it, or report it.
 
  There are only two instances where Facebook will actually require ID proof from you,[according to its Help Centre](https://www.facebook.com/help/314201258613998/) :
@@ -110,18 +138,22 @@ Pixabay free image
 
  This means that any message you are seeing inside Facebook about proving your ID is a scam, and your photo ID is going to someone with malicious intent, not to Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Don't Believe Facebook Myths
 
  You can protect yourself from a lot of Facebook myths if you understand how they work. For anything else, check if it has been mentioned on some sites where people report scams and malicious internet activities.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,6 +162,22 @@ Pixabay free image
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-kid-proof-camcorders-the-top-11-beginner-friendly-choices/"><u>[Updated] 2024 Approved Kid-Proof Camcorders The Top 11 Beginner-Friendly Choices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-finding-your-youtube-stored-melodies-easily/"><u>2024 Approved Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effectively-reducing-svchostexes-impact-on-your-system-speed-in-windows-11/"><u>Effectively Reducing svchost.exe's Impact on Your System Speed in Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/formulating-and-implementing-group-rules-a-step-by-step-guide/"><u>Formulating & Implementing Group Rules: A Step-by-Step Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-nokia-130-music-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reactivate-after-forgetting-facebook-password/"><u>How to Reactivate After Forgetting Facebook Password</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-a-found-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Unlock A Found Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-az-record-pro-detailed-app-analyses-and-backup-choices/"><u>In 2024, AZ Record Pro Detailed App Analyses & Backup Choices</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Motorola Moto G 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-governance-structure-with-a-new-platform/"><u>Navigating Through Facebook's Governance Structure with a New Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-oasis-a-guide-to-the-hottest-social-applications-and-websites/"><u>Online Oasis: A Guide to the Hottest Social Applications and Websites</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/snapchat-boomerangs-demystified-your-comprehensive-guide-for-2024/"><u>Snapchat Boomerangs Demystified Your Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streaming-excellence-selecting-the-best-webcams-for-youtube-for-2024/"><u>Streaming Excellence Selecting the Best Webcams for YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/worldwide-web-woes-social-media-shutdown/"><u>Worldwide Web Woes: Social Media Shutdown</u></a></li>
+</ul></div>
 

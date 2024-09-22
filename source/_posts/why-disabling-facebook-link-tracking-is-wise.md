@@ -1,7 +1,7 @@
 ---
 title: Why Disabling Facebook Link Tracking Is Wise
-date: 2024-07-12T10:11:22.257Z
-updated: 2024-07-13T10:11:22.257Z
+date: 2024-09-20T22:58:25.437Z
+updated: 2024-09-21T17:36:33.679Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for [iOS](https://apps.apple.com/us/app/facebook/id284882215) and [Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -50,9 +57,23 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -73,6 +94,13 @@ Close
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
 Close
@@ -81,14 +109,11 @@ Close
 
 [Meta is notorious for tracking its users](https://www.makeuseof.com/tag/facebook-tracking-stop/) , so if you don't want the company to track the websites you visit while using Facebook, it's best not to enable Link History. However, if you'd rather see ads relevant to you than completely unrelated ones that are of no value, then you should opt in. The key is knowing what the feature does and what implications that has for your privacy and security.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -97,6 +122,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram-in-2024/"><u>[New] [Desktop & Mobile Solutions] How to Rotate Videos for Instagram, In 2024</u></a></li>
+<li><a href="https://win-community.techidaily.com/pnggif/"><u>「簡単でスピーディに、アニメPNGをGIFに変換するテクニック」</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-ricoh-color-mp-c4503-printer-drivers-free-and-easy-guide/"><u>Download Ricoh Color MP C4503 Printer Drivers – Free and Easy Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/financial-networking-fundamentals/"><u>Financial Networking Fundamentals</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-download-canon-mx340-printer-drivers-compatible-with-windows-11-8-and-7/"><u>Free Download: Canon MX340 Printer Drivers Compatible with Windows 11, 8 & 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/joint-venture-in-virtual-spaces-facebook-and-instagram-unite/"><u>Joint Venture in Virtual Spaces: Facebook & Instagram Unite</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mixing-made-easy-free-luts-bundle-includes-dji-miniair-2-for-2024/"><u>Mixing Made Easy Free LUTS Bundle Includes DJI Mini/Air 2 for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/moveavi-video-transcoder-convert-mpeg-files-to-mp4-format-online-and-free/"><u>MoveAVI Video Transcoder: Convert MPEG Files to MP4 Format Online and Free</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-symphony-orchestrating-photographic-collections-on-fb/"><u>Social Media Symphony: Orchestrating Photographic Collections on FB</u></a></li>
+<li><a href="https://program-issues.techidaily.com/the-last-of-us-part-ii-tackling-and-resolving-puzzling-performance-bugs/"><u>The Last of Us Part II - Tackling and Resolving Puzzling Performance Bugs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/tips-to-incorrante-tv-with-facebook-live-integration/"><u>Tips to Incorrante TV with Facebook Live Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-move-against-facebooks-faces/"><u>Understanding Meta's Move Against Facebook's Faces</u></a></li>
+<li><a href="https://facebook.techidaily.com/weighing-the-advantages-and-disadvantages-of-meta-ai-on-sites/"><u>Weighing the Advantages and Disadvantages of Meta AI on Sites</u></a></li>
+</ul></div>
 

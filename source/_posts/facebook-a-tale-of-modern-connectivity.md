@@ -1,7 +1,7 @@
 ---
 title: "Facebook: A Tale of Modern Connectivity"
-date: 2024-09-13T18:32:30.604Z
-updated: 2024-09-16T20:28:55.365Z
+date: 2024-09-20T18:35:59.330Z
+updated: 2024-09-21T22:13:56.669Z
 tags:
   - facebook
 categories:
@@ -53,10 +53,10 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
 ![A lady starting an online business selling home decor and gifts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-lady-starting-an-online-business-selling-home-decor-and-gifts.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With its massive audience, Facebook is definitely one of[the best social media platforms for businesses](https://www.makeuseof.com/best-social-media-platforms-for-business/) . And because it knows that companies are more than willing to invest to tap into this market, the social media platform developed several tools they can use.
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/6a8b7b3cdb25a03e07ba1819bb3940ce3cb079bf3
  Again, this tool was crucial during the pandemic, when many who've lost their jobs turned to online entrepreneurship to get them through the global lockdowns.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Ways Facebook Has Worsened Our Lives
@@ -86,15 +86,28 @@ So, what are some of the biggest things that affected us negatively?
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
 ![protesters behind a police man](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/protesters-behind-a-police-man.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
@@ -104,13 +117,6 @@ So, what are some of the biggest things that affected us negatively?
 ### Facebook Increased Polarization
 
 ![a keyboard warrior sitting beside a window in front of a macbook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/a-keyboard-warrior-sitting-beside-a-window-in-front-of-a-macbook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Facebook allows people to express their opinions on nearly anything—from whether pineapple belongs on pizza to their political and religious affiliation. And while it's normal for others to react negatively and disagree with a post, our smartphone screens, computer displays, and keyboards serve as a shield when we reply.
 
@@ -139,20 +145,19 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-the-best-beginnings-choosing-valheims-prime-plants/"><u>[New] In 2024, The Best Beginnings Choosing Valheim's Prime Plants</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-solo-scrutiny-an-examination-of-3dr-printers/"><u>[Updated] Solo Scrutiny An Examination of '3DR' Printers</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/10-top-ranked-offline-ios-gaming-hacks-you-need-for-2024/"><u>10 Top-Ranked Offline iOS Gaming Hacks You Need for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-mp4mpeg-audio-extraction-tool/"><u>2024 Approved MP4/MPEG Audio Extraction Tool</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fix-crashing-and-stuttering-problems-for-a-smoother-experience-with-serious-sam-4-on-pc/"><u>Fix Crashing and Stuttering Problems for a Smoother Experience with Serious Sam 4 on PC</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-realme-narzo-60-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Realme Narzo 60 5G Quickly | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-harness-the-power-of-live-videos-for-greater-engagement-on-facebook/"><u>How to Harness the Power of Live Videos for Greater Engagement on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/implementing-night-mode-on-facebook-profile/"><u>Implementing Night Mode on Facebook Profile</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-x50iplus-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor X50i+ by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-echo-of-you-customizing-your-speak-on-reels-and-stories/"><u>In 2024, The Echo of You Customizing Your Speak on Reels & Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-failure-fb-whatsapp-and-instagram-halted/"><u>Network Failure: FB, WhatsApp & Instagram Halted</u></a></li>
-<li><a href="https://facebook.techidaily.com/overcoming-two-factor-authentication-barrier-without-phone/"><u>Overcoming Two-Factor Authentication Barrier without Phone</u></a></li>
-<li><a href="https://facebook.techidaily.com/proposed-update-for-facebook-more-interactive-stories-reels-and-rooms/"><u>Proposed Update for Facebook: More Interactive Stories, Reels, and Rooms</u></a></li>
-<li><a href="https://facebook.techidaily.com/secrets-to-using-smschat-apps-beyond-facebook/"><u>Secrets to Using SMS/Chat Apps Beyond Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/warning-signs-someones-in-your-digital-domain/"><u>Warning Signs: Someone's in Your Digital Domain</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-simplifying-android-screen-recordings-a-user-friendly-method/"><u>[New] In 2024, Simplifying Android Screen Recordings A User-Friendly Method</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-zero-to-hero-on-instagram-top-5-tips-with-examples-from-elites/"><u>[Updated] From Zero to Hero on Instagram Top 5 Tips with Examples From Elites</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-seamless-tiktok-broadcasts-with-zoom-protocols/"><u>[Updated] Seamless TikTok Broadcasts with Zoom Protocols</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-strategies-to-continue-live-video-on-facebook/"><u>[Updated] Strategies to Continue Live Video on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-champions-resign-from-youtube-instagram-over-cyberbullying/"><u>England's Champions Resign From YouTube, Instagram Over Cyberbullying</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gpt-5-innovations-on-the-horizon-discovering-4-essential-improvements-were-excited-for/"><u>GPT-5 Innovations on the Horizon: Discovering 4 Essential Improvements We're Excited For</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacktivists-target-stardom-facebook-now-rated-in-the-dustbin/"><u>Hacktivists Target Stardom: Facebook Now Rated in the Dustbin</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-turn-off-find-my-iphone-se-when-phone-is-broken-by-drfone-ios/"><u>How to Turn Off Find My iPhone SE when Phone is Broken?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-obs-armada-cameras-at-full-power-again/"><u>In 2024, OBS Armada Cameras at Full Power Again</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-net-unveiling-facebooks-linked-space/"><u>Navigating the Net: Unveiling Facebook's Linked Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-disabling-fb-push-notifications/"><u>Quick Guide to Disabling Fb Push Notifications</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-transforming-flv-videos-to-high-quality-wav-audio/"><u>Step-by-Step Guide: Transforming FLV Videos to High-Quality WAV Audio</u></a></li>
+<li><a href="https://facebook.techidaily.com/subscription-strategy-how-facebook-outshines-apple-in-custom-access/"><u>Subscription Strategy: How Facebook Outshines Apple in Custom Access</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-workspace-wonders-top-8-notetaking-apps-no-pen/"><u>Windows Workspace Wonders: Top 8 Notetaking Apps (No Pen)</u></a></li>
 </ul></div>
 

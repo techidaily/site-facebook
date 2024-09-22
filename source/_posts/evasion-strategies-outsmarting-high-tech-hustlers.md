@@ -1,7 +1,7 @@
 ---
 title: "Evasion Strategies: Outsmarting High-Tech Hustlers"
-date: 2024-07-12T10:09:31.073Z
-updated: 2024-07-13T10:09:31.073Z
+date: 2024-09-19T19:04:34.216Z
+updated: 2024-09-21T20:53:59.818Z
 tags:
   - facebook
 categories:
@@ -99,6 +99,13 @@ Of course, that's all fake.
 
  To avoid this kind of scam, simply avoid making any financial transaction at the behest of someone you're dating online.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Evolving Nature of Online Scams
 
  Scammers' trademark broken English and impatience is less visible in their operations today. They hire fluent speakers to do their dirty work. They also learn to bide their time and cultivate their targets patiently—sometimes even as long as one year—before they strike.
@@ -107,14 +114,11 @@ Of course, that's all fake.
 
  According to the US's [Federal Trade Commission](https://www.ftc.gov/news-events/press-releases/2021/02/new-ftc-data-show-massive-increase-romance-scams-304m-losses) , in 2020, scammers fleeced their victims of $304 million from romance scams alone. This represents an increase of 50 percent from the previous year. All together, billions of dollars are lost to scams each year.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -123,6 +127,17 @@ Of course, that's all fake.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-rapid-recording-the-5-second-lapses-pro/"><u>[New] 2024 Approved Rapid Recording The 5-Second Lapses Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-a-complete-guide-of-screenrec-for-laptop/"><u>[New] A Complete Guide of ScreenRec for Laptop</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-effortless-socializing-adding-friends-across-platforms/"><u>[New] Effortless Socializing Adding Friends Across Platforms</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-crafting-captivating-instagram-puzzles-a-step-by-step-approach/"><u>[New] In 2024, Crafting Captivating Instagram Puzzles A Step-by-Step Approach</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-innovating-film-viewing-with-iphone-tricks-for-2024/"><u>[New] Innovating Film Viewing with iPhone Tricks for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-best-facebook-lite-video-downloading-software-of-2023-for-2024/"><u>[Updated] Best Facebook Lite Video Downloading Software of 2023 for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-fix-disruption-chromium-and-tweeted-videos/"><u>2024 Approved Fix Disruption Chromium and Tweeted Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-with-a-new-user-code-for-fb/"><u>Elevating Security with a New User Code for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/triumphing-at-friend-identification-3-powerful-tagging-on-fb/"><u>Triumphing at Friend Identification: 3 Powerful Tagging on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-undercover-messages-a-guide-to-fb-texts/"><u>Unlocking Undercover Messages: A Guide to FB Texts</u></a></li>
+</ul></div>
 

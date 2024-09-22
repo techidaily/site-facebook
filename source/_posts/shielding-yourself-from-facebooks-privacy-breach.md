@@ -1,7 +1,7 @@
 ---
 title: Shielding Yourself From Facebook's Privacy Breach
-date: 2024-07-12T10:13:04.745Z
-updated: 2024-07-13T10:13:04.745Z
+date: 2024-09-15T21:20:52.800Z
+updated: 2024-09-21T23:45:54.812Z
 tags:
   - facebook
 categories:
@@ -67,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
 ![facebook 2021 advertising data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/facebook-2021-advertising-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Regardless of what Facebook's advertising preferences say about me, it perfectly illustrates the profile built to serve you advertising you will engage with, rather than a random spiel of useless ads.
 
  If you want to stop being stalked by ads online, consider using the [Off-Facebook Activity](https://facebook.com/off-facebook-activity) tool to control which apps and services can [share your data with Facebook](https://www.makeuseof.com/tag/off-facebook-activity-tool/) .
@@ -76,6 +83,13 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
  I often hear people say they are free from Facebook tracking because they do not have an account. Well, the joke is on them (or us? All of us?!). One of the reasons Facebook's advertising works so well is the immense amount of websites and services feeding data back to Facebook's advertising arm. That includes data gathered using the methods laid out above.
 
  When you visit one of these sites, regardless of your Facebook user status, Facebook receives an IP address, location, browser details, and more. And the best bit of all? Facebook tracking cookies**never** expire.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Is Facebook Tracking Me?
 
@@ -105,9 +119,23 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 
  While these don't stop advertising and tracking directly, it does mean advertisers won't use that information to advertise to you.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Script Blocking
 
  Some websites rely on scripts. In this case, the script is a small piece of code that calls advertising trackers to your presence on a page. You can block these scripts from running using a script-blocking browser extension.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### uBlock Origin
 ![ublock malvertising privacy block list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/ublock-malvertising-privacy-block-list.jpg)
@@ -147,6 +175,13 @@ thumbnail: https://thmb.techidaily.com/8ac81d16fe79fad30026aca67e023b34a8f1d9b49
 [Tor](http://www.torproject.org/) is free anonymity software that usually runs as part of a modified Mozilla Firefox browser. It is well known as the home of darknet markets, dissidents, and other nefarious services. However, you can use it to stop trackers and keep your network traffic anonymous.
 
 **Download:** Tor Browser for Windows | macOS | Linux (All Free)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Brave
 
@@ -188,14 +223,11 @@ Facebook tracking serves one purpose: Facebook advertising.
 
 Image Credit: Sabphoto/Shutterstock
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -204,6 +236,18 @@ Image Credit: Sabphoto/Shutterstock
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-easier-than-ever-accessing-ifunnys-memetic-delights/"><u>[New] 2024 Approved Easier Than Ever Accessing iFunny’s Memetic Delights</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716068859242-new-in-2024-2023-browser-snapshot-winners-announced/"><u>[New] In 2024, 2023 Browser Snapshot Winners Announced!</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-seamless-tv-integration-looping-videos-from-youtube-on-large-screens/"><u>[New] Seamless TV Integration Looping Videos From YouTube on Large Screens</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-next-gen-gameplay-logging-alternatives-to-fbx/"><u>[Updated] 2024 Approved Next-Gen Gameplay Logging Alternatives to FBX</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-optimal-webcams-for-enhanced-clarity-in-all-your-zoom-calls/"><u>[Updated] Optimal Webcams for Enhanced Clarity in All Your Zoom Calls</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-2023-facebook-live-video-downloaders/"><u>2024 Approved 2023 Facebook Live Video Downloaders</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-samsung-galaxy-a54-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Samsung Galaxy A54 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-unlock-account-without-mobile-after-theft/"><u>How to Unlock Account Without Mobile After Theft</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-audience-accessibility-switching-from-srt-to-sub/"><u>In 2024, Audience Accessibility Switching From SRT to SUB</u></a></li>
+<li><a href="https://facebook.techidaily.com/resist-the-data-grabbing-from-facebook/"><u>Resist the Data Grabbing From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtuality-unveiled-what-is-the-metaverse/"><u>Virtuality Unveiled: What Is the Metaverse?</u></a></li>
+</ul></div>
 

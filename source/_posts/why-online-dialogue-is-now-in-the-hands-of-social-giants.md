@@ -1,7 +1,7 @@
 ---
 title: Why Online Dialogue Is Now in the Hands of Social Giants
-date: 2024-09-11T20:23:31.088Z
-updated: 2024-09-16T16:47:49.706Z
+date: 2024-09-16T00:35:26.665Z
+updated: 2024-09-21T19:39:36.495Z
 tags:
   - facebook
 categories:
@@ -44,33 +44,33 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
 
  This is because young internet users will learn from people around them that are older about social media, and the less they see forums, the less chance they'll think to sign up for one. As time goes on, forums will likely become more obscure and more outdated—leading to fewer signups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Forums Tend to Be Dedicated Around One Subject
 
  This isn't a hard-and-fast rule, of course, but forums typically are dedicated to one subject—even if the actual boards have sections for many topics. Examples include mothers for MumsNet, gamers for IGN boards, and so on.
 
  Forums commonly have a subsection where you can talk about everyday life stuff, films, TV shows, games, anything that isn't related to the primary subject it was created for. However, because of this dedication to a single subject, it can lead to you thinking that they're very niche. This may not be favorable compared to Twitter, Facebook, or Instagram, all of which cover pretty much anything—and connect you to people based on a comprehensive algorithm or your manual searches.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Apps Are More User-Friendly
 
 ![Cluster of icons for popular social media apps.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/social-apps-icons.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You likely have dozens of apps on your phone. It's possible you even regularly use most of them, even if it's pretty common for most apps on a users' phone to go ignored for months at a time. In any case, you probably agree that apps are more user-friendly than simply using a browser. Even though[social media can negatively affect you](https://www.makeuseof.com/tag/negative-effects-social-media/) , you're more likely to prioritize the convenience that apps and social media provide rather than the negative impacts that usage can cause.
 
  This is a big reason social media killed online forums because they typically can be used on a mobile app as well as a browser, whereas forums can only be used on browsers. While you can access most forums via your mobile browser, it'll be clunky and less responsive than an app—and almost definitely less friendly to navigate. The accessibility that apps provide makes people more likely to stick to them rather than go out of their way to use a forum on a browser to connect with people.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. The Rise of Facebook Groups
 
@@ -99,17 +99,20 @@ thumbnail: https://thmb.techidaily.com/696965aa1a0f4c21fdfd456761bb63f354f50ffc3
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-frosty-ambiance-cozy-cinematics-best-bgs-ideas/"><u>[Updated] In 2024, Frosty Ambiance, Cozy Cinematics Best Bgs Ideas</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-motorola-moto-g-stylus-5g-2023-frp-bypass-by-drfone-android/"><u>About Motorola Moto G Stylus 5G (2023) FRP Bypass</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/comprehensive-strategies-to-eliminate-audio-dropouts-during-discord-calls-a-2024-expert-guide/"><u>Comprehensive Strategies to Eliminate Audio Dropouts During Discord Calls: A 2024 Expert Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhancing-facebook-visibility-hide-from-randoms/"><u>Enhancing Facebook Visibility: Hide From Randoms</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/hide-location-on-apple-iphone-15-pro-and-android-without-others-knowing-drfone-by-drfone-virtual-ios/"><u>Hide location on Apple iPhone 15 Pro and Android without others knowing | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xr-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>In 2024, How to Unlock iPhone XR Passcode without iTunes without Knowing Passcode?</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-infinix-note-30i-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Infinix Note 30i Data? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/online-security-breaches-by-the-numbers/"><u>Online Security Breaches by the Numbers</u></a></li>
-<li><a href="https://facebook.techidaily.com/prime-destinations-where-freelancers-converge/"><u>Prime Destinations Where Freelancers Converge</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-choice-elite-smartphone-gimbals-of-the-year-2024/"><u>Ultimate Choice: Elite Smartphone Gimbals of the Year 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/unleashing-potential-the-best-seo-practices-for-your-youtube-videos-for-2024/"><u>Unleashing Potential The Best SEO Practices for Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/unraveling-the-core-structure-of-facebooks-system/"><u>Unraveling the Core Structure of Facebook’s System</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elite-mp4-streamer-system-for-fb/"><u>[New] In 2024, Elite MP4 Streamer System for FB</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-breakdown-of-sharex-scrutiny-and-substitutes/"><u>[Updated] 2024 Approved Breakdown of ShareX Scrutiny & Substitutes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-cost-cutting-in-cloud-storage-savings-guide-2024/"><u>[Updated] Innovative Cost Cutting in Cloud Storage - Savings Guide 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-top-video-editor-battle-filmora-versus-democracy-creator/"><u>[Updated] Top Video Editor Battle Filmora versus Democracy Creator</u></a></li>
+<li><a href="https://solve-news.techidaily.com/2-master-the-switch-ogv-to-avi-transformation-techniques-for-streamlined-playback/"><u>2. Master the Switch: OGV to AVI Transformation Techniques for Streamlined Playback</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-purpose-marketers-guide-to-user-participation/"><u>Engage with Purpose: Marketers' Guide to User Participation</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-insight-time-off-for-teens-from-instagram-usage/"><u>Facebook's Insight: Time Off for Teens From Instagram Usage</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-notified-when-someone-screenshots-disappearing-messages-on-messenger/"><u>How to Get Notified When Someone Screenshots Disappearing Messages on Messenger</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mp4-aviwindows-78/"><u>MP4, AVIなどの動画圧縮手法を学べる【Windows 7/8】ユーザーガイド</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/overcoming-app-crashes-during-video-playback-post-upgrade/"><u>Overcoming App Crashes During Video Playback Post-Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-your-social-space-navigating-facebooks-new-moderation-tools/"><u>Steering Your Social Space: Navigating Facebook's New Moderation Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-feed-intelligent-photo-captioning-tech/"><u>Streamline Your Feed: Intelligent Photo Captioning Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-hints-of-facebooks-upcoming-identity-change/"><u>Unveiling Hints of Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-users-safe-germany-orders-stop-to-facebook-data-mining-practices/"><u>WhatsApp Users Safe? Germany Orders Stop to Facebook Data Mining Practices</u></a></li>
 </ul></div>
 

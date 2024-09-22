@@ -1,7 +1,7 @@
 ---
 title: From Global Village to Social Stress with Facebook
-date: 2024-09-11T00:14:03.396Z
-updated: 2024-09-16T17:40:21.039Z
+date: 2024-09-18T19:00:36.768Z
+updated: 2024-09-21T17:46:11.426Z
 tags:
   - facebook
 categories:
@@ -49,10 +49,16 @@ thumbnail: https://thmb.techidaily.com/474c5054a0eaa723712bc3725331bacf73663ebfe
  Furthermore, Facebook occasionally reminds us of our noteworthy posts from the past. Whether this is your wedding, a holiday, or any other event, the social media platform uses its algorithm to send reminders to your feed. There's also an[effective way to use Facebook's "On This Day" feature](https://www.makeuseof.com/how-to-use-the-on-this-day-feature-facebook/) to ensure that Facebook knows you're celebrating an important milestone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Facebook Allowed Small Businesses and Entrepreneurs to Flourish
@@ -71,33 +77,33 @@ thumbnail: https://thmb.techidaily.com/474c5054a0eaa723712bc3725331bacf73663ebfe
 
 So, what are some of the biggest things that affected us negatively?
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Misinformation on Facebook Deceived the Masses
 
 ![fake news typed on a typewriter with some books on misinformation to the right](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/fake-news-typed-on-a-typewriter-with-some-books-on-misinformation-to-the-right.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  With the democratization of media through Facebook and other social media platforms, it became easier for fake news and disreputable sites to spread their content. And when you couple this with sensational headlines and quick share buttons, misinformation spread like wildfire over the social media platform.
 
 [A study published by the National Library of Medicine](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC9609763/) has shown a correlation between Facebook posts and COVID-19 vaccine hesitancy. That means false social media posts, especially those that go viral, could have a real and lasting impact on individuals and our society. Although[Facebook eventually took steps to control misinformation](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/) , some say it was too little, too late.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Your Data, Cambridge Analytica, Presidential Elections, and International Politics
 
@@ -106,6 +112,13 @@ So, what are some of the biggest things that affected us negatively?
  Because Facebook collects and stores so much personal data on all its users, some companies have taken advantage of this data to manipulate public opinion. It has grown so much that it's alleged that this data mining allowed external parties to influence national elections.
 
  According to[a Rappler report](https://www.rappler.com/technology/social-media/239606-cambridge-analytica-philippines-online-propaganda-christopher-wylie/) , Cambridge Analytica and SCL, its parent company, influenced presidential elections successfully in the Philippines. There were also allegations that unauthorized data mining on Facebook was used to affect the 2016 US Presidential Elections,[forcing Facebook to address the Cambridge Analytica scandal](https://www.makeuseof.com/tag/facebook-cambridge-analytica-scandal/) and fix its systems to avoid a repeat of this incident.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Facebook Increased Polarization
 
@@ -116,13 +129,6 @@ So, what are some of the biggest things that affected us negatively?
  Because we only see the Facebook post and not the person behind it, many people have resorted to arguing and this has resulted in broken relationships. This is especially true on contentious topics like COVID-19 and politics. Some have even resorted to cyberbullying—one of the significant[negative effects of social media on people and its users](https://www.makeuseof.com/tag/negative-effects-social-media/) .
 
  Although some people may say that it only showed the true colors of the people who made the comments, it's unfortunate many have lost their sense of community and their ability to "agree to disagree." All because they no longer see the person behind the post—only their disagreement with their beliefs.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Facebook Is a Big Part of Modern Human History
 
@@ -145,15 +151,19 @@ So, what are some of the biggest things that affected us negatively?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-strategic-geniuses-unearthing-the-best-7-total-war-masterpieces/"><u>[New] 2024 Approved Strategic Geniuses Unearthing the Best 7 Total War Masterpieces</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-unveiling-lgs-full-hd-27-inch-monitor-features-for-2024/"><u>[New] Unveiling LG's Full HD, 27-Inch Monitor Features for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-audio-improvement-for-effective-online-communication/"><u>[Updated] 2024 Approved Audio Improvement for Effective Online Communication</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-get-clipped-onto-youtube-audio-submission-made-easy/"><u>[Updated] In 2024, Get Clipped Onto YouTube Audio Submission Made Easy</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagram-insights-identifying-your-posts-audience-for-2024/"><u>[Updated] Instagram Insights Identifying Your Post's Audience for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-key-to-profit-youtube-shorts-insights/"><u>[Updated] The Key to Profit YouTube Shorts Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/managing-friend-access-to-live-updates/"><u>Managing Friend Access to Live Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-nirvana-major-social-media-blackouts/"><u>Network Nirvana: Major Social Media Blackouts</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-renaissance-facebooks-transformation-journey-to-meta/"><u>Network Renaissance: Facebook’s Transformation Journey to Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-place-in-verified-meta-circle/"><u>Secure Your Place in Verified Meta Circle</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/apturing-top-notch-audio-without-microphone-dependency-for-2024/"><u>[New] Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovative-techniques-for-chapter-integration-in-youtube-content/"><u>2024 Approved Innovative Techniques for Chapter Integration in YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-premium-apps-for-gaming-playback/"><u>2024 Approved Premium Apps for Gaming Playback</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-poco-c51-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Poco C51 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mp3-powerdirector/"><u>音声抽出・MP3出力の手引き - PowerDirectorによる簡単なプロセス</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-methods-for-converting-your-favorite-youtube-videos-into-mp4-format-desktop-and-web-based-options/"><u>Effortless Methods for Converting Your Favorite YouTube Videos Into MP4 Format – Desktop & Web-Based Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-backbone-of-facebooks-operations/"><u>Examining The Backbone of Facebook's Operations</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Samsung Galaxy S24? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-2-ways-to-monitor-apple-iphone-11-activity-drfone-by-drfone-virtual-ios/"><u>In 2024, 2 Ways to Monitor Apple iPhone 11 Activity | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-every-post-count-in-your-facebook-chronology/"><u>Making Every Post Count in Your Facebook Chronology</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-digital-footprint-reducing-specific-ads/"><u>Optimize Your Digital Footprint: Reducing Specific Ads</u></a></li>
+<li><a href="https://games-able.techidaily.com/ps5-and-ps4-gaming-cross-platform-insights/"><u>PS5 and PS4 Gaming: Cross-Platform Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-your-social-network-hide-it-from-outsiders/"><u>Shielding Your Social Network: Hide It From Outsiders</u></a></li>
+<li><a href="https://facebook.techidaily.com/trend-of-doubt-grows-for-large-internet-entities-facebook-most-targeted/"><u>Trend of Doubt Grows for Large Internet Entities; Facebook Most Targeted</u></a></li>
 </ul></div>
 

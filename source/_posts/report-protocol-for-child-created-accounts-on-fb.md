@@ -1,7 +1,7 @@
 ---
 title: Report Protocol for Child-Created Accounts on FB
-date: 2024-09-13T21:17:18.991Z
-updated: 2024-09-16T23:16:00.912Z
+date: 2024-09-15T23:58:01.955Z
+updated: 2024-09-21T20:51:07.211Z
 tags:
   - facebook
 categories:
@@ -70,9 +70,23 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
 ![Children using electronic devices](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Children-using-phones.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Social media addiction is real](https://www.makeuseof.com/what-is-social-media-addiction/) , and exposing your children to Facebook at an early age might trigger their minds to use the app for a long time. Initially, trying out the endless Facebook features can be exciting, but the addiction can slowly grow and start getting to you.
 
  Children should use Facebook under a restricted and balanced schedule at the recommended age to avoid addiction. Engage kids in creative activities and sports that boost their physical and mental capacity, leaving them with less time for social media.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### It Might Lead to Cyberbullying
 
@@ -81,43 +95,17 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
  It can start with intimidating messages and threats. Other kids from school can also approach children in an attempt to mistreat them.[Messenger Kids is a relatively safer](https://www.makeuseof.com/is-messenger-kids-safe-children/) and more convenient option for parents to keep tabs on their children.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### It Can Worsen Mental Health Issues
 
 ![Anxious child on bed](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/Anxious-child-on-bed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Children can face mental health issues, just like adults. Research has shown that regular use of Facebook might affect underage users' self-esteem. Looking at the so-called fake perfection on social media can make them constantly compare themselves with others and negatively impact their mind.
-
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### It Might Expose Your Child to Inappropriate Content
 
@@ -148,20 +136,18 @@ thumbnail: https://thmb.techidaily.com/bedeaab43df1b8b5afd8fae799c1b0ff2cb5a9adc
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/updated-imovie-why-does-it-alter-my-videos/"><u>[Updated] IMovie Why Does It Alter My Videos?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-corporate-crown-best-cloud-keepers/"><u>[Updated] In 2024, Corporate Crown Best Cloud Keepers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-precision-image-editing-on-iphone-with-best-apps-for-object-elimination/"><u>[Updated] Precision Image Editing on iPhone with Best Apps for Object Elimination</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-reviewing-and-selecting-the-ultimate-5-book-tt-list/"><u>2024 Approved Reviewing and Selecting The Ultimate 5 Book TT List</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-await-exciting-new-texting-features-from-fb/"><u>Messenger and Instagram Await Exciting New Texting Features From FB</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-chatgpt-with-a-vpn-pros-and-cons/"><u>Navigating ChatGPT with a VPN – Pros & Cons?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/navigating-the-world-of-samsung-tv-apps-a-complete-overview-for-users/"><u>Navigating the World of Samsung TV Apps: A Complete Overview for Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebranding-your-fb-profile-with-a-fresh-url/"><u>Rebranding Your FB Profile with a Fresh URL</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-and-recover-navigating-through-fb-security-breach/"><u>Secure & Recover: Navigating Through FB Security Breach</u></a></li>
-<li><a href="https://facebook.techidaily.com/setting-up-your-digital-gathering-space-on-fb/"><u>Setting Up Your Digital Gathering Space on FB</u></a></li>
-<li><a href="https://windows11.techidaily.com/skillful-art-of-masking-the-search-on-11-taskbar/"><u>Skillful Art of Masking the Search on 11 Taskbar</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-frenzy-jbs-anti-covid-strategy-unfolds/"><u>Social Media Frenzy: JB's Anti-COVID Strategy Unfolds</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-strategy-benefits-and-trade-offs-of-fb-events/"><u>Social Media Strategy: Benefits & Trade-Offs of FB Events</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/ultimate-guide-to-enhancing-your-mac-usage-with-pro-tactics/"><u>Ultimate Guide to Enhancing Your Mac Usage with Pro Tactics</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-potential-dangers-of-playful-online-quizzes/"><u>Unveiling the Potential Dangers of Playful Online Quizzes</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-elevating-the-chilly-selecting-five-warm-video-backgrounds/"><u>[New] In 2024, Elevating the Chilly Selecting Five Warm Video Backgrounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-effective-streaming-across-platforms-including-facebook-and-twitch/"><u>[Updated] 2024 Approved Effective Streaming Across Platforms, Including Facebook and Twitch</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-instagram-your-complete-guide-to-making-a-mark-with-reels/"><u>[Updated] Mastering Instagram Your Complete Guide to Making a Mark With Reels</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/camera-prospectus-ranking-the-top-5-superior-motion-cameras-for-2024/"><u>Camera Prospectus Ranking the Top 5 Superior Motion Cameras for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/como-convertir-archivos-wmv-en-mp4-sin-coste-guia-completa-para-sistemas-windows-y-mac/"><u>Cómo Convertir Archivos WMV en MP4 Sin Coste: Guía Completa Para Sistemas Windows Y Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-ids-downfall-meta-writes-the-new-chapter-for-fb/"><u>Facial ID's Downfall? Meta’ Writes the New Chapter for FB</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-when-apple-account-locked-on-apple-iphone-14-pro-by-drfone-ios/"><u>How to Fix when Apple Account Locked On Apple iPhone 14 Pro?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-the-nft-space-meta-drops-limited-trial-era/"><u>Pioneering the NFT Space: Meta Drop's Limited Trial Era</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restore-mobile-video-streaming/"><u>Restore Mobile Video Streaming</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/section-3a-contract-formation-under-common-law-vs-the-ucc/"><u>Section 3A: Contract Formation Under Common Law Vs. The UCC</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-facebook-picture-upgrade/"><u>Strategic Timing for Facebook Picture Upgrade</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-project-management-unlocking-facebooks-8-capabilities/"><u>The New Era of Project Management: Unlocking Facebook's 8 Capabilities</u></a></li>
 </ul></div>
 

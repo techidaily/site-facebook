@@ -1,7 +1,7 @@
 ---
 title: Textual Illumination for Your Social Photos
-date: 2024-07-12T10:10:06.567Z
-updated: 2024-07-13T10:10:06.567Z
+date: 2024-09-17T20:52:02.911Z
+updated: 2024-09-21T23:43:29.787Z
 tags:
   - facebook
 categories:
@@ -58,6 +58,13 @@ Here’s how you add alt text to images while uploading them:
 ### How to Add Alt Text to Facebook Images on the Web
 ![screenshot showing how to insert alt text in facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-insert-alt-text-in-facebook-web.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Here’s how to add alt text to your photos on Facebook's web browser.
 
 1. Log in to [Facebook](https://www.facebook.com) on your browser.
@@ -70,12 +77,32 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
+<!-- affiliate ads begin -->
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
 
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -96,14 +123,11 @@ Close
 
  It’s easy enough to add alternative text to images, both new and old, using the Facebook app or web version. So, the next time you upload a photo to Facebook, consider how everyone can best appreciate it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,6 +136,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-elite-editing-selection-quality-software-for-youtubers/"><u>[Updated] 2024 Approved Elite Editing Selection Quality Software for YouTubers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>[Updated] In 2024, Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-keep-your-shorts-viewer-friendly-fixing-image-absence/"><u>2024 Approved Keep Your Shorts Viewer-Friendly Fixing Image Absence</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-tv-viewing-with-android-devices/"><u>Enhancing TV Viewing with Android Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-subscription-model-disrupts-tech-norm-surpassing-apples-app-store/"><u>Facebook’s Subscription Model Disrupts Tech Norm, Surpassing Apple's App Store</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-itel-p55-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Itel P55 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/is-motorola-edgeplus-a-flagship-contender-or-misses-the-mark/"><u>Is Motorola Edge+ a Flagship Contender or Misses the Mark?</u></a></li>
+<li><a href="https://windows11.techidaily.com/keeping-your-win11-devices-running-smoothly-check-list-5/"><u>Keeping Your Win11 Devices Running Smoothly - Check List #5</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-doubts-large-firms-worries-stem-from-facebook/"><u>Majority Doubts Large Firms, Worries Stem From Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-tecno-pop-7-pro-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Tecno Pop 7 Pro – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcoming-installation-hurdles-successfully-running-civ-6-on-windows-10/"><u>Overcoming Installation Hurdles: Successfully Running Civ 6 on Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-full-power-facebooks-rooting-of-oculus-go-explained/"><u>Unlocking Full Power: Facebook's Rooting of Oculus Go Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-insights-of-facebooks-local-communities/"><u>Unveiling the Insights of Facebook's Local Communities</u></a></li>
+</ul></div>
 

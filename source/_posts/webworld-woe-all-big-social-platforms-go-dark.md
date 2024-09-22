@@ -1,7 +1,7 @@
 ---
 title: "Webworld Woe: All Big Social Platforms Go Dark"
-date: 2024-09-14T19:14:16.572Z
-updated: 2024-09-16T23:02:07.677Z
+date: 2024-09-19T19:43:30.244Z
+updated: 2024-09-21T21:10:28.783Z
 tags:
   - facebook
 categories:
@@ -59,28 +59,28 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
 
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Hashtag #facebookdown Trends on Twitter
 
  Within minutes of Facebook, WhatsApp, and Instagram going down, the hashtag #facebookdown was trending on Twitter, amassing hundreds of thousands of tweets. #whatsappdown and #instadown also shot to the top of the Twitter trending charts as panicked users flocked en masse to the social network in an attempt to find out why Facebook is down.
 
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
 
@@ -103,20 +103,14 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-free-recording-exploring-apowersofts-screen-capture/"><u>[Updated] 2024 Approved Free Recording Exploring Apowersoft's Screen Capture</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-academic-anchors-identifying-top-10-lecture-preservation-tools-for-2024/"><u>[Updated] Academic Anchors Identifying Top 10 Lecture Preservation Tools for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-guide-to-initiating-and-archiving-webinars-economically/"><u>[Updated] In 2024, Guide to Initiating and Archiving Webinars Economically</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/artistry-in-your-pocket-the-bestiary-of-top-8-iphone-drawing-apps/"><u>Artistry in Your Pocket The Bestiary of Top 8 iPhone Drawing Apps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/civi-3-disney-100th-anniversary-edition-music-recovery-recover-deleted-music-from-civi-3-disney-100th-anniversary-edition-by-fonelab-android-recover-music/"><u>Civi 3 Disney 100th Anniversary Edition Music Recovery - Recover Deleted Music from Civi 3 Disney 100th Anniversary Edition</u></a></li>
-<li><a href="https://extra-information.techidaily.com/discover-the-top-10-iosandroid-vr-games/"><u>Discover the Top 10 iOS/Android VR Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/ethical-engagement-the-new-frontier-for-advertisers/"><u>Ethical Engagement: The New Frontier for Advertisers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/how-to-block-spotifys-predicted-podcast-selections/"><u>How to Block Spotify's Predicted Podcast Selections</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-ice-cream-capture-gadget-detailed-examination/"><u>In 2024, Ice Cream Capture Gadget Detailed Examination</u></a></li>
-<li><a href="https://facebook.techidaily.com/lost-in-the-social-void-regain-your-facebook-profile/"><u>Lost in the Social Void: Regain Your Facebook Profile</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-your-home-screen-configuring-facebook-portals-for-video-calls/"><u>Mastering Your Home Screen: Configuring Facebook Portals for Video Calls</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/offline-driver-setup-for-windows-systems-no-internet-required/"><u>Offline Driver Setup for Windows Systems - No Internet Required!</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giants-bold-investment-of-5m-targeting-content-creators-and-writers/"><u>Social Media Giant's Bold Investment of $5M Targeting Content Creators & Writers</u></a></li>
-<li><a href="https://facebook.techidaily.com/stealthy-fb-tips-to-prevent-strangers-from-viewing-posts/"><u>Stealthy FB Tips to Prevent Strangers From Viewing Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/zero-tolerance-for-myth-sharers-on-facebook-now/"><u>Zero Tolerance for Myth Sharers on Facebook Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-is-there-money-in-evaluating-merchandise-vids/"><u>[New] 2024 Approved Is There Money in Evaluating Merchandise Vids?</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-precise-process-installing-snapchat-on-a-mac-os/"><u>2024 Approved Precise Process Installing Snapchat on a Mac OS</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/explore-the-fun-side-of-ai-top-6-games-to-try-on-chatgpt/"><u>Explore the Fun Side of AI: Top 6 Games to Try on ChatGPT</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/masterclass-in-making-engaging-video-lessons-your-step-by-step-guide-for-youtube/"><u>Masterclass in Making Engaging Video Lessons Your Step-by-Step Guide for YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-steps-for-swift-account-reactivation-on-fb/"><u>Proven Steps for Swift Account Reactivation on FB</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/risparmia-tempo-e-converti-direttamente-il-tuo-audiovideo-flac-in-avi-gratuito-utilizzando-movavi/"><u>Risparmia Tempo E Converti Direttamente Il Tuo Audio/Video FLAC in AVI Gratuito Utilizzando Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-digital-footprint-pre-deletion-must-dos-before-facing-fb/"><u>Secure Your Digital Footprint: Pre-Deletion Must-Dos Before Facing FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-and-conquer-join-meta-in-the-states/"><u>Verify and Conquer: Join Meta in the States</u></a></li>
 </ul></div>
 

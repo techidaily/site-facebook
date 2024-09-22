@@ -1,7 +1,7 @@
 ---
 title: Mastering Complete Disconnection From FB Alerts
-date: 2024-07-12T10:08:45.141Z
-updated: 2024-07-13T10:08:45.141Z
+date: 2024-09-16T23:46:13.644Z
+updated: 2024-09-21T21:45:16.886Z
 tags:
   - facebook
 categories:
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 
  By stopping Facebook notifications on your mobile and desktop, it is possible to concentrate on the task at hand.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Healthy Lifestyle
 
  Addiction to social media apps can lead to a sedentary lifestyle and lack of activity. Instead of spending time clicking every notification you receive on Facebook, we recommend going out to grab some fresh air and refrain from using the phone.
@@ -42,6 +49,13 @@ thumbnail: https://thmb.techidaily.com/99fe81a7264fad21c10b59936e2340ed2f52f70dd
 ### More Confidence
 
  Avoiding social media can improve your confidence if you're prone to [social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Block Facebook Notifications
 
@@ -56,6 +70,13 @@ Users can block notifications from their desktops and mobile devices.
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
 ![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
 
@@ -101,10 +122,25 @@ Close
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
 
@@ -118,14 +154,11 @@ Close
 
  We hope that blocking all Facebook notifications improves your productivity, reduces stress, and helps you embrace a healthy and active lifestyle.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,6 +167,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-premium-zero-cost-switch-gaming-experience/"><u>[New] In 2024, Premium Zero Cost Switch Gaming Experience</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-no-credit-calls-unlocking-free-tools-for-iphone-photo-blurring/"><u>2024 Approved No Credit Calls Unlocking Free Tools for iPhone Photo Blurring</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-use-polls-to-deepen-relationships-in-messaging/"><u>Engage Friends: Use Polls to Deepen Relationships in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/envisioning-interconnected-realities-metaverse-insights/"><u>Envisioning Interconnected Realities: Metaverse Insights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/expert-mp4-to-fb-migration-tool-for-2024/"><u>Expert MP4 To-FB Migration Tool for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-prototype-with-dual-camera-enabled-watch/"><u>Facebook Unveils Prototype with Dual Camera-Enabled Watch</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-samsung-galaxy-s23-fe-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Samsung Galaxy S23 FE Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-fbs-watch-tech-double-cameras-on-the-horizon/"><u>Sneak Peek at FB's Watch Tech: Double Cameras on the Horizon?</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-troubleshooting-guide-solving-days-gone-game-crashes/"><u>Ultimate Troubleshooting Guide: Solving 'Days Gone' Game Crashes</u></a></li>
+</ul></div>
 

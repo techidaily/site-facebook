@@ -1,7 +1,7 @@
 ---
 title: Unmasking Fake News in the Time of Coronavirus Crisis
-date: 2024-07-12T10:11:18.846Z
-updated: 2024-07-13T10:11:18.846Z
+date: 2024-09-14T17:42:13.239Z
+updated: 2024-09-21T21:45:31.635Z
 tags:
   - facebook
 categories:
@@ -62,11 +62,25 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
  Many people distrust figures of authority, such as the government. Social media companies can partner with celebrities and religious and community leaders to post videos presenting factual and myth-busting information online.
 
  They can also share their personal experiences around getting vaccinated.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
@@ -81,6 +95,19 @@ YouTube also removes videos that violate its COVID-19 policy.
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
@@ -98,14 +125,11 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In order to improve COVID-19 awareness and vaccine uptake, social media companies have a key role to play in ensuring that the correct information is presented to users on its platforms, while tackling misinformation.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +138,18 @@ YouTube also removes videos that violate its COVID-19 policy.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-fostering-creativity-for-impressive-mac-produced-tiktok-beginnings-for-2024/"><u>[New] Fostering Creativity for Impressive Mac-Produced TikTok Beginnings for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-embrace-xps-film-editor-installation-guide/"><u>[Updated] 2024 Approved Embrace XP's Film Editor Installation Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-discover-funimate-games-with-a-single-apk-install-for-2024/"><u>[Updated] Discover Funimate Games with a Single APK Install for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/if-you-observe-low-ctrs-consider-optimizing-title-tags-meta-descriptions-and-content-with-more-relevant-keywords-or-value-driven-phrases-that-could-entice-a67/"><u>If You Observe Low CTRs, Consider Optimizing Title Tags, Meta Descriptions, and Content with More Relevant Keywords or Value-Driven Phrases that Could Entice a User to Click Through.</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/proven-steps-for-swift-account-reactivation-on-fb/"><u>Proven Steps for Swift Account Reactivation on FB</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/summit-of-synergy-for-vr-sensations-for-2024/"><u>Summit of Synergy for VR Sensations for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/top-10-trending-tiktok-battles-you-should-join-in/"><u>Top 10 Trending TikTok Battles You Should Join In</u></a></li>
+<li><a href="https://win-community.techidaily.com/transforma-tu-ram-en-mbp-sin-coste-alguno-con-nuestro-servicio-online-gratuito-movavi/"><u>Transforma Tu RAM en MBP Sin Coste Alguno Con Nuestro Servicio Online Gratuito - Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-internet-illusions-the-factual-side-of-facebook-claims/"><u>Unveiling Internet Illusions: The Factual Side of Facebook Claims</u></a></li>
+<li><a href="https://facebook.techidaily.com/verify-and-conquer-join-meta-in-the-states/"><u>Verify and Conquer: Join Meta in the States</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Bury Not Show: How to Keep FB Posts From Others' Eyes"
-date: 2024-07-12T10:12:33.815Z
-updated: 2024-07-13T10:12:33.815Z
+date: 2024-09-15T23:23:14.635Z
+updated: 2024-09-21T17:49:08.779Z
 tags:
   - facebook
 categories:
@@ -60,11 +60,25 @@ Here's how you can archive multiple posts at once:
 
 ![screen showing facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facebook-profile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screen showing navigation to activity log on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-navigation-to-activity-log-on-Facebook.jpg)
 
 ![screen-showing-facbook-activity-log-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-facbook-activity-log-1.jpg)
 
 ![screen showing how to bulk-archive facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screen-showing-how-to-bulk-archive-facebook-post.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -75,6 +89,13 @@ Close
 5. Select all the posts you'd like to archive, then tap**Archive** .
 
 This will immediately move the posts to your archive.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Restore Archived Posts on Facebook
 
@@ -96,20 +117,24 @@ Close
 
  The process is very similar on the web version of Facebook—just look out for the ellipsis and corresponding action.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Keep Your Memories Away From Prying Eyes
 
  If you want to hide old posts on Facebook but at the same time don't want to delete them, go ahead and archive them.
 
  The archived posts will only be accessible through your Archive page, and others can't see them. You can always restore an archived post anytime in the future.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +143,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-10-top-inspirational-movies-for-personal-power-boosts/"><u>[New] 10 Top Inspirational Movies for Personal Power Boosts</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-gelato-gadgets-step-by-step-screen-capture-for-frozen-snacks-for-2024/"><u>[Updated] Gelato Gadgets Step-by-Step Screen Capture for Frozen Snacks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-instavoice-top-100-captions-that-define-your-personal-narrative-for-2024/"><u>[Updated] InstaVoice Top 100 Captions That Define Your Personal Narrative for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-12-mini-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 12 mini without the Previous Owner?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-quick-guide-the-most-effective-ways-to-save-fb-story-videos/"><u>In 2024, Quick Guide The Most Effective Ways to Save FB Story Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-universal-unlock-pattern-for-samsung-galaxy-a24-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Samsung Galaxy A24</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/innovative-ways-to-create-captivating-slow-motion-videos-for-instagram-fame/"><u>Innovative Ways to Create Captivating Slow Motion Videos for Instagram Fame</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/quintessential-6-giants-of-vast-language-systems/"><u>Quintessential 6 Giants of Vast Language Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-voices-mentioning-full-group-in-social-media/"><u>Uniting Voices: Mentioning Full Group in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-potential-of-social-networking-through-neighborhoods/"><u>Unlocking the Potential of Social Networking Through Neighborhoods</u></a></li>
+</ul></div>
 

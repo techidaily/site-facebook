@@ -1,7 +1,7 @@
 ---
 title: A Complete Archive of Your Facebook Journey
-date: 2024-07-12T10:09:16.650Z
-updated: 2024-07-13T10:09:16.650Z
+date: 2024-09-19T16:29:28.085Z
+updated: 2024-09-21T21:49:13.214Z
 tags:
   - facebook
 categories:
@@ -71,6 +71,13 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
 ![Facebook data download photos pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-photos-pages.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Other downloadable datasets include:
 
 * **Ads Interests:** Essentially topics that Facebook describes as "most relevant to you". This is worth a look since many of the categories probably _don't_ apply to you.
@@ -87,6 +94,13 @@ Other downloadable datasets include:
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see [what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
  Other categories may seem oddly empty, depending on which permissions you have enabled and whether you allow location tracking in the background, for example.
@@ -96,6 +110,13 @@ Other downloadable datasets include:
  The social network clearly knows more about you than it includes in the download, and users need to be aware of this. We don't know what data Facebook collects based on our browsing history—which profiles we visit and the groups we are most active in.
 
  It'll be interesting to see legislation evolve as the authorities continue to probe into Facebook's handling of user data.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Downloading Other Facebook Photos and Videos
 
@@ -115,14 +136,11 @@ Other downloadable datasets include:
 
  Image Credit: Christoph Scholz/[Flickr](https://www.flickr.com/photos/140988606@N08/25076399117/)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,6 +149,17 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-the-top-5-game-changers-for-professional-obs-studio-video/"><u>[New] The Top 5 Game-Changers for Professional OBS Studio Video</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722977059989-download-the-newest-drivers-for-nvidia-quadro-rtx-8000-on-windows-1087-get-them-now/"><u>Download the Newest Drivers for NVIDIA Quadro RTX 8000 on Windows 10/8/7 – Get Them Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-present-power-brokers/"><u>Facebook’s Present Power Brokers</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/free-online-converter-from-avi-to-mov-movavi/"><u>Free Online Converter From AVI to MOV - Movavi</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-sony-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Sony Phone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Infinix PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-movie-buffs-secret-2023-recommendations/"><u>In 2024, Movie Buffs' Secret 2023 Recommendations</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-contacts-from-huawei-p60-by-fonelab-android-recover-contacts/"><u>Possible solutions to restore deleted contacts from Huawei P60.</u></a></li>
+<li><a href="https://facebook.techidaily.com/restoring-facebook-user-login-after-code-deletion/"><u>Restoring Facebook User Login After Code Deletion</u></a></li>
+<li><a href="https://facebook.techidaily.com/solutions-for-non-receipt-of-facebook-login-code/"><u>Solutions for Non-Receipt of Facebook Login Code</u></a></li>
+</ul></div>
 

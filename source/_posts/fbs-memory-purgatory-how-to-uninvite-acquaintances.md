@@ -1,7 +1,7 @@
 ---
 title: "FB's Memory Purgatory: How to Uninvite Acquaintances"
-date: 2024-09-11T19:04:47.654Z
-updated: 2024-09-16T23:51:24.614Z
+date: 2024-09-19T20:06:15.720Z
+updated: 2024-09-21T16:31:26.547Z
 tags:
   - facebook
 categories:
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
  That's it, memories from that particular date range won't show up.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Turn Off Facebook Memories Notifications
@@ -87,10 +87,16 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
  If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Learn to Live with Your Past
@@ -112,16 +118,16 @@ thumbnail: https://thmb.techidaily.com/b432bdff253fde3d555eb0e4e70a3a08238022a0a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-elite-mobile-filming-tech-for-iphones/"><u>[New] Elite Mobile Filming Tech for iPhones</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-master-subtitles-from-srt-with-3-steps/"><u>[Updated] Master Subtitles From SRT with 3 Steps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-revolutionizing-podcast-branding-with-ai-naming-generators/"><u>[Updated] Revolutionizing Podcast Branding with AI Naming Generators</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-tuning-into-iphones-sound-scenarios/"><u>[Updated] Tuning Into iPhone's Sound Scenarios</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-the-new-brother-hl-l2370dw-printer-software-for-windows-and-macos-download-here/"><u>Get the New Brother HL-L2370DW Printer Software for Windows and macOS - Download Here</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-vivo-x100-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Vivo X100 Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-altering-facebooks-birthdate/"><u>Mastering the Art of Altering Facebook's Birthdate</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebranding-your-fb-profile-with-a-fresh-url/"><u>Rebranding Your FB Profile with a Fresh URL</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/smartwatch-for-smart-savings-the-fitbit-versa-reviewed/"><u>Smartwatch for Smart Savings: The Fitbit Versa Reviewed</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/stand-out-and-thrive-strategies-for-staff-recognition-at-vimeo/"><u>Stand Out and Thrive Strategies for Staff Recognition at Vimeo</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-facebooks-shortcomings-the-top-5-times-it-lost-its-way-with-us/"><u>Unmasking Facebook's Shortcomings: The Top 5 Times It Lost Its Way with Us</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-7-key-strategies-for-perfect-macro-video-shooting-for-2024/"><u>[Updated] 7 Key Strategies for Perfect Macro Video Shooting for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-essential-fb-video-plays-top-10-choices/"><u>[Updated] In 2024, Essential FB Video Plays Top 10 Choices</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-enhance-your-instagram-presence-with-obs-based-streaming/"><u>2024 Approved Enhance Your Instagram Presence with OBS-Based Streaming</u></a></li>
+<li><a href="https://win-answers.techidaily.com/everspace-2-how-to-stop-your-game-from-crashing-on-windows/"><u>Everspace 2 - How to Stop Your Game From Crashing on Windows</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-effortlessly-transform-dav-files-into-mp4-format-across-pcs-and-macbooks-top-7-methods/"><u>How to Effortlessly Transform DAV Files Into MP4 Format Across PCs and MacBooks: Top 7 Methods</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-craft-channels-with-flair-unveiling-10-innovative-design-platforms/"><u>In 2024, Craft Channels with Flair Unveiling 10 Innovative Design Platforms</u></a></li>
+<li><a href="https://blog-min.techidaily.com/movavis-free-online-nef-tiff-converter-instalacao-e-uso-facil/"><u>Movavi's FREE Online NEF-TIFF Converter - Instalação E Uso Fácil!</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-unveils-enhanced-personalizable-virtual-characters/"><u>Oculus Unveils Enhanced, Personalizable Virtual Characters</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-language-options-on-facebook-profile-and-pages/"><u>Simplifying Language Options on Facebook Profile and Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/turn-off-automatic-broadcast-notifications/"><u>Turn Off Automatic Broadcast Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-your-privacy-matters-more-than-ever-with-facebooks-update/"><u>Why Your Privacy Matters More Than Ever with Facebook's Update</u></a></li>
 </ul></div>
 

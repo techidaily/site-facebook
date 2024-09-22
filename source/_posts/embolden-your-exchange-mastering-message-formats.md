@@ -1,0 +1,138 @@
+---
+title: "Embolden Your Exchange: Mastering Message Formats"
+date: 2024-09-15T21:00:05.849Z
+updated: 2024-09-22T01:24:11.046Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Embolden Your Exchange: Mastering Message Formats"
+excerpt: "This Article Describes Embolden Your Exchange: Mastering Message Formats"
+keywords: Exchanging Messages,Effective Communication,Message Crafting Skills,Exchange Techniques Mastery,Clear Conveying Methods,Persuasive Dialogue Strategies,Communication Confidence Boost
+thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a96b142f6b85654b12ef9f8e.jpg
+---
+
+## Embolden Your Exchange: Mastering Message Formats
+
+ Have you ever wanted to emphasize certain words or phrases that you send out to your friends on Facebook Messenger? Well, you're in luck! If you're using a web browser on a PC, Messenger supports text formatting.
+
+ Here's how to add a unique spin to your messages with text formatting in Messenger.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## How Text Formatting Works in Messenger
+
+ While[Messenger has many features you can try](https://www.makeuseof.com/tag/facebook-messenger-features/) , you can easily format text in Facebook Messenger with the right characters or symbols. Each type of emphasis has a symbol that you need to type before and after the text that you want to emphasize.
+
+ The mobile version of Facebook Messenger doesn't support text formatting at the time of writing. It's only possible on the desktop. But if your recipient is chatting from a computer, you can still apply text formatting from mobile; your friend receives the formatted texts on their desktop version.
+
+ Conversely, if you apply text formatting on a desktop and your friend is on the mobile version of Messenger, they get an unformatted version of the text, including the formatting styles.
+
+ Here are the symbols to use for different types of formatting, along with examples of how it looks when you send a message.
+
+## How to Add Bold Text in Messenger
+
+![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
+
+ To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
+
+## How to Make Italic Text in Messenger
+
+![Italicize text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/italicize-text-demo-messenger.jpg)
+
+ To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
+
+## How to Use Strikethrough Text in Messenger
+
+![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
+
+ Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
+
+## How to Use Monospace Text in Messenger
+
+![Monospace demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/monospace-demo-messenger.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+ To make monospaced text, type a backtick (\`) before and after the text. This is different from a regular apostrophe, and if you have a US keyboard you'll find it on the same key as a tilde (\~).
+
+ Most texts you'll see online will have proportional spacing—where each character occupies only as much width as it needs. Monospaced text has each character occupying the same amount of space.
+
+ Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
+
+## How to Send Blocks of Code in Messenger
+
+![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
+
+ Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
+
+To send text in a block of code:
+
+1. Type three backticks (\`\`\`).
+2. Insert a line break (press**Shift + Enter**).
+3. Type in your text.
+4. Insert another line break.
+5. Type three more backticks and send your text.
+
+ This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Customize Your Facebook Messages With Text Formatting
+
+ Text formatting can really change how people interpret your messages. While you won't be using a typographical emphasis in Messenger all the time, it's handy knowledge to have for when you do need it.
+
+ Just remember that while you can send formatted text on the app, it only appears in the formatted style on the web version of Messenger.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-a-complete-guideline-for-mobizen-screen-recorder/"><u>[New] 2024 Approved A Complete Guideline for Mobizen Screen Recorder</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-comprehensive-kinetic-study-2023/"><u>[New] 2024 Approved Comprehensive Kinetic Study 2023</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-voice-conversion-tools-for-vlogging-professionals-for-2024/"><u>[Updated] Best Voice Conversion Tools for Vlogging Professionals for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-make-your-device-sing-a-step-by-step-guide-to-personalized-ringtone-setup-on-android/"><u>2024 Approved Make Your Device Sing A Step-by-Step Guide to Personalized Ringtone Setup on Android</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/comment-realiser-gratuitement-la-conversion-dh264-en-h265-pour-une-reduction-de-taille-sans-degrader-la-qualite/"><u>Comment Réaliser Gratuitement La Conversion D'H.264 En H.265 Pour Une Réduction De Taille Sans Dégrader La Qualité?</u></a></li>
+<li><a href="https://article-posts.techidaily.com/darkness-decoded-iphone-photography-mastery/"><u>Darkness Decoded IPhone Photography Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-friends-use-polls-to-deepen-relationships-in-messaging/"><u>Engage Friends: Use Polls to Deepen Relationships in Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/envisioning-interconnected-realities-metaverse-insights/"><u>Envisioning Interconnected Realities: Metaverse Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-lockdown-unraveling-your-suspended-status/"><u>Facebook Lockdown: Unraveling Your Suspended Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-prototype-with-dual-camera-enabled-watch/"><u>Facebook Unveils Prototype with Dual Camera-Enabled Watch</u></a></li>
+<li><a href="https://games-able.techidaily.com/should-high-performance-gamers-invest-in-mechanical-inputs/"><u>Should High-Performance Gamers Invest in Mechanical Inputs?</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-fbs-watch-tech-double-cameras-on-the-horizon/"><u>Sneak Peek at FB's Watch Tech: Double Cameras on the Horizon?</u></a></li>
+</ul></div>
+

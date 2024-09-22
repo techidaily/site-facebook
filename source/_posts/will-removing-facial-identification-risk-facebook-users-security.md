@@ -1,7 +1,7 @@
 ---
 title: Will Removing Facial Identification Risk Facebook Users' Security?
-date: 2024-07-12T10:14:27.619Z
-updated: 2024-07-13T10:14:27.619Z
+date: 2024-09-16T19:51:48.103Z
+updated: 2024-09-21T22:54:04.369Z
 tags:
   - facebook
 categories:
@@ -41,6 +41,13 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
 
  It continued, “These are places where facial recognition is both broadly valuable to people and socially acceptable when deployed with care. While we will continue working on use cases like these, we will ensure people have transparency and control over whether they are automatically recognized.”
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Will This Change Affect Facebook’s Public Perception?
 
  Numerous damaging allegations about Facebook’s algorithms and how they encourage engagement have put the company in the spotlight for all the wrong reasons.
@@ -58,20 +65,24 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
 ## No Major Security Improvements Here
 ![woman sitting at desk on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/person-at-desk-on-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If a person only reads the headlines about Facebook’s facial recognition plans, they might get the impression the company’s leadership genuinely cares about making changes for the better.
 
  However, we need to remember that the company will still use facial recognition in cases it deems appropriate. Given Facebook’s history, it’s reasonable to expect its definition of an acceptable use may vary from what many users consider agreeable.
 
  Since people will still opt in to future facial recognition features, it’s critical they read the details before activating anything new on their profiles.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -80,6 +91,21 @@ thumbnail: https://thmb.techidaily.com/13a1f9ec7eefb2f2d2c19f961783b576aae349686
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-highest-quality-noiseless-text-converters/"><u>[New] Highest Quality Noiseless Text Converters</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-lol-gaming-on-air-top-3-recording-methods/"><u>[New] LOL Gaming On Air Top 3 Recording Methods</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tailoring-thumbnails-for-increased-video-engagement-on-youtube/"><u>[New] Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-audio-addition-for-snapchat-videos/"><u>[Updated] In 2024, Audio Addition for Snapchat Videos</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/cyber-security-shielding/"><u>Cyber Security Shielding</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-driver-download-for-your-brother-hl-3170cdw-start-now/"><u>Effortless Driver Download for Your Brother HL-3170CDW - Start Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/exemption-persists-vaccine-skeptics-flourish-on-facebook-platform/"><u>Exemption Persists: Vaccine Skeptics Flourish on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-features-for-improved-spotify-use/"><u>Facebook's Hidden Features for Improved Spotify Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-memory-purgatory-how-to-uninvite-acquaintances/"><u>FB's Memory Purgatory: How to Uninvite Acquaintances</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-13-proipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 13 Pro/iPad/iPod</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://fox-access.techidaily.com/pioneering-6-networks-supporting-business-development-for-2024/"><u>Pioneering 6 Networks Supporting Business Development for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/profits-from-peoples-partnership-platforms/"><u>Profits From People's Partnership Platforms</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-k11x-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo K11x | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Navigating Your Way Back Into a Locked-Out Facebook
-date: 2024-09-12T19:13:05.845Z
-updated: 2024-09-16T21:41:30.206Z
+date: 2024-09-15T16:28:28.223Z
+updated: 2024-09-21T21:53:32.846Z
 tags:
   - facebook
 categories:
@@ -61,6 +61,13 @@ To change your password:
 
  If you need more help with the recovery steps, follow the instructions from the second screenshot below.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Option 2: Find and Recover Your Account With Contact Details
 
  If you don't have access to Facebook at all or prefer not to log out of another account, open a new browser profile and head to the[Facebook recovery page](https://www.facebook.com/login/identify/) .
@@ -69,16 +76,22 @@ To change your password:
 
 ![Facebook Find Your Account menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Find-Your-Account.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Once you have successfully managed to identify your account, you will see a summary of your profile. Before you proceed, carefully check if this really is your account and if you still have access to the email address or phone number listed. You may be able to choose between email or phone recovery.
 
 ![Facebook Reset Your Password With Code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-reset-your-password-with-code.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If all looks well with the contact details that Facebook has on file for you, click**Continue** . Facebook will send you a security code. Retrieve the code from your email or phone (depending on which method you chose), enter it, and rejoice in having recovered your Facebook account.
 
@@ -110,16 +123,16 @@ To change your password:
 
 ![Get Back on Facebook Not Recognized](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-not-recognized.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If Facebook recognizes your device, you will go through a similar process as described above, but this time you'll see an additional option in the bottom left.
 
 ![No longer have access to Facebook password reset options](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Reset-Your-Password-Menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Click the**No longer have access to these?** link to start a new recovery process.
 
@@ -130,22 +143,15 @@ To change your password:
 ![Get Back on Facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/get-back-on-facebook-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Immediately check your email, including the spam folder or any filters, for the code sent from <security@facebookmail.com>. Enter the code to confirm the email address, and click**Confirm** . If the code didn't come through, you can either click**Resend code** or go back and enter a different email address.
 
  You won't get back into your account immediately. First, you have to upload your ID to confirm it's really you who's trying to recover the account. Once you've done that, wait until Facebook gets in touch to confirm your ID verification. Be patient.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Report Your Hacked Facebook Account
 
@@ -156,6 +162,13 @@ To change your password:
  This will actually start a similar process to the one outlined above. While you will use the same information to identify your account, in the following step, you will be able to use either a current or old Facebook password to recover your account.
 
 ![Log into your account with a current or old password](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/Facebook-Login-With-Old-Password.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  This is useful in case a hacker changed your password, but it may also come in handy if you forget your new password. You can find more security-related tips on the[Account Security](https://www.facebook.com/help/285695718429403/?helpref=hc%5Ffnav) page in the Facebook Help Center.
 
@@ -172,13 +185,6 @@ To change your password:
  Mention that you already submitted your ID to prove your identity. Do not attach your ID to your email, as email isn't a secure form of communication.
 
  Either way, hearing back from Facebook can take several weeks, so you'll need to be patient. If you didn't use your real name on Facebook, your hopes for recovering your account this way are close to zero.
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## If All Else Fails, Create a New Facebook Profile
 
@@ -201,19 +207,16 @@ To change your password:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-inbuilt-screen-capture-huaweis-mate-series-and-p-lineup-phones/"><u>[Updated] 2024 Approved Inbuilt Screen Capture Huawei's Mate Series & P Lineup Phones</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-mastering-teams-personalized-call-banners-for-2024/"><u>[Updated] Mastering Teams' Personalized Call Banners for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/macmp4movaacipadapple-tv/"><u>移動式電影文件傳輸工具 - 高清/標準畫面從Mac系統將MP4、MOV、AAC音頻等轉送到iPad和Apple TV</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-itel-p55-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Itel P55</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/experience-next-level-performance-4k-touchscreen-amd-nuc-mini-pc-equipped-with-ryzen-9-and-massive-memorystorage-capacity/"><u>Experience Next-Level Performance: 4K Touchscreen AMD NUC Mini PC Equipped with Ryzen 9 and Massive Memory/Storage Capacity</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-messages-files-from-xiaomi-redmi-note-12-pro-4g-by-fonelab-android-recover-messages/"><u>How To Restore Missing Messages Files from Xiaomi Redmi Note 12 Pro 4G</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-await-exciting-new-texting-features-from-fb/"><u>Messenger and Instagram Await Exciting New Texting Features From FB</u></a></li>
-<li><a href="https://techtrends.techidaily.com/seamless-integration-hooking-up-your-psvr-console-with-your-windows-pc/"><u>Seamless Integration: Hooking Up Your PSVR Console with Your Windows PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-and-recover-navigating-through-fb-security-breach/"><u>Secure & Recover: Navigating Through FB Security Breach</u></a></li>
-<li><a href="https://facebook.techidaily.com/setting-up-your-digital-gathering-space-on-fb/"><u>Setting Up Your Digital Gathering Space on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-strategy-benefits-and-trade-offs-of-fb-events/"><u>Social Media Strategy: Benefits & Trade-Offs of FB Events</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-fix-microsoft-printing-error-in-pdf-mode-on-new-windows-eb/"><u>Step-by-Step Fix: Microsoft Printing Error in PDF Mode on New Windows Eb</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/transforming-your-tech-experience-mastering-chatgpt-on-a-mac/"><u>Transforming Your Tech Experience: Mastering ChatGPT on a Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-the-potential-dangers-of-playful-online-quizzes/"><u>Unveiling the Potential Dangers of Playful Online Quizzes</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-the-learners-handbook-of-av1-technology/"><u>[New] 2024 Approved The Learner's Handbook of AV1 Technology</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-transform-your-editing-master-the-fade-effect-for-2024/"><u>[New] Transform Your Editing Master the Fade Effect for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-the-potential-of-your-mobile-content-for-youtube-wealth/"><u>[New] Unlocking the Potential of Your Mobile Content for YouTube Wealth</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-clarity-to-excellence-benqs-bl2711u-professional-4k-monitor-assessment/"><u>2024 Approved From Clarity to Excellence BenQ’s BL2711U Professional 4K Monitor Assessment</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cutting-wait-times-for-iphone-time-lapse-videos/"><u>Cutting Wait Times for iPhone Time-Lapse Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/formulating-and-implementing-group-rules-a-step-by-step-guide/"><u>Formulating & Implementing Group Rules: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-reactivate-after-forgetting-facebook-password/"><u>How to Reactivate After Forgetting Facebook Password</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-itel-p55t-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Itel P55T in Minutes | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-10-cable-modem-and-wi-fi-router-bundles-to-elevate-your-internet-experience-in-202-4/"><u>Top 10 Cable Modem and Wi-Fi Router Bundles to Elevate Your Internet Experience in 202 4</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-redesigned-home-tab-and-feed-structure-on-facebook/"><u>Unveiling The Redesigned Home Tab & Feed Structure on Facebook</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-the-ultimate-guide-10-must-have-extractors-in-post-production-software/"><u>Updated 2024 Approved The Ultimate Guide 10 Must-Have Extractors in Post-Production Software</u></a></li>
 </ul></div>
 

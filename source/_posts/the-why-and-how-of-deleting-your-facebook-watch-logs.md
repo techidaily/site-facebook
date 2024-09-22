@@ -1,7 +1,7 @@
 ---
 title: The Why and How of Deleting Your Facebook Watch Logs
-date: 2024-09-09T22:26:38.363Z
-updated: 2024-09-16T20:16:20.598Z
+date: 2024-09-15T21:10:38.621Z
+updated: 2024-09-21T17:04:51.166Z
 tags:
   - facebook
 categories:
@@ -46,10 +46,10 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 ![screenshot showing facebook profile page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
@@ -57,6 +57,13 @@ thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda5
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -66,13 +73,6 @@ Close
 4. Slide left on the available activities until you find**Videos watched** , then tap on it.
 5. Tap**Clear video watch history** .
 6. Confirm your action by tapping**Clear** on the confirmation prompt.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Delete Your Facebook Watch History on the Web
 
@@ -85,20 +85,27 @@ Close
  Click on**Videos you’ve watched** .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
@@ -111,13 +118,6 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
 
@@ -144,19 +144,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/updated-strategies-to-promote-vimeo-films-for-2024/"><u>[Updated] Strategies to Promote Vimeo Films for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-unveiling-facebooks-micro-video-blueprint/"><u>[Updated] Unveiling Facebook's Micro-Video Blueprint</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-windows-videography-embrace-hdr-magic/"><u>[Updated] Windows Videography Embrace HDR Magic</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-direct-comparison-evaluating-obs-against-twitch-hubs/"><u>2024 Approved Direct Comparison Evaluating OBS Against Twitch Hubs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/effortless-music-extraction-top-8-android-compatible-downloader-apps/"><u>Effortless Music Extraction - Top 8 Android-Compatible Downloader Apps</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-safer-online-spaces/"><u>Exploring Safer Online Spaces</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-remove-passcode-from-apple-iphone-xr-complete-guide-by-drfone-ios/"><u>How To Remove Passcode From Apple iPhone XR? Complete Guide</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-xiaomi-13-ultra-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Xiaomi 13 Ultra?</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-unleashing-creativity-in-instagram-photography-through-border-use/"><u>In 2024, Unleashing Creativity in Instagram Photography Through Border Use</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/securely-capturing-and-storing-itunes-media-content-for-2024/"><u>Securely Capturing and Storing iTunes Media Content for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-during-outages-a-survival-guide/"><u>Social Networking During Outages: A Survival Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-scope-scouting-discovering-profile-and-group-links/"><u>Social Scope Scouting: Discovering Profile & Group Links</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-updating-fb-contacts/"><u>Step-by-Step Guide to Updating FB Contacts</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-disruptive-power-of-ios-145-for-facebooks-ad-business/"><u>The Disruptive Power of iOS 14.5 for Facebook's Ad Business</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-mi-11-tech-specs-unveiled-with-advanced-screen-capture/"><u>[New] In 2024, Mi 11 Tech Specs Unveiled with Advanced Screen Capture</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-methods-to-plan-your-next-trip-to-the-apple-tech-specialist-desk/"><u>Easy Methods to Plan Your Next Trip to the Apple Tech Specialist Desk</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-financial-push-in-the-content-war-with-a-5m-dollar-investment/"><u>Facebook's Financial Push in the Content War with a $5M Dollar Investment</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-the-blue-screen-of-death-tackling-halinitializationfailure-and-error-code-0x0000005c/"><u>Fixing the Blue Screen of Death: Tackling HAL_INITIALIZATION_FAILURE and Error Code 0X0000005C</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-fraternity-7-social-media-techniques-that-bond-us/"><u>Fostering Fraternity: 7 Social Media Techniques That Bond Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/friendly-goodbye-on-fb-parting-ways-with-someone/"><u>Friendly Goodbye on FB: Parting Ways with Someone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-apple-iphone-14-find-my-friends-no-location-found-drfone-by-drfone-virtual-ios/"><u>How to Fix Apple iPhone 14 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-action-required-thwarting-your-social-media-hijacker/"><u>Immediate Action Required: Thwarting Your Social Media Hijacker</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-best-honor-magic-6-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Honor Magic 6 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokémon Go Cooldown Chart On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/online-screenshots-and-screen-recorders-guide-for-2024/"><u>Online Screenshots & Screen Recorders Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-oppo-reno-8t-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Oppo Reno 8T 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quantum-shift-meta-engineers-the-worlds-swiftest-ai-hub/"><u>The Quantum Shift: Meta Engineers the World's Swiftest AI Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-power-of-artificial-intelligence-in-facebook-posts/"><u>Unveiling the Power of Artificial Intelligence in Facebook Posts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-process-retrieving-your-computer-name-in-windows-10-environment/"><u>Unveiling the Process: Retrieving Your Computer Name in Windows 10 Environment</u></a></li>
 </ul></div>
 

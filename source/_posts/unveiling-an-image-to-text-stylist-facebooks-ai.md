@@ -1,0 +1,93 @@
+---
+title: "Unveiling an Image-to-Text Stylist: Facebook’s AI"
+date: 2024-09-14T19:35:56.500Z
+updated: 2024-09-21T21:55:48.201Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes Unveiling an Image-to-Text Stylist: Facebook’s AI"
+excerpt: "This Article Describes Unveiling an Image-to-Text Stylist: Facebook’s AI"
+keywords: Facebook's AI Transcriber,AI Text Generation,Image-to-Text Converter,Advanced AI Stylist,AI for Content Extraction,Artificial Intelligence Stylist,Visual to Text AI Tech
+thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce5256805ecd4c390c919b578ebe.jpg
+---
+
+## Unveiling an Image-to-Text Stylist: Facebook’s AI
+
+ The concept of deepfakes scares a lot of people. Most of the time, when these AI-powered projects gain widespread attention, it's because they were used unethically.
+
+ From identity theft to fake news, we've seen all the bad side of this tech. But Facebook's one company that wants to use it for future innovations instead.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## What Is TextStyleBrush?
+
+ Researchers over at Facebook have introduced their new self-supervised AI model, "TextStyleBrush" on[Newsroom](https://about.fb.com/news/2021/06/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word/) . Using just one image of a single word, it can edit and replace the text while copying the font or visual style that it was written in.
+
+ The tool works on both handwritten text and text in real-word scenes. It's an impressive feat, because—as Facebook itself notes—the AI has to understand "unlimited" text styles.
+
+![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-textstylebrush-examples.png)
+
+ Not only is there all sorts of different kinds of typography and calligraphy out there, but there's so many stylistic details that need to be taken into consideration. What if someone writes on a slant or a curve? Or the surface that the text is on makes it hard to read? What about background clutter or image noise?
+
+ Facebook explained the TextStyleBrush model works similar to the way style brush tools work in word processors, but for text aesthetics in images:
+
+> It surpasses state-of-the-art accuracy in both automated tests and user studies for any type of text. (...) We take a more holistic training approach and disentangle the content of a text image from all aspects of its appearance of the entire word box. The representation of the overall appearance can then be applied as one-shot-transfer without retraining on the novel source style samples.
+
+ If you want a more technical breakdown of TextStyleBrush's functions, you can read the full-length article on Facebook's[AI blog](https://ai.facebook.com/blog/ai-can-now-emulate-text-style-in-images-in-one-shot-using-just-a-single-word) .
+
+ The Google Translate mobile app has a function similar to Facebook's new AI in that it also replaces text, but it aims to solve a different problem. Just like its name would suggest, it instead translates text into a language of your choosing.
+
+ Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
+
+## Faces Aren't the Only Thing That Can Be Deepfaked
+
+ We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
+
+ The tech world frequently talks about how concerning deepfake faces are, but doesn't discuss often enough how it's possible now to also use tech to create convincing fakes of handwriting, signage, etc.
+
+ If AI researchers and practitioners can get ahead of bad actors, Facebook says, then it'll be easier to detect when deepfakes are used maliciously, and to build systems to combat them.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/updated-achieving-seamless-360-streaming-on-facebook/"><u>[Updated] Achieving Seamless 360 Streaming on Facebook</u></a></li>
+<li><a href="https://howto.techidaily.com/8-ultimate-fixes-for-google-play-your-oppo-k11x-isnt-compatible-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Ultimate Fixes for Google Play Your Oppo K11x Isnt Compatible | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-facebook-experience-via-shortcut-customization/"><u>Enhancing Your Facebook Experience via Shortcut Customization</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-big-secret-an-examination-of-its-files/"><u>Facebook's Big Secret: An Examination of Its Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-change-your-name-on-facebook/"><u>How to Change Your Name on Facebook</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-zte-axon-40-lite-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On ZTE Axon 40 Lite For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-oneplus-nord-ce-3-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From OnePlus Nord CE 3 5G to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/instant-clearing-the-best-ios-apps-for-precise-image-editing-for-2024/"><u>Instant Clearing The Best iOS Apps for Precise Image Editing for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-currency-conversion-a-step-by-step-guide-to-retrieving-live-exchange-rates-in-excel/"><u>Mastering Currency Conversion: A Step-by-Step Guide to Retrieving Live Exchange Rates in Excel</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/stepwise-guide-to-achieving-professional-grade-radial-effects-for-2024/"><u>Stepwise Guide to Achieving Professional-Grade Radial Effects for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/the-future-is-beneath-the-waves-microsoft-project-natick-lowers-server-failure-rates-underwater/"><u>The Future Is Beneath the Waves: Microsoft Project Natick Lowers Server Failure Rates Underwater</u></a></li>
+<li><a href="https://facebook.techidaily.com/unity-and-progress-unveiling-7-social-benefits/"><u>Unity and Progress: Unveiling 7 Social Benefits</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-messengers-without-a-facebook-account/"><u>Unlocking Messengers Without a Facebook Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/winning-back-your-money-requesting-a-refund-on-facebook/"><u>Winning Back Your Money: Requesting a Refund on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnb-players-online-fb-twt-unite-for-broadcasts/"><u>WNB Players Online: FB, Twt Unite for Broadcasts</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

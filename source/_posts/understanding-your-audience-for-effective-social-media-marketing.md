@@ -1,7 +1,7 @@
 ---
 title: Understanding Your Audience for Effective Social Media Marketing
-date: 2024-07-12T10:10:14.665Z
-updated: 2024-07-13T10:10:14.665Z
+date: 2024-09-20T00:36:58.454Z
+updated: 2024-09-21T20:25:26.033Z
 tags:
   - facebook
 categories:
@@ -64,11 +64,25 @@ thumbnail: https://thmb.techidaily.com/99b109a018ec790ad915859b13c869439cc17a979
 ## The Best Images and Videos to Insert in Your Post
 ![facebook logo on screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2015/07/how-to-get-more-likes-on-facebook-according-to-research-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A [Hootsuite blog post](https://blog.hootsuite.com/facebook-algorithm/) revealed that Facebook posts with images have an engagement rate of 0.11%, and those with videos get 0.08% engagement. So, try and include a photo or a video in your updates. Try to [upload HD photos and videos on the Facebook mobile app](https://www.makeuseof.com/tag/upload-photos-videos-hd-facebook-mobile-app/) for the best results.
 
  Ever since Facebook started auto-playing videos in the News feed, they have overtaken photos as the most engaging type of content.[According to Hootsuite](https://blog.hootsuite.com/facebook-algorithm/) , in 2019, Facebook started prioritizing videos that kept viewers watching for longer than a minute and even three minutes.
 
  Shorter, timely video content tends to do well in News Feed. Keep in mind that auto-play videos play silently in News Feed until someone taps to hear the sound, so videos that catch people's attention even without sound often find success. That's why you should add text to your videos if possible.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The Best Topics for More Likes on Facebook
 
@@ -84,14 +98,11 @@ thumbnail: https://thmb.techidaily.com/99b109a018ec790ad915859b13c869439cc17a979
 
  Research is one thing, but the biggest factor is how it fares in the real world. Have you used any of the above tips and found them to work splendidly? If not, try them out today.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,6 +111,14 @@ thumbnail: https://thmb.techidaily.com/99b109a018ec790ad915859b13c869439cc17a979
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-perfect-places-to-procure-pixel-ringers-online-for-2024/"><u>[New] Perfect Places to Procure Pixel Ringers Online for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-unlock-creativity-essential-green-screen-techniques/"><u>2024 Approved Unlock Creativity Essential Green Screen Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-11-pro-max-lock-screen-drfone-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 11 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-updated-feeds/"><u>Navigating Through Facebook's Updated Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-for-a-wii-that-refuses-to-play-discs/"><u>Troubleshooting Tips for A Wii That Refuses to Play Discs</u></a></li>
+</ul></div>
 

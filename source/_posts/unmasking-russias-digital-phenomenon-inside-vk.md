@@ -1,7 +1,7 @@
 ---
 title: "Unmasking Russia's Digital Phenomenon: Inside VK"
-date: 2024-09-13T19:01:02.632Z
-updated: 2024-09-16T16:14:47.816Z
+date: 2024-09-15T18:10:12.091Z
+updated: 2024-09-21T19:33:46.372Z
 tags:
   - facebook
 categories:
@@ -70,6 +70,13 @@ Some potential explanations for this difference include:
 
  Needless to say, things got complicated. Durov was eventually coerced into forfeiting his stake in the company in 2014\. Everything went to Alisher Usmanov, the richest man in Russia at the time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Russian Users Believe VK is Better than Facebook
 
  Call it a healthy sense of nationalism or simply a matter of convenience, most Russians simply prefer VK to Facebook. Sorry, Mark Zuckerberg.
@@ -78,18 +85,18 @@ Some potential explanations for this difference include:
 
  Related:[The Top 20 Social Media Apps and Sites in 202](https://www.makeuseof.com/tag/top-social-media-apps-sites/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. VK Has Suffered Major Security Breaches
 
  In June 2016, VK actually experienced a significant[security breach](https://www.makeuseof.com/historic-data-breaches/) , exposing the data of over 171 million users.
 
  Included in the spoils: names, email addresses, passwords, and other sensitive contact information, all found being sold on the dark web shortly after. VK isn't the first, nor the last. Still, it makes you think. We should always be careful about what we share online, even on a website as huge as this one.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. The Most Common Password on VK is "123456"
 
@@ -99,22 +106,21 @@ Some potential explanations for this difference include:
 
  Other popular passwords included "qwerty," "1111111," and "123321".
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. VK's Website Design Rarely Changes
 
 ![The VK sign-up page.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/what-is-vkontakte.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  In fact, based on VK's current website design, you might assume you were on Facebook a few years ago.
@@ -148,16 +154,19 @@ Some potential explanations for this difference include:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-fps-fanatics-compendium-selecting-superior-extensions-for-2024/"><u>[New] FPS Fanatics' Compendium Selecting Superior Extensions for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-transform-your-videography-using-youtube-to-boost-visual-clarity/"><u>[New] Transform Your Videography Using YouTube to Boost Visual Clarity</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-expert-recommendations-for-full-rotation-shots/"><u>[Updated] Expert Recommendations for Full Rotation Shots</u></a></li>
-<li><a href="https://facebook.techidaily.com/elevating-everyday-moments-crafting-photo-collections-for-fb-sharing/"><u>Elevating Everyday Moments: Crafting Photo Collections for FB Sharing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-11-pro-to-pc-via-usb-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 11 Pro to PC via USB? | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-quickly-and-easily-update-your-logitech-g502-mouse-driver-simple-guide/"><u>How to Quickly and Easily Update Your Logitech G502 Mouse Driver [Simple Guide]</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-premium-lecture-transcribers-for-learning-institutions/"><u>In 2024, Premium Lecture Transcribers for Learning Institutions</u></a></li>
-<li><a href="https://facebook.techidaily.com/integrating-social-media-sending-instagram-reels-to-facebook-followers/"><u>Integrating Social Media: Sending Instagram Reels to Facebook Followers</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/motorola-edge-40-pro-screen-unresponsive-heres-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Edge 40 Pro Screen Unresponsive? Heres How to Fix It | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-netizen-language-30-must-learn-abbreviations/"><u>Navigating Netizen Language: 30 Must-Learn Abbreviations</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-of-ios-145-on-facebooks-privacy-practices/"><u>The Impact of iOS 14.5 on Facebook's Privacy Practices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-roadmap-to-wealth-sourav-joshi-and-youtube-earning/"><u>[New] 2024 Approved The Roadmap to Wealth Sourav Joshi and YouTube Earning</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/astering-youtube-login-validation/"><u>[New] Mastering YouTube Login Validation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-progopro-enhancing-footage-and-stability-for-2024/"><u>[New] ProGoPro Enhancing Footage & Stability for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-unlock-the-power-of-fb-conversation-capture-tools/"><u>[Updated] In 2024, Unlock the Power of FB Conversation Capture Tools</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-the-insiders-guide-adding-borders-in-instagram-footage/"><u>2024 Approved The Insider's Guide Adding Borders in Instagram Footage</u></a></li>
+<li><a href="https://win-blog.techidaily.com/conversione-gratuita-dei-file-mkv-ai-formati-m4v-online-con-movavi/"><u>Conversione Gratuita Dei File MKV Ai Formati M4V Online Con Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-metaverse-understanding-the-concerns/"><u>Facebook Metaverse: Understanding the Concerns</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-rebounds-insights-behind-its-revival/"><u>Facebook Rebounds: Insights Behind Its Revival</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-samsung-galaxy-a15-5g-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Samsung Galaxy A15 5G.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leaders-behind-todays-social-network/"><u>Leaders Behind Today’s Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-digital-footprint-in-facebook/"><u>Streamlining Your Digital Footprint in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-veiled-guidelines-behind-accepting-facebook-friends/"><u>The Veiled Guidelines Behind Accepting FACEBOOK Friends</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-realme-narzo-60x-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Realme Narzo 60x 5G to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

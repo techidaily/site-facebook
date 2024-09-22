@@ -1,7 +1,7 @@
 ---
 title: The Economy of Eyeing Us From Afar
-date: 2024-07-12T10:14:11.792Z
-updated: 2024-07-13T10:14:11.792Z
+date: 2024-09-16T16:04:25.214Z
+updated: 2024-09-21T23:25:43.955Z
 tags:
   - facebook
 categories:
@@ -49,11 +49,25 @@ thumbnail: https://thmb.techidaily.com/4fec1082aae14c609dc25605c639b1fbe3c36aac7
 ### Emotional Volatility
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
  While one can argue that it isn't the responsibility of a business to implement ethics, we have to also remember that some businesses are directly responsible for an online environment that breeds vulnerability and they know it.
 
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  According to [Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many [teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
 
@@ -80,6 +94,13 @@ thumbnail: https://thmb.techidaily.com/4fec1082aae14c609dc25605c639b1fbe3c36aac7
 
  In addition, Amazon's Prime membership which offers free and fast shipping also [hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### The Commodification of Personal Experiences
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
 
@@ -101,14 +122,11 @@ In fact, we are already running out of ways to opt out.
 
  Thankfully, there are still some things you can do to make it harder for them.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -117,6 +135,16 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-live-audience-score-keeper-apps/"><u>[New] Live Audience Score Keeper Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-sticker-squash-a-pathway-to-clean-tiktok-videos/"><u>2024 Approved Sticker Squash A Pathway to Clean TikTok Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/windowsmac/"><u>最新動画コーディングテクニック：スピーディかつ鮮明なビデオエンコード手順 (Windows/Mac) -高速・高解像度</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-good-to-great-transforming-your-professional-persona-on-facebook/"><u>From Good to Great: Transforming Your Professional Persona on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-delete-facebook-notifications/"><u>How to Delete Facebook Notifications</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-fusing-youtube-beats-into-film-scenes/"><u>In 2024, Fusing YouTube Beats Into Film Scenes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-samsung-galaxy-m34-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Samsung Galaxy M34 Screen | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-updated-feeds/"><u>Navigating Through Facebook's Updated Feeds</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviewing-friendships-a-facebook-guide/"><u>Reviewing Friendships: A Facebook Guide</u></a></li>
+</ul></div>
 

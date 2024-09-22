@@ -1,7 +1,7 @@
 ---
 title: "Misinfo in Pandemic: Influencer Role Examined"
-date: 2024-09-11T20:14:20.184Z
-updated: 2024-09-16T22:22:20.882Z
+date: 2024-09-19T19:21:05.790Z
+updated: 2024-09-22T00:00:31.658Z
 tags:
   - facebook
 categories:
@@ -72,26 +72,26 @@ But what if, in reality, there are only 12 prime suspects?
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-filmora-tutorials-simple-steps-to-a-dynamic-youtube-subscribe-button/"><u>[New] 2024 Approved Filmora Tutorials Simple Steps to a Dynamic YouTube Subscribe Button</u></a></li>
-<li><a href="https://blog-min.techidaily.com/5-techniques-to-transfer-data-from-huawei-nova-y71-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Techniques to Transfer Data from Huawei Nova Y71 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://discover-help.techidaily.com/breakfast-smoothie-bowl-with-mixed-berries-spinach-protein-powder-flaxseeds-almond-milk/"><u>Breakfast: Smoothie Bowl with Mixed Berries, Spinach, Protein Powder, Flaxseeds, Almond Milk</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Samsung Galaxy S23+? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/meta-unveils-mega-ai-powerhouse-to-dominate-tech/"><u>Meta Unveils Mega AI Powerhouse to Dominate Tech</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/reimagining-online-life-navigating-through-six-key-reasons-for-fbs-metaverse/"><u>Reimagining Online Life: Navigating Through Six Key Reasons for FB’s Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-effective-crowdflower-tools/"><u>The Ultimate Guide to Effective CrowdFlower Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-exciting-possibilities-the-best-12-clickers-for-pc-gamers/"><u>[New] 2024 Approved Exciting Possibilities The Best 12 Clickers for PC Gamers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-frame-by-frame-excellence-selecting-webcams-for-podcasts/"><u>[Updated] In 2024, Frame-by-Frame Excellence Selecting Webcams for Podcasts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-individuality-at-your-fingertips-setting-your-own-tones-for-android-devices/"><u>[Updated] In 2024, Individuality at Your Fingertips Setting Your Own Tones for Android Devices</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-increase-watch-time-tailoring-fantastic-templates-for-your-yt-descriptions/"><u>2024 Approved Increase Watch Time Tailoring Fantastic Templates for Your YT Descriptions</u></a></li>
+<li><a href="https://os-tips.techidaily.com/quick-fixes-how-to-get-facebook-notifications-up-and-running-again-on-ios-devices/"><u>Quick Fixes: How to Get Facebook Notifications Up and Running Again on iOS Devices</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/restauration-et-conversion-video-transformer-des-fichiers-rmvb-en-avi-sans-cout-solutions-de-movavi/"><u>Restauration Et Conversion Vidéo : Transformer Des Fichiers RMVB en AVI Sans Coût - Solutions De Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneaky-social-media-impersonation-warning/"><u>Sneaky Social Media: Impersonation Warning</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-powerful-path-to-flawless-photo-edits-mastering-background-eraser-use-for-2024/"><u>The Powerful Path to Flawless Photo Edits Mastering Background Eraser Use for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-why-and-how-of-deleting-your-facebook-watch-logs/"><u>The Why and How of Deleting Your Facebook Watch Logs</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-iphone-se-2022-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with iPhone SE (2022) Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-fb-photo-access-restrictions/"><u>Understanding FB Photo Access Restrictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-evolution-of-metas-user-confidentiality/"><u>Understanding the Evolution of Meta's User Confidentiality</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-needed-is-securityfacebookmailcom-a-safe-fb-email/"><u>Validation Needed: Is @security@facebookmail.com a Safe FB Email?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-6-plus-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 6 Plus?</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

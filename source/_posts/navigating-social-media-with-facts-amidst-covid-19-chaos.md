@@ -1,7 +1,7 @@
 ---
 title: Navigating Social Media with Facts Amidst COVID-19 Chaos
-date: 2024-09-12T00:04:35.651Z
-updated: 2024-09-16T18:14:56.359Z
+date: 2024-09-17T18:46:43.420Z
+updated: 2024-09-21T21:00:48.216Z
 tags:
   - facebook
 categories:
@@ -68,18 +68,18 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
  Many people distrust figures of authority, such as the government. Social media companies can partner with celebrities and religious and community leaders to post videos presenting factual and myth-busting information online.
 
  They can also share their personal experiences around getting vaccinated.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
@@ -91,16 +91,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  This would still allow the user to exercise their right to free speech while being moderated for the type of information they upload.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Display Corrective Posts to Users Exposed to Disinformation
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
@@ -113,10 +113,16 @@ YouTube also removes videos that violate its COVID-19 policy.
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
@@ -140,19 +146,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-unleashing-hidden-media-from-your-connected-friends/"><u>[New] 2024 Approved Unleashing Hidden Media From Your Connected Friends</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-pinnacle-color-balance-pro/"><u>[New] In 2024, Pinnacle Color Balance Pro</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-a-tour-through-top-virtual-biking-experiences/"><u>[Updated] A Tour Through Top Virtual Biking Experiences</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-poco-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Poco</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-subscription-strategy-overshadows-traditional-app-purchase-approaches/"><u>Facebook’s Subscription Strategy Overshadows Traditional App Purchase Approaches</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/from-selfie-to-sensation-vloggers-choice-of-top-9-camera-accessories/"><u>From Selfie to Sensation Vloggers' Choice of Top 9 Camera Accessories</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-ensure-optimal-performance-updating-razer-blackwidows-controller-drivers/"><u>How to Ensure Optimal Performance: Updating Razer BlackWidow's Controller Drivers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-oneplus-open-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from OnePlus Open.</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/revitalizing-your-samsung-device-a-guide-to-updating-its-usb-drivers/"><u>Revitalizing Your Samsung Device: A Guide to Updating Its USB Drivers</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-clear-of-the-marketing-maze-tips-to-avoid-objectionable-ads/"><u>Steering Clear of the Marketing Maze: Tips to Avoid Objectionable Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insight-into-facebook-dating-system/"><u>The Insight Into Facebook Dating System</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pros-and-cons-of-dislike-features-online/"><u>The Pros & Cons of 'Dislike' Features Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/transformation-facebook-staff-now-referred-as-metamates/"><u>Transformation: Facebook Staff Now Referred as 'Metamates'</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-mystery-ios-145s-effect-on-social-networks/"><u>Unlocking the Mystery: IOS 14.5'S Effect on Social Networks</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-adaptability-and-agility-key-attributes-for-thriving-in-a-changing-market-landscape/"><u>[New] Adaptability & Agility Key Attributes for Thriving in a Changing Market Landscape</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-making-your-music-collection-accessible-worldwide/"><u>[New] Making Your Music Collection Accessible Worldwide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-essential-flight-accessories-for-the-phantom-4/"><u>2024 Approved Essential Flight Accessories for the Phantom 4</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-fortune-on-screen-achieving-youtube-earnings-unlinked-from-ads/"><u>2024 Approved Fortune on Screen Achieving YouTube Earnings Unlinked From Ads</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/enhance-live-stream-performance-with-these-5-pro-tips-for-2024/"><u>Enhance Live Stream Performance with These 5 Pro Tips for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-a-new-transparency-center-detailing-its-policies/"><u>Facebook Launches a New Transparency Center Detailing Its Policies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-put-multiple-pictures-on-insta-story-a-simple-guide-for-2024/"><u>How to Put Multiple Pictures on Insta Story - a Simple Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-facebook-from-your-private-life-invasion/"><u>Stop Facebook From Your Private Life Invasion</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-leaving-social-networking-behind/"><u>The Ultimate Guide to Leaving Social Networking Behind</u></a></li>
+<li><a href="https://facebook.techidaily.com/unrestricted-whatsapp-features-with-no-acceptance-to-privacy-changes/"><u>Unrestricted WhatsApp Features with No Acceptance to Privacy Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/wave-bye-bye-to-fb-on-android-devices-a-simple-guide/"><u>Wave Bye-Bye to FB on Android Devices - A Simple Guide</u></a></li>
 </ul></div>
 

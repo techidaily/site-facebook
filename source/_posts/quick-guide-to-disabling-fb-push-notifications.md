@@ -1,7 +1,7 @@
 ---
 title: Quick Guide to Disabling Fb Push Notifications
-date: 2024-09-11T18:11:26.426Z
-updated: 2024-09-16T18:57:58.619Z
+date: 2024-09-20T17:30:36.217Z
+updated: 2024-09-21T17:12:50.097Z
 tags:
   - facebook
 categories:
@@ -80,22 +80,15 @@ Follow the steps below to learn about the process on the web app:
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -112,13 +105,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -128,6 +114,13 @@ Follow the steps below to learn about the process on the web app:
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
@@ -150,6 +143,19 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -174,20 +180,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-unleashing-the-potential-of-instavids-planning-for-success-for-2024/"><u>[New] Unleashing the Potential of InstaVids Planning for Success for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-comparative-study-top-software-for-webcam-recording-for-2024/"><u>[Updated] Comparative Study Top Software for Webcam Recording for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-smilesketcher-easy-to-use-digital-comedy-tool/"><u>2024 Approved SmileSketcher Easy-to-Use Digital Comedy Tool</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/amazon-fire-tv-cube-unleashed-top-tier-performance-and-swift-streams/"><u>Amazon Fire TV Cube Unleashed: Top-Tier Performance & Swift Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-peace-in-the-online-world-memorializing-vs-deleting/"><u>Ensuring Peace in the Online World - Memorializing Vs. Deleting</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-facebooks-reel-strategy-in-combat-with-tiktok/"><u>Examining Facebook’s Reel Strategy in Combat with TikTok</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-stumbling-blocks-the-top-5-times-users-were-letdown/"><u>Facebook's Stumbling Blocks: The Top 5 Times Users Were Letdown</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-nubia-z50s-pro-by-drfone-android/"><u>In 2024, How to Bypass FRP on Nubia Z50S Pro?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-in-depth-look-nikon-d7500-specifications/"><u>In 2024, In-Depth Look Nikon D7500 Specifications</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-analysis-of-the-sony-cat-s42-exceptional-ruggedness-with-average-specs/"><u>In-Depth Analysis of the Sony CAT S42: Exceptional Ruggedness with Average Specs</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/incorporating-creative-effects-into-your-zoom-meetings-step-by-step-for-2024/"><u>Incorporating Creative Effects Into Your Zoom Meetings Step-by-Step for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/less-targeted-commercial-content-on-virtual-spaces/"><u>Less Targeted Commercial Content on Virtual Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-network-scrutiny-right-to-suspend-trump-temporarily/"><u>Social Network Scrutiny: Right to Suspend Trump Temporarily</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-ais-crystal-ball-predictive-algorithms-explained/"><u>Understanding AI's Crystal Ball - Predictive Algorithms Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/validation-of-securityfacebookmailcom-for-authenticity-and-protection/"><u>Validation of @security@facebookmail.com for Authenticity and Protection</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-updated-discussion-treasures-for-listener-retention/"><u>2024 Approved Updated Discussion Treasures for Listener Retention</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-users-handbook-mastering-interaction-with-openais-chatgpt/"><u>A User's Handbook: Mastering Interaction with OpenAI's ChatGPT</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-advice-top-9-steps-for-safe-marketplace-interactions/"><u>Expert Advice: Top 9 Steps for Safe Marketplace Interactions</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nubia-z50s-pro-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nubia Z50S Pro to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-googles-press-highlights/"><u>Navigating Through Google's Press Highlights</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-the-nft-space-meta-drops-limited-trial-era/"><u>Pioneering the NFT Space: Meta Drop's Limited Trial Era</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solving-the-palworld-session-search-issue-a-comprehensive-guide/"><u>Solving the 'Palworld' Session Search Issue: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-timing-for-facebook-picture-upgrade/"><u>Strategic Timing for Facebook Picture Upgrade</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/the-definitive-walkthrough-for-correcting-winos-error-code-0xc0000005/"><u>The Definitive Walkthrough for Correcting WinOS Error Code 0xC0000005</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-era-of-project-management-unlocking-facebooks-8-capabilities/"><u>The New Era of Project Management: Unlocking Facebook's 8 Capabilities</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-tips-understanding-why-your-car-audio-may-have-stopped-working/"><u>Troubleshooting Tips: Understanding Why Your Car Audio May Have Stopped Working</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Social Strategy Wisdom: The Ethics of Like & Share"
-date: 2024-07-12T10:14:04.336Z
-updated: 2024-07-13T10:14:04.336Z
+date: 2024-09-14T17:04:47.134Z
+updated: 2024-09-21T17:11:29.758Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7
 
  Sometimes, as with the case of the images, there may be no call to action. The company may simply share an inspiring status update or a hilarious image, knowing that for some reason some users will feel the need to like or share it. You see, Facebook has already established the call to action for them. It's right there under every post: Share or Like.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Event RSVPs
 ![An image of an email with a Tick and Cross either side](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/rsvp-invite.jpg)
 
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7
 
 ## Facebook Groups
 ![The Facebook icon and a vector of a group of people](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-groups.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook Groups is one of the last strong areas of the Facebook platform, with millions of users still engaging daily on them and talking about common interests. Keep in mind that the [useful ways to discover new Facebook Groups](https://www.makeuseof.com/tag/5-awesome-ways-discover-new-facebook-groups/) work for you as they do for marketers, who will absolutely research a niche's group list and join up.
 
@@ -72,14 +86,11 @@ thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7
 
  While you should be comfortable using social media the way it was intended, just keep in mind that a lot of your publicly available data is of use to a marketer. The value in data from both individuals and collectives does encourage marketers to find it.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,6 +99,14 @@ thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-navigating-the-backup-of-phones-camera-roll-for-snapchat-users/"><u>[New] 2024 Approved Navigating the Backup of Phone's Camera Roll for Snapchat Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-fixing-stuck-feeds-on-instagram-videos/"><u>[Updated] In 2024, Fixing Stuck Feeds on Instagram Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-excellence-in-flight-choosing-superior-drone-motor-technology/"><u>2024 Approved Excellence in Flight Choosing Superior Drone Motor Technology</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/pinnacle-ai-transcribers-for-speech/"><u>Pinnacle AI Transcribers for Speech</u></a></li>
+<li><a href="https://facebook.techidaily.com/racing-the-future-the-genesis-of-metas-supercomputer/"><u>Racing the Future: The Genesis of Meta's Supercomputer</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-the-art-of-location-broadcast-on-fbmessenger/"><u>Teaching the Art of Location Broadcast on FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-the-power-of-online-social-groups/"><u>Unlocking Potential: The Power of Online Social Groups</u></a></li>
+</ul></div>
 

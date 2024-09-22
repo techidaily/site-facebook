@@ -1,7 +1,7 @@
 ---
 title: "Silent Salesmen in Your Pocket: A Truth or Tale of Coincidence?"
-date: 2024-07-12T10:14:00.935Z
-updated: 2024-07-13T10:14:00.935Z
+date: 2024-09-17T22:14:18.568Z
+updated: 2024-09-21T20:28:55.825Z
 tags:
   - facebook
 categories:
@@ -63,6 +63,13 @@ What is going on?
 
 ![Is your phone listening to you and serving adverts](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/12/muo-security-phone-listening-advert-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Did my phone hear the sound of my electric toothbrush and match it to an ad?
 
  Consequently, ensuring your [Android permissions don't give apps access](https://www.makeuseof.com/tag/what-are-android-permissions-why-should-you-care/) to your phone's mic is a good idea. Does Google listen to your conversations for ads? Probably not, but if you’re concerned you should “de-Google” your life entirely.
@@ -82,6 +89,13 @@ What is going on?
  David Lodge explained that the code was largely available within the host OS or in the public domain. The experiment was achieved with minimal battery drain on the device.
 
  Meanwhile, data protection expert Mariano delli Santi [told the Guardian](https://www.theguardian.com/lifeandstyle/2021/oct/29/is-my-phone-listening-to-me-we-ask-the-expert) that companies use other information to bid for and then target ads. This can result in things your partner or housemate searched for turning up as ads on your device. “...data that links you \[...\] such as geolocation, or if you’ve given the same address when shopping online.”
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Do Phones Listen to You? Companies Say “No”
 
@@ -119,14 +133,11 @@ What is going on?
 
  Whatever you believe, inspect your device permissions to ensure apps don't have access to your microphone without good reason.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,6 +146,22 @@ What is going on?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-superior-suggestions-elite-iphone-ringtones-developers/"><u>[New] 2024 Approved Superior Suggestions Elite iPhone Ringtones Developers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-best-low-cost-smartwatches-with-gaming-features/"><u>[New] Best Low-Cost Smartwatches with Gaming Features</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-boosting-your-videos-chance-on-vimeo-staff-list/"><u>[Updated] Boosting Your Video's Chance on Vimeo Staff List</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-vidmaster-pro-8-review-highlights/"><u>[Updated] VidMaster Pro 8 Review Highlights</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-seamless-setup-of-ifunny-meme-toolkit/"><u>2024 Approved How-To Seamless Setup of iFunny Meme Toolkit</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-samsung-galaxy-s23-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Samsung Galaxy S23 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enlightened-exclusion-of-political-posts/"><u>Enlightened Exclusion of Political Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-outlines-whats-funny-and-not/"><u>Facebook Outlines What's Funny and Not</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-dispersed-posting-in-social-networks/"><u>Mastering the Art of Dispersed Posting in Social Networks</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-integrating-moving-images-with-sound-a-comprehensive-guide/"><u>New Integrating Moving Images with Sound A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-online-communities-for-older-demographics/"><u>Prime Online Communities For Older Demographics</u></a></li>
+<li><a href="https://driver-download.techidaily.com/resolve-your-realtek-rtl8811au-network-adapter-problems-with-ease/"><u>Resolve Your Realtek RTL8811AU Network Adapter Problems with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-control-managing-applications-and-sites-on-your-facebook-profile/"><u>Streamlined Control: Managing Applications and Sites on Your Facebook Profile</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-6-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 6 You Should Try Out</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-personalities-interactive-queries-on-social-apps/"><u>Uncover Personalities: Interactive Queries on Social Apps</u></a></li>
+</ul></div>
 

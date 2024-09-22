@@ -1,7 +1,7 @@
 ---
 title: Shut Down All FB Notification Mechanisms
-date: 2024-09-09T21:05:46.563Z
-updated: 2024-09-16T21:44:40.707Z
+date: 2024-09-14T20:13:26.071Z
+updated: 2024-09-21T18:09:36.888Z
 tags:
   - facebook
 categories:
@@ -48,19 +48,6 @@ thumbnail: https://thmb.techidaily.com/ef833586db2eca1205112d6a13248317068108373
 
  Avoiding social media can improve your confidence if you're prone to[social media comparison](https://www.makeuseof.com/social-media-making-you-sad-scientific-studies/) . You get time to focus on yourself, elevate your confidence level and encourage yourself to embrace rather than fall victim to a comparison trap.
 
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Block Facebook Notifications
 
 Users can block notifications from their desktops and mobile devices.
@@ -73,16 +60,23 @@ Users can block notifications from their desktops and mobile devices.
 
 ![Go to Facebook settings and privacy mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-settings-and-privacy-mobile.jpg)
 
-![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
+![Tap Facebook notifications on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Tap-Facebook-notifications-on-mobile.jpg)
+
 ![What notifications you receive on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/What-notifications-you-receive.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Mute Facebook Push notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Mute-Facebook-Push-notifications.jpg)
 
@@ -102,14 +96,14 @@ Close
 
 ![Go-to-apps-in-mobile-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-apps-in-mobile-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook-app-notification-in-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Facebook-app-notification-in-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Turn-off-Facebook-notifications-on-mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-mobile.jpg)
 
@@ -120,13 +114,6 @@ Close
 3. Tap to open the general settings of your Facebook app.
 4. Navigate to**Notifications** . This list contains settings of how notifications appear on your phone.
 5. Toggle the tab to turn off**Show notifications,** which will revoke the app's access to display alerts. You can change them by revisiting the settings or changing**Where you receive notifications** from the Facebook app.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Blocking Desktop Notifications From Facebook
 
@@ -140,19 +127,27 @@ Close
 5. There is a list with different settings on the left side of your desktop screen. Scroll until you see**Notifications** .  
 ![Go to Facebook Notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Go-to-Facebook-Notifications.jpg)
 6. The**Notifications** section contains different settings like comments, tags, birthdays, friend requests, groups, events, and other activities.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7. Click on the activity you wish to change the settings of. It opens different notification options that you can change.
 8. Toggle the tab to turn off that particular setting. The changes are automatically applied to the device. Depending on your needs, you can block just one type of notification or all of them.  
 ![Turn off Facebook notifications on desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/06/Turn-off-Facebook-notifications-on-desktop.jpg)
 9. Close the app, and the notifications won't appear on your taskbar.
 
- You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ You can use the same method to block notifications using a Chromebook and the browser version of Facebook on mobile.
 
 ## Focus on Your Tasks By Blocking Facebook Notifications
 
@@ -179,20 +174,21 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-undo-history-rewinding-videos-on-apple-devices/"><u>[New] 2024 Approved Undo History Rewinding Videos on Apple Devices</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-future-proof-file-storage-essential-cloud-services-revealed/"><u>[Updated] 2024 Approved Future-Proof File Storage Essential Cloud Services Revealed</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-innovating-entertainment-the-updated-sony-blu-ray-s6500/"><u>2024 Approved Innovating Entertainment The Updated Sony Blu-Ray S6500</u></a></li>
-<li><a href="https://facebook.techidaily.com/football-elite-quit-twitter-and-facebook-for-better-mental-health/"><u>Football Elite Quit Twitter & Facebook for Better Mental Health</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/initiate-hp-envy-5530-compatibility-for-win10/"><u>Initiate HP Envy 5530 Compatibility for Win10</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-member-networks-via-channels-on-facebook/"><u>Mastering Member Networks via Channels on Facebook</u></a></li>
-<li><a href="https://program-issues.techidaily.com/no-more-freezing-rogue-company-addresses-and-corrects-pc-stability-glitches/"><u>No More Freezing: Rogue Company Addresses and Corrects PC Stability Glitches</u></a></li>
-<li><a href="https://facebook.techidaily.com/profile-versus-screen-name-dissecting-social-media-labels/"><u>Profile Versus Screen Name: Dissecting Social Media Labels</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-updating-your-discord-avatar-image/"><u>Step-by-Step Guide: Updating Your Discord Avatar Image</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/the-instagram-pros-tips-for-bulk-upload-of-images-and-video/"><u>The Instagram Pro’s Tips for Bulk Upload of Images and Video</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-synchronized-symphony-facebook-and-spotifys-projected-boombox-masterpiece/"><u>The Synchronized Symphony: Facebook & Spotify's Projected Boombox Masterpiece</u></a></li>
-<li><a href="https://facebook.techidaily.com/top-picks-facebook-portals-reviewed/"><u>Top Picks: Facebook Portals Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/transform-your-life-heres-how-to-leave-facebook-behind/"><u>Transform Your Life – Here’s How to Leave Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-power-of-high-quality-fb-pics/"><u>Unlocking the Power of High-Quality FB Pics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-streamline-your-videos-with-these-titans/"><u>[New] In 2024, Streamline Your Videos with These Titans</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-recording-success-a-step-by-step-approach-to-capturing-chats-on-messenger/"><u>[Updated] Recording Success A Step-by-Step Approach to Capturing Chats on Messenger</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unlocking-the-full-potential-of-tiktok-with-zoom-video-sharing/"><u>[Updated] Unlocking the Full Potential of TikTok with Zoom Video Sharing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/behind-the-magic-cinematic-technique-1-5-insights/"><u>Behind the Magic Cinematic Technique #1-5 Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/fine-tuning-who-sees-your-on-demand-activity/"><u>Fine-Tuning Who Sees Your On-Demand Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-shutdown-instagrams-conversation-hub/"><u>Impending Shutdown: Instagram's Conversation Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-live-silent-mode-unlocked/"><u>Instagram Live Silent Mode Unlocked</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/offline-accessible-hilarious-anime-downloads-for-ios-devices-save-and-watch-anywhere/"><u>Offline Accessible Hilarious Anime Downloads for iOS Devices - Save and Watch Anywhere!</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-personal-details-change-age-and-date-of-birth-on-facebook/"><u>Simplifying Personal Details: Change Age & Date of Birth on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-exploration-learn-more-through-messenger-games/"><u>Social Exploration: Learn More Through Messenger Games</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-the-wsappx-dilemma-strategies-for-reducing-abnormally-elevated-system-resource-use/"><u>Solving the WSAPPX Dilemma: Strategies for Reducing Abnormally Elevated System Resource Use</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/syncopating-stories-a-how-to-for-music-on-instagram/"><u>Syncopating Stories A How-To for Music on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-professionalism-elevating-your-social-media-impact-on-fb/"><u>The Pathway to Professionalism: Elevating Your Social Media Impact on FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-enhancements-streamlining-the-chatgpt-plugin-directory/"><u>Top Enhancements: Streamlining the ChatGPT Plugin Directory</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-apples-divergence-from-facebooks-virtual-world/"><u>Unveiling Apple’s Divergence From Facebook's Virtual World</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/z7-camera-connoisseurs-guide-how-nearly-every-feature-excels/"><u>Z7 Camera Connoisseur's Guide: How Nearly Every Feature Excels</u></a></li>
 </ul></div>
 

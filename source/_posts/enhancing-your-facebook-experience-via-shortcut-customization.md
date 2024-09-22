@@ -1,7 +1,7 @@
 ---
 title: Enhancing Your Facebook Experience via Shortcut Customization
-date: 2024-09-13T00:14:44.078Z
-updated: 2024-09-16T20:10:43.022Z
+date: 2024-09-18T23:16:09.331Z
+updated: 2024-09-22T00:33:20.675Z
 tags:
   - facebook
 categories:
@@ -56,36 +56,22 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 
  The bell icon is the Notifications tab. Here, you'll find all your notifications (that you have turned on) such as comments, likes, shares, invitations to like pages, and birthday reminders. This tab can't be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Menu
 
 ![facebook-app-menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-menu.JPEG)
 
- The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
-
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The Menu is on the far right (the hamburger icon) and will open a page where you can have quick access to things like saved posts, events, and the pages you like. You'll also find the standard Settings dropdown here from where you can customize the app's settings. This is an essential tab and can therefore not be removed.
 
 ### Marketplace
 
 ![facebook-app-marketplace](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-marketplace.JPEG)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  The Facebook Marketplace shortcut is represented with a tent icon, and here you can discover, buy, and sell items—just remember to follow[safety precautions when using Facebook Marketplace](https://www.makeuseof.com/safety-tips-facebook-marketplace/) .
 
@@ -113,13 +99,6 @@ thumbnail: https://thmb.techidaily.com/845fcd5e3eadfdeed515b58ea51b6008ffc3adda0
 
 [In July 2022, Facebook introduced Feeds](https://www.makeuseof.com/facebook-new-home-and-feeds-tabs/) . This tab allows you to have better control over what you see; you can view posts from All, Favorites, Friends, Groups, or Pages. The shortcut looks like a newspaper icon with a clock and can be removed.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Quickly Remove Facebook Shortcuts
 
  Long-pressing an icon from the shortcuts bar is the simplest way to remove a shortcut in the Facebook app. But you can only hide or unpin shortcuts with this method, not add them.
@@ -140,14 +119,14 @@ To quickly hide Facebook shortcuts by long-pressing:
 
 ![facebook-app-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-settings.JPEG)
 
-![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![facebook-app-shortcuts-customization](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-shortcuts-customization.JPEG)
 
 Close
 
@@ -170,11 +149,25 @@ To add or hide Facebook shortcuts via the settings:
 
 ![facebook-app-notification-dots-long-press](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-notification-dots-long-press.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To disable and enable Facebook notification dots by long-pressing:
 
 1. Hold down on the shortcut icon in the navigation bar that you want to remove the notification dots for.
 2. From the pop-up, select**Turn off notification dots** .
 3. To turn these dots back on, long press on the shortcut icon again, and select**Turn on notification dots** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Turn Notification Dots On and Off From the Settings
 
@@ -183,6 +176,19 @@ To disable and enable Facebook notification dots by long-pressing:
 ![facebook-app-navigation-bar-settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-app-navigation-bar-settings.JPEG)
 
 ![26D7F542-5F40-4D39-B951-9EFBFD2E4EB8_converted](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/26d7f542-5f40-4d39-b951-9efbfd2e4eb8_converted.JPEG)
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -213,21 +219,17 @@ To disable and enable Facebook notification dots from the settings:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-top-corporate-cloud-storage-platforms/"><u>[New] Top Corporate Cloud Storage Platforms</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-get-into-the-game-starting-an-apple-powered-sports-network-for-2024/"><u>[Updated] Get Into the Game Starting an Apple-Powered Sports Network for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-innovative-online-services-for-crafting-perfect-facebook-covers/"><u>[Updated] Innovative Online Services for Crafting Perfect Facebook Covers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-sharing-tactics-igtv-for-a-larger-fb-audience-for-2024/"><u>[Updated] Sharing Tactics IGTV for a Larger FB Audience for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-steps-to-correct-the-missing-winhttpdll-issue-on-your-pc/"><u>Easy Steps to Correct the Missing Winhttp.dll Issue on Your PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-on-this-day-enhancing-nostalgia-and-connection/"><u>Facebook On This Day: Enhancing Nostalgia and Connection</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Meizu 21 Pro | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-experience-an-overhaul-with-facebooks-latest-chat-features/"><u>Messenger & Instagram Experience an Overhaul with Facebook's Latest Chat Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-previous-friendships-in-fb/"><u>Navigating Previous Friendships in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-logins-facebook-oculus-rift-purchases-post-breach/"><u>Reviving Logins: Facebook Oculus Rift Purchases Post-Breach</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-surge-strategy-dominating-your-facebook-cohort/"><u>Social Surge Strategy: Dominating Your Facebook Cohort</u></a></li>
-<li><a href="https://facebook.techidaily.com/spotlight-on-this-years-top-technology-gaffes/"><u>Spotlight on This Year's Top Technology Gaffes</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-insiders-guide-to-safe-social-media-habits-on-fb/"><u>The Insider’s Guide to Safe Social Media Habits on FB</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/transforming-vision-into-visual-storytelling-with-windows-11-techniques-for-2024/"><u>Transforming Vision Into Visual Storytelling with Windows 11 Techniques for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-troubleshooting-steps-for-warzone-lag-problems-on-pc/"><u>Ultimate Troubleshooting Steps for Warzone Lag Problems on PC</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/virtuoso-software-masterful-video-restoration/"><u>Virtuoso Software: Masterful Video Restoration</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decoding-the-art-of-time-lapses-a-comprehensible-guide-with-gopro-for-2024/"><u>Decoding the Art of Time Lapses A Comprehensible Guide with GoPro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-outlines-whats-funny-and-not/"><u>Facebook Outlines What's Funny and Not</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Oppo A38? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/perfecting-social-media-queries-facebook-poll-setups/"><u>Perfecting Social Media Queries: Facebook Poll Setups</u></a></li>
+<li><a href="https://facebook.techidaily.com/prime-online-communities-for-older-demographics/"><u>Prime Online Communities For Older Demographics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/quelling-unsteady-motion-effects/"><u>Quelling Unsteady Motion Effects</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-tutorial-installing-android-debug-bridge-adb-on-a-windows-machine/"><u>Step-by-Step Tutorial: Installing Android Debug Bridge (Adb) on a Windows Machine</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-chatbot-revolution-creating-from-create-a-gpt-foundations/"><u>The ChatBot Revolution: Creating From Create a GPT Foundations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-currency-of-connection-online-revenue-rules/"><u>The Currency of Connection: Online Revenue Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-personalities-interactive-queries-on-social-apps/"><u>Uncover Personalities: Interactive Queries on Social Apps</u></a></li>
 </ul></div>
 

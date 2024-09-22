@@ -1,7 +1,7 @@
 ---
 title: "Timeline Traversal: The Evolution of Online Companions"
-date: 2024-09-10T16:46:11.002Z
-updated: 2024-09-16T22:38:11.700Z
+date: 2024-09-19T20:57:34.635Z
+updated: 2024-09-22T01:05:40.581Z
 tags:
   - facebook
 categories:
@@ -68,10 +68,10 @@ Close
  Remember that you can only use this tool with your current Facebook friends, not profiles you used to be friends with or profiles you never friended. Once you become friends on Facebook, the URL will work as long as you stay friends on the site.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can You See the Friendship Between Any Two People on Facebook?
@@ -83,16 +83,10 @@ Close
  You can also see the friendship history between your account and memorialized accounts on Facebook.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is There a Privacy Risk to Viewing Your Facebook Friendships?
@@ -118,20 +112,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-coloredge-clarity-redefined-examining-eizos-4kcg318-display/"><u>[New] ColorEdge Clarity Redefined – Examining EIZO’s 4KCG318 Display</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-gamers-choice-the-best-of-the-best-4k-tvs/"><u>[New] Gamer's Choice The Best of the Best 4K TVs</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-aquatic-videography-evolved-top-camcorders-of-the-year-for-2024/"><u>[Updated] Aquatic Videography Evolved - Top Camcorders of the Year for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Lava Blaze Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/failed-to-play-hevc-files-on-samsung-galaxy-s23-tactical-edition-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Failed to play HEVC files on Samsung Galaxy S23 Tactical Edition</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fixing-the-persistent-crashes-of-fuser-software-on-your-windows-computer/"><u>Fixing the Persistent Crashes of Fuser Software on Your Windows Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-use-facebook-two-factor-authentication-and-mobile-code-generator/"><u>How to Use Facebook Two-Factor Authentication and Mobile Code Generator</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-reno-10-pro-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo Reno 10 Pro 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-unknown-with-facebook-headlines/"><u>Navigating the Unknown with Facebook Headlines</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-top-vlog-editing-tools-for-popular-platforms-free-and-paid-options/"><u>New Top Vlog Editing Tools for Popular Platforms Free and Paid Options</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-compatible-receiver-use-with-your-logitech-wireless-mouse/"><u>Step-by-Step Guide: Compatible Receiver Use with Your Logitech Wireless Mouse</u></a></li>
-<li><a href="https://facebook.techidaily.com/unblocking-recovering-lost-facebook-credentials/"><u>Unblocking: Recovering Lost Facebook Credentials</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-directs-the-social-media-empire-now/"><u>Who Directs the Social Media Empire Now?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-unplugging-makes-you-happier-and-healthier/"><u>Why Unplugging Makes You Happier and Healthier</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-breakdown-of-ultimate-chapter-addition-methods-for-youtube-experts/"><u>[New] Breakdown of Ultimate Chapter Addition Methods for YouTube Experts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-srt-decoding-for-windows-and-mac-users/"><u>[New] In 2024, SRT Decoding for Windows & Mac Users</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-the-path-to-effective-marketing-best-practices-for-health-promos/"><u>[Updated] 2024 Approved The Path to Effective Marketing Best Practices for Health Promos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-the-ideal-mac-sniping-software-here-are-5-picks/"><u>[Updated] The Ideal Mac Sniping Software - Here Are 5 Picks</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-2d-to-3d-a-tutorial-for-social-media-success/"><u>From 2D to 3D: A Tutorial for Social Media Success</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-check-tiktok-video-copyright-before-uploading/"><u>How to Check Tiktok Video Copyright Before Uploading?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-color-laserjet-pro-m477-driver-software-quick-download-guide-for-easy-setup-and-use/"><u>HP Color LaserJet Pro M477 Driver Software – Quick Download Guide for Easy Setup and Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-reach-with-timely-posts/"><u>Maximizing Facebook's Reach with Timely Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-managing-your-facebook-friends-list/"><u>The Do's and Don'ts of Managing Your Facebook Friends List</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-increase-in-crypto-advertising-on-facebook-and-instagram/"><u>The Increase in Crypto Advertising on Facebook & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-metaverse-top-6-facebook-revolutions/"><u>Unveiling the Metaverse: Top 6 Facebook Revolutions</u></a></li>
 </ul></div>
 

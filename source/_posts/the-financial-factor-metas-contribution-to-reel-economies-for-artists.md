@@ -1,0 +1,135 @@
+---
+title: "The Financial Factor: Meta's Contribution to Reel Economies for Artists"
+date: 2024-09-16T19:36:21.236Z
+updated: 2024-09-21T23:12:25.649Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes The Financial Factor: Meta's Contribution to Reel Economies for Artists"
+excerpt: "This Article Describes The Financial Factor: Meta's Contribution to Reel Economies for Artists"
+keywords: Meta Economic Impact,Meta Investment in Arts,Artist Funding by Meta,Real Estate Metrics,Financial Support for Creatives,Reel Economies Growth,Social Media's Economic Role
+thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b338e4413e4b9ca3add8f4727b.jpg
+---
+
+## The Financial Factor: Meta's Contribution to Reel Economies for Artists
+
+ Social media has enormous earning potential and can be a lucrative income stream for creators.
+
+ As for Reels, they've taken off since Meta launched them as its TikTok rival. Due to their popularity, Meta has been helping creators monetize on Reels.
+
+ Now, Meta is improving how it helps creators get paid through Reels. Today, we will cover the various ways in which the tech giant is helping its creators make money through Reels.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Meta Is Improving Monetization Opportunities for Reels Creators
+
+![Woman Taking a Selfie in Room](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/02/Woman-Taking-a-Selfie.jpg)
+
+ Meta is paying creators for Reels, improving how it pays them, and providing them with insights to better understand how their Reels perform.
+
+ The announcement came in the form of a[Meta blog post](https://web.facebook.com/creators/reels-content-monetization-updates?%5Frdc=1&%5Frdr) on May 4, 2022\. It read:
+
+> We’re making a few changes to our incentives program that give creators ways to reach new followers and uncover new opportunities.
+
+ This might form part of Meta's plan to give TikTok a run for its money. TikTok found success in short-form video content and its powerful algorithm, which makes videos go viral. In April 2022, Instagram Head Adam Mosseri announced that the company would[prioritize original content](https://www.makeuseof.com/instagram-rewarding-original-content/) in its algorithms.
+
+ Now, Meta is paying creators for it. By incentivizing creators to publish original content consistently in the form of Reels, Meta may be positioning itself to[better compete with TikTok](https://www.makeuseof.com/can-reels-solve-the-tiktok-problem-for-facebook/) . And so far, Reels are doing well on Instagram.
+
+ In fact, statistics show that people are spending more time watching short-form video content on Instagram than on TikTok. According to[Statista](https://www.statista.com/statistics/1237210/average-time-spent-per-session-on-short-form-video-platforms-worldwide/) , users spend an estimated 53 minutes per session on Instagram, with TikTok trailing closely behind with 45 minutes per session.
+
+ And in its Q1 2022 earnings call, Meta revealed that users spend 20% of their time on Reels on Instagram and 50% of their time on videos on Facebook. That proves that there are earning opportunities for creators in Reels.
+
+## How Meta Is Helping Creators Make Money Through Reels
+
+![black woman taking selfie with iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/black-woman-taking-selfie-with-iphone.jpg)
+
+ There are several ways that Meta is improving the way creators can monetize on Reels, primarily through its invite-only incentives programs for Facebook and Instagram, Reels Play. These include:
+
+### 1\. Restructuring the Payments Process for Creators
+
+ Meta is changing how it calculates payouts for creators on its Reels Play bonus programs. This ensures that even creators with smaller audiences are adequately rewarded, as long as they produce original Reels of a high standard that resonates with people.
+
+ This is important because the scales aren't always balanced regarding monetization on social media.
+
+ Brands typically favor creators with larger audiences for collaborations and sponsorships—this sidelines creators with smaller audiences who may be more engaged and produce valuable, high-quality content.
+
+ Meta's restructuring of payments in its bonus program will ensure that the creators in the program are paid out in line with the content they produce instead of the number of followers they have.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 2\. New "Challenge" Option for Facebook Reels
+
+ Facebook has launched “Challenges”, an incentive that helps creators in the bonus program unveil multiple ways to earn through their content by taking part in a series of challenges. Creators can make up to $4,000 a month through Challenges alone.
+
+ Unlike social media challenges, which creators drive, Facebook Challenges are driven by the platform itself and are cumulative.
+
+ How it works is that Facebook prompts creators to post a Reel around a particular topic. If that Reel meets the requirements for that particular challenge, like a certain number of views, the creator will unlock more challenges or goals, and they will earn the set amount for that challenge.
+
+ When a new month begins, everything is reset, and creators start a new set of challenges.
+
+### 3\. Expanding Overlay Ads for Facebook Reels
+
+ After rolling out tests of overlay ads on Reels in February 2022, Facebook is expanding them to more creators. Overlay ads are an opportunity for creators who already monetize their Facebook videos with in-stream ads to earn more money as it makes their Reels available to advertisers.
+
+ Facebook plans to expand overlay ads to more creators over time. It also says it will look into opportunities for eligible creators to earn a share of the revenue from overlay ads attached to Reels cross-posted from Instagram to Facebook.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### 4\. Insights for Reels Play Creators on Facebook
+
+ To help creators in the Reels Play program keep track of how their Reels are performing, Facebook is introducing insights designed specifically for this program.
+
+ Similar to Instagram insights for Reels and Live video, creators will be able to see how many times their eligible Reels were played within a given earning period by going to the Reels Play Bonus Insight page on Facebook.
+
+ This will help them gauge how many more plays they need to earn for a particular challenge to progress to the next one and continue earning.
+
+## Meta Is Increasing Earning Opportunities for Creators
+
+ Social media can be a gold mine for those who take content creation seriously and know how to grow and keep their followers engaged.
+
+ While creators have opportunities to earn money through brand sponsorships and campaigns, Meta is giving its creators even more opportunities to monetize their Reels content.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-a-practical-approach-to-scheduling-on-zoom-platforms/"><u>2024 Approved A Practical Approach to Scheduling on Zoom Platforms</u></a></li>
+<li><a href="https://games-able.techidaily.com/gearsport-gains-8-frames-up-techniques-unveiled/"><u>Gearsport Gains: 8 Frames Up Techniques Unveiled</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-disable-two-factor-authentication-wo-a-mobile-device/"><u>How to Disable Two-Factor Authentication W/O a Mobile Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-hide-facebook-posts-from-everyone-using-the-archive-feature/"><u>How to Hide Facebook Posts From Everyone Using the Archive Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/hub-hunt-locating-the-best-20-social-network-sites-and-apps/"><u>Hub Hunt: Locating the Best 20 Social Network Sites & Apps</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-apple-id-from-iphone-7-without-password-by-drfone-ios/"><u>In 2024, How to Remove Apple ID from iPhone 7 without Password?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-xiaomi-redmi-note-13-proplus-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Xiaomi Redmi Note 13 Pro+ 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-skyward-elite-unified-ultra-hd-multi-touch-panels/"><u>In 2024, Skyward Elite Unified, Ultra HD Multi-Touch Panels</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-in-the-age-of-social-media-concealing-like-counts/"><u>Privacy in the Age of Social Media: Concealing Like Counts</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>Set Your Preferred Job Location on LinkedIn App of your Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-disputes-new-it-mandates-advocates-for-secure-chatting/"><u>WhatsApp Disputes New IT Mandates, Advocates for Secure Chatting</u></a></li>
+</ul></div>
+

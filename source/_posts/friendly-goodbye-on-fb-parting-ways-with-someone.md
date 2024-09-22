@@ -1,7 +1,7 @@
 ---
 title: "Friendly Goodbye on FB: Parting Ways with Someone"
-date: 2024-09-14T20:06:59.352Z
-updated: 2024-09-16T22:38:01.526Z
+date: 2024-09-19T18:20:31.413Z
+updated: 2024-09-21T20:08:48.442Z
 tags:
   - facebook
 categories:
@@ -96,6 +96,13 @@ Here, you'll find three options.
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Stop Taking a Break on Facebook
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
@@ -104,17 +111,17 @@ Here, you'll find three options.
 
 ![Take a Break search box on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/take-a-break.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * You'll find the Take a Break search bar, type the name of the friend you previously took a break from.
 * Click on the name of the friend.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
@@ -131,29 +138,16 @@ Here, you'll find three options.
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
@@ -174,16 +168,21 @@ Here, you'll find three options.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-best-vr-cycling-experiences-awaiting-you/"><u>[Updated] In 2024, Best VR Cycling Experiences Awaiting You</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-youtube-adsense-optimization/"><u>[Updated] The Ultimate Guide to YouTube AdSense Optimization</u></a></li>
-<li><a href="https://facebook.techidaily.com/emerging-us-antitrust-legislation-taming-giants-in-tech/"><u>Emerging US Antitrust Legislation: Taming Giants in Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/examining-the-legitimacy-of-facebooks-safety-mail-service-securityfb/"><u>Examining the Legitimacy of Facebook's Safety Mail Service @Security@fb</u></a></li>
-<li><a href="https://games-able.techidaily.com/from-novice-to-pro-joining-and-mastering-ea-play-on-ps5/"><u>From Novice to Pro: Joining and Mastering EA Play on PS5</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-auto-lock-greyed-out-on-iphone-xs-max-by-drfone-ios/"><u>In 2024, How To Fix Auto Lock Greyed Out on iPhone XS Max</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-motorola-moto-g14-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Motorola Moto G14 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo X100 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/renaming-and-redesigning-your-social-media-hub/"><u>Renaming and Redesigning Your Social Media Hub</u></a></li>
-<li><a href="https://facebook.techidaily.com/tech-platform-takes-legal-action-against-indian-information-rules/"><u>Tech Platform Takes Legal Action Against Indian Information Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-metaverse-vs-virtual-reality-6-key-differences/"><u>The Metaverse Vs. Virtual Reality: 6 Key Differences</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-script-to-screen-cutting-edge-video-editing-for-youtubers-for-2024/"><u>[Updated] From Script to Screen Cutting-Edge Video Editing for YouTubers for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gimbal-insights-7-best-in-market/"><u>[Updated] Gimbal Insights 7 Best in Market</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1-exclusive-offer-save-up-to-45-on-annual-subscriptions-right-now/"><u>1. Exclusive Offer: Save up to 45% on Annual Subscriptions Right Now!</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-enhance-experience-using-your-logitech-webcam-properly/"><u>2024 Approved Enhance Experience Using Your Logitech Webcam Properly</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-from-live-action-to-youtube-recording-your-device-display/"><u>2024 Approved From Live Action to YouTube Recording Your Device Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/ending-fb-surveillance-using-off-facebook-workflow/"><u>Ending FB Surveillance - Using Off-Facebook Workflow</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-is-unlocking-oculus-go-root-access-what-this-means-for-owners/"><u>Facebook Is Unlocking Oculus Go Root Access: What This Means for Owners</u></a></li>
+<li><a href="https://facebook.techidaily.com/focusing-your-online-narrative-for-success-on-professional-networks-like-fb/"><u>Focusing Your Online Narrative for Success on Professional Networks Like FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-of-music-and-networks-facebooks-boombox-project-with-spotify/"><u>Future of Music & Networks: Facebook's Boombox Project with Spotify</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-comprehensible-guide-to-chromebooks-best-digital-pencils/"><u>In 2024, A Comprehensible Guide to Chromebook's Best Digital Pencils</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insightful-analysis-of-all-your-social-interactions-on-facebook/"><u>Insightful Analysis of All Your Social Interactions on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/resetting-your-facebook-password-on-lockout/"><u>Resetting Your Facebook Password on Lockout</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/unlocking-composition-magic-with-blend-modes-techniques-for-2024/"><u>Unlocking Composition Magic with Blend Modes Techniques for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Badminton Teams Disconnect From Screens
-date: 2024-07-12T10:10:24.902Z
-updated: 2024-07-13T10:10:24.902Z
+date: 2024-09-19T18:43:05.958Z
+updated: 2024-09-21T17:38:33.218Z
 tags:
   - facebook
 categories:
@@ -41,18 +41,22 @@ thumbnail: https://thmb.techidaily.com/e5896cf8bd138a267d00eafc99f462dd02faf3099
 
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Taking a Stand Against Racism
 
  Perhaps if more people followed suit and abandoned social media on the grounds of stamping out racism, then platform owners might stop and pay attention. While it isn't going to end racism overnight, unfortunately, it is a great place for everyone who uses social media to start.
-
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -61,6 +65,19 @@ thumbnail: https://thmb.techidaily.com/e5896cf8bd138a267d00eafc99f462dd02faf3099
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-identifying-the-perfect-hashtag-for-your-tiktok-profile/"><u>[New] Identifying the Perfect Hashtag for Your TikTok Profile</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-fixing-obs-screen-blackout-problems/"><u>[Updated] 2024 Approved Fixing OBS Screen Blackout Problems</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-the-maze-of-multi-service-playlist-transfer/"><u>2024 Approved Navigating the Maze of Multi-Service Playlist Transfer</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-guide-free-and-paid-tools-for-noise-reduction-for-2024/"><u>Comprehensive Guide Free & Paid Tools for Noise Reduction for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/crafting-cinematic-slow-mo-videos-for-instagram-success-for-2024/"><u>Crafting Cinematic Slow-Mo Videos for Instagram Success for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exemption-persists-vaccine-skeptics-flourish-on-facebook-platform/"><u>Exemption Persists: Vaccine Skeptics Flourish on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-hidden-features-for-improved-spotify-use/"><u>Facebook's Hidden Features for Improved Spotify Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/profits-from-peoples-partnership-platforms/"><u>Profits From People's Partnership Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/sprinkle-life-back-into-your-dead-end-facebook-account/"><u>Sprinkle Life Back Into Your Dead-End Facebook Account</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-xml-files-in-fcpx-tips-tricks-and-best-practices/"><u>Updated XML Files in FCPX Tips, Tricks, and Best Practices</u></a></li>
+<li><a href="https://article-helps.techidaily.com/why-does-imovie-enforce-dimensions/"><u>Why Does iMovie Enforce Dimensions?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/youtube-skills-essential-insights-unveiled-for-2024/"><u>YouTube Skills Essential Insights Unveiled for 2024</u></a></li>
+</ul></div>
 

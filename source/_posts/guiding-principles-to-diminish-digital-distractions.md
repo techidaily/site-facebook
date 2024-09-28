@@ -1,7 +1,7 @@
 ---
 title: Guiding Principles to Diminish Digital Distractions
-date: 2024-09-18T00:06:48.995Z
-updated: 2024-09-21T21:46:26.330Z
+date: 2024-09-23T16:20:35.280Z
+updated: 2024-09-28T16:56:39.639Z
 tags:
   - facebook
 categories:
@@ -48,29 +48,50 @@ Close
 
 Close
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Optimize Your Notification Settings
 
  In the same section of**Manage Your Time** , you can click on**Manage Your Notifications.** Options will open up for you to choose which notifications you want to receive. You'll be able to choose comments, tags, reminders, updates from friends, friend requests, as well as events and other promotions you wish (or don't wish) to be notified of.
 
  When you're finished making your selection, your feed will be optimized to your preferences, and you'll receive fewer distractions. This will hopefully lead to you spending less time on the app.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Use Apps to Limit Your Social Media Use
 
 ![Woman using Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Woman-using-Facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you are still having trouble staying off Facebook, there is software available, such as apps and plugins that control how much time you are spending on social media. You just have to find the one that works for you and install it on your devices.
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## If Nothing Works, Deactivate or Delete Facebook
@@ -90,5 +111,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/updated-childs-drone-pick-top-five-suggestions-for-2024/"><u>[Updated] Child's Drone Pick Top Five Suggestions for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-dividing-drama-a-step-by-step-chapters-integration-on-vimeo/"><u>[Updated] Dividing Drama A Step-by-Step Chapters Integration on Vimeo</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-mp3-recording-guide-exclusive-to-free-skype-calls-for-2024/"><u>[Updated] MP3 Recording Guide Exclusive to Free Skype Calls for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-players-picks-unveiling-our-top-10-adventure-classics-for-2024/"><u>[Updated] Players' Picks Unveiling Our Top 10 Adventure Classics for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-affirmed-sign-up-for-us-meta-verified-account/"><u>Authenticity Affirmed: Sign up for US Meta Verified Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-for-enrichment-potential-outcomes/"><u>Disconnecting for Enrichment: Potential Outcomes</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-facts-facebooks-impending-name-switch/"><u>Dissecting Facts: Facebook’s Impending Name Switch</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-impact-a-double-edged-sword/"><u>Facebook's Impact: A Double-Edged Sword</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/gain-traction-on-youtube-deciphering-ranking-principles/"><u>Gain Traction on YouTube Deciphering Ranking Principles</u></a></li>
+<li><a href="https://facebook.techidaily.com/guard-your-cyber-world-elude-this-trio-of-intruders/"><u>Guard Your Cyber World: Elude This Trio of Intruders</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-a15-4g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy A15 4G to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-infinix-zero-30-5g-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Infinix Zero 30 5G via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/solving-the-mp4-playback-issue-on-quicktime-efficient-fixes/"><u>Solving the MP4 Playback Issue on QuickTime: Efficient Fixes</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-3-concerns-the-facebook-metaverses-potential-risks/"><u>Top 3 Concerns: The Facebook Metaverse's Potential Risks</u></a></li>
+<li><a href="https://facebook.techidaily.com/untangling-facebook-disablement-mysteries/"><u>Untangling Facebook Disablement Mysteries</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-behind-the-mask-the-psychology-behind-vague-blogging/"><u>What's Behind the Mask? The Psychology Behind Vague Blogging</u></a></li>
+</ul></div>
 

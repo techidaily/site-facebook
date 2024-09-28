@@ -1,7 +1,7 @@
 ---
 title: "Enjoy Peaceful Posts: How to Disable Responses in Facebook"
-date: 2024-09-16T16:55:38.495Z
-updated: 2024-09-21T17:12:26.206Z
+date: 2024-09-27T16:35:37.734Z
+updated: 2024-09-28T17:12:41.022Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/643f417ea21e236b7a77b1b03708fbc61c8fba5f4
 
 ![screenshot showing how to manage facebook post comments](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-facebook-post-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing how to manage comments on facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-manage-comments-on-facebook-post.jpg)
 
 Close
@@ -49,13 +56,6 @@ Close
 3. From the menu, select**Who can comment on your post** .
 4. On the next page, select one of the three options on the page. Expectedly, your default option should be**Public** . So, you can choose either**Friends** or**Profiles and Pages you mention** as applicable. Tap**Done** to confirm your decision.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Manage Comments Using Facebook Web
 
  On the web version of Facebook, the process is a bit more complicated. Here's how to manage comments for personal posts on Facebook from your computer.
@@ -64,6 +64,13 @@ Close
 * Click on the**upside-down triangle** .
 
 ![screenshot of facebook home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/screenshot-of-facebook-homepage-1.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click on**Settings and privacy > Settings > Privacy** .
 * Select**Public Posts** on the side menu.
@@ -77,10 +84,10 @@ Close
  And that's all you need to manage comments on your Facebook post.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Disable Post Comments in a Facebook Group
@@ -91,6 +98,13 @@ Close
 
 ![screenshot showing how to turn off comments on facebook group](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-turn-off-comments-on-facebook-group.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Identify the post for which you'd like to turn off its comment.
@@ -100,13 +114,6 @@ Close
  Using the web version, the steps are the same. Just make sure to look out for the three dots in the top-right corner of the post.
 
  And that's it. Facebook immediately disables the comment section of the post. However, the old comments remain under the post.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Take Control of the Comment Section on Your Facebook Posts
 
@@ -127,5 +134,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-free-banner-templates-for-youtube-downloads-and-makers/"><u>[New] In 2024, Free Banner Templates for YouTube Downloads & Makers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-riding-through-the-year-motorcycles-no-1-helmet-cameras-guide/"><u>[New] Riding Through the Year - Motorcycle's No. 1 Helmet Cameras Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-spotlight-on-best-selling-ae-plugins-for-instagram-for-2024/"><u>[Updated] Spotlight on Best-Selling AE Plugins for Instagram for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-8-immersive-virtual-reality-adventures-on-oculus/"><u>[Updated] Top 8 Immersive Virtual Reality Adventures on Oculus</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pixel-perfection-best-video-cameras-for-extended-recording-times/"><u>2024 Approved Pixel Perfection Best Video Cameras for Extended Recording Times</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/chronological-journey-through-the-epic-how-to-watch-dragon-ball-correctly/"><u>Chronological Journey Through the Epic: How To Watch Dragon Ball Correctly</u></a></li>
+<li><a href="https://facebook.techidaily.com/frugal-yet-effective-top-5-costless-methods-for-social-media-scheduling/"><u>Frugal Yet Effective: Top 5 Costless Methods for Social Media Scheduling</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/is-it-secure-to-use-chatgpt-exploring-6-key-cybersecurity-issues-you-should-know-about/"><u>Is It Secure to Use ChatGPT? Exploring 6 Key Cybersecurity Issues You Should Know About</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-tiktok-losing-its-ground-can-facebooks-reel-offer-relief/"><u>Is TikTok Losing Its Ground? Can Facebook's Reel Offer Relief?</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-social-media-memorable-with-ripls-tips/"><u>Making Social Media Memorable with Ripl's Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/monitoring-tools-spotting-intruder-usage-quickly/"><u>Monitoring Tools: Spotting Intruder Usage Quickly</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/obsessed-with-broadcasting-choose-between-xsplit-and-obs/"><u>Obsessed with Broadcasting? Choose Between XSplit & OBS</u></a></li>
+<li><a href="https://facebook.techidaily.com/powered-by-earth-facebook-fully-embraced-renewables/"><u>Powered by Earth: Facebook Fully Embraced Renewables</u></a></li>
+<li><a href="https://facebook.techidaily.com/quality-matters-sharing-hd-videos-and-photos-on-fb/"><u>Quality Matters: Sharing HD Videos and Photos on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/soundscapes-in-speeches-the-rise-of-facebooks-soundemojis/"><u>Soundscapes in Speeches: The Rise of Facebook's Soundemojis</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-removal-of-your-enterprise-profile-on-fb/"><u>Strategic Removal of Your Enterprise Profile on FB</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transformative-strategies-for-impartiating-patient-narratives/"><u>Transformative Strategies for Impartiating Patient Narratives</u></a></li>
+</ul></div>
 

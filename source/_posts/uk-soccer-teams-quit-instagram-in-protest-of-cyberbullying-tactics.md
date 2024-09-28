@@ -1,7 +1,7 @@
 ---
 title: UK Soccer Teams Quit Instagram in Protest of Cyberbullying Tactics
-date: 2024-09-20T19:08:16.339Z
-updated: 2024-09-21T18:27:19.419Z
+date: 2024-09-22T16:27:34.736Z
+updated: 2024-09-28T16:44:52.321Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,12 +86,26 @@ thumbnail: https://thmb.techidaily.com/b024a84a41e25a10e99a735d71f0138708aa747c6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram-in-2024/"><u>[Desktop & Mobile Solutions] How to Rotate Videos for Instagram, In 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-erase-your-online-presence-post-facebook-stories/"><u>[New] 2024 Approved Erase Your Online Presence Post-Facebook Stories</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-securing-your-social-media-visuals-instagram-edition/"><u>[New] 2024 Approved Securing Your Social Media Visuals Instagram Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-ultimate-chorus-conductor-android-edition-for-2024/"><u>[New] Ultimate Chorus Conductor, Android Edition for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/corrosion/"><u>Corrosion:</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-success-in-social-media-marketing-on-fb/"><u>Decoding #Success in Social Media Marketing on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-phony-facebook-account-creation-schemes/"><u>Exploring Phony Facebook Account Creation Schemes</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-authorities-step-up-to-protect-whatsapp-users-from-facebook-spying/"><u>German Authorities Step Up to Protect WhatsApp Users From Facebook Spying</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oneplus-nord-ce-3-lite-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on OnePlus Nord CE 3 Lite 5G?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-nokia-xr21-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Nokia XR21 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-oppo-a38-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Oppo A38 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-root-of-hostility-towards-virtual-community-spaces/"><u>Investigating the Root of Hostility Towards Virtual Community Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-metas-identity-system/"><u>Navigating Meta's Identity System</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/nostalgia-revue-old-school-review-of-the-goofys-for-2024/"><u>Nostalgia Revue Old-School Review of The Goofys for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-monitor-and-record-teen-activity-online-fb-focused/"><u>Strategies to Monitor and Record Teen Activity Online, FB-Focused</u></a></li>
+<li><a href="https://facebook.techidaily.com/superior-senior-centric-digital-hubs/"><u>Superior Senior-Centric Digital Hubs</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-changes-to-maximize-your-fb-appease-and-effectiveness/"><u>Top 10 Changes to Maximize Your Fb App'ease and Effectiveness</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-facebook-into-a-reflective-mirror-of-you/"><u>Transforming Facebook Into a Reflective Mirror of You</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ultimate-tutorial-how-to-download-and-save-your-favorite-beatstars-songs-as-mp3-files/"><u>Ultimate Tutorial: How to Download and Save Your Favorite BeatStars Songs as MP3 Files</u></a></li>
+</ul></div>
 

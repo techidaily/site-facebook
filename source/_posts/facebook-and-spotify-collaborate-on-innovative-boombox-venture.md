@@ -1,0 +1,85 @@
+---
+title: Facebook & Spotify Collaborate on Innovative Boombox Venture
+date: 2024-09-25T17:19:36.030Z
+updated: 2024-09-28T16:40:08.913Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: This Article Describes Facebook & Spotify Collaborate on Innovative Boombox Venture
+excerpt: This Article Describes Facebook & Spotify Collaborate on Innovative Boombox Venture
+keywords: Facebook Spotify Joint Project,Innovative Music Boombox Technology,Boombox Innovation with Social Media Platforms,Facebook's Audio Product Lines Expansion,Spotify Streaming Gear Collaborations,Music Tech Partnerships and Social Media Integration,facebook spotify collaborate on innovative boombox venture
+thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065dd6fb56cbf786d1e09002e10.jpg
+---
+
+## Facebook & Spotify Collaborate on Innovative Boombox Venture
+
+ As Facebook expands into the world of audio, Facebook CEO Mark Zuckerberg hinted at a collaboration with Spotify. Project Boombox, the name of the upcoming integration, will allow users to listen to Spotify through Facebook.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Facebook and Spotify Team up on Project Boombox
+
+[Facebook announced several upcoming audio-based features](https://www.makeuseof.com/facebook-introduces-social-audio-features-compete-clubhouse/) , including Live Audio Rooms and Soundbites, both of which will help Facebook keep up with Clubhouse. But those aren't the only audio experiences that Facebook is bringing to the table—a report by[CNBC](https://www.cnbc.com/2021/04/19/mark-zuckerberg-announces-facebook-is-working-on-a-clubhouse-clone.html) revealed a partnership between Facebook and Spotify.
+
+ Zuckerberg told CNBC that Spotify and Facebook are working on something that's known internally as "Project Boombox." According to the report, the feature will let you share your favorite songs, albums, artists, and playlists from within Facebook. The shared audio will then appear inside a music player in users' News Feeds, which users can click on to play.
+
+ In a statement to[TechCrunch](https://techcrunch.com/2021/04/19/facebook-invests-in-audio-with-short-form-soundbites-feature-podcast-support-and-a-clubhouse-clone/) , a Spotify spokesperson commented on the upcoming partnership, saying:
+
+> Our ambition has always been to make Spotify ubiquitous across platforms and devices—bringing music and podcasts to more people—and our new integration with Facebook is another step in these efforts. We look forward to a continued partnership with Facebook, fueling audio discovery around the world.
+
+ TechCrunch reporters also noted that the built-in player isn't only for music—it will support podcasts as well. The player has already been tested in countries like Mexico and Thailand, and may officially launch in about a week or so.
+
+ We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Audio Is Exploding, But Is It Here to Stay?
+
+ Facebook is making an aggressive push towards audio as it races to compete with Clubhouse, an app for audio-based chatrooms. Other platforms are creating their own versions of Clubhouse as well, with Twitter launching Spaces and even LinkedIn working on Live Audio Rooms.
+
+ Clubhouse is at a clear disadvantage here—it's still in an invite-only state, and is currently only available on iPhone. If Clubhouse doesn't expand to all users soon, it may end up getting lost in an abyss full of Clubhouse clones.
+
+ With so many platforms attempting to create some kind of social audio experience, we can only wonder if it's even worth it. Will audio as a social medium really take off, or will each platform's efforts fall flat?
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/updated-top-10-download-snapchat-ringtones-websites/"><u>[Updated] Top 10 Download Snapchat Ringtones Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
+<li><a href="https://facebook.techidaily.com/beyond-boundaries-exploring-virtual-realitys-future/"><u>Beyond Boundaries: Exploring Virtual Reality's Future</u></a></li>
+<li><a href="https://facebook.techidaily.com/considering-facebooks-role-in-streamlining-multi-app-sign-in-processes/"><u>Considering Facebook's Role in Streamlining Multi-App Sign-In Processes</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-imovie-para-windows-gratis-e-oficial-download-mais-seguro/"><u>Download iMovie Para Windows Grátis E Oficial - Download Mais Seguro</u></a></li>
+<li><a href="https://windows11.techidaily.com/evaluating-the-variability-between-in-store-and-online-windows-reinstallations/"><u>Evaluating the Variability Between In-Store & Online Windows Reinstallations</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/film-timeframe-determining-gb-storage-requirement-for-2024/"><u>Film Timeframe Determining GB Storage Requirement for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/guarantee-stranger-free-social-media-views-on-fb/"><u>Guarantee Stranger-Free Social Media Views on FB</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Poco X5 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-xs-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone XS to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/tips-and-tricks-how-to-configure-view-settings-in-the-finders-interface/"><u>Tips & Tricks: How to Configure View Settings in the Finder's Interface</u></a></li>
+</ul></div>
+

@@ -1,0 +1,92 @@
+---
+title: "From Selfie to Story: Designing an FB Cover With Your Avatar"
+date: 2024-09-22T16:37:47.336Z
+updated: 2024-09-28T16:59:40.066Z
+tags:
+  - facebook
+categories:
+  - meta
+  - facebook
+description: "This Article Describes From Selfie to Story: Designing an FB Cover With Your Avatar"
+excerpt: "This Article Describes From Selfie to Story: Designing an FB Cover With Your Avatar"
+keywords: Selfie Story Design,Avatar Facebook Covers,Creative Fb Profile,Personalized Avatar Art,Stylish FB Cover Ideas,Custom Avatar Graphics,Avatars on Social Media
+thumbnail: https://thmb.techidaily.com/36933db6d941c003b496fa9d41f25952922b64b713c335aa2dc61c27de44c438.jpg
+---
+
+## From Selfie to Story: Designing an FB Cover With Your Avatar
+
+ Facebook rolled out avatars back in 2020, but there wasn’t much to do with them. Now they can take pride-of-place in a customized cover photo.
+
+ Making one is easy enough, but if you don't have the Facebook app, you might not know any of it is possible at all.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## How to Make a Facebook Avatar Cover Photo
+
+ You need a Facebook avatar to feature one in your cover photo, and you can only[make a Facebook avatar](http://www.makeuseof.com/tag/make-facebook-avatar/) if you have the Facebook app. So, if you want to follow along and don't have a Facebook avatar yet, downloading the app and making an avatar is the first place to start.
+
+ If you haven’t updated your avatar in a while, it’s probably time. All of the clothing options available for the VR avatars that Meta Introduced in 2021 are also available for your Facebook avatar, including outfits unlocked by buying VR games.
+
+![A Facebook profile with the option of creating a cover photo with an avatar](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-meta-profile.jpg)
+
+ When Facebook users with a Facebook avatar navigate to their home page, they now see a**Create with avatar** button over the familiar**Edit cover photo** button in the lower right corner of their profile’s cover photo.
+
+ Selecting this button opens a randomly generated cover photo using your Facebook avatar.
+
+![An auto-generated avatar Facebook cover photo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-meta-sample-cover-photo.jpg)
+
+ You can select**Set as cover photo** and be on your way. However, scrolling down reveals options to create a custom cover photo with your Facebook avatar.
+
+![Choosing a pose for a Facebook avatar cover photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-edit-meta-banner1.jpg)
+
+ This setup probably looks familiar to you, as it’s arguably an under-powered clone of Snapchat’s Bitmoji avatar profile picture. Two tabs offer a selection of poses and backgrounds for your avatar.
+
+![Choosing a background for a Facebook avatar cover photo.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/facebook-edit-meta-banner2.jpg)
+
+ You can edit your cover photo on the browser interface, but only the pose and background. If you want to edit the avatar or its clothing, you’ll have to use the Facebook app.
+
+ When you’re done, press**Set as cover photo** .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## One More Thing to Do With a Facebook Avatar
+
+ Facebook avatars were already usable on the platform largely as custom emojis in messages and comments. These were fun features, but it's no wonder that some users don't even know that Facebook avatars are available.
+
+ As we spend more time online, avatars are becoming an increasingly important part of our digital identities. Creating more spaces to showcase those avatars, like the Facebook cover photo, is always an exciting development.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-revival-artisan-selection/"><u>2024 Approved Revival Artisan Selection</u></a></li>
+<li><a href="https://facebook.techidaily.com/anticipating-the-outcome-when-will-fbs-ruling-on-trump-be-revealed/"><u>Anticipating the Outcome: When Will FB's Ruling on Trump Be Revealed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/apple-decides-its-path-no-mimicking-of-facebooks-metaverse/"><u>Apple Decides Its Path, No Mimicking of Facebook's Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/avoiding-virtual-vendetta-precautionary-tips-against-social-media-swindles/"><u>Avoiding Virtual Vendetta: Precautionary Tips Against Social Media Swindles</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-a-tailored-online-avatar-scope/"><u>Crafting a Tailored Online Avatar Scope</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Samsung Galaxy A05s? | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-the-future-of-tv-watching-a-closer-look-at-youtube-tv/"><u>In 2024, The Future of TV Watching A Closer Look at YouTube TV</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leveraging-ai-to-optimize-time-and-resources-in-3d-printing/"><u>Leveraging AI to Optimize Time and Resources in 3D Printing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-s24plus-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy S24+ Phone</u></a></li>
+</ul></div>
+

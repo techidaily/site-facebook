@@ -1,7 +1,7 @@
 ---
 title: "Securing Digital Integrity: Tech' Pointed at Curbing Online Scams and Fake Ads"
-date: 2024-09-14T16:44:03.117Z
-updated: 2024-09-21T16:06:08.557Z
+date: 2024-09-26T16:39:01.334Z
+updated: 2024-09-28T16:09:07.616Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ Adam French, Consumer Rights Expert at Which?, said:
 
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Response by Facebook and Google
 
 Facebook and Google both responded to the report by Which?
@@ -69,12 +76,24 @@ Facebook further stated:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-transforming-movs-to-mp4mkv-on-pc/"><u>[New] In 2024, Transforming MOVs to MP4/MKV on PC</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-best-10-sites-to-get-free-images/"><u>[Updated] Best 10 Sites to Get Free Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/block-random-social-suggestions-for-new-friends/"><u>Block Random Social Suggestions for New Friends</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/como-convertir-imagenes-en-contenido-visual-impactante-las-tres-mejores-formas/"><u>Cómo Convertir Imágenes en Contenido Visual Impactante: Las Tres Mejores Formas</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discovering-the-lenovo-legion-pro-5i-gen-9-a-game-changer-in-affordable-high-end-gaming-computers/"><u>Discovering the Lenovo Legion Pro 5I Gen 9: A Game Changer in Affordable High-End Gaming Computers</u></a></li>
+<li><a href="https://facebook.techidaily.com/elusive-entourage-hide-your-fb-pals/"><u>Elusive Entourage: Hide Your FB Pals</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-oppo-reno-8t-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Oppo Reno 8T | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-c22-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Nokia C22 Phone with Broken Screen</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-the-ultimate-strategy-for-high-quality-remote-recordings/"><u>In 2024, The Ultimate Strategy for High-Quality Remote Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-markets-the-top-4-innovative-meta-solutions/"><u>Mastering Markets: The Top 4 Innovative Meta Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaai-revolutionizing-conversational-intelligence/"><u>MetaAI: Revolutionizing Conversational Intelligence</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-exit-realities-and-revelations/"><u>Social Media Exit: Realities and Revelations</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-multi-facebook-group-communication/"><u>The Art of Multi-Facebook Group Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-exodus-analyzing-four-reasons-for-social-media-dwindle/"><u>The Unseen Exodus: Analyzing Four Reasons for Social Media Dwindle</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-11-pro-max-without-passcode-easily-by-drfone-ios/"><u>Unlock iPhone 11 Pro Max Without Passcode Easily</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-mystery-behind-accepting-friend-requests-on-fb/"><u>Unveiling the Mystery Behind Accepting Friend Requests on FB</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-regular-to-revolutionary-how-to-convert-videos-for-vr-for-2024/"><u>Updated Regular to Revolutionary How to Convert Videos for VR for 2024</u></a></li>
+</ul></div>
 

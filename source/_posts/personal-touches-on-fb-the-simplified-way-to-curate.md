@@ -1,7 +1,7 @@
 ---
 title: Personal Touches on FB - The Simplified Way to Curate
-date: 2024-09-20T00:39:44.628Z
-updated: 2024-09-21T18:00:38.314Z
+date: 2024-09-24T17:11:59.494Z
+updated: 2024-09-28T17:14:48.125Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ As Meta notes in its announcement:
 
  Other ways users can[clean up their Facebook account](https://www.makeuseof.com/ways-to-clean-up-facebook-account/) include snoozing posts from certain people, unfollowing irrelevant pages, and adding certain people to their Close Friends list.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Get More Control Over Your Facebook Feed
 
  While the new features won't create a chronological or friends-only feed, they will help users get more control over the posts that Facebook recommends to them. Hopefully, more options will roll out to users in the future.
@@ -61,12 +68,16 @@ As Meta notes in its announcement:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-effortlessly-transferring-your-personal-soundtrack-for-2024/"><u>[Updated] Effortlessly Transferring Your Personal Soundtrack for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-penning-powerful-stories-with-a-camera-lens/"><u>2024 Approved Penning Powerful Stories with a Camera Lens</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-welcome-to-the-era-of-insta-and-fb-ad-campaigning/"><u>Brands Welcome to the Era of Insta and FB Ad Campaigning</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-files-and-their-unprecedented-public-reach/"><u>Facebook Files and Their Unprecedented Public Reach</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-streaming-services-in-the-facebook-experience/"><u>Integrating Streaming Services in the Facebook Experience</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-nvidia-geforce-rtx-3080-ti-driver-support-for-win10-8-7-systems/"><u>Latest Nvidia GeForce RTX 3080 Ti Driver Support for Win10, 8, 7 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-and-vr-explained-discerning-6-fundamental-differences/"><u>Metaverse & VR Explained: Discerning 6 Fundamental Differences</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-ultimate-game-guide-unveiling-the-power-of-steam/"><u>The Ultimate Game Guide: Unveiling the Power of Steam</u></a></li>
+</ul></div>
 

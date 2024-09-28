@@ -1,7 +1,7 @@
 ---
 title: "The Financial Factor: Meta's Contribution to Reel Economies for Artists"
-date: 2024-09-16T19:36:21.236Z
-updated: 2024-09-21T23:12:25.649Z
+date: 2024-09-27T16:08:20.295Z
+updated: 2024-09-28T16:04:31.299Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
 
  And in its Q1 2022 earnings call, Meta revealed that users spend 20% of their time on Reels on Instagram and 50% of their time on videos on Facebook. That proves that there are earning opportunities for creators in Reels.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Meta Is Helping Creators Make Money Through Reels
 
 ![black woman taking selfie with iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/black-woman-taking-selfie-with-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  There are several ways that Meta is improving the way creators can monetize on Reels, primarily through its invite-only incentives programs for Facebook and Instagram, Reels Play. These include:
 
@@ -61,10 +75,10 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
  Meta's restructuring of payments in its bonus program will ensure that the creators in the program are paid out in line with the content they produce instead of the number of followers they have.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. New "Challenge" Option for Facebook Reels
@@ -83,13 +97,6 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
 
  Facebook plans to expand overlay ads to more creators over time. It also says it will look into opportunities for eligible creators to earn a share of the revenue from overlay ads attached to Reels cross-posted from Instagram to Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Insights for Reels Play Creators on Facebook
 
  To help creators in the Reels Play program keep track of how their Reels are performing, Facebook is introducing insights designed specifically for this program.
@@ -97,6 +104,13 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
  Similar to Instagram insights for Reels and Live video, creators will be able to see how many times their eligible Reels were played within a given earning period by going to the Reels Play Bonus Insight page on Facebook.
 
  This will help them gauge how many more plays they need to earn for a particular challenge to progress to the next one and continue earning.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Meta Is Increasing Earning Opportunities for Creators
 
@@ -117,5 +131,24 @@ thumbnail: https://thmb.techidaily.com/a2ae0e9b349bfae6598135f3a2f084fcd5a624b33
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/rafting-success-on-youtube-standard-studio-or-beta-for-2024/"><u>[New] Crafting Success on YouTube Standard Studio or Beta for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-photobooth-frustration-unfreezing-video-playback/"><u>[Updated] 2024 Approved Photobooth Frustration Unfreezing Video Playback</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-ten-skype-capture-devices-reviewed/"><u>[Updated] Top Ten Skype Capture Devices Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-dynamic-subscriber-buttons-for-video-creators-filmora-edition/"><u>2024 Approved Dynamic Subscriber Buttons for Video Creators - Filmora Edition</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-curators-guide-to-this-years-most-riveting-podcast-episodes/"><u>A Curator's Guide to This Year's Most Riveting Podcast Episodes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/bing-launches-advanced-ai-search-on-mobile-devices-available-for-android-and-ios/"><u>Bing Launches Advanced AI Search on Mobile Devices: Available for Android & iOS</u></a></li>
+<li><a href="https://facebook.techidaily.com/fbs-commitment-to-privacy-when-will-we-see-encrypted-chats/"><u>FB's Commitment to Privacy: When Will We See Encrypted Chats?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-show-wi-fi-password-on-zte-by-drfone-android/"><u>How to Show Wi-Fi Password on ZTE</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-your-apple-iphone-se-from-your-apple-id-by-drfone-ios/"><u>In 2024, How To Unlink Your Apple iPhone SE From Your Apple ID</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-apple-iphone-12-mini-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of Apple iPhone 12 mini Prevention & Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebook-business-page-removal-guide/"><u>Mastering Facebook Business Page Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-page-administration-selecting-admins/"><u>Navigating Page Administration - Selecting Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/revelation-on-platform-whistleblower-spills-secrets/"><u>Revelation on Platform: Whistleblower Spills Secrets</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-conversations-the-countdown-for-fb-messengers-e2ee/"><u>Securing Your Conversations: The Countdown for FB Messenger's E2EE</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-dichotomy-of-connection-and-loneliness-on-facebook/"><u>The Dichotomy of Connection and Loneliness on Facebook</u></a></li>
+<li><a href="https://games-able.techidaily.com/understanding-how-playstation-5-handles-previous-titles/"><u>Understanding How PlayStation 5 Handles Previous Titles</u></a></li>
+</ul></div>
 

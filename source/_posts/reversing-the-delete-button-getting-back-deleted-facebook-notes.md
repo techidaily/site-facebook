@@ -1,7 +1,7 @@
 ---
 title: "Reversing the Delete Button: Getting Back Deleted Facebook Notes"
-date: 2024-09-20T00:41:30.441Z
-updated: 2024-09-21T20:12:30.016Z
+date: 2024-09-26T16:47:29.412Z
+updated: 2024-09-28T16:33:51.675Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,32 @@ If you're using the Facebook app, follow these steps:
 
 ![screenshot showing facebook profile page on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-profile-page-on-facebook-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook profile settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-profile-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screenshot showing facebook archive page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-archive-page-on-mobile.jpg)
 
 ![screenshot showing facebook thrash page on mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-facebook-thrash-page-on-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100542/7443" target="_top" id="2100542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -60,13 +81,6 @@ Close
 
 This will restore the post for you.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Recover Deleted Posts on the Facebook Website
 
  The process for recovering deleted posts on the Facebook website is similar to that of the Android app, although the icon placement may differ a little.
@@ -79,26 +93,13 @@ This will restore the post for you.
 ![screenshot showing archive page on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-archive-page-on-facebook.JPG)
 5. Find the post you want to recover, click on the**ellipsis** beside it, then select**Restore to profile** .  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![screenshot showing thrash page on facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/screenshot-showing-thrash-page-on-facebook-web.JPG)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Difference Between Deleting and Archiving a Facebook Post
@@ -106,6 +107,13 @@ This will restore the post for you.
  It's important to note that there is a difference between deleting and archiving a Facebook post. Deleting a Facebook post moves it from your profile page to your trash folder, where it stays for 30 days before it's permanently deleted.
 
  Archiving a Facebook post means that it's hidden from your profile page and sent to your archive folder, where it stays indefinitely until you unarchive it or delete it. Our article on[how to archive Facebook posts](http://www.makeuseof.com/hide-facebook-posts-from-everyone-using-archive-feature/) covers how the archive feature works in detail.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can't Find Your Post in the Trash Folder?
 
@@ -134,5 +142,26 @@ This will restore the post for you.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/-20-second-symphony-understanding-musics-compact-formats/"><u>[New] A 20-Second Symphony Understanding Music's Compact Formats</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-apk-gaming-revolution-welcome-funimate-pro-android-edition-for-2024/"><u>[New] APK Gaming Revolution Welcome Funimate Pro Android Edition for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-focusing-on-content-reach-sharing-igtv-across-platforms-for-2024/"><u>[Updated] Focusing on Content Reach Sharing IGTV Across Platforms for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigating-the-complexities-of-photo-hdr-in-photoshop/"><u>[Updated] Navigating the Complexities of Photo-HDR in Photoshop</u></a></li>
+<li><a href="https://facebook.techidaily.com/6-simple-steps-for-stellar-online-portrayals/"><u>6 Simple Steps for Stellar Online Portrayals</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-dialogues-redefined-identifying-4-major-changes-in-networks/"><u>Digital Dialogues Redefined: Identifying 4 Major Changes in Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disconnect-considerations-for-a-smooth-social-exodus/"><u>Digital Disconnect: Considerations for a Smooth Social Exodus</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-backgrounders-to-bannermen-elevating-your-fb-group/"><u>From Backgrounders to Bannermen: Elevating Your FB Group</u></a></li>
+<li><a href="https://network-issues.techidaily.com/hdmi-link-fails-television-refuses-display-feed/"><u>HDMI Link Fails: Television Refuses Display Feed</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-oneplus-ace-2v-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to OnePlus Ace 2V Phones? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-vivo-y27s-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Vivo Y27s phone? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-zte-nubia-z60-ultra-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of ZTE Nubia Z60 Ultra Phone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Realme V30T? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/no-more-expenses-master-social-accounts-with-these-top-10-tools/"><u>No More Expenses? Master Social Accounts with These Top 10 Tools</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/overcoming-issues-with-fraps-what-to-do-when-it-halts-capture/"><u>Overcoming Issues with Fraps: What to Do When It Halts Capture?</u></a></li>
+<li><a href="https://facebook.techidaily.com/past-vs-present-a-reevaluation-of-the-impact-of-facebook-investigations/"><u>Past vs Present: A Reevaluation of The Impact of Facebook Investigations</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-vr-identity-meta-vs-facebook-compared/"><u>Protect Your VR Identity: Meta Vs. Facebook Compared</u></a></li>
+<li><a href="https://facebook.techidaily.com/ranking-safe-digital-connections/"><u>Ranking Safe Digital Connections</u></a></li>
+<li><a href="https://facebook.techidaily.com/spot-stop-and-secure-yourself-from-these-14-social-network-tricks/"><u>Spot, Stop and Secure Yourself From These 14 Social Network Tricks</u></a></li>
+</ul></div>
 

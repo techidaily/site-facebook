@@ -1,7 +1,7 @@
 ---
 title: "Social Messaging on the Rise: Facebook Boosts Messenger & Instagram Tools"
-date: 2024-09-19T00:31:50.766Z
-updated: 2024-09-21T19:50:45.675Z
+date: 2024-09-26T16:12:32.638Z
+updated: 2024-09-28T16:03:57.430Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
 
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hands-Free Audio Messaging in Messenger
 
  Facebook acknowledged the popularity of audio messaging on Messenger and to make it easier, it has added a tap-to-record feature. Using this, users will no longer have to hold down the record button when sending audio messages.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/b7fdec82e5e2a50f89b07a18bb64e205705f93d78
  Facebook states that this new feature will allow users to focus on other tasks while simultaneously recording an audio message.
 
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## New Inbox Management Features
 
@@ -69,12 +83,24 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-unleash-your-inner-videographer-with-these-4-methods-on-xbox-for-2024/"><u>[New] Unleash Your Inner Videographer with These 4 Methods on Xbox for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-shorts-guide-what-is-it-and-how-to-make-shorts-video/"><u>[New] YouTube Shorts Guide What Is It and How To Make Shorts Video?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-innovators-amalgamating-photography-plus-music-into-videography-for-2024/"><u>[Updated] Innovators Amalgamating Photography + Music Into Videography for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ving-a-million-on-the-map-a-strategic-view-to-sub-guide-for-2024/"><u>Achieving a Million on the Map A Strategic View-to-Sub Guide for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/crafting-your-digital-gallery-diy-photo-collage-tips/"><u>Crafting Your Digital Gallery: DIY Photo Collage Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-your-facebooks-past-conversations/"><u>Delving Into Your Facebook's Past Conversations</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-textual-interactions-embrace-soundmojis-in-messenger/"><u>Elevate Your Textual Interactions: Embrace Soundmojis in Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-risks-3-worrying-factors-of-metaverse/"><u>Examining Risks: 3 Worrying Factors of Metaverse</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-infinix-smart-7-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Infinix Smart 7 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/neat-scanner-drivers-issues-in-windows-solved/"><u>Neat Scanner Drivers Issues in Windows [Solved]</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/ps3-experience-on-pc-leading-emulators-guide/"><u>PS3 Experience on PC Leading Emulators Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-latest-watches-in-facebook/"><u>Quick Guide to Latest Watches in Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-your-social-media-account-post-code-mishap/"><u>Recovering Your Social Media Account, Post-Code Mishap</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-digital-identity-with-2fa-focus-on-gmail-and-outlook/"><u>Securing Digital Identity with 2FA - Focus on Gmail and Outlook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/snap-happy-with-hero5-black-tips-for-stunning-visuals-for-2024/"><u>Snap-Happy with Hero5 Black Tips for Stunning Visuals for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamline-your-images-in-canva-without-clutter-for-2024/"><u>Streamline Your Images in Canva Without Clutter for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-social-media-governance-facebooks-latest-policies-hub/"><u>Unveiling Social Media Governance: Facebook's Latest Policies Hub</u></a></li>
+</ul></div>
 

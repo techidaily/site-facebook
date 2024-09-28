@@ -1,7 +1,7 @@
 ---
 title: Platform Policies on Display in New Facebook Governance Center
-date: 2024-09-19T00:58:09.474Z
-updated: 2024-09-21T23:54:59.246Z
+date: 2024-09-23T17:20:00.523Z
+updated: 2024-09-28T16:18:04.241Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/0b81880445efb7746c34685a24a5e53155bfff0ac
 
  A spokesperson for Facebook said "We’ll continue to add more information and build out the Transparency Center as our integrity efforts continue to evolve". From this, it seems clear that Facebook is taking the Center seriously and will continue to update it over time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook's New Focus on Transparency
 
  With the release of the Transparency Center, it appears that Facebook has a new focus on transparency and is taking it seriously.
@@ -59,18 +66,21 @@ thumbnail: https://thmb.techidaily.com/0b81880445efb7746c34685a24a5e53155bfff0ac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-foremost-editing-software-for-mobile-creations-for-2024/"><u>[New] Foremost Editing Software for Mobile Creations for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-essential-errors-to-dodge-beginner-youtubers-guide/"><u>2024 Approved Essential Errors to Dodge Beginner YouTuber's Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-xiaomi-redmi-k70-pro-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Xiaomi Redmi K70 Pro Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/alternative-communication-tools-stepping-away-from-fb-messenger/"><u>Alternative Communication Tools: Stepping Away From FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-facebook-outage-rationale/"><u>Decoding Your Facebook Outage Rationale</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-remnrances-without-fbs-presence/"><u>Digital Remnrances Without FB’s Presence</u></a></li>
+<li><a href="https://driver-download.techidaily.com/free-download-corsair-icue-software-compatible-with-windows-11-and-10/"><u>Free Download: Corsair iCUE Software Compatible with Windows 11 & 10</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/from-novice-to-pro-a-comprehensive-guide-to-using-audacity-on-a-mac/"><u>From Novice to Pro A Comprehensive Guide to Using Audacity on a Mac</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-framefinder-focus-top-recording-software-of-2023/"><u>In 2024, FrameFinder Focus Top Recording Software of 2023</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-universalaccess-tv-diverse-channels-with-a-local-twist/"><u>In 2024, UniversalAccess TV Diverse Channels with a Local Twist</u></a></li>
+<li><a href="https://facebook.techidaily.com/leverage-languages-boosting-social-media-presence-on-facebook/"><u>Leverage Languages: Boosting Social Media Presence on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-digital-personas-set-to-revolutionize-vr/"><u>Tailored Digital Personas Set to Revolutionize VR</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unleash-audio-potential-free-download-and-installation-guide-for-m-audio-fast-track-ultradriver/"><u>Unleash Audio Potential: Free Download and Installation Guide for M-Audio Fast Track UltraDriver</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-fake-deals-avoiding-phony-propositions-on-fb-marketplace/"><u>Unmasking Fake Deals: Avoiding Phony Propositions on FB Marketplace</u></a></li>
+</ul></div>
 

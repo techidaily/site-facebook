@@ -1,7 +1,7 @@
 ---
 title: How Does PhotoDNA Detect Illegal Images?
-date: 2024-09-17T00:36:15.579Z
-updated: 2024-09-21T20:07:53.392Z
+date: 2024-09-21T16:55:02.364Z
+updated: 2024-09-28T16:35:13.746Z
 tags:
   - facebook
 categories:
@@ -56,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 
  Understandably, these plans received considerable backlash for appearing to violate the company's privacy-friendly stance, and many people worried that the scanning would gradually include non-CSAM, eventually leading to a backdoor for law enforcement.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does PhotoDNA Use Facial Recognition?
 
  These days, we're familiar enough with algorithms. These coded instructions show us relevant, interesting posts on our social media feeds, support facial recognition systems, and even decide whether we get offered a job interview or get into college.
@@ -68,15 +75,22 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 
  Understandably, given the type of content PhotoDNA looks for, the effect of misidentification could be catastrophic. Fortunately, the system doesn't rely on facial recognition and can only find pre-identified images with a known hash.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Does Facebook Use PhotoDNA?
 
 ![Screenshot of a Facebook Security team post about PhotoDNA](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/Facebook_PhotoDNA_Post_Screenshot.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  As the owner and operator of the world's largest and most popular social networks, Facebook deals with a lot of user-generated content each day. Although it's hard to find reliable, current estimates,[analysis in 2013](https://www.businessinsider.com/facebook-350-million-photos-each-day-2013-9?IR=T) suggested that some 350 million images are uploaded to Facebook each day.
@@ -86,10 +100,16 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
  Fortunately, the company addressed this early on, opting into Microsoft's PhotoDNA service in 2011\. Since the announcement over a decade ago, there's been little data about how effective this has been. However,[91 percent](https://www.proxypreview.org/all-contributor-articles/2020/3/16/facebook-at-center-of-storm-over-child-sexual-exploitation-online) of all reports of CSAM in 2018 were from Facebook and Facebook Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Does PhotoDNA Make the Internet Safer?
@@ -113,5 +133,26 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-creating-high-impact-yt-cover-images/"><u>[New] In 2024, Creating High-Impact YT Cover Images</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-get-fb-videos-down-as-mp4-swiftly-and-simply/"><u>[Updated] In 2024, Get FB Videos Down as MP4 – Swiftly & Simply</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-vida-reimagined-editing-revolution-unveiled/"><u>[Updated] In 2024, Vida Reimagined Editing Revolution Unveiled</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-step-by-step-customizing-your-youtube-channel-url-for-2024/"><u>[Updated] Step-by-Step Customizing Your YouTube Channel URL for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/avoid-infringement-checking-your-tiktok-content-for-rights/"><u>Avoid Infringement Checking Your TikTok Content for Rights</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719154126491-broaden-your-reach-upload-fb-material-to-popular-app-platforms-now/"><u>Broaden Your Reach: Upload Fb Material to Popular App Platforms Now</u></a></li>
+<li><a href="https://facebook.techidaily.com/connectivity-peak-wnbas-online-strategy-via-social/"><u>Connectivity Peak: WNBA's Online Strategy via Social</u></a></li>
+<li><a href="https://games-able.techidaily.com/decode-the-language-labyrinth-with-nyts-latest-puzzle-thriller-strands/"><u>Decode the Language Labyrinth with NYT's Latest Puzzle Thriller - 'Strands'</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-new-district-arrangements/"><u>Exploring Facebook's New District Arrangements</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guide-de-conversion-gratuite-dh2eamr4-en-h265-reduction-optimisee-de-la-taille-et-preservation-de-la-quality/"><u>Guide De Conversion Gratuite D'H.2eamr4 en H.265 : Réduction Optimisée De La Taille Et Préservation De La Quality</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-publicize-positions-online-facebook/"><u>How to Publicize Positions Online - Facebook</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-leveraging-video-features-annotations-and-cards/"><u>In 2024, Leveraging Video Features Annotations & Cards</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/incredible-trend-trackers-monitor-highest-youtube-spots-for-2024/"><u>Incredible Trend Trackers Monitor Highest YouTube Spots for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-friend-inquiry-utilizing-messengers-polls/"><u>Mastering Friend Inquiry: Utilizing Messenger's Polls</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-use-of-facebooks-shield-against-threats/"><u>Mastering the Use of Facebook’s Shield Against Threats</u></a></li>
+<li><a href="https://facebook.techidaily.com/mindfulness-in-motion-understanding-instagrams-break-initiative/"><u>Mindfulness in Motion: Understanding Instagram’s Break Initiative</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premier-tips-for-capturing-the-excitement-of-online-cricket-matches/"><u>Premier Tips for Capturing the Excitement of Online Cricket Matches</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-americas-fresh-approach-to-technology-monopoly/"><u>Understanding America's Fresh Approach to Technology Monopoly</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-do-i-sight-these-certain-online-promotions/"><u>Why Do I Sight These Certain Online Promotions?</u></a></li>
+</ul></div>
 

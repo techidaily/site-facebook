@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Archive Blueprint for Facebook History
-date: 2024-09-16T01:17:33.147Z
-updated: 2024-09-22T01:30:10.179Z
+date: 2024-09-27T16:17:07.150Z
+updated: 2024-09-28T16:45:57.839Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/e04a9e5f3764ad02106bedbd9d5d7455103ba0386
 
 ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
 1. Log in to[Facebook.com](http://www.facebook.com) .
@@ -69,10 +76,10 @@ When it does arrive, your data will be delivered in a ZIP archive.
  Related: [How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Exploring Your Downloaded Facebook Data
@@ -80,6 +87,13 @@ When it does arrive, your data will be delivered in a ZIP archive.
  Once you've downloaded your ZIP file, extract it and you'll see a basic folder hierarchy that matches up with the items you selected or deselected earlier. You're free to trawl through these folders, but it's a lot easier to open**index.html** or**index** in the root folder.
 
 ![Facebook data download folders](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-folders.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can click on individual sections to see the information contained within them, in chronological order. You can click your name in the top-right corner if you want to head back to the index.
 
@@ -93,19 +107,6 @@ Other downloadable datasets include:
 * **Messages:** Including those you thought you'd deleted.
 * **Friends:** Including juicy categories like **Rejected friend requests** and **Removed friends** you'd forgotten about.
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What's Not Included in Downloaded Facebook Data?
 
  Facebook doesn't give away everything it knows about you, just the things you've explicitly shared. There are some limited advertising flags, like your broader interests and adverts you've interacted with; but these don't tell the whole story.
@@ -113,6 +114,13 @@ Other downloadable datasets include:
 [ProPublica](https://www.propublica.org/article/facebook-doesnt-tell-users-everything-it-really-knows-about-them) identified over 52,000 unique "attributes" Facebook uses to classify its users. Most of these metrics do not appear in the Ad Interests section of your Facebook download.
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
@@ -132,14 +140,14 @@ Other downloadable datasets include:
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Downloading private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) is a little more difficult, since you'll need to grab the page source code and paste it into a specific private video downloader.[FBDown Private Video Downloader](https://www.fbdown.net/private-downloader.php) seems like the best bet in this instance.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is It Time to Delete Facebook?
 
@@ -162,5 +170,21 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-broadcasters-dilemma-opt-for-wirecast-or-obs/"><u>[New] In 2024, Broadcaster's Dilemma Opt for Wirecast or OBS?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-5-steps-to-crafting-engaging-cost-effective-youtube-ads-for-2024/"><u>[Updated] 5 Steps to Crafting Engaging, Cost-Effective YouTube Ads for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-easy-to-understand-copywriting-tactics-for-fb-campaigns/"><u>[Updated] Easy-to-Understand Copywriting Tactics for FB Campaigns</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-three-easy-iphone-methods-for-integrating-songs-into-videos/"><u>[Updated] In 2024, Three Easy iPhone Methods for Integrating Songs Into Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-interactive-insights-archive/"><u>[Updated] Interactive Insights Archive</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-thriving-in-live-streaming-mastery-through-onestream-use/"><u>[Updated] Thriving in Live Streaming Mastery Through OneStream Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-news-feed-a-new-era-simplified/"><u>Facebook's News Feed: A New Era Simplified</u></a></li>
+<li><a href="https://driver-install.techidaily.com/hd5770radeondriverwin11/"><u>HD5770RadeonDriverWin11</u></a></li>
+<li><a href="https://facebook.techidaily.com/imminent-facebook-upgrade-introducing-reels-and-rooms-to-stories/"><u>Imminent Facebook Upgrade: Introducing Reels and Rooms to Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150861372-join-facebooks-metaverse-creation-seeking-10k-talents/"><u>Join Facebook's Metaverse Creation - Seeking 10K Talents</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-your-emails-mastery-of-2fa-on-gmail-outlook-and-similar-providers/"><u>Safeguarding Your Emails: Mastery of 2FA on Gmail, Outlook & Similar Providers</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solving-halo-infinite-connection-issues-what-to-do-when-you-get-a-no-ping-to-our-data-centers-detected-error/"><u>Solving 'Halo Infinite' Connection Issues: What to Do When You Get a 'No Ping To Our Data Centers Detected' Error</u></a></li>
+<li><a href="https://facebook.techidaily.com/speak-stylized-not-bulk-essential-smart-words-for-effective-communication/"><u>Speak Stylized, Not Bulk: Essential SMART Words for Effective Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-privacy-at-risk-detecting-facebook-hacks-early/"><u>Your Privacy at Risk? Detecting Facebook Hacks Early</u></a></li>
+</ul></div>
 

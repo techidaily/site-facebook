@@ -1,7 +1,7 @@
 ---
 title: "Unfollow Path: Severing Social Media Connections"
-date: 2024-09-19T00:34:30.732Z
-updated: 2024-09-21T22:38:20.288Z
+date: 2024-09-23T17:15:25.730Z
+updated: 2024-09-28T16:46:41.575Z
 tags:
   - facebook
 categories:
@@ -96,13 +96,6 @@ Here, you'll find three options.
 
  You don't have to maintain close interactions with all your Facebook friends. You can keep them at a safe distance without completely cutting them out of your digital life.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Taking a Break on Facebook
 
  If you decide it's time to reconnect normally with your friend, you can reverse the "Take a Break" action. Here's how to stop taking a break from someone on Facebook.
@@ -116,21 +109,28 @@ Here, you'll find three options.
 
 ![Name of freind to stop taking a break from](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/name-of-freind-to-stop-taking-a-break-from.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * You'll find a menu with a list of actions you can take to stop taking a break.
 * Click**Edit** beside each action. Firstly, click on**Edit** next to**You've chosen to see less of X** .
 
 ![Reversing you've chosen to see less of a person's post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/reversing-you-ve-chosen-to-see-less-of-a-person-s-post.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select**See X's profile anywhere on Facebook** and click on**Save** .
 
 ![See X's profile anywhere on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/see-x-s-profile-anywhere-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Click the back button in the top left corner of the Take a Break menu, and click**Edit** next to**Limit what X's profile will see.**
 * Select**No longer limit what X can see** and click**Save** .
@@ -138,16 +138,23 @@ Here, you'll find three options.
 ![No longer limit what a profile can see](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/no-longer-limit-what-a-profile-can-see.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Click the back button in the top left corner once again, and click**Edit** next to**Edit who can see past posts.**
 * Select**Keep all posts as they are** and click**Save** . Or**Edit all of my posts and posts that I'm tagged in** to edit posts on an individual basis.
 
 ![Keep all posts as they are](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/keep-all-posts-as-they-are.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With that done, you've successfully stopped taking a break from the friend. You should now see their updates normally.
 
@@ -166,5 +173,23 @@ Here, you'll find three options.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-aesir-clash-in-the-shadow-of-ragnarok-for-2024/"><u>[New] Aesir Clash In the Shadow of Ragnarok for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-precise-aural-link-the-casters-toolkit/"><u>[New] Precise Aural Link The Caster's Toolkit</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-professional-thumbnails-for-engaging-igtv-posts/"><u>[New] Professional Thumbnails for Engaging IGTV Posts</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-the-most-reliable-free-screen-capture-apps-for-mac-for-2024/"><u>[New] The Most Reliable Free Screen Capture Apps for Mac for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-obs-versus-streamlabs-the-live-stream-software-duel/"><u>[Updated] 2024 Approved OBS Versus Streamlabs – The Live Stream Software Duel</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-cross-platform-hulu-playback-mastery-a-how-to-guide-for-2024/"><u>[Updated] Cross-Platform Hulu Playback Mastery - A How-To Guide for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-the-impact-of-freesync-on-lgs-ultra-hd-monitors-27uhd68/"><u>2024 Approved The Impact of FreeSync on LG's Ultra HD Monitors (27UHD68)</u></a></li>
+<li><a href="https://facebook.techidaily.com/authenticity-arena-vying-for-the-top-in-verified-metas-and-blue-ticks/"><u>Authenticity Arena: Vying for the Top in Verified Metas and Blue Ticks</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-scenes-sheryls-contributions-to-facebook/"><u>Behind the Scenes: Sheryl's Contributions to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/finding-out-how-old-my-virtual-persona-really-is/"><u>Finding Out: How Old My Virtual Persona Really Is</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>How to Fix Pokemon Go Route Not Working On Motorola Razr 40? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-taking-the-plunge-a-stepwise-strategy-to-set-up-your-personal-tech-review-platform/"><u>In 2024, Taking the Plunge A Stepwise Strategy to Set Up Your Personal Tech Review Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/latest-watches-on-facebook-unveiled/"><u>Latest Watches on Facebook Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-for-refreshing-info-on-your-little-ones-messengers/"><u>Steps for Refreshing Info on Your Little One’s Messengers</u></a></li>
+<li><a href="https://facebook.techidaily.com/where-to-avoid-facebook-websites-top-3-places/"><u>Where to Avoid Facebook Websites: Top 3 Places</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-metas-full-implementation-of-e2e-encryption-delayed-to-next-year/"><u>Why Meta's Full Implementation of E2E Encryption Delayed to Next Year</u></a></li>
+</ul></div>
 

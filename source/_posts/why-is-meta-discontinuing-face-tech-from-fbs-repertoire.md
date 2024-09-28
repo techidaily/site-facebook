@@ -1,7 +1,7 @@
 ---
 title: Why Is Meta Discontinuing Face Tech From FB's Repertoire?
-date: 2024-09-17T23:10:32.689Z
-updated: 2024-09-22T00:33:16.037Z
+date: 2024-09-22T17:19:54.301Z
+updated: 2024-09-28T16:00:54.987Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/61e5e75a143019f7f7c8689be3de97fce55d395ac
 
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is Meta Disabling Facial Recognition on Facebook?
 
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
 
@@ -55,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/61e5e75a143019f7f7c8689be3de97fce55d395ac
  At the time of writing, Meta is battling yet another major controversy after whistleblower, Frances Haugen, released[internal documents dubbed “the Facebook papers”](https://www.makeuseof.com/what-are-facebook-papers/) alleging that Facebook prioritizes profits over truth.
 
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
 
@@ -79,12 +100,21 @@ thumbnail: https://thmb.techidaily.com/61e5e75a143019f7f7c8689be3de97fce55d395ac
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-excellent-8-tripods-ideal-for-4k-camera-shooting/"><u>[New] In 2024, Excellent 8 Tripods Ideal for 4K Camera Shooting</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-most-innovative-metaverse-visors-and-wearables/"><u>[New] Unveiling the Most Innovative Metaverse Visors & Wearables</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-how-to-save-powerpoint-presentation-as-video-on-windows-and-mac-os/"><u>[Updated] In 2024, How to Save PowerPoint Presentation as Video on Windows and Mac OS</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-complete-guide-to-enthralling-boomers-on-snapchat/"><u>[Updated] In 2024, The Complete Guide to Enthralling Boomers on Snapchat</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pioneering-image-editing-with-toolwiz-a-compre-written-review/"><u>2024 Approved Pioneering Image Editing with Toolwiz – A Compre Written Review</u></a></li>
+<li><a href="https://win-forum.techidaily.com/gratuit-online-konvertent-wav-van-w64-met-movavi-efficient-en-gemakkelijk/"><u>Gratuit Online Konvertent WAV Van W64 Met Movavi - Efficiënt en Gemakkelijk</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-regulation-shake-up-us-strategies-to-dismantle-tech-goliaths/"><u>Impending Regulation Shake-Up: U.S. Strategies to Dismantle Tech Goliaths</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/inside-look-at-the-forthcoming-google-occasion-news-rumors-and-official-announcements/"><u>Inside Look at the Forthcoming Google Occasion - News, Rumors, and Official Announcements</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-web-smartly-unveiling-the-next-generation-of-microsoft-bings-ai-search-experience/"><u>Navigating the Web Smartly: Unveiling the Next Generation of Microsoft Bing's AI Search Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-psychological-advancements-isbms-innovative-cbt-approach/"><u>Pioneering Psychological Advancements: ISBM's Innovative CBT Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/portal-go-facebooks-move-towards-mobile-accessibility/"><u>Portal Go: Facebook's Move Towards Mobile Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplified-feed-selection-a-new-era-of-personalized-content/"><u>Simplified Feed Selection - A New Era of Personalized Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-definitive-manual-for-gathering-all-past-facebook-data/"><u>The Definitive Manual for Gathering All Past Facebook Data</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-your-intel-integrated-graphics-on-windows-get-fresh-drivers-now/"><u>Update Your Intel Integrated Graphics on Windows: Get Fresh Drivers Now!</u></a></li>
+</ul></div>
 

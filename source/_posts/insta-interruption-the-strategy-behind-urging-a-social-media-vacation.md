@@ -1,7 +1,7 @@
 ---
 title: "Insta-Interruption: The Strategy Behind Urging a Social Media Vacation"
-date: 2024-09-19T17:53:59.892Z
-updated: 2024-09-21T19:33:19.171Z
+date: 2024-09-26T17:15:51.030Z
+updated: 2024-09-28T16:35:55.706Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
 
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Instagram Wants You to "Take a Break"
 
  Meta has been facing increasing pressure from lawmakers to make its apps safer for users' mental health.
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
  Haugen's claims added weight to those claims as she worked for the company and witnessed what she did firsthand.
 
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
 
@@ -75,12 +89,20 @@ thumbnail: https://thmb.techidaily.com/b1dd0483f32a09412f335f94508f9f7301d5aa196
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-ultimate-streamlabs-obs-setup-and-configuration-manual/"><u>[Updated] In 2024, Ultimate Streamlabs OBS Setup and Configuration Manual</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-upside-down-up-in-popularity-the-instagram-way-for-2024/"><u>[Updated] Upside Down, Up in Popularity The Instagram Way for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2023s-finest-top-ps3-game-simulations-for-pc-users-for-2024/"><u>2023'S Finest - Top PS3 Game Simulations for PC Users for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/comprehensive-guide-downloading-and-updating-windows-audio-card-drivers/"><u>Comprehensive Guide: Downloading and Updating Windows Audio Card Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-ceo-welcomes-new-chief-after-everson-departs/"><u>FB CEO Welcomes New Chief After Everson Departs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-successfully-upgrade-netgear-a610-wireless-adapter-drivers-on-microsoft-windows-operating-systems/"><u>How to Successfully Upgrade Netgear A61^0 Wireless Adapter Drivers on Microsoft Windows Operating Systems</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/in-2024-mastering-sound-integrating-audio-with-visuals-in-film-production/"><u>In 2024, Mastering Sound Integrating Audio with Visuals in Film Production</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-smartphone-and-computer-movie-logging-made-easy/"><u>In 2024, Smartphone & Computer Movie Logging Made Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-facebook-in-charge-myth-busting-the-metaverse/"><u>Is Facebook In Charge? Myth-Busting the Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-uprising-activist-movements-shake-up-social-app-ratings/"><u>One-Star Uprising: Activist Movements Shake Up Social App Ratings</u></a></li>
+<li><a href="https://facebook.techidaily.com/rest-in-peace-but-not-on-your-timeline-fb-guide/"><u>Rest in Peace, but Not on Your Timeline - FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-against-unknown-users-in-your-tech-world/"><u>Safeguard Against Unknown Users in Your Tech World</u></a></li>
+<li><a href="https://facebook.techidaily.com/tactical-approaches-to-hidden-facebook-accounts/"><u>Tactical Approaches to Hidden Facebook Accounts</u></a></li>
+</ul></div>
 

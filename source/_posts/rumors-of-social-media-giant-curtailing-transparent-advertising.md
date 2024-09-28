@@ -82,19 +82,5 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-basic-recorder-your-windows-10-companion/"><u>[New] 2024 Approved Basic Recorder - Your Windows 10 Companion</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-precision-video-capture-experts/"><u>[Updated] In 2024, Precision Video Capture Experts</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/detailed-solutions-to-correct-dsounddll-not-detected-mistakes/"><u>Detailed Solutions to Correct dsound.dll Not Detected Mistakes</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-is-unlocking-oculus-go-root-access-what-this-means-for-owners/"><u>Facebook Is Unlocking Oculus Go Root Access: What This Means for Owners</u></a></li>
-<li><a href="https://facebook.techidaily.com/focusing-your-online-narrative-for-success-on-professional-networks-like-fb/"><u>Focusing Your Online Narrative for Success on Professional Networks Like FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/future-of-music-and-networks-facebooks-boombox-project-with-spotify/"><u>Future of Music & Networks: Facebook's Boombox Project with Spotify</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-fix-error-msresouce-and-apptext-on-w11-os/"><u>How to Fix Error: MsResouce and AppText on W11 OS</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-cultivating-excellence-the-best-seed-strategy-in-valheim/"><u>In 2024, Cultivating Excellence The Best Seed Strategy in Valheim</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-samsung-galaxy-m54-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/insightful-analysis-of-all-your-social-interactions-on-facebook/"><u>Insightful Analysis of All Your Social Interactions on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-visual-impact-crafting-fb-backgrounds/"><u>Social Media Visual Impact: Crafting Fb Backgrounds</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/vidmas-advantages-in-digital-video-recording-unpacked-for-2024/"><u>Vidma’s Advantages in Digital Video Recording Unpacked for 2024</u></a></li>
-</ul></div>
+
 

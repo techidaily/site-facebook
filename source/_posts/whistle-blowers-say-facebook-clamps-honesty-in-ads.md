@@ -77,19 +77,5 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-crafting-compelling-narratives-with-facebook-cover-vids-for-2024/"><u>[New] Crafting Compelling Narratives with Facebook Cover Vids for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-monetary-gains-mr-beast-in-focus/"><u>[New] Monetary Gains Mr. Beast in Focus</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-perfect-presentation-powerpoint-recordings-on-webcam-for-2024/"><u>[New] Perfect Presentation PowerPoint Recordings on Webcam for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-starting-point-connecting-seamlessly-via-instagram/"><u>[Updated] Starting Point Connecting Seamlessly via Instagram</u></a></li>
-<li><a href="https://fox-http.techidaily.com/complete-preview-control-essentials-for-mac-users-for-2024/"><u>Complete Preview Control Essentials for Mac Users for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/creating-customized-secure-fitness-plans-with-chatgpt/"><u>Creating Customized, Secure Fitness Plans with ChatGPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-copycat-scams-a-brief-overview/"><u>Facebook Copycat Scams: A Brief Overview</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/in-2024-what-is-an-ai-presentation-maker/"><u>In 2024, What Is an AI Presentation Maker?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/keeping-industrial-communication-private-with-gpt/"><u>Keeping Industrial Communication Private with GPT</u></a></li>
-<li><a href="https://facebook.techidaily.com/shaping-your-digital-face-on-facebook/"><u>Shaping Your Digital Face on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-best-calendar-software-for-social-media-consistency/"><u>The Best Calendar Software for Social Media Consistency</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-facebooks-recent-user-drop/"><u>Understanding Facebook's Recent User Drop</u></a></li>
-</ul></div>
+
 

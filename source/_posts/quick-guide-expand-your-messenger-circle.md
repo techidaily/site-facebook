@@ -132,14 +132,5 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-revamp-your-channels-smart-tips-for-yt-profiles/"><u>[Updated] Revamp Your Channels Smart Tips for YT Profiles</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-master-the-art-of-photo-editing-with-snapseed/"><u>2024 Approved Master the Art of Photo Editing with Snapseed</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-user-interactions-with-a-focus-on-news-streams/"><u>Exploring User Interactions with a Focus on News Streams</u></a></li>
-<li><a href="https://facebook.techidaily.com/resurrect-the-inactive-restore-your-facebook-experience/"><u>Resurrect the Inactive: Restore Your Facebook Experience</u></a></li>
-<li><a href="https://facebook.techidaily.com/revolutionizing-connectivity-what-to-expect-from-fbs-boombox-with-spotify/"><u>Revolutionizing Connectivity: What to Expect From FB's Boombox With Spotify</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/simplifying-macs-screen-recording-a-shortcut-hack-manual/"><u>Simplifying Mac's Screen Recording A Shortcut Hack Manual</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-strategies-for-changing-song-pace-on-spotify-app/"><u>Top Strategies for Changing Song Pace on Spotify App</u></a></li>
-</ul></div>
+
 

@@ -150,15 +150,5 @@ In the future, the metaverse will encompass much more than games.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/dynamic-ppt-leveraging-voice-for-effective-delivery/"><u>Dynamic PPT Leveraging Voice for Effective Delivery</u></a></li>
-<li><a href="https://facebook.techidaily.com/end-to-end-encryption-on-the-horizon-for-meta-set-for-23-implementation/"><u>End-to-End Encryption on the Horizon for Meta, Set for '23 Implementation</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/engaging-ways-to-use-time-with-podcast-tracks-for-2024/"><u>Engaging Ways to Use Time with Podcast Tracks for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/four-major-shifts-in-user-behavior-leading-to-decline-on-facebook/"><u>Four Major Shifts in User Behavior Leading to Decline on Facebook</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-boost-your-instagram-videos-watchability-and-speed/"><u>In 2024, Boost Your Instagram Videos' Watchability and Speed</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-xiaomi-redmi-12-easily-by-drfone-android/"><u>In 2024, How To Unlock a Xiaomi Redmi 12 Easily?</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-video-invitation-software-for-iphone-and-android-a-comprehensive-guide/"><u>New In 2024, Video Invitation Software for iPhone and Android A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/scheduling-for-maximum-fb-traffic/"><u>Scheduling for Maximum Fb Traffic</u></a></li>
-</ul></div>
+
 

@@ -132,16 +132,5 @@ So how can you delete old messages on Messenger?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-embrace-the-world-of-video-design-in-xp/"><u>[New] 2024 Approved Embrace the World of Video Design in XP</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-bring-your-videos-to-life-the-magic-of-cartoon-conversion-explained/"><u>In 2024, Bring Your Videos to Life The Magic of Cartoon Conversion Explained</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://network-issues.techidaily.com/mitigating-phosphor-flash-interruptions/"><u>Mitigating Phosphor Flash Interruptions</u></a></li>
-<li><a href="https://extra-information.techidaily.com/revolutionizing-online-content-the-power-of-time-stamps/"><u>Revolutionizing Online Content The Power of Time-Stamps</u></a></li>
-<li><a href="https://facebook.techidaily.com/shut-down-all-fb-notification-mechanisms/"><u>Shut Down All FB Notification Mechanisms</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-mention-youth-use-in-social-media/"><u>Strategies to Mention Youth Use in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/user-generated-content-ownership-insight/"><u>User-Generated Content: Ownership Insight</u></a></li>
-<li><a href="https://facebook.techidaily.com/virtual-influence-sparking-conversations-in-your-fb-collective/"><u>Virtual Influence: Sparking Conversations in Your Fb Collective</u></a></li>
-</ul></div>
+
 

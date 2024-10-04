@@ -1,7 +1,7 @@
 ---
 title: When Can I Expect Facebook's E2EE to Secure My Messages?
-date: 2024-09-22T17:24:19.726Z
-updated: 2024-09-28T16:52:29.485Z
+date: 2024-09-27T23:31:04.410Z
+updated: 2024-10-03T22:40:34.981Z
 tags:
   - facebook
 categories:
@@ -33,16 +33,16 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
  However, Kent added that the work was a long-term project. At the earliest, users should expect the feature to be released in 2022.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Messenger Chats Are Yet to Be Encrypted
@@ -50,10 +50,10 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 ![Photo of the Facebook Messenger app logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/facebook-messenger-logo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing all Facebook users can attest to is how easy Messenger is to access; you can easily log into your account from any device with an internet connection. Facebook even allows you to log into your account on multiple devices simultaneously.
@@ -67,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
  Facebook’s drive to keep the platform easily accessible is why it is yet to offer end-to-end encryption by default on Messenger.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Be Worried About the Privacy of Your Messenger Chats?
@@ -94,18 +94,21 @@ thumbnail: https://thmb.techidaily.com/abdb55c9eafa10fcd1e5b6b8bcacd5ae781a152c8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-unleash-the-potential-of-video-marketing-on-facebook/"><u>[Updated] In 2024, Unleash the Potential of Video Marketing on Facebook</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-leap-into-the-tiktok-live-crowd-a-quick-guide/"><u>[Updated] Leap Into the TikTok Live Crowd A Quick Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazon-stands-firm-10k-fb-group-admin-accounts-targeted/"><u>Amazon Stands Firm: 10K FB Group Admin Accounts Targeted</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-recent-facebook-watches/"><u>Discovering Recent Facebook Watches</u></a></li>
-<li><a href="https://facebook.techidaily.com/harnessing-hashtags-for-prominence/"><u>Harnessing Hashtags for Prominence</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/high-tech-vr-handhelds-our-top-10-list/"><u>High-Tech VR Handhelds Our Top 10 List</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-a59-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo A59 5G to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nubia-red-magic-9-proplus-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nubia Red Magic 9 Pro+ Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-convenient-iphone-method-for-live-screen-capture/"><u>In 2024, Convenient iPhone Method for Live Screen Capture</u></a></li>
-<li><a href="https://facebook.techidaily.com/messenger-and-instagram-get-a-text-upgrade-with-fb-news/"><u>Messenger and Instagram Get a Text Upgrade with FB News</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-unyielding-nature-of-facebooks-content-advice/"><u>The Unyielding Nature of Facebook's Content Advice</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-step-by-step-instructions-for-resetting-your-macs-network-configuration/"><u>Ultimate Guide: Step-by-Step Instructions for Resetting Your Mac's Network Configuration</u></a></li>
-<li><a href="https://facebook.techidaily.com/unleash-the-full-power-of-facebook-with-these-crucial-configs/"><u>Unleash the Full Power of Facebook with These Crucial Configs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-quicker-scaling-ensure-perfect-youtubemac-ratios/"><u>[New] 2024 Approved Quicker Scaling Ensure Perfect Youtube/Mac Ratios</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-elevate-conference-calls-a-guide-to-10-cost-free-apps-for-2024/"><u>[New] Elevate Conference Calls A Guide to 10 Cost-Free Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-navigating-the-seo-landscape-top-keyword-research-instruments/"><u>[Updated] Navigating the SEO Landscape Top Keyword Research Instruments</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-bold-broadcasters-on-a-budget-youtube-live-not-1000plus-supporters/"><u>2024 Approved Bold Broadcasters on a Budget YouTube LIVE, Not 1000+ Supporters</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-from-hobbyist-to-pro-the-full-potential-of-sj-cam-s6/"><u>2024 Approved From Hobbyist to Pro The Full Potential of SJ-CAM S6</u></a></li>
+<li><a href="https://games-able.techidaily.com/dualsense-functionality-on-ps4-systems/"><u>DualSense Functionality on PS4 Systems?</u></a></li>
+<li><a href="https://facebook.techidaily.com/encode-your-digital-memories-on-facebook/"><u>Encode Your Digital Memories on Facebook</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-capturing-the-heart-of-sims-innovative-techniques-for-recording-realistic-gameplay/"><u>In 2024, Capturing the Heart of Sims Innovative Techniques for Recording Realistic Gameplay</u></a></li>
+<li><a href="https://facebook.techidaily.com/peeling-back-facebooks-hidden-user-drop/"><u>Peeling Back Facebook's Hidden User Drop</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-for-change-how-facebook-plans-to-modify-news-sphere/"><u>Platform for Change: How Facebook Plans to Modify News Sphere</u></a></li>
+<li><a href="https://facebook.techidaily.com/sneak-peek-at-facebooks-upcoming-identity-change/"><u>Sneak Peek at Facebook's Upcoming Identity Change</u></a></li>
+<li><a href="https://facebook.techidaily.com/tracing-the-path-of-googles-seminal-announcements/"><u>Tracing the Path of Google's Seminal Announcements</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/ultimate-timeline-tools-at-no-cost/"><u>Ultimate Timeline Tools at No Cost</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-adoption-of-high-tech-solutions-post-hacking-scandals/"><u>User Adoption of High-Tech Solutions Post Hacking Scandals</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/valkyrie-syn-240-aio-pc-chiller-review-exceptional-heat-dispersion-compromised-by-unrefined-user-interface/"><u>Valkyrie Syn 240 AIO PC Chiller Review – Exceptional Heat Dispersion Compromised by Unrefined User Interface</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-voyage-navigating-to-this-years-prime-online-gatherings/"><u>Virtual Voyage: Navigating to This Year's Prime Online Gatherings</u></a></li>
 </ul></div>
 

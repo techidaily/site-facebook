@@ -1,7 +1,7 @@
 ---
 title: "Textual Excellence in Messages: Beyond Basic Fonts"
-date: 2024-09-21T17:06:24.644Z
-updated: 2024-09-28T16:23:10.574Z
+date: 2024-09-29T18:05:42.524Z
+updated: 2024-10-03T21:13:30.085Z
 tags:
   - facebook
 categories:
@@ -38,13 +38,6 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
 ![Bold text demo Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/bold-text-demo-messenger.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To make a text bold, type an asterisk (\*) before and after the text. Bold text is most often used for strong emphasis on important phrases and keywords.
 
 ## How to Make Italic Text in Messenger
@@ -53,20 +46,27 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  To italicize text in Messenger, type an underscore (\_) before and after the text. Like bold font, italics are often used to draw attention to a certain detail. More commonly, italic font is used to highlight names, and foreign words, or when quoting dialogue.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Use Strikethrough Text in Messenger
 
 ![Text strike through in Messenger demo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/text-strike-through-in-messenger-demo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If you want to draw a line through your text on Messenger, you can use strikethrough formatting. To do this, type a tilde (\~) before and after the text.
 
  Strikethrough text is typically used to indicate text that is no longer valid or text that should be removed from a draft.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Use Monospace Text in Messenger
 
@@ -78,16 +78,16 @@ thumbnail: https://thmb.techidaily.com/64dd4d70d6e0441ce0215a5b5c562664b1c9c8864
 
  Many programmers prefer monospaced text because it makes long blocks or chunks of text easier to read.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Send Blocks of Code in Messenger
 
 ![Code block demo in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/code-block-demo-in-messenger.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Sending blocks of code in Messenger requires a little more work than the types of emphasis we've talked about so far. But don't worry, it's still relatively simple.
 
@@ -102,10 +102,10 @@ To send text in a block of code:
  This will send your text with code formatting. This is just one of the many[things you can do with Facebook Messenger](https://www.makeuseof.com/things-you-can-do-facebook-messenger-features/) .
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customize Your Facebook Messages With Text Formatting
@@ -129,22 +129,24 @@ To send text in a block of code:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-quick-fix-how-to-add-and-label-chapters-on-youtube-projects/"><u>[New] Quick Fix How to Add and Label Chapters on YouTube Projects</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-art-of-dual-careers-youtuber-and-full-time-employee/"><u>[Updated] The Art of Dual Careers YouTuber & Full-Time Employee</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-vlogging-topics-to-explore-now/"><u>2024 Approved Essential Vlogging Topics to Explore Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-the-cycle-how-to-stop-using-facebook-daily/"><u>Break the Cycle: How to Stop Using Facebook Daily</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/correct-monitor-rotation-for-win7/"><u>Correct Monitor Rotation for Win7</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-steps-for-protecting-your-social-media-login/"><u>Critical Steps for Protecting Your Social Media Login</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-facebooks-enhanced-privacy-hub-for-safer-browsing/"><u>Decoding Facebook’s Enhanced Privacy Hub for Safer Browsing</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-hashtags-to-happiness-posting-less-living-more/"><u>From Hashtags to Happiness: Posting Less, Living More</u></a></li>
-<li><a href="https://driver-download.techidaily.com/hassle-free-setup-acquiring-and-implementing-the-intel-wireless-ac-pertinent-driver/"><u>Hassle-Free Setup: Acquiring and Implementing the Intel Wireless-AC Pertinent Driver</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-explore-free-youtube-pic-themes/"><u>In 2024, Explore Free YouTube Pic Themes</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-poco-c65-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Poco C65 | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-unveiling-the-secrets-of-facebook-video-content-success/"><u>In 2024, Unveiling the Secrets of Facebook Video Content Success</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-get-final-cut-pro-for-less-take-advantage-of-educational-pricing-for-2024/"><u>New Get Final Cut Pro for Less Take Advantage of Educational Pricing for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-sexts-metas-proactive-measures-online/"><u>Securing Sexts: Meta’s Proactive Measures Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/steering-your-childs-online-journey-with-caution-on-facebook/"><u>Steering Your Child's Online Journey with Caution on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-how-fbcta-may-alter-your-web-trails/"><u>Understanding How FBCTA May Alter Your Web Trails</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-to-a-frozen-profile/"><u>Unlocking the Secrets to a Frozen Profile</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-comprehensive-insights-into-polarrs-photo-tools/"><u>[New] Comprehensive Insights Into Polarr's Photo Tools</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-captureking-high-definition-edition/"><u>[Updated] In 2024, CaptureKing High Definition Edition</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-profitable-content-creation-on-youtube-through-smart-adsense-use-for-2024/"><u>[Updated] Profitable Content Creation on YouTube Through Smart AdSense Use for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-vivo-t2-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Vivo T2 Pro 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-screencast-wisdom-key-facts-and-strategies/"><u>Expert Screencast Wisdom Key Facts and Strategies</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-restoring-functionality-to-your-broken-or-silent-headset-microphone/"><u>Expert Tips: Restoring Functionality to Your Broken or Silent Headset Microphone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/gasp-and-guffaw-10-instagram-pages-where-laughter-meets-tears-for-2024/"><u>Gasp & Guffaw 10 Instagram Pages Where Laughter Meets Tears for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/google-facebook-twitter-face-presidential-censorship-suit/"><u>Google, Facebook, Twitter Face Presidential Censorship Suit</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-facebook-two-factor-authentication-and-mobile-code-generator/"><u>How to Use Facebook Two-Factor Authentication and Mobile Code Generator</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-google-pixel-fold-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Google Pixel Fold Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-light-and-dark-shades-in-tech-world/"><u>Leading Light and Dark Shades in Tech World</u></a></li>
+<li><a href="https://techtrends.techidaily.com/live-streaming-made-easy-discover-the-power-of-manycam-webcam-software/"><u>Live Streaming Made Easy: Discover the Power of ManyCam Webcam Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-unknown-with-facebook-headlines/"><u>Navigating the Unknown with Facebook Headlines</u></a></li>
+<li><a href="https://facebook.techidaily.com/shield-your-identity-silent-posting-tactics/"><u>Shield Your Identity: Silent Posting Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-gatherings-of-freelance-professionals/"><u>Top 5 Gatherings of Freelance Professionals</u></a></li>
+<li><a href="https://facebook.techidaily.com/unblocking-recovering-lost-facebook-credentials/"><u>Unblocking: Recovering Lost Facebook Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-directs-the-social-media-empire-now/"><u>Who Directs the Social Media Empire Now?</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-unplugging-makes-you-happier-and-healthier/"><u>Why Unplugging Makes You Happier and Healthier</u></a></li>
 </ul></div>
 

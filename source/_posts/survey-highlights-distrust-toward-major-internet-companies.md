@@ -1,7 +1,7 @@
 ---
 title: Survey Highlights Distrust Toward Major Internet Companies
-date: 2024-09-24T17:22:57.061Z
-updated: 2024-09-28T16:57:21.375Z
+date: 2024-09-29T18:26:16.105Z
+updated: 2024-10-03T18:15:19.410Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -65,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -86,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -117,21 +117,20 @@ thumbnail: https://thmb.techidaily.com/c3d35b16437bab1ad5b7b686beca2df570e5510e7
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-speedyshot-echoloop-media/"><u>[New] 2024 Approved SpeedyShot EchoLoop Media</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-seamless-shifts-creating-timelapse-videos-on-samsung-devices/"><u>[New] Seamless Shifts Creating Timelapse Videos on Samsung Devices</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-unleash-potential-with-these-essential-editing-tips-for-beginners/"><u>[Updated] 2024 Approved Unleash Potential with These Essential Editing Tips for Beginners</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-immerse-in-hd-celestial-wonders-online/"><u>[Updated] Immerse in HD Celestial Wonders Online</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-in-2024-unlock-the-door-to-others-tiktok-lives/"><u>[Updated] In 2024, Unlock the Door to Others' TikTok Lives</u></a></li>
-<li><a href="https://facebook.techidaily.com/chronicling-googles-moments-that-shook-the-world/"><u>Chronicling Google's Moments That Shook the World</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-excess-enhancing-your-feed-focus/"><u>Cut the Excess: Enhancing Your Feed Focus</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-the-language-of-likes-reactions-and-more-in-fb/"><u>Decoding the Language of Likes, Reactions & More in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-facebooks-algorithmic-shift-toward-business-recommendations/"><u>Discovering Facebook's Algorithmic Shift Toward Business Recommendations</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-concept-to-celebration-structuring-fb-events/"><u>From Concept to Celebration: Structuring FB Events</u></a></li>
-<li><a href="https://fox-access.techidaily.com/harnessing-artificial-intelligence-for-insights-and-predictions-for-2024/"><u>Harnessing Artificial Intelligence for Insights and Predictions for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-poco-f5-pro-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Poco F5 Pro 5G FRP</u></a></li>
-<li><a href="https://facebook.techidaily.com/making-a-mark-with-high-res-images-on-facebook/"><u>Making a Mark with High-Res Images on Facebook</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/revolutionize-your-workflow-with-8-strategic-uses-for-gpt-automation-tools/"><u>Revolutionize Your Workflow with 8 Strategic Uses for GPT Automation Tools</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/scaling-down-macos-from-sierra-to-el-capitan-os-for-2024/"><u>Scaling Down MacOS From Sierra To El Capitan OS for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-networking-standards-right-to-suspend-trump-with-time-capsule/"><u>Social Networking Standards: Right to Suspend Trump, With Time Capsule</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-amplify-views-effortlessly-discovering-the-best-20-youtube-techniques-for-2024/"><u>[Updated] Amplify Views Effortlessly Discovering the Best 20 YouTube Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unlocking-igtv-videos-secure-downloading-techniques-for-computers/"><u>[Updated] In 2024, Unlocking IGTV Videos Secure Downloading Techniques for Computers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-next-gen-vr-accessories-your-must-have-guide/"><u>2024 Approved Next-Gen VR Accessories Your Must-Have Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-peering-into-mr-beasts-economic-landscape/"><u>2024 Approved Peering Into Mr. Beast's Economic Landscape</u></a></li>
+<li><a href="https://win-blog.techidaily.com/free-online-audio-converter-mp3-and-wav-formats-by-movavi/"><u>Free Online Audio Converter - MP3 & WAV Formats by Movavi</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-lava-storm-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Lava Storm 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-20c-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 20C Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Nokia C210? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-brand-strengths-the-case-for-using-company-pages/"><u>Leveraging Brand Strengths: The Case for Using Company Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-hidden-features-of-fb-messenger/"><u>Navigating the Hidden Features of FB Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/nbafoundry-integrating-facebooktwitter-for-watch-parties/"><u>NBAFoundry: Integrating Facebook/Twitter for Watch Parties</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-user-forgot-code-regain-entry-to-facebook/"><u>New User, Forgot Code! - Regain Entry to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/opt-out-methods-to-lessen-precision-marketing-in-cyberspace/"><u>Opt-Out Methods to Lessen Precision Marketing in Cyberspace</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-united-web-7-strategies-of-digital-community-building/"><u>The United Web: 7 Strategies of Digital Community Building</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-privacy-mastery-of-fb-photo-settings/"><u>Unlocking Privacy: Mastery of Fb Photo Settings</u></a></li>
 </ul></div>
 

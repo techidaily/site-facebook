@@ -1,7 +1,7 @@
 ---
 title: "Looking Past Hype: Examining The Impact of Facebook Leaks"
-date: 2024-09-19T21:59:59.073Z
-updated: 2024-09-21T21:41:37.643Z
+date: 2024-09-29T17:32:03.796Z
+updated: 2024-10-03T19:04:37.071Z
 tags:
   - facebook
 categories:
@@ -46,6 +46,19 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
  While not trying to downplay the significance of the misinformation problem on Facebook and the wider internet, it isn't particularly scandalous. It's less serious than Facebook's previous scandals, and it's much less serious that it could have been.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Many Documents in The Facebook Papers Are Just Photos, Not Documents
 
  When you've been reading about The Facebook Papers, it certainly sounds as though the reports are leaked documents, as one might expect. But, as[Gizmodo](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740) acknowledged, the majority of the “documents” are just photos of reports on a computer screen.
@@ -59,6 +72,13 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
  While at first that may just sound like an excuse, Facebook is actually right. With just photos of select parts of documents, nobody (outside of Facebook) has read the documents in full.
 
  As a result, there's undeniably some context missing from the documents in question. As to what that missing context is, we don't know. But isn't there a rule about jumping to conclusions?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Many Reports in The Facebook Papers Can Be Easily Explained Away
 
@@ -76,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
 
 ![Mark Zuckerberg Speaking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Mark-Zuckerberg-Speaking.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credits: Anthony Quintano via Flickr
 
  Let's read that again. Zuckerberg claims 94 percent of the hate speech it finds**before a human reports it** is removed, and the report says less than five percent of**all hate speech** gets removed. Did you catch that? They're talking about two different things!
@@ -85,16 +112,10 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
  While these particular reports have been picked to provide an example, many more of The Facebook Papers can be explained away with other whistleblowers' leaks or that all-important missing context.
 
 <!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Did Some Things Wrong, But The Facebook Papers Are Too Damning
@@ -118,5 +139,26 @@ thumbnail: https://thmb.techidaily.com/1c0c9da7d1a6e96b7776310e8c7452d6bdf395800
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-navigating-the-social-network-crossroad-instagram-and-tiktok/"><u>[New] Navigating the Social Network Crossroad Instagram & TikTok</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-plowing-pathways-selecting-superb-simulation-titles/"><u>[New] Plowing Pathways Selecting Superb Simulation Titles</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-transforming-movs-to-mp4mkv-on-pc/"><u>[New] Transforming MOVs to MP4/MKV on PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-friends-evaporation-identify-now/"><u>[Updated] 2024 Approved Instagram Friends Evaporation Identify Now</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-best-voice-modification-tools-for-mobile-devices-for-2024/"><u>[Updated] Best Voice Modification Tools for Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-10-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>2024 Approved 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/efficiently-piecing-together-google-collage-projects/"><u>Efficiently Piecing Together Google Collage Projects</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-exit-strategy-for-unforeseen-account-termination/"><u>Facebook Exit Strategy for Unforeseen Account Termination</u></a></li>
+<li><a href="https://facebook.techidaily.com/facilitating-invisible-contributions-facebook-groups-guide/"><u>Facilitating Invisible Contributions: Facebook Groups Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-selecting-the-prime-sky-vault-for-firms/"><u>In 2024, Selecting the Prime Sky Vault for Firms</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructional-guide-fb-photo-description-tips/"><u>Instructional Guide: FB Photo Description Tips</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/interrupt-free-live-streaming-your-2023-solution-to-facebooks-glitches/"><u>Interrupt-Free Live Streaming Your 2023 Solution to Facebook's Glitches</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-engagement-key-elements-of-fb-cover-pics/"><u>Maximizing Engagement: Key Elements of FB Cover Pics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-timeline-shifted-full-encryption-pushed-to-2023/"><u>Meta's Timeline Shifted: Full Encryption Pushed to 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplify-the-7-step-approach-to-fb-management/"><u>Simplify: The 7-Step Approach to FB Management</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-pillar-why-facebook-is-indispensable/"><u>Social Media's Pillar: Why Facebook Is Indispensable</u></a></li>
+<li><a href="https://windows11.techidaily.com/strategies-for-rectifying-c0000005-on-windows-7vista/"><u>Strategies for Rectifying C0000005 on Windows 7/Vista</u></a></li>
+<li><a href="https://facebook.techidaily.com/todays-investors-in-the-social-platform/"><u>Today's Investors in the Social Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-preferences-facebooks-upcoming-news-feed-study/"><u>Unveiling Preferences: Facebook's Upcoming News Feed Study</u></a></li>
+</ul></div>
 

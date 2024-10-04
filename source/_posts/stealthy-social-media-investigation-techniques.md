@@ -1,7 +1,7 @@
 ---
 title: Stealthy Social Media Investigation Techniques
-date: 2024-09-23T17:29:28.002Z
-updated: 2024-09-28T16:20:33.568Z
+date: 2024-10-01T17:15:49.520Z
+updated: 2024-10-03T22:17:15.630Z
 tags:
   - facebook
 categories:
@@ -42,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  In that, the largest vulnerability to Facebook privacy is the human connection: social engineering, weak passwords, and poor personal security.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Users See Someone's Locked Profile on Facebook
 
  Even if you set your Facebook profile to private, it doesn't stop people from attempting to view it. Worse, setting your Facebook profile to private doesn't close the loopholes people can use to skirt the privacy settings. They are, after all, loopholes. The clue is in the name.
@@ -58,6 +51,13 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 ### 1\. Fake Facebook Friends
 
 ![facebook logo with dislike thumbs surrounding](https://thmb.techidaily.com/d1114cdd62049ffd7653e7094748e36a17e96d6070583d2a1a451841876e1401.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: TY Lim/[Shutterstock](https://www.shutterstock.com/image-photo/penang-malaysia-april-10-2018-facebook-1065601421)
 
@@ -74,10 +74,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
  You can[take control of your Facebook friend settings](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) , including hiding your Friends list and restricting who can send you a friend request.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Spyware Apps
@@ -93,10 +93,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
  Check out our[complete malware removal guide](https://www.makeuseof.com/tag/download-operation-cleanup-complete-malware-removal-guide/) or the[steps you should take when you discover malware](https://www.makeuseof.com/tag/10-steps-to-take-when-you-discover-malware-on-your-computer/) . They will help you discover if your device is hiding any spyware or malware and explain how to remove it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Password Theft
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 ![password entry image with padlock facebook color background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/password-entry-image-with-padlock-facebook-color-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The third method for accessing a private Facebook profile is straight-up password theft. Facebook password creation rules are decent enough. You need a minimum of eight characters, including upper and lowercase letters, numbers, and symbols.
@@ -155,20 +155,21 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-how-to-triple-down-on-instagrams-growth-metrics/"><u>[New] How to Triple Down on Instagram's Growth Metrics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-crafting-engaging-bio-stories-a-guide-to-stand-out-on-fb/"><u>[New] In 2024, Crafting Engaging Bio Stories – A Guide to Stand Out on FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide-for-2024/"><u>[Updated] Curate a Perfect Playlist on YouTube A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-elevate-your-aspects-a-beginner-cookbook-for-asmr-filmmaking-for-2024/"><u>[Updated] Elevate Your Aspects A Beginner' Cookbook for ASMR Filmmaking for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-top-7-best-fmovie-alternatieves/"><u>[Updated] Top 7 Best Fmovie Alternatieves</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-unlock-the-power-of-panel-discussions-with-fb-live-screening/"><u>2024 Approved Unlock the Power of Panel Discussions with FB Live Screening</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-innovative-apps-to-manage-social-content-scheduling/"><u>5 Innovative Apps to Manage Social Content Scheduling</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-closer-look-at-the-popularity-paradox-in-social-media/"><u>A Closer Look at the Popularity Paradox in Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-secret-dialogues-on-facebook-well-guarded/"><u>Are Secret Dialogues on Facebook Well-Guarded?</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-falling-for-these-14-frequent-facebook-schemes/"><u>Avoid Falling for These 14 Frequent Facebook Schemes</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-of-your-newsfeed-4-customization-ways/"><u>Behind the Scenes of Your Newsfeed: 4 Customization Ways</u></a></li>
-<li><a href="https://facebook.techidaily.com/counting-the-vanishing-votaries-on-facebook/"><u>Counting the Vanishing Votaries on Facebook</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-ideal-cams-for-animation-with-clay/"><u>In 2024, Ideal Cams for Animation with Clay</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-your-one-stop-guide-30-prime-websites-offering-free-vectr-and-graphic-services/"><u>In 2024, Your One-Stop Guide 30 Prime Websites Offering Free Vectr & Graphic Services</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-15-plus-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 15 Plus Activation Lock</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-cross-service-harmonization-a-playlist-perspective/"><u>[New] In 2024, Cross-Service Harmonization A Playlist Perspective</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-how-to-proficiently-use-twitter-archives-for-2024/"><u>[Updated] How to Proficiently Use Twitter Archives for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-expertly-crafted-cloud-microphones/"><u>[Updated] In 2024, Expertly-Crafted Cloud Microphones</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-top-10-drawing-apps-for-android-unleash-your-inner-artist/"><u>2024 Approved Top 10 Drawing Apps for Android Unleash Your Inner Artist</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/advanced-audio-synchronization-a-step-by-step-guide-to-keyframe-adjustments-in-final-cut-pro-x-for-2024/"><u>Advanced Audio Synchronization A Step-by-Step Guide to Keyframe Adjustments in Final Cut Pro X for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/auditory-apex-with-luxe-toned-h8i/"><u>Auditory Apex with Luxe-Toned H8i</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-online-discourse-analyzing-hashtag-engagement-on-facebook-platform/"><u>Elevating Online Discourse: Analyzing #Hashtag Engagement on Facebook Platform</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-latest-nvidia-rtx-3060-ti-graphics-card-drivers-for-windows-11/"><u>Get Latest NVIDIA RTX 3060 Ti Graphics Card Drivers for Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-for-trump-and-social-media-giant/"><u>New Era for Trump and Social Media Giant</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-ecosystems-role-in-stopping-the-pandemic-pretenses/"><u>Online Ecosystems' Role in Stopping the Pandemic Pretenses</u></a></li>
+<li><a href="https://facebook.techidaily.com/smarter-social-media-presence-captioning-photos-on-facebook/"><u>Smarter Social Media Presence: Captioning Photos on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-five-must-know-factors-of-metas-new-data-strategy/"><u>The Five Must-Know Factors of Meta’s New Data Strategy</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-good-in-gathering-unpacking-9-benefits-of-social-engagement/"><u>The Good in Gathering: Unpacking 9 Benefits of Social Engagement</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/troubleshoot-mute-audio-in-tweeted-vids-for-2024/"><u>Troubleshoot Mute Audio in Tweeted Vids for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-facebook-account-without-access-codes/"><u>Unlocking Your Facebook Account without Access Codes</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/ways-to-stop-parent-tracking-your-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Ways to stop parent tracking your Apple iPhone 12 | Dr.fone</u></a></li>
 </ul></div>
 

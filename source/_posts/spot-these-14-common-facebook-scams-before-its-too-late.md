@@ -1,7 +1,7 @@
 ---
 title: Spot These 14 Common Facebook Scams Before It's Too Late
-date: 2024-09-21T17:04:15.690Z
-updated: 2024-09-28T16:20:53.030Z
+date: 2024-10-02T18:25:59.890Z
+updated: 2024-10-03T22:46:54.735Z
 tags:
   - facebook
 categories:
@@ -26,25 +26,11 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
 
  We've all seen this one a little too many times. A scam claiming that you've won something. Sometimes they pretend to be big brands that say you've been chosen as the winner of a new iPhone, a holiday, or a luxury hotel-stay in one of the world's best resorts. If what they're claiming you won sounds too good to be true, it probably is!
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Friend Requests From Duplicate Accounts
 
  If you've received a friend request from someone you know is your Facebook friend already, then it's most certainly a scam. Scammers are replicating accounts and pretending to be someone in your list to get access to your activity online.
 
  Why they're doing it? To make you trust them, so they can send you links or content that contains viruses.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Facebook Marketplace Scams
 
@@ -60,24 +46,37 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
 
  These days there are a[few cheap ways to protect yourself from hackers if you are in public](https://www.makeuseof.com/cheap-ways-to-protect-yourself-in-public/) , but it's important to always be alert to anything you receive, from anyone.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5\. Facebook Job Advertisement Scams
 
  Who can turn away from a high-paying job offer? These types of scams have been around for a while. You may have seen them on professional networking sites where a company claims to pay top dollar for the right candidate, or you might have seen them on Facebook and WhatsApp too. There are[red flags to look out for to figure out if your job offer is legitimate](https://www.makeuseof.com/red-flags-job-isnt-legitimate/) .
 
  The purpose of these scams is to extract personal information about you. This may include things like your email, your home address, your social security number, and sometimes even your passport ID.
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Online Shopping Scams
 
  Facebook is not only a social networking site, it's also an e-commerce platform where businesses compete for new customers. If you see a scam in the form of an advertisement where you're being offered something you know to be expensive, for a cheap price, rest assured that you've been scammed.
 
  While businesses use Facebook to promote their products and services, scammy businesses use it just as much to sell fake brands and counterfeit goods.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Charity Scams
 
@@ -90,6 +89,13 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
  Likewise, if you've seen posts posing as legitimate organizations offering help to citizens by offering housing, beware. These scams are circulating to take money from unsuspecting individuals who are looking for government assistance.
 
 ![housing scam screenshot from facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/housing-scam.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. Lottery Scams on Facebook
 
@@ -104,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
  Whatever you provide, the scammer's intention is to take over your Facebook account and pretend to be you for fraudulent purposes. They might message your friends, post content pretending to be you, or use the information to access your financial accounts.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 11\. Catfishing Scams
@@ -118,21 +124,28 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
 
  They might ask you to deposit something into their bank account, pretend that they need the money to come and see you, or lie about being in some sort of crisis. Getting catfished is something a lot of people experience and there are[some things you can do to protect yourself from getting catfished](https://www.makeuseof.com/how-to-protect-yourself-from-catfishing/) .
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 12\. Loan Lending Scams
 
  If you are being offered loans through Facebook (either via message or via advertisements claiming low interest rates), you should be careful. Facebook isn't a platform where you can look for low-interest loans, so if someone is offering you money, it's likely because they want to take your money.
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 13\. Download/Update Facebook App Request Scams
@@ -140,13 +153,6 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
  If you've received a link from a site that looks legitimate asking you for access to your Facebook account, they are trying to scam you by getting personal information about you so that they can send spam.
 
 ![Facebook app scam screenshot](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/My-project-(55).jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 14\. Gift Voucher Scams
 
@@ -171,18 +177,16 @@ thumbnail: https://thmb.techidaily.com/65300c988d41879c46efcdc0b8a7f4ebdd53e06fe
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-how-to-view-old-stories-on-facebook/"><u>2024 Approved How to View Old Stories on Facebook?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-innovating-your-fb-experience-with-stunning-video-covers/"><u>2024 Approved Innovating Your FB Experience with Stunning Video Covers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-strategies-and-costs-promoting-videos-effectively/"><u>2024 Approved Strategies and Costs Promoting Videos Effectively</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/best-free-iphone-13-imei-checker-by-drfone-ios/"><u>Best Free iPhone 13 IMEI Checker</u></a></li>
-<li><a href="https://facebook.techidaily.com/cryptos-the-future-headline-for-social-media-platforms/"><u>Cryptos: The Future Headline for Social Media Platforms?</u></a></li>
-<li><a href="https://facebook.techidaily.com/discovering-ray-bans-comeback-through-facebook-stories/"><u>Discovering Ray-Ban's Comeback Through Facebook Stories</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/effortless-ways-to-transfer-data-from-your-apple-iphone-14-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>Effortless Ways to Transfer Data from Your Apple iPhone 14 to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/ejecting-facebooks-watchfulness-through-off-fb-settings/"><u>Ejecting Facebook's Watchfulness Through Off-FB Settings</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-no-paywalls-here-learn-how-to-record-and-save-your-youtube-experience-for-free/"><u>In 2024, No Paywalls Here! Learn How To Record and Save Your YouTube Experience For Free</u></a></li>
-<li><a href="https://facebook.techidaily.com/nbafever-grows-as-facebook-twitter-stream-games/"><u>NBAFever Grows as Facebook, Twitter Stream Games</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-detox-kit-remove-regretful-pics-and-posts-easily/"><u>Social Media Detox Kit: Remove Regretful Pics & Posts Easily</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/vimeo-basic-vimeo-plus-or-vimeo-pro-which-is-right-for-you/"><u>Vimeo Basic, Vimeo Plus or Vimeo Pro Which Is Right for You?</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-microvid-viewer-analysis-and-comparison-tools/"><u>[New] In 2024, MicroVid Viewer Analysis & Comparison Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-creative-edge-pushing-boundaries-in-photography-for-2024/"><u>[Updated] The Creative Edge Pushing Boundaries in Photography for 2024</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/how-to-convert-your-favorite-tracks-from-soundcloud-to-mp3-format/"><u>How to Convert Your Favorite Tracks From SoundCloud to MP3 Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-design-dynamic-engagement-hubs-in-facebook/"><u>How to Design Dynamic Engagement Hubs in Facebook</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-cutting-edge-tools-for-youtube-content-capture/"><u>In 2024, Cutting-Edge Tools for YouTube Content Capture</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>In 2024, Invigorating Channel Content Best Video Concepts to Inspire Viewers</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastery-over-tagged-photos-take-control-with-ease/"><u>Mastery Over Tagged Photos: Take Control with Ease</u></a></li>
+<li><a href="https://some-skills.techidaily.com/meta-questplus-revolutionizes-vr-entertainment-serving-as-a-one-stop-game-pass-solution/"><u>Meta Quest+ Revolutionizes VR Entertainment, Serving as a One-Stop Game Pass Solution!</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-outage-opens-new-challenges-for-giants/"><u>Online Outage Opens New Challenges for Giants</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-truth-seekers-toolkit-for-discerning-social-identity-authenticity/"><u>The Truth-Seeker's Toolkit for Discerning Social Identity Authenticity</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/windows-11-the-11-best-tricks-revealed/"><u>Windows 11 The 11 Best Tricks Revealed</u></a></li>
 </ul></div>
 

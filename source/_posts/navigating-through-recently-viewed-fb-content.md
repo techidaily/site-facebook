@@ -1,7 +1,7 @@
 ---
 title: Navigating Through Recently Viewed FB Content
-date: 2024-09-16T22:51:28.939Z
-updated: 2024-09-21T17:52:02.955Z
+date: 2024-09-26T17:26:48.236Z
+updated: 2024-10-03T16:23:31.806Z
 tags:
   - facebook
 categories:
@@ -55,7 +55,27 @@ That's it. Here you will find all the recently watched videos.
 3. Enter the year and month whose watch history you want to view. Then, click the**Save changes** button.  
 ![Save changes button in Activity log window](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/save-changes.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook will now only show the watch history of the selected time period in the**Videos you've watched** section.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to View Recently Watched Facebook Videos on Android and iOS
 
@@ -79,16 +99,10 @@ Close
  You'll now see all the videos you recently watched on your Facebook app.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Filter Facebook Watched Videos by Date on Android and iOS
@@ -107,10 +121,10 @@ Close
 4. Enter the**Start** and**End** date. Then, click**Done** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Never Lose Facebook Videos Again
@@ -130,5 +144,26 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-innovative-screen-capture-on-mac-top-5-methods/"><u>[New] 2024 Approved Innovative Screen Capture on Mac, Top 5 Methods</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-lead-the-likes-the-best-social-app-list-on-androidiphone/"><u>[New] In 2024, Lead the Likes The Best Social App List on Android/iPhone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-advanced-tips-for-capturing-gaming-moments-in-overwatch/"><u>[Updated] In 2024, Advanced Tips for Capturing Gaming Moments in Overwatch</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-vlc-for-pc-and-mac-universal-media-solution/"><u>[Updated] VLC for PC & Mac Universal Media Solution</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-top-6-animated-emoji-video-effects/"><u>2024 Approved Top 6 Animated Emoji Video Effects</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-citizens-guide-to-poking-through-public-broadcast-archives-for-2024/"><u>A Citizen's Guide to Poking Through Public Broadcast Archives for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-role-in-personal-social-and-global-transformation/"><u>Facebook's Role in Personal, Social, and Global Transformation</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-flagging-minors-facebook-page/"><u>Guidelines for Flagging Minor's Facebook Page</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streaming-profitably-understanding-youtube-updates/"><u>In 2024, Streaming Profitably Understanding YouTube Updates</u></a></li>
+<li><a href="https://driver-install.techidaily.com/instantly-connect-device-usbethernet-adapter/"><u>Instantly Connect Device - USB/Ethernet Adapter</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-the-significance-of-facebooks-tactile-interaction/"><u>Investigating the Significance of Facebook's Tactile Interaction</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-threat-to-facebooks-data-gathering/"><u>IOS 14.5: Threat to Facebook's Data Gathering?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mark-zuckerberg-hints-at-multi-platform-whatsapp-usage/"><u>Mark Zuckerberg Hints at Multi-Platform WhatsApp Usage</u></a></li>
+<li><a href="https://extra-support.techidaily.com/perfecting-elite-canon-time-lapse-cinematic-for-2024/"><u>Perfecting Elite Canon Time-Lapse Cinematic for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/pokemon-go-cooldown-chart-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-login-a-users-guide-for-password-recovery/"><u>Regaining Login: A User's Guide for Password Recovery</u></a></li>
+<li><a href="https://facebook.techidaily.com/swifter-alternatives-best-lite-android-apps-out-there/"><u>Swifter Alternatives: Best Lite Android Apps Out There</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-evanescent-snapshots-your-messenger-guardian/"><u>Track Evanescent Snapshots: Your Messenger Guardian</u></a></li>
+<li><a href="https://facebook.techidaily.com/whats-in-the-facebook-files-that-shocks-us/"><u>What’s in the Facebook Files That Shocks Us?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Reimagining Self in Virtual Space: Oculus' New Characters"
-date: 2024-09-20T17:21:53.856Z
-updated: 2024-09-21T22:49:13.231Z
+date: 2024-09-30T18:27:46.468Z
+updated: 2024-10-03T20:06:48.927Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,19 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
 
  With the new update, the Editor allows users to view their Avatar's legs as well. Users can select their desired clothing for the legs, although it won't be visible outside the Editor. Oculus mentioned that "elsewhere in VR, avatars will only display from the waist up."
 
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Updated Avatars Available For a Few Games
 
  In the blog post, Oculus mentioned that on the release date, new Avatars in a handful of games only—Epic Roller Coasters, Poker Stars VR, and Topgolf with Pro Putt. Naturally, the list of supported games will expand soon. Currently, Facebook has confirmed the new Avatars will soon be supported in Synth Riders, ForeVR Bowling, and Facebook Horizon.
@@ -43,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
  Related:[Is Virtual Reality Really the Future of Everything?](https://www.makeuseof.com/virtual-reality-future-of-everything/)
 
  The company also plans to make these Avatars available on platforms such as the Facebook app, Messenger, and Instagram.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## The New Avatars Come With Better Movement
 
@@ -65,12 +85,19 @@ thumbnail: https://thmb.techidaily.com/747f020dba73f73220750a642a58d9200a84cba1b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-screencasting-guide-what-is-and-how-to/"><u>[New] In 2024, Screencasting Guide What Is and How To</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-masterful-color-grading-explore-these-7-methods/"><u>[Updated] Masterful Color Grading Explore These 7 Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boosting-your-content-reach-with-eye-catching-youtube-video-thumbnails/"><u>2024 Approved Boosting Your Content Reach with Eye-Catching YouTube Video Thumbnails</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Realme Narzo N55 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebooks-revenue-sharing-for-melodies/"><u>Demystifying Facebook’s Revenue Sharing for Melodies</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-public-resentment-towards-internet-socialization-sites/"><u>Dissecting Public Resentment Towards Internet Socialization Sites</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-strategies-to-connect-with-clients-on-facebook-professionally/"><u>Effective Strategies to Connect with Clients on Facebook Professionally</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficiently-terminating-a-social-media-collective/"><u>Efficiently Terminating a Social Media Collective</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-identify-malfunctioning-your-drivers-with-windows-device-manager-on-windows-7-by-drivereasy-guide/"><u>How to identify malfunctioning your drivers with Windows Device Manager on Windows 7</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-zipfile-subs-guide-from-archive-to-srt-file-format/"><u>In 2024, Zipfile Subs Guide From Archive to SRT File Format</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/prolonging-snapstreak-excellence-top-10-advice-for-2024/"><u>Prolonging Snapstreak Excellence Top 10 Advice for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-how-to-stream-local-video-to-chromecast-on-windowsmacandroidios/"><u>Updated 2024 Approved How to Stream Local Video to Chromecast on Windows/Mac/Android/iOS</u></a></li>
+</ul></div>
 

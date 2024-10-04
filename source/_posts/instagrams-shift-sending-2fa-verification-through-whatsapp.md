@@ -1,7 +1,7 @@
 ---
 title: "Instagram's Shift: Sending 2FA Verification Through WhatsApp"
-date: 2024-09-23T17:01:45.768Z
-updated: 2024-09-28T17:18:25.377Z
+date: 2024-09-26T16:58:09.680Z
+updated: 2024-10-03T19:06:40.610Z
 tags:
   - facebook
 categories:
@@ -29,10 +29,16 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
  He also shared some screenshots on Twitter showing the user interface around this new optional feature in Instagram's app for iOS and Android. Instagram users will be able to opt-in when---and if, for that matter---Facebook rolls out this option to everyone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Using WhatsApp for Instagram 2FA Codes
@@ -48,10 +54,16 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
  For example,[Instagram is testing uploading post photos and videos via a web browser](https://www.makeuseof.com/instagram-web-posting-test/) , as well as accessing creator tools and creating stories using the web version of the service.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Instagram 2FA Method Should I Use?
@@ -85,19 +97,18 @@ thumbnail: https://thmb.techidaily.com/021a636e7cb8e3ab80d8561e5ce2e4b597fd93ffb
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-comprehensive-guide-to-free-cloud-communication-software-for-2024/"><u>[New] Comprehensive Guide to Free Cloud Communication Software for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-crafting-engaging-youtube-end-credits/"><u>[New] Crafting Engaging YouTube End Credits</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-understanding-sns-hdr-pros-features-vs-competitors/"><u>[Updated] 2024 Approved Understanding SNS HDR Pro’s Features Vs. Competitors</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-5-easy-ways-to-capture-and-save-your-youtube-content/"><u>[Updated] In 2024, 5 Easy Ways to Capture and Save Your YouTube Content</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-mastering-movies-with-top-10-professional-cinema-gear/"><u>[Updated] Mastering Movies with Top 10 Professional Cinema Gear</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-significant-advantages-to-disconnecting-online/"><u>7 Significant Advantages to Disconnecting Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-guide-to-removing-your-fb-watch-logs/"><u>A Step-by-Step Guide to Removing Your FB Watch Logs</u></a></li>
-<li><a href="https://facebook.techidaily.com/break-free-how-to-leave-facebook-behind-on-androids/"><u>Break Free - How to Leave Facebook Behind on Androids</u></a></li>
-<li><a href="https://facebook.techidaily.com/can-we-trust-our-devices-not-to-use-us-for-profits/"><u>Can We Trust Our Devices Not to Use Us for Profits?</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-cloaked-space-for-online-dialogues/"><u>Creating a Cloaked Space for Online Dialogues</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-an-identity-that-captivates-followers/"><u>Creating an Identity That Captivates Followers</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/exploring-automatic-aspect-ratios-in-imovie/"><u>Exploring Automatic Aspect Ratios in iMovie</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/interpreting-the-lack-of-communication-a-block-indicator-for-2024/"><u>Interpreting the Lack of Communication A Block Indicator for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/next-level-digital-hygiene-stellars-windows-standard-file-purging-suite-and-scheduler/"><u>Next-Level Digital Hygiene: Stellar's Windows Standard File Purging Suite & Scheduler</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-tailoring-drop-dates-to-maximize-listener-interest/"><u>[New] 2024 Approved Tailoring Drop Dates to Maximize Listener Interest</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-pros-and-experts-choice-discover-the-finest-12-stock-photography-sites/"><u>[New] In 2024, Pros and Experts' Choice Discover the Finest 12 Stock Photography Sites</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-your-quick-guide-to-successful-online-television-archiving/"><u>[Updated] In 2024, Your Quick Guide to Successful Online Television Archiving</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-relentless-joy-in-9-full-length-holiday-spectacles-free-online/"><u>2024 Approved Relentless Joy in 9 Full-Length Holiday Spectacles, Free Online</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-vivo-x-fold-2-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/craft-your-narrative-on-reddit-mastering-content-delivery-for-2024/"><u>Craft Your Narrative on Reddit Mastering Content Delivery for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722970372754-get-your-hp-deskjet-3520-software-and-drivers-free-download-now/"><u>Get Your HP Deskjet 3520 Software & Drivers – Free Download Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-download-your-entire-facebook-history/"><u>How to Download Your Entire Facebook History</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-suitable-facebook-devices-for-everyone/"><u>Identifying Suitable Facebook Devices for Everyone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-impactful-journey-with-gopro-hero5/"><u>In 2024, The Impactful Journey with GoPro Hero5</u></a></li>
+<li><a href="https://facebook.techidaily.com/love-reimagined-the-role-of-facebook-in-future-dating-practices/"><u>Love Reimagined: The Role of Facebook in Future Dating Practices</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-facebooks-privacy-constructing-a-restricted-list-for-controlled-visibility/"><u>Mastering Facebook's Privacy: Constructing a Restricted List for Controlled Visibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-productivity-with-facebooks-8-essential-workplace-features/"><u>Optimizing Productivity with Facebook's 8 Essential Workplace Features</u></a></li>
 </ul></div>
 

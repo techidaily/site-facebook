@@ -1,7 +1,7 @@
 ---
 title: The Leadership Transition at Facebook's Ad Team
-date: 2024-09-19T21:24:21.504Z
-updated: 2024-09-22T00:51:43.902Z
+date: 2024-09-26T20:51:17.458Z
+updated: 2024-10-03T17:08:50.275Z
 tags:
   - facebook
 categories:
@@ -48,9 +48,23 @@ thumbnail: https://thmb.techidaily.com/8ea49d46a7efdbdbce7ce2f715d9bd1879477faba
 
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
@@ -71,12 +85,26 @@ thumbnail: https://thmb.techidaily.com/8ea49d46a7efdbdbce7ce2f715d9bd1879477faba
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-flight-expertise-unleashed-an-examination-of-dji-phantom-3/"><u>[New] 2024 Approved Flight Expertise Unleashed An Examination of DJI Phantom 3</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-best-cameras-to-capture-slow-motion-videos-for-2024/"><u>[New] Best Cameras to Capture Slow Motion Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-enhancing-engagement-on-facebook-a-beginners-roadmap-for-2024/"><u>[New] Enhancing Engagement on Facebook A Beginner’s Roadmap for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-use-preview-app-on-mac/"><u>[Updated] How to Use Preview App on Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/neering-exercise-videos-to-keep-your-viewers-active/"><u>8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ferramenta-de-conversao-gratuita-para-webp-files-site-do-movavi/"><u>Ferramenta De Conversão Gratuita Para Webp Files - Site Do Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-request-a-refund-on-facebook/"><u>How to Request a Refund on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-untag-yourself-from-facebook-photos/"><u>How to Untag Yourself From Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/identify-potential-threats-to-your-fb-profile/"><u>Identify Potential Threats to Your FB Profile</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-chortle-calls-greatest-funny-ringtone-hubs/"><u>In 2024, Chortle Calls Greatest Funny Ringtone Hubs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-photoplusmusic-recorder-software-of-the-year-for-2024/"><u>Innovative Photo+Music Recorder Software of the Year for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/masterclass-in-marketing-the-quintet-of-premier-social-tools/"><u>Masterclass in Marketing: The Quintet of Premier Social Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-client-engagement-through-facebook-marketing-strategies/"><u>Mastering Client Engagement Through Facebook Marketing Strategies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-overcoming-frozen-fb-notifications/"><u>Strategies for Overcoming Frozen FB Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-networking-evolution-in-social-media-through-channels/"><u>The Networking Evolution in Social Media Through Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-cleaning-your-fb-discussions/"><u>The Ultimate Guide to Cleaning Your FB Discussions</u></a></li>
+<li><a href="https://win-news.techidaily.com/top-strategies-for-upgrading-videos-to-high-definition/"><u>Top Strategies for Upgrading Videos to High Definition</u></a></li>
+<li><a href="https://facebook.techidaily.com/unleash-potential-identifying-best-tools-for-corporate-reach/"><u>Unleash Potential: Identifying Best Tools for Corporate Reach</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mastering the Art of Personal Social Data Retrieval
-date: 2024-09-18T18:54:40.755Z
-updated: 2024-09-22T00:11:57.556Z
+date: 2024-09-26T22:33:51.594Z
+updated: 2024-10-03T21:14:10.934Z
 tags:
   - facebook
 categories:
@@ -68,22 +68,29 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related: [How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Exploring Your Downloaded Facebook Data
 
  Once you've downloaded your ZIP file, extract it and you'll see a basic folder hierarchy that matches up with the items you selected or deselected earlier. You're free to trawl through these folders, but it's a lot easier to open**index.html** or**index** in the root folder.
 
 ![Facebook data download folders](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-folders.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You can click on individual sections to see the information contained within them, in chronological order. You can click your name in the top-right corner if you want to head back to the index.
 
 ![Facebook data download photos pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-photos-pages.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Other downloadable datasets include:
 
@@ -93,13 +100,6 @@ Other downloadable datasets include:
 * **Messages:** Including those you thought you'd deleted.
 * **Friends:** Including juicy categories like **Rejected friend requests** and **Removed friends** you'd forgotten about.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What's Not Included in Downloaded Facebook Data?
 
  Facebook doesn't give away everything it knows about you, just the things you've explicitly shared. There are some limited advertising flags, like your broader interests and adverts you've interacted with; but these don't tell the whole story.
@@ -107,6 +107,13 @@ Other downloadable datasets include:
 [ProPublica](https://www.propublica.org/article/facebook-doesnt-tell-users-everything-it-really-knows-about-them) identified over 52,000 unique "attributes" Facebook uses to classify its users. Most of these metrics do not appear in the Ad Interests section of your Facebook download.
 
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
 
@@ -118,13 +125,6 @@ Other downloadable datasets include:
 
  It'll be interesting to see legislation evolve as the authorities continue to probe into Facebook's handling of user data.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Downloading Other Facebook Photos and Videos
 
  So what if you want to download a video or photo that you've been tagged in? Facebook does not include these in your data download, since they're not technically yours. There are plenty of legitimate reasons you might want to grab media from the site. Fair use laws protect your right to use this content in many jurisdictions.
@@ -133,7 +133,21 @@ Other downloadable datasets include:
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Downloading private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) is a little more difficult, since you'll need to grab the page source code and paste it into a specific private video downloader.[FBDown Private Video Downloader](https://www.fbdown.net/private-downloader.php) seems like the best bet in this instance.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Is It Time to Delete Facebook?
 
@@ -156,5 +170,20 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-fix-confirmed-shorts-are-showing-up/"><u>[New] Fix Confirmed Shorts Are Showing Up</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-techniques-to-effortlessly-record-your-instagram-experiences/"><u>[New] In 2024, Techniques to Effortlessly Record Your Instagram Experiences</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-10-economical-pc-monitoring-and-capture-tools/"><u>[Updated] 2024 Approved Top 10 Economical PC Monitoring and Capture Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-oppo-find-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-quick-guide-to-itel-s23-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Itel S23 FRP Bypass Instantly</u></a></li>
+<li><a href="https://facebook.techidaily.com/embarking-on-the-journey-of-modern-love-with-facebooks-new-feature/"><u>Embarking on the Journey of Modern Love with Facebook's New Feature</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-delete-icloud-account-remove-your-apple-id-permanently-from-iphone-15-plus-by-drfone-ios/"><u>How To Delete iCloud Account Remove Your Apple ID Permanently From iPhone 15 Plus</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-seo-enhanced-title-builder-for-peak-video-visibility/"><u>In 2024, SEO-Enhanced Title Builder for Peak Video Visibility</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/integrated-technique-for-cross-platform-movie-logging/"><u>Integrated Technique for Cross-Platform Movie Logging</u></a></li>
+<li><a href="https://facebook.techidaily.com/reversal-rituals-the-protocol-for-regaining-your-fb-funds/"><u>Reversal Rituals: The Protocol for Regaining Your FB Funds</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networks-alert-privacy-preserves-app-accessibility/"><u>Social Networks Alert: Privacy Preserves App Accessibility</u></a></li>
+<li><a href="https://facebook.techidaily.com/tapping-into-the-advantages-how-to-use-sleep-mode-in-messenger-kids/"><u>Tapping Into the Advantages: How to Use Sleep Mode in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-deceptions-tactics-to-skirt-scams/"><u>Unraveling Deceptions: Tactics to Skirt Scams</u></a></li>
+</ul></div>
 

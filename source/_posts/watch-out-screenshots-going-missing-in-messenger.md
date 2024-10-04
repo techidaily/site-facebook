@@ -1,7 +1,7 @@
 ---
 title: "Watch Out: Screenshots Going Missing in Messenger"
-date: 2024-09-17T23:53:08.721Z
-updated: 2024-09-22T00:03:02.977Z
+date: 2024-09-30T19:52:28.159Z
+updated: 2024-10-03T20:17:56.800Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f7
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -52,13 +59,34 @@ thumbnail: https://thmb.techidaily.com/57883fb87f9cced582d221233b7cbca11e45336f7
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Updates to Messenger
 
@@ -79,12 +107,23 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-acquire-excellent-images-at-no-cost-essential-strategies/"><u>[New] 2024 Approved Acquire Excellent Images at No Cost Essential Strategies</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-2024-approved-re-image-twitter-video-portrait/"><u>[New] 2024 Approved Re-Image Twitter Video Portrait</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-unlock-xps-cinematic-compositions-now-for-2024/"><u>[New] Unlock XP's Cinematic Compositions Now for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-diverse-world-of-uavs/"><u>[Updated] In 2024, The Diverse World of UAVs</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-next-gen-recording-nine-leading-webmicrone-recorders-23/"><u>[Updated] Next-Gen Recording Nine Leading Webmicrone Recorders ('23)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-novice-to-vlogger-your-guide-to-creating-a-youtube-chanel/"><u>2024 Approved From Novice to Vlogger Your Guide to Creating a YouTube Chanel</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-make-waves-with-a-new-look-customize-pre-designed-brand-symbols/"><u>2024 Approved Make Waves with a New Look Customize Pre-Designed Brand Symbols</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-whos-in-your-fb-blacklist/"><u>Deciphering Who’s in Your FB Blacklist</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-the-deepest-dive-2022s-best-rated-podcasts/"><u>Delving Into the Deepest Dive: 2022'S Best-Rated Podcasts</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-platforms-and-their-rating-systems/"><u>Digital Platforms and Their Rating Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-safety-first-unveiling-the-9-steps-to-spot-hacked-accounts/"><u>Digital Safety First: Unveiling the 9 Steps to Spot Hacked Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/disconnecting-insta-and-fb-accounts-procedure-tips/"><u>Disconnecting Insta & FB Accounts: Procedure Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-conversation-with-augmented-interactions-on-messenger/"><u>Elevate Conversation with Augmented Interactions on Messenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-career-path-essential-facebook-uses/"><u>Elevate Your Career Path: Essential Facebook Uses</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Life360 Circle Everything You Need to Know On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Oppo A18? | Dr.fone</u></a></li>
+</ul></div>
 

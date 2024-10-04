@@ -1,7 +1,7 @@
 ---
 title: "Instant Messaging Evolves on Facebook: New Tools for Messenger"
-date: 2024-09-22T17:17:57.754Z
-updated: 2024-09-28T16:55:06.599Z
+date: 2024-09-29T18:25:21.208Z
+updated: 2024-10-03T21:08:57.246Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -52,10 +52,16 @@ thumbnail: https://thmb.techidaily.com/78fc2ce8486dc3d6564f3f5f4f837891a8fa189d0
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -85,18 +91,18 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discord-videos.techidaily.com/updated-how-to-prominently-display-messages-on-discord/"><u>[Updated] How To Prominently Display Messages on Discord</u></a></li>
-<li><a href="https://facebook.techidaily.com/assessing-if-facebook-has-peaked-popularity/"><u>Assessing If Facebook Has Peaked Popularity</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-nvidias-vision-3d-drivers-at-no-cost-a-step-by-step-tutorial-for-windows-users/"><u>Download Nvidia's Vision 3D Drivers at No Cost: A Step-by-Step Tutorial for Windows Users</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-methods-for-handling-missing-mfc42dll-file-errors/"><u>Effective Methods for Handling Missing 'MFC42.dll' File Errors</u></a></li>
-<li><a href="https://facebook.techidaily.com/eternal-connection-or-silence-handling-lost-friends-on-fb/"><u>Eternal Connection or Silence? Handling Lost Friends on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-disruptor-by-ios-145-a-closer-look/"><u>Facebook Disruptor by iOS 14.5? A Closer Look</u></a></li>
-<li><a href="https://facebook.techidaily.com/guide-to-crafting-collectives-a-facebook-foundation-approach/"><u>Guide to Crafting Collectives: A Facebook Foundation Approach</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-the-ultimate-guide-to-instantaneous-live-streaming-via-obs-and-instagram/"><u>In 2024, The Ultimate Guide to Instantaneous Live Streaming via OBS & Instagram</u></a></li>
-<li><a href="https://facebook.techidaily.com/president-biden-teams-up-facebook-twitter-and-snapchat-for-vaccinations/"><u>President Biden Teams Up: Facebook, Twitter & Snapchat for Vaccinations</u></a></li>
-<li><a href="https://win-dash.techidaily.com/rtx-2080-super-graphics-card-drivers-download-plus-update-for-windows-11-and-windows-10/"><u>RTX 2080 Super Graphics Card Drivers Download + Update for Windows 11 and Windows 10</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-purge-peer-reviewed-posts-on-fb/"><u>Techniques to Purge Peer Reviewed Posts on FB</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/the-ultimate-2024-tutorial-resolving-your-xr30-headset-microphone-issues/"><u>The Ultimate 2024 Tutorial: Resolving Your XR30 Headset Microphone Issues</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-quickening-instagram-video-streams-on-mobile-devices/"><u>[New] In 2024, Quickening Instagram Video Streams on Mobile Devices</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-definitive-guide-to-live-streaming-platforms-obs-edition-for-2024/"><u>[New] The Definitive Guide to Live Streaming Platforms - OBS Edition for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unleash-creativity-with-top-9-free-tools-to-craft-your-brand/"><u>2024 Approved Unleash Creativity with Top 9 Free Tools to Craft Your Brand</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-13-ultra-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-infinix-smart-8-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Infinix Smart 8? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-channels-make-it-easier-to-connect-in-facebook-groups/"><u>How Channels Make It Easier to Connect in Facebook Groups</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-nokia-c210-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Nokia C210 Without PUK Codes</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-decision-day-for-trump-on-social-media/"><u>January Decision Day for Trump on Social Media</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-exploring-the-aural-landscape-finding-professional-sound-design-resources/"><u>New Exploring the Aural Landscape Finding Professional Sound Design Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-your-profile-in-depth-facebook-safety-tips/"><u>Protecting Your Profile: In-Depth Facebook Safety Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-tips-for-dissolving-a-facebook-circle/"><u>Quick Tips for Dissolving a Facebook Circle</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-converting-hevc-videos-into-mp4-with-advanced-h264-codec-best-tools-reviewed/"><u>Ultimate Guide to Converting HEVC Videos Into MP4 with Advanced H.264 Codec – Best Tools Reviewed</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-vigilance-and-validity-empower-your-groups-with-facebooks-moderation-mastery/"><u>Virtual Vigilance & Validity: Empower Your Groups with Facebook's Moderation Mastery</u></a></li>
 </ul></div>
 

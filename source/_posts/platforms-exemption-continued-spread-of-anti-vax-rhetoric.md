@@ -1,7 +1,7 @@
 ---
 title: "Platform's Exemption: Continued Spread of Anti-Vax Rhetoric"
-date: 2024-09-16T19:58:08.709Z
-updated: 2024-09-21T21:59:08.704Z
+date: 2024-09-30T16:02:21.269Z
+updated: 2024-10-03T19:06:58.910Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
 
  The company also did not detail how long the frame had been active, nor how many users viewed/used it. So, it's very possible that hundreds—maybe even thousands—of users have been exposed to the potentially harmful message it promotes.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook vs. Pandemic Misinformation
 
  It's become pretty normal to see the words "Facebook" and "misinformation" in the same headline. Surely that's something that the team behind the platform wants to change, but their approach needs to either get smarter or get more aggressive for that to happen.
@@ -63,12 +70,24 @@ thumbnail: https://thmb.techidaily.com/bb7b22db4f29df84af9ef917f29e85118ed689c60
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-best-free-vob-players-for-pc-and-mac/"><u>[New] 2024 Approved Best Free VOB Players for PC and Mac</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-xiaomi-redmi-12-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Xiaomi Redmi 12 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-itel-a70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-ai-picturing-words-mimicking-styles/"><u>Facebook Unveils AI: Picturing Words, Mimicking Styles</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-of-expression-say-no-to-facebook-tagged-photos/"><u>Freedom of Expression: Say No to Facebook Tagged Photos</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/game-on-unlock-the-secrets-of-effective-lol-recording/"><u>Game-On! - Unlock the Secrets of Effective LOL Recording</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-in-plain-sight-locating-privatized-social-media-files/"><u>Hidden in Plain Sight: Locating Privatized Social Media Files</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-get-and-install-logitech-speaker-drivers-for-various-windows-versions-including-11-7-and-8/"><u>How to Get & Install Logitech Speaker Drivers for Various Windows Versions Including 11, 7 & 8</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/improving-performance-in-eso-tips-for-resolving-lag-and-boosting-fps/"><u>Improving Performance in ESO: Tips for Resolving Lag and Boosting FPS</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-oneplus-ace-2v-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On OnePlus Ace 2V | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/laughing-matters-facebooks-humor-guidelines/"><u>Laughing Matters: Facebook's Humor Guidelines</u></a></li>
+<li><a href="https://driver-error.techidaily.com/methods-for-unloading-enex-drivers-from-windows-11/"><u>Methods for Unloading eNEX Drivers From Windows 11</u></a></li>
+<li><a href="https://win-answers.techidaily.com/optimize-your-play-eradicate-crashes-and-stuttering-in-serious-sam-4-for-windows/"><u>Optimize Your Play: Eradicate Crashes and Stuttering in Serious Sam 4 for Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-personal-info-with-facebooks-updated-privacy-options/"><u>Securing Personal Info with Facebook’s Updated Privacy Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-complete-guide-to-social-media-vigilance-on-fb/"><u>The Complete Guide to Social Media Vigilance on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-brand-identity-top-reasons-to-prioritize-facebook-company-profiles/"><u>Transforming Brand Identity: Top Reasons to Prioritize Facebook Company Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-your-social-signature-on-facebook/"><u>Updating Your Social Signature on Facebook</u></a></li>
+</ul></div>
 

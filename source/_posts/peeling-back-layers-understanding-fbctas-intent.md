@@ -1,7 +1,7 @@
 ---
 title: "Peeling Back Layers: Understanding FBCTA's Intent"
-date: 2024-09-27T17:12:45.682Z
-updated: 2024-09-28T17:25:00.034Z
+date: 2024-10-02T18:55:49.017Z
+updated: 2024-10-03T22:18:04.630Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,10 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  Related:[Who Is the Facebook Whistleblower and What Did They Say on 60 Minutes?](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How the Filter Bubble Transparency Act Could Affect You
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 ![Twitter app on a mobile phone held in one hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/twitter-app.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The bill means that instead of a personalized news feed, you could have the option to choose between that and a feed showing you posts as they appear on apps like Facebook and Instagram—much like on Twitter.
@@ -75,10 +75,16 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
  This, and giving users an option to opt out of a personalized algorithm, sounds more realistic, at least for now until tech giants can improve their algorithms.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Personalized Algorithms Become a Thing of the Past?
@@ -102,19 +108,14 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-simplifying-the-process-of-finding-facebook-watch-history/"><u>[New] Simplifying the Process of Finding Facebook Watch History</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-interpreting-the-functionality-behind-facebooks-blue-video-icon/"><u>[Updated] 2024 Approved Interpreting the Functionality Behind Facebook's Blue Video Icon</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-sightgraph-assessment-center/"><u>[Updated] 2024 Approved SightGraph Assessment Center</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-dive-deep-into-youtube-shorts-essentials-for-2024/"><u>[Updated] Dive Deep Into YouTube Shorts Essentials for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-tale-of-transformation-why-facebook-staff-are-now-metamates/"><u>A Tale of Transformation: Why Facebook Staff Are Now 'Metamates'</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-art-and-tech-with-meta-drops-social-platform-testing/"><u>Bridging Art & Tech with Meta Drops' Social Platform Testing</u></a></li>
-<li><a href="https://fox-that.techidaily.com/how-to-resolve-connection-issues-iphone-not-linking-with-pc/"><u>How to Resolve Connection Issues: IPhone Not Linking with PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-samsungs-advanced-2023-bd-j5900-reviewed-here/"><u>In 2024, Samsung's Advanced 2023 BD-J5900 Reviewed Here</u></a></li>
-<li><a href="https://facebook.techidaily.com/screenshot-your-sanctuary-eradicating-fb-notifications/"><u>Screenshot Your Sanctuary: Eradicating FB Notifications</u></a></li>
-<li><a href="https://facebook.techidaily.com/seamless-transition-to-spotify-while-staying-in-facebook-app/"><u>Seamless Transition to Spotify While Staying in Facebook App</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-merits-of-swipe-and-tap-in-social-media-platforms/"><u>The Merits of Swipe and Tap in Social Media Platforms</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/tips-and-tricks-shrinking-large-videos-for-optimized-sharing-on-facebook/"><u>Tips and Tricks: Shrinking Large Videos for Optimized Sharing on Facebook</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-choose-pro-on-linkedin-heres-why/"><u>Why Choose Pro on LinkedIn? Here's Why</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/your-guide-to-smooth-browsing-select-the-top-7-android-adblockers-for-2024/"><u>Your Guide to Smooth Browsing Select the Top 7 Android AdBlockers for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/convert-songs-to-calls-essential-websites-for-youtubetones-extraction-for-2024/"><u>Convert Songs to Calls Essential Websites for YoutubeTones Extraction for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-sound-focused-platform-amidst-clubhouse-rise/"><u>Facebook Launches Sound-Focused Platform Amidst Clubhouse Rise</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-break-off-the-connection-between-spotify-and-facebook/"><u>Guide to Break Off the Connection Between Spotify & Facebook</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-5-solutions-for-samsung-galaxy-a14-4g-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Samsung Galaxy A14 4G Unlock Without Password</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-tap-into-tagging-techniques-for-6kplus-youtube-vistas/"><u>In 2024, Tap Into #Tagging Techniques for $6K+ YouTube Vistas</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, What are Location Permissions Life360 On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/renewables-fuel-all-facebook-operations/"><u>Renewables Fuel All Facebook Operations</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-fb-and-instas-latest-test-of-sponsored-story-stickers/"><u>Unveiling FB and Insta's Latest Test of Sponsored Story Stickers</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Social Media Hygiene: How to Delete Unwanted Compliments/Criticisms"
-date: 2024-09-20T20:25:03.916Z
-updated: 2024-09-21T23:46:21.717Z
+date: 2024-09-27T16:47:31.596Z
+updated: 2024-10-03T23:18:10.338Z
 tags:
   - facebook
 categories:
@@ -38,10 +38,30 @@ Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-desktop-1.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Navigate to the upsetting comment, and hover your cursor over the comment. You'll see three dots next to the comment.
 2. Click on the**three dots** to reveal comment management options.
 3. With a click of the cursor on**Delete** , a dialogue box opens. It reads**Are you sure you want to delete this comment?** with an option to either cancel or delete.
 4. Click on**Delete,** and the comment is deleted.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Delete a Comment on a Mobile App
 
@@ -49,14 +69,14 @@ Here's how to remove comments using a PC:
 
 ![screenshot showing how to delete comment on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-delete-comment-on-facebook-mobile.jpg)
 
-![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![screenshot showing how to confirm comment deletion on facebook mobile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/screenshot-showing-how-to-confirm-comment-deletion-on-facebook-mobile.jpg)
 
 Close
 
@@ -67,10 +87,10 @@ Close
  Related:[What Happens to Your Data if Facebook Ever Dies?](https://www.makeuseof.com/what-happens-to-facebook-data-if-it-dies/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Get Rid of Negative Comments on Your Posts
@@ -92,5 +112,16 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-macs-choice-of-capture-an-in-depth-look-at-premium-software/"><u>[New] 2024 Approved Mac's Choice of Capture An In-Depth Look at Premium Software</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-the-iphone-and-icloud-sync-a-step-by-step-photo-arrangement-guide/"><u>[New] 2024 Approved The iPhone & iCloud Sync A Step-by-Step Photo Arrangement Guide</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-asmr-explained-why-it-might-be-good-for-you-for-2024/"><u>[Updated] ASMR Explained Why It Might Be Good For You for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-elevate-your-videography-7-free-sound-effects-collection-for-2024/"><u>[Updated] Elevate Your Videography - 7 Free Sound Effects Collection for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-your-online-visibility-profile-pics-that-attract-more-engagement/"><u>Enhancing Your Online Visibility: Profile Pics That Attract More Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-creating-memorable-online-gatherings-on-facebook/"><u>Mastering the Art of Creating Memorable Online Gatherings on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-messenger-kids-sleep-mode-for-smoother-experience/"><u>Navigating Through Messenger Kids' Sleep Mode for Smoother Experience</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-finest-html5-video-tools-for-content-creators-for-2024/"><u>The Finest HTML5 Video Tools for Content Creators for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/transform-your-chat-vibes-with-fbs-messenger-sounds/"><u>Transform Your Chat Vibes with FB's Messenger Sounds</u></a></li>
+</ul></div>
 

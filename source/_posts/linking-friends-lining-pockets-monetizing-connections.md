@@ -1,7 +1,7 @@
 ---
 title: "Linking Friends, Lining Pockets: Monetizing Connections"
-date: 2024-09-18T20:55:07.908Z
-updated: 2024-09-21T18:54:32.481Z
+date: 2024-09-27T16:58:02.962Z
+updated: 2024-10-03T21:19:34.558Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Sites like Facebook and Twitter have received hundreds of millions of dollars in venture capital. Nowadays, with hindsight, we can say that those investors made intelligent choices, but venture capital is a risky game and investments don't always pay off. Would you have invested in Facebook when it was called "Thefacebook" and only available to Harvard students?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Advertising
 
 ![Promoted tweet](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/promoted-tweet-670x418.png)
@@ -52,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Facebook](https://www.facebook.com/about/ads)
 
  Another big source of income for social media platforms, and a controversial one, is through collecting and selling user data.
@@ -62,16 +76,16 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Premium Memberships
 
 ![Reddit Premium promo image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/06/whats-reddit-premium.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  All the popular social media sites let you make your account for free. However, some of them lock additional features behind a paywall in the hopes that you will pay for these premium memberships.
 
@@ -85,18 +99,18 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
  For example, on Facebook you can raise money for charity. Facebook used to charge a transaction fee for this, but no longer does. However, it does still charge for personal fundraisers, which it claims is to "cover payment processing" and "taxes".
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Diversifying
 
@@ -125,5 +139,26 @@ thumbnail: https://thmb.techidaily.com/7a686a1b526676a12878d5e404ff256d91c8737d5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-mastering-video-conferencing-at-no-cost-our-picks-from-the-best-10-tools/"><u>[New] In 2024, Mastering Video Conferencing at No Cost Our Picks From the Best 10 Tools</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mkv-playback-mac-app-selection-guide/"><u>[New] MKV Playback Mac App Selection Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-transforming-channels-with-powerful-visual-branding-strategies/"><u>[Updated] Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-iphone-image-editing-learn-to-change-resolution/"><u>2024 Approved IPhone Image Editing Learn to Change Resolution</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722164575235-discover-your-next-adventure-faster-the-best-free-travel-planning-ai-applications-available-today/"><u>Discover Your Next Adventure Faster - The Best Free Travel Planning AI Applications Available Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-silicon-insights-lost-but-now-found-top-4-discoveries/"><u>Essential Silicon Insights, Lost But Now Found - Top 4 Discoveries</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/from-basics-to-details-dji-inspire-2-explained-for-2024/"><u>From Basics to Details DJI Inspire 2 Explained for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-7-to-others-ios-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 7 To Others ios devices? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mapping-out-your-journey-redefining-online-identifiers-on-facebook/"><u>Mapping Out Your Journey: Redefining Online Identifiers on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-rights-for-a-facebook-money-return/"><u>Mastering Your Rights for a Facebook Money Return</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-social-media-impact-elevating-shares-on-fb/"><u>Maximizing Social Media Impact: Elevating Shares on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/requesting-a-sellers-credit-on-social-media-platform-fb/"><u>Requesting a Seller's Credit on Social Media Platform FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-profile-against-scam-artists-on-facebook/"><u>Securing Your Profile Against Scam Artists on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/simple-techniques-to-reset-and-log-into-fb-without-codes/"><u>Simple Techniques to Reset & Log Into FB Without Codes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/switching-proton-vpn-login-details-and-exposing-the-truth-about-the-chatgpt-windows-application/"><u>Switching Proton VPN Login Details & Exposing the Truth About the ChatGPT Windows Application</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-shadowban-its-meaning-and-evasion-tactics/"><u>Unveiling Shadowban: Its Meaning & Evasion Tactics</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-vivo-y77t-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Vivo Y77t? Here is How | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-is-building-the-fastest-ai-supercomputer-in-the-world/"><u>Why Meta Is Building the Fastest AI Supercomputer in the World</u></a></li>
+</ul></div>
 

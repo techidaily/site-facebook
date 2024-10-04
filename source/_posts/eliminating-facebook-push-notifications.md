@@ -1,7 +1,7 @@
 ---
 title: Eliminating Facebook Push Notifications
-date: 2024-09-25T16:26:48.469Z
-updated: 2024-09-28T17:30:31.404Z
+date: 2024-09-27T17:04:03.644Z
+updated: 2024-10-03T20:43:38.753Z
 tags:
   - facebook
 categories:
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
 
  The process to delete Facebook notifications on the smartphone app is similar. Just fire up the app and tap on the**Notifications** tab. Once you've found the alert you want to get rid of, tap on the three dots and choose**Remove this notification** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Clear All Facebook Notifications
 
  When you log into Facebook and see a pile of unread notifications, you'll want to clear them as soon as possible. If you click on the bell icon, the unread notifications red dot disappears.
@@ -56,6 +49,19 @@ thumbnail: https://thmb.techidaily.com/f5fc965758dead74b06c9dd7514fff9b2e384059d
  Weirdly, there is no way to clear your unread notifications from the smartphone app without clicking on each one. Instead, you need to perform the process from the web app.
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To mark all of your Facebook notifications as read, follow the guide below:
 
@@ -86,22 +92,16 @@ Follow the steps below to learn about the process on the web app:
 
  Smartphone users can see the same list of options by opening the app, tapping on the**Notifications** tab, and selecting the three dots alongside the notification in question.
 
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -118,13 +118,6 @@ Follow the steps below to learn about the process on the web app:
 
  It's also worth scrolling to the very bottom of the list to the**How you receive notifications** section. In it, you can select which browser and email notifications you receive. You can choose to receive Facebook's suggested notifications if can't be bothered to customize everything—but it will probably still result in you getting too much spam.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Stop Facebook Notifications Altogether
 
  You can't disable all types of Facebook notifications in the web app, but you can stop Facebook notifications entirely on Android and iOS.
@@ -136,6 +129,13 @@ Follow the steps below to learn about the process on the web app:
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -158,10 +158,16 @@ Close
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
@@ -187,24 +193,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-innovative-av-producers-the-ultimate-web-watchlist/"><u>[New] 2024 Approved Innovative AV Producers The Ultimate Web Watchlist</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-lut-enthusiasts-delight-free-bundles-with-dji-minis-and-air-2/"><u>[New] 2024 Approved LUT Enthusiasts' Delight – Free Bundles with DJI Minis & Air 2</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-comprehensive-2023-guide-to-lg-360-cam-tech/"><u>[New] Comprehensive 2023 Guide to LG 360 Cam Tech</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-streamlined-methods-for-iphone-screen-capture/"><u>[New] In 2024, Streamlined Methods for iPhone Screen Capture</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-strategies-uniting-communities-via-platforms/"><u>8 Strategies: Uniting Communities via Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-top-picks-calendar-software-for-scheduled-social-shares/"><u>8 Top Picks: Calendar Software for Scheduled Social Shares</u></a></li>
-<li><a href="https://facebook.techidaily.com/anti-vax-discourse-defiantly-exists-in-facebook-corridors/"><u>Anti-Vax Discourse Defiantly Exists in Facebook Corridors</u></a></li>
-<li><a href="https://facebook.techidaily.com/audio-focus-facebook-introduces-enhanced-social-features/"><u>Audio Focus: Facebook Introduces Enhanced Social Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-fake-accounts-tips-for-safer-social-networking/"><u>Avoid Fake Accounts: Tips for Safer Social Networking</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-up-with-your-fb-community-a-step-by-step-walkthrough/"><u>Breaking Up with Your Fb Community: A Step-by-Step Walkthrough</u></a></li>
-<li><a href="https://facebook.techidaily.com/channel-driven-connections-in-social-circles/"><u>Channel-Driven Connections in Social Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/combining-spotify-with-facebook-for-enhanced-listening/"><u>Combining Spotify with Facebook for Enhanced Listening</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149103040-discovering-sheryls-strategies-at-facebook-inc/"><u>Discovering Sheryl's Strategies at Facebook Inc.</u></a></li>
-<li><a href="https://extra-information.techidaily.com/essential-zooid-creation-samples/"><u>Essential Zooid Creation Samples</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-ultimate-power-the-incredible-capabilities-of-the-beatit-bt-d11-reviewed/"><u>Experience Ultimate Power: The Incredible Capabilities of the Beatit BT-D11 Reviewed</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Honor Magic 6 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/integrate-xps-essential-movie-making-features/"><u>Integrate XP's Essential Movie Making Features</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-fabric-of-future-cutting-edge-vr-technology-for-2024/"><u>The Fabric of Future Cutting-Edge VR Technology for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unraveling-computer-secrets-with-insights-from-toms-hardware-hub/"><u>Unraveling Computer Secrets with Insights From Tom's Hardware Hub</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-mastering-the-basics-a-thorough-guide-to-using-mobizen-recorders/"><u>[New] In 2024, Mastering the Basics A Thorough Guide to Using Mobizen Recorders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-understanding-igs-evolution-reels-and-stories/"><u>[Updated] 2024 Approved Understanding IG's Evolution Reels and Stories</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/10-best-yoga-youtube-channels-to-follow-keep-fit-for-2024/"><u>10 Best Yoga YouTube Channels to Follow - Keep Fit for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-how-to-smoothly-integrate-linktree-into-your-tiktok-bio-space/"><u>2024 Approved How to Smoothly Integrate Linktree Into Your TikTok Bio Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-accurate-health-info-in-the-age-of-viral-data/"><u>Ensuring Accurate Health Info in the Age of Viral Data</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/full-guide-to-iphone-12-mini-icloud-bypass-by-drfone-ios/"><u>Full guide to iPhone 12 mini iCloud Bypass</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/future-of-flexible-phones-what-to-expect-from-the-new-google-pixel-fold-price-guess-release-window-hardware-info-and-buzzed-theories/"><u>Future of Flexible Phones: What to Expect From the New Google Pixel Fold - Price Guess, Release Window, Hardware Info, and Buzzed Theories</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/gpu-nostalgia-update-for-2024/"><u>GPU Nostalgia Update for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-google-pixel-fold-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Google Pixel Fold without App | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/posting-perfection-a-complete-list-of-the-top-30-abbreviations-in-social-media/"><u>Posting Perfection: A Complete List of the Top 30 Abbreviations in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/pro-palestinian-activists-tank-facebooks-app-store-rating-with-1-star-reviews/"><u>Pro-Palestinian Activists Tank Facebook's App Store Rating With 1-Star Reviews</u></a></li>
+<li><a href="https://facebook.techidaily.com/re-linking-solutions-for-recovering-from-social-media-blackouts/"><u>Re-Linking: Solutions for Recovering From Social Media Blackouts</u></a></li>
+<li><a href="https://facebook.techidaily.com/rugby-unions-declare-media-blackout-protest/"><u>Rugby Unions Declare Media Blackout Protest</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-chats-beyond-facebook/"><u>Secure Chats Beyond Facebook</u></a></li>
 </ul></div>
 

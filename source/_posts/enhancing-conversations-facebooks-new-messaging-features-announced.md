@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Conversations: Facebook's New Messaging Features Announced"
-date: 2024-09-27T17:25:01.493Z
-updated: 2024-09-28T17:31:00.715Z
+date: 2024-09-30T20:49:20.908Z
+updated: 2024-10-03T17:51:42.832Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hands-Free Audio Messaging in Messenger
@@ -52,16 +52,10 @@ thumbnail: https://thmb.techidaily.com/4d82cc5d4830160f77be1be23b3b0d5c8cbc630ac
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## New Inbox Management Features
@@ -91,16 +85,24 @@ Both Messenger and Instagram have received some inbox-centric changes.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/updated-exclusive-list-of-leading-free-video-editing-programs/"><u>[Updated] Exclusive List of Leading Free Video Editing Programs</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-from-ordinary-snaps-to-captivating-creations-editing-on-snapchat/"><u>[Updated] From Ordinary Snaps to Captivating Creations Editing on Snapchat</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-masterpieces-unleashed-a-comprehensive-look-at-the-bestiary-of-8-iphone-drawing-apps/"><u>2024 Approved Masterpieces Unleashed A Comprehensive Look at the Bestiary of 8 iPhone Drawing Apps</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/como-reducir-eficientemente-el-tamano-del-archivo-de-tu-video-en-formato-mov/"><u>Cómo Reducir Eficientemente El Tamaño Del Archivo De Tu Video en Formato MOV</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-email-obstacles-restore-your-outlook-connection-now/"><u>Overcoming Email Obstacles: Restore Your Outlook Connection Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/seeking-solidity-amidst-storms-what-are-crypto-stability-tokens/"><u>Seeking Solidity Amidst Storms: What Are Crypto Stability Tokens?</u></a></li>
-<li><a href="https://facebook.techidaily.com/streamlining-social-space-management-with-facebooks-latest-tools/"><u>Streamlining Social Space Management with Facebook's Latest Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-face-whistleblower-and-their-message/"><u>The Face Whistleblower and Their Message</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-revival-of-an-iconic-social-app-in-the-digital-age/"><u>The Revival of an Iconic Social App in the Digital Age</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-the-tables-on-fb-with-off-facebook-activity-insight/"><u>Turn the Tables on FB with Off-Facebook Activity Insight</u></a></li>
-<li><a href="https://techtrends.techidaily.com/your-exclusive-audio-journey-through-the-thrills-of-mens-ncaa-basketball-towards-march-madness-and-final-four-showdowns/"><u>Your Exclusive Audio Journey Through the Thrills of Men's NCAA Basketball Towards March Madness and Final Four Showdowns!</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-advanced-methods-for-bending-digital-images/"><u>[New] Advanced Methods for Bending Digital Images</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-become-a-zoom-maestro-host-with-ease/"><u>[New] Become a Zoom Maestro Host with Ease</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hree-methods-to-capture-youtube-images-for-macwindows-users-for-2024/"><u>[New] Three Methods to Capture YouTube Images for Mac/Windows Users for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-shoot-vertical-panorama-photos-with-your-mobile-phone/"><u>[Updated] How to Shoot Vertical Panorama Photos with Your Mobile Phone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-iphone-shutterbugs-tips-for-better-images/"><u>2024 Approved IPhone Shutterbugs Tips for Better Images</u></a></li>
+<li><a href="https://discover-community.techidaily.com/descargas-gratuitas-de-convertidor-pdf-a-imagen-jpeg-y-jpg/"><u>Descargas Gratuitas De Convertidor PDF a Imagen - JPEG Y JPG</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-friend-requests-unwritten-rules-and-hidden-settings/"><u>Facebook Friend Requests: Unwritten Rules and Hidden Settings</u></a></li>
+<li><a href="https://facebook.techidaily.com/highlighting-the-hottest-topics-discussed-in-22-podcasts/"><u>Highlighting the Hottest Topics Discussed in '22 Podcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-how-to-turn-off-suggested-posts-on-instagram/"><u>In 2024, How to Turn Off Suggested Posts on Instagram?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-preventing-phone-videoclip-distortion/"><u>In 2024, Preventing Phone Videoclip Distortion</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-erasing-footprints-on-facebook-timeline/"><u>Mastering the Art: Erasing Footprints on Facebook Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-pact-the-growing-symbiosis-of-fb-and-instagram/"><u>Platform Pact: The Growing Symbiosis of FB & Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/smooth-social-media-transition-from-instagram-to-facebook-reels/"><u>Smooth Social Media Transition: From Instagram to Facebook Reels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/step-by-step-gopro-4k-editing-basics-for-2024/"><u>Step-by-Step GoPro 4K Editing Basics for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/mers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos-for-2024/"><u>Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-forging-facebook-identities/"><u>The Art of Forging Facebook Identities</u></a></li>
+<li><a href="https://facebook.techidaily.com/tread-the-path-to-metamorphic-hub-account-oversight-leverage/"><u>Tread the Path to Metamorphic Hub: Account Oversight Leverage</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-digital-images-and-their-laws/"><u>Understanding Digital Images and Their Laws</u></a></li>
+<li><a href="https://facebook.techidaily.com/you-can-now-sign-up-for-meta-verified-in-the-us/"><u>You Can Now Sign Up for Meta Verified in the US</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Purpose and Function of Facebook's Whitelist
-date: 2024-09-19T19:16:04.694Z
-updated: 2024-09-22T00:35:29.266Z
+date: 2024-09-27T20:15:54.695Z
+updated: 2024-10-03T20:38:38.858Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
  When an influencer account is whitelisted, brands can also run ads through the account and alter the content for a particular niche. Additionally, brands are also allowed to dark post, where sponsored Facebook content doesn’t appear on the creator's timeline, page, or stories.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Steps to Whitelist Influencer Facebook Pages
 
  If you’re an influencer looking to whitelist your Facebook page with a brand partner, here’s what you need to do. First, you have to make sure that your Facebook Business Manager is set up and linked to your social profiles. If possible, you should also try to[verify your Facebook page](https://www.makeuseof.com/verify-facebook-business-page/) .
@@ -44,17 +51,38 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
 
 ![FB Business Manager Assign Pages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/FB-Business-Manager-Assign-Pages.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If you have the Business Manager ID of the brand you are planning to work with, select**Business ID** and type it in.
 
  Next, select the level of access that you want brands to have over your account. Most brands will only care to have standard access, so there is no need to give them full administrative access.
 
 ![FB Business Manager Access](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/FB-Business-Manager-Access.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Some features that you can allow business partners to use include publishing content, moderating messages and comments, creating ads, viewing performance, managing jobs, and viewing earnings.
 
  Partnerships will vary across brands, so you can customize access depending on what you have agreed on beforehand. Make sure to clarify these terms and not enable anything that you believe may harm your personal brand.
 
  Lastly, copy the shareable link and send it to your brand partner. With this link, brands will able be able to access your channels through their own Business Manager accounts. They will be able to create ads, reply to posts, or do anything you have permitted them to do through the steps above.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Make the Best Out of Facebook Whitelisting
 
@@ -75,12 +103,21 @@ thumbnail: https://thmb.techidaily.com/6631d02aad6297e4d6f700e032b5f1a6df7f0a482
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-sleek-line-up-best-7-fps-arenas/"><u>[New] In 2024, Sleek Line-Up Best 7 FPS Arenas</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-top-10-best-4k-monitors-for-2024/"><u>[Updated] Top 10 Best 4K Monitors for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-rhythm-and-resolution-edit-and-merge-songs-into-windows-11-vids/"><u>2024 Approved Rhythm & Resolution Edit and Merge Songs Into Windows 11 Vids</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-guide-get-the-latest-netgear-wna3100-drivers-instantly/"><u>Easy Guide: Get the Latest Netgear WNA3100 Drivers Instantly!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/mastering-iphone-screen-recording-with-minimal-fuss-for-2024/"><u>Mastering iPhone Screen Recording with Minimal Fuss for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/overlooked-high-impact-tech-developments-top-4-hidden-gems/"><u>Overlooked High-Impact Tech Developments - Top 4 Hidden Gems</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-14-pro-max-data-from-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 14 Pro Max Data From iTunes | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguarding-teen-online-interactions-on-the-social-network/"><u>Safeguarding Teen Online Interactions on the Social Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-fb-watchfulness-master-the-off-facebook-activity-strategy/"><u>Stop FB Watchfulness: Master the Off-Facebook Activity Strategy</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-selection-of-6-pioneering-instagram-reel-apps-for-2024/"><u>The Ultimate Selection of 6 Pioneering Instagram Reel Apps for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-tutorial-for-private-photo-sharing-on-fb/"><u>The Ultimate Tutorial for Private Photo Sharing on FB</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/uncover-11-free-effective-youtube-naming-solutions-for-2024/"><u>Uncover 11 Free, Effective YouTube Naming Solutions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-operations-via-transparency-center-launch/"><u>Unmasking Facebook's Operations via Transparency Center Launch</u></a></li>
+<li><a href="https://facebook.techidaily.com/zuckerberg-announces-cross-device-whatsapp-functionality/"><u>Zuckerberg Announces Cross-Device WhatsApp Functionality</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: What Are the New US Antitrust Laws and How Will They Takedown Big Tech?
-date: 2024-09-20T22:56:08.407Z
-updated: 2024-09-21T16:05:19.836Z
+date: 2024-09-29T19:49:57.968Z
+updated: 2024-10-03T21:40:51.958Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805
 
  More than[merely a cry for companies like Google to "break up their businesses](https://www.makeuseof.com/us-justice-department-antitrust-google/) ," these bills outline the specific business practices that extinguish competition at the source.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The American Choice and Innovation Online Act
 
 ![The Capital Dome --- Unsplash](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/new-antitrust-bills-big-tech.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Probably the most-cited of the five as of this time, this bill will prevent large companies from using their own marketplace advantages unfairly and undercutting those selling on the platform independently.
 
@@ -55,10 +69,10 @@ thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805
  Related: [Tech Companies Are Fighting to Kill "Right to Repair" Bills in the US](https://www.makeuseof.com/tech-companies-kill-right-to-repair/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. The Platform Competition and Opportunity Act of 2021
@@ -82,6 +96,13 @@ thumbnail: https://thmb.techidaily.com/60a777af346560d9b3330b89f1a2cdfdf0449c805
  The bill specifies a "conflict of interest" that should be avoided at all costs; a platform owner's responsibility to the marketplace that they manage conflicts deeply with that same platform owner's desire to out-sell the vendors that it represents.
 
 In essence: leave the selling to the sellers.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Augmenting Compatibility and Competition by Enabling Service Switching (ACCESS) Act of 2021
 
@@ -109,13 +130,6 @@ Finally, we come to the economic backing to make it all happen.
 
  Tethering these filing fees to the eventual consequences that the industry may have on the lives of ordinary consumers might be their way of incentivizing those paying them to toe the line. Only time will tell if this ends up nudging things in the right direction.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Future Is a Really Big Place
 
  With the tech industry still in its infancy, the waters ahead are murky and uncharted. If written to law, this bipartisan legislation will mark one significant triumph against the tyranny of the extraordinarily wealthy. Those of us here on the ground have few means of recourse without measures like this in place.
@@ -135,5 +149,22 @@ Finally, we come to the economic backing to make it all happen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-the-insiders-guide-to-youtube-editing-mastery-using-sony-vegas-software/"><u>[New] 2024 Approved The Insider's Guide to YouTube Editing Mastery Using Sony Vegas Software</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-the-ultimate-guide-to-finding-instagram-filters-for-no-cost/"><u>[Updated] 2024 Approved The Ultimate Guide to Finding Instagram Filters for No Cost</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-insights-into-income-average-earnings-per-advertisement-playback/"><u>[Updated] Insights Into Income Average Earnings per Advertisement Playback?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/7-ways-to-lock-apps-on-apple-iphone-se-2020-and-ipad-securely-drfone-by-drfone-ios/"><u>7 Ways to Lock Apps on Apple iPhone SE (2020) and iPad Securely | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-ethical-exposure-meta-on-private-photos-control/"><u>Ensuring Ethical Exposure: Meta on Private Photos Control</u></a></li>
+<li><a href="https://techtrends.techidaily.com/epic-hollywood-action-flicks-list-best-picks-for-free-viewing-and-download/"><u>Epic Hollywood Action Flicks List: Best Picks for Free Viewing and Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-a-leap-into-visual-communication-on-facebooks-messenger/"><u>Experience a Leap Into Visual Communication on Facebook's Messenger</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-graphic-errors-how-to-tackle-horizontal-line-disturbances-on-pc-screens/"><u>Fixing Graphic Errors: How to Tackle Horizontal Line Disturbances on PC Screens</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-has-changed-our-lives-for-better-or-worse/"><u>How Facebook Has Changed Our Lives for Better or Worse</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unleashing-the-power-of-free-copyright-free-image-repositories/"><u>In 2024, Unleashing the Power of Free, Copyright-Free Image Repositories</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-the-framework-behind-fbs-moderation-entity/"><u>Inspecting the Framework Behind FB's Moderation Entity</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-safety-feature-options/"><u>Navigating Facebook Safety Feature Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-random-disappearances-in-social-networking-realms/"><u>Overcoming Random Disappearances in Social Networking Realms</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-online-presence-adjusting-facebook-nickname/"><u>Reimagining Online Presence: Adjusting Facebook Nickname</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/vision-pro-headsets-the-next-frontier-with-zoom-integration-potential-quirks-explored-insights-from-zdnet/"><u>Vision Pro Headsets: The Next Frontier with Zoom Integration? Potential Quirks Explored - Insights From ZDNet</u></a></li>
+</ul></div>
 

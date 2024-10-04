@@ -1,7 +1,7 @@
 ---
 title: Facebook Joins the Rust Foundation to Help Grow the Programming Language
-date: 2024-09-23T17:10:46.179Z
-updated: 2024-09-28T17:14:38.293Z
+date: 2024-09-28T22:16:22.672Z
+updated: 2024-10-03T17:13:40.481Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/79c7e594da2bcc4e0b5a712ad425c9a3c9c769d43
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,15 +60,24 @@ thumbnail: https://thmb.techidaily.com/79c7e594da2bcc4e0b5a712ad425c9a3c9c769d43
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-comprehensive-guide-to-avoid-copyright-breaches-in-tiktok-videos-for-2024/"><u>[New] Comprehensive Guide to Avoid Copyright Breaches in TikTok Videos for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-quickly-change-the-pace-of-videos-in-your-instagram-feed/"><u>2024 Approved Quickly Change the Pace of Videos in Your Instagram Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/dismantling-digital-presence-how-to-close-your-fb-account/"><u>Dismantling Digital Presence: How to Close Your FB Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-advanced-conversational-ai-metaai/"><u>Exploring Advanced Conversational AI: MetaAI</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-15-plus-apples-new-iphone-by-drfone-ios/"><u>How to Unlock Apple iPhone 15 Plus, Apples New iPhone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Samsung Galaxy S24? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-nokia-c32-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Nokia C32 Phone Pattern Lock</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/master-red-dead-redemption-2-by-defeating-the-vexing-load-pause/"><u>Master Red Dead Redemption 2 by Defeating the Vexing Load Pause</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151843193-new-era-for-content-sharing-tackle-transfer-to-leading-3-platforms/"><u>New Era for Content Sharing: Tackle Transfer to Leading 3 Platforms!</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-to-anticipate-from-metas-privacy-policy-overhaul/"><u>What to Anticipate From Meta's Privacy Policy Overhaul?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unmissable-upgrades-top-8-tech-and-tools-reshaping-modern-enterprises/"><u>[New] 2024 Approved Unmissable Upgrades Top 8 Tech & Tools Reshaping Modern Enterprises</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-ideal-image-lengths-boost-video-engagement/"><u>[New] Ideal Image Lengths Boost Video Engagement</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveiling-6-video-techniques-that-grab-eyes/"><u>[Updated] In 2024, Unveiling 6 Video Techniques That Grab Eyes</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-cutting-edge-techniques-for-spotify-ad-success/"><u>2024 Approved Cutting-Edge Techniques for Spotify Ad Success</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-lenssplit-viewer-insight/"><u>2024 Approved LensSplit Viewer Insight</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-hardware-innovations-with-toms-technology-insights/"><u>Exploring Hardware Innovations with Tom's Technology Insights</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-motorola-g24-power-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Motorola G24 Power | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/impending-ruling-trumps-ban-under-scrutiny-at-fb-oversight-panel/"><u>Impending Ruling: Trump's Ban Under Scrutiny at FB Oversight Panel.</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-asus-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Asus Phones with/without a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-latest-update-whatsapp-for-2fa-code-transmission/"><u>Instagram’s Latest Update: WhatsApp for 2FA Code Transmission</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-job-opportunities-using-facebook-techniques/"><u>Maximize Job Opportunities Using Facebook Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-touches-on-fb-the-simplified-way-to-curate/"><u>Personal Touches on FB - The Simplified Way to Curate</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-vanished-phone-numbers-how-to-get-your-iphones-contacts-back/"><u>Reviving Vanished Phone Numbers: How to Get Your iPhone's Contacts Back</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-report-childs-social-media-activity/"><u>Steps to Report Child's Social Media Activity</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-rolling-shutter-phenomenon-explained-a-complete-movavi-walkthrough/"><u>Ultimate Rolling Shutter Phenomenon Explained - A Complete Movavi Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-my-personalized-ad-selection-on-facebook/"><u>Unraveling My Personalized Ad Selection on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-accuses-indias-government-on-it-rules/"><u>WhatsApp Accuses India's Government on IT Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-unaltered-capability-without-privacy-policy-acceptance/"><u>WhatsApp's Unaltered Capability without Privacy Policy Acceptance</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-digital-diary-how-to-personalize-and-pivot-your-fb-feed/"><u>Your Digital Diary: How to Personalize and Pivot Your FB Feed</u></a></li>
 </ul></div>
 

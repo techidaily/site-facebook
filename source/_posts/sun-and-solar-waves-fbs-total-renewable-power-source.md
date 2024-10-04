@@ -1,7 +1,7 @@
 ---
 title: "Sun and Solar Waves: FB's Total Renewable Power Source"
-date: 2024-09-21T00:27:07.054Z
-updated: 2024-09-21T22:44:33.061Z
+date: 2024-09-29T16:53:12.935Z
+updated: 2024-10-03T19:30:34.362Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/a8b16314a41e8185a53e16911a8cd83652896b677
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -67,12 +81,22 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-anchor-audios-to-corresponding-slides-in-ppt/"><u>[Updated] 2024 Approved Anchor Audios to Corresponding Slides in PPT</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-5-video-frame-captures-for-mac/"><u>[Updated] In 2024, Top 5 Video Frame Captures for Mac</u></a></li>
+<li><a href="https://win11.techidaily.com/conquer-unsupported-windows-interfaces-an-expert-guide/"><u>Conquer Unsupported Windows Interfaces: An Expert Guide</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/dough-spectrum-blacks-game-changing-27-oled-display-unleashed-highly-accurate-visually-stunning-gaming-perfection-revealed/"><u>Dough Spectrum Black's Game-Changing 27 OLED Display Unleashed: Highly Accurate, Visually Stunning Gaming Perfection Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-streaming-purely-focused-ig-livestream/"><u>Experience Streaming Purely Focused IG Livestream</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-virtual-frontier-prevent-fake-login-attempts-on-fb/"><u>Fortify Your Virtual Frontier: Prevent Fake Login Attempts on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-connection-to-complication-7-negative-aspects-unveiled/"><u>From Connection to Complication: 7 Negative Aspects Unveiled</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-permanently-delete-your-facebook-account/"><u>How to Permanently Delete Your Facebook Account</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-ispoofer-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on ZTE Blade A73 5G? | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-wipe-out-your-tiktok-activity-and-delete-the-app/"><u>How to Wipe Out Your TikTok Activity and Delete the App</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-infinix-zero-5g-2023-turbo-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Infinix Zero 5G 2023 Turbo</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-locked-out-of-iphone-8-plus-5-ways-to-get-into-a-locked-iphone-8-plus-drfone-by-drfone-ios/"><u>In 2024, Locked Out of iPhone 8 Plus? 5 Ways to get into a Locked iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/integrating-applications-with-your-facebook-network/"><u>Integrating Applications with Your Facebook Network</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-shielded-posts-in-fb-communities/"><u>The Ultimate Guide to Shielded Posts in FB Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollowing-trends-disabling-algorithmic-tweets/"><u>Unfollowing Trends: Disabling Algorithmic Tweets</u></a></li>
+</ul></div>
 

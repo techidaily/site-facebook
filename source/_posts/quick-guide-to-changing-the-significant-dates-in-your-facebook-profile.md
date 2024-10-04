@@ -1,7 +1,7 @@
 ---
 title: Quick Guide to Changing the Significant Dates in Your Facebook Profile
-date: 2024-09-20T19:32:02.031Z
-updated: 2024-09-21T16:50:25.532Z
+date: 2024-09-30T18:06:40.583Z
+updated: 2024-10-03T21:42:59.849Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ Follow the steps below to edit your birthday on the Facebook app.
 
 ![edit facebook birthdate](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/edit-facebook-birthdate.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Close
 
 1. Log in to the Facebook app on your phone and navigate to your profile.
@@ -65,6 +72,13 @@ Here's how:
 
 ![facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-homepage.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click on**About** in the menu below your name and profile photo.
 
 ![facebook-profile-page-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/facebook-profile-page-1.JPG)
@@ -73,9 +87,23 @@ Here's how:
 
 ![contact-info-facebook-1](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/contact-info-facebook-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Scroll down to where you'll find your birth date and birth year.
 
 ![change facebook birthday](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/change-facebook-birthday.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Make your desired corrections, tick the age confirmation box, and click**Save** .
 
@@ -95,20 +123,13 @@ Here's how:
 ![request birthday change](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/request-birthday-change.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Facebook will then correct the error in your birthdate as soon as your request is processed.
-
-<!-- affiliate ads begin -->
-<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
-  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Get Your Birthday Wishes on the Right Day
 
@@ -129,5 +150,26 @@ Here's how:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-free-youtube-end-screen-templates-plushow-tos-for-2024/"><u>[New] Free YouTube End Screen Templates [+How-Tos] for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2023how-to-share-videos-on-twitter-on-your-phone-without-retweeting-in-2024/"><u>[Updated] 2023|How to Share Videos on Twitter on Your Phone Without Retweeting, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-a-step-by-step-guide-turning-viral-soundtracks-into-personal-ringtones/"><u>[Updated] 2024 Approved A Step-by-Step Guide Turning Viral Soundtracks Into Personal Ringtones</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-edu-odyssey-journey-through-top-learning-sites/"><u>[Updated] Edu-Odyssey Journey Through Top Learning Sites</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/fixing-itunes-how-to-successfully-transfer-music-and-movies-to-your-iphone/"><u>Fixing iTunes: How to Successfully Transfer Music and Movies to Your iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-make-your-location-accessible-on-messenger/"><u>How to Make Your Location Accessible on Messenger</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-lenovo-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Lenovo to Protect Your Individual Information</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-how-to-pinpoint-premium-video-keywords-on-youtube/"><u>In 2024, How to Pinpoint Premium Video Keywords on YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone SE (2022)?</u></a></li>
+<li><a href="https://facebook.techidaily.com/metascape-unleashed-discovering-six-exciting-facebook-innovations/"><u>Metascape, Unleashed: Discovering Six Exciting Facebook Innovations</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-to-newest-facebook-video-listings/"><u>Navigate to Newest Facebook Video Listings</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-star-wave-pro-palestinian-actions-hit-facebooks-ratings-hard/"><u>One-Star Wave: Pro-Palestinian Actions Hit Facebook's Ratings Hard</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-online-presence-changing-your-facebook-name/"><u>Redefining Online Presence: Changing Your Facebook Name</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-combining-your-fortnite-profiles-seamlessly/"><u>Step-by-Step Guide: Combining Your Fortnite Profiles Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-advantage-of-facebooks-725-million-settlement-provision/"><u>Taking Advantage of Facebook's $725 Million Settlement Provision</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-simplifying-life-why-eliminate-facebook/"><u>The Art of Simplifying Life – Why Eliminate Facebook</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-complete-guide-to-help-you-convert-srt-to-xml-ssa-ttml-and-other-formats-for-2024/"><u>The Complete Guide to Help You Convert SRT to XML, SSA, TTML, and Other Formats for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-fabric-and-your-feed-a-look-at-usage-patterns/"><u>The Social Fabric and Your Feed: A Look at Usage Patterns</u></a></li>
+<li><a href="https://facebook.techidaily.com/unshackled-how-abstaining-from-social-screens-changed-me/"><u>Unshackled: How Abstaining From Social Screens Changed Me</u></a></li>
+</ul></div>
 

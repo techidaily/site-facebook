@@ -1,7 +1,7 @@
 ---
 title: "Unveiling an Image-to-Text Stylist: Facebook’s AI"
-date: 2024-09-14T19:35:56.500Z
-updated: 2024-09-21T21:55:48.201Z
+date: 2024-10-01T18:02:32.646Z
+updated: 2024-10-03T23:23:32.956Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce525
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -65,12 +72,24 @@ thumbnail: https://thmb.techidaily.com/a018e8a9f0d428a05e6f8e5f431115fbc243ce525
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-affordable-desktop-recording-solutions-reviewed/"><u>[New] Affordable Desktop Recording Solutions Reviewed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-capture-cumulative-chronicles/"><u>2024 Approved Capture Cumulative Chronicles</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/achieving-reliable-internet-with-tp-links-deco-p9-in-depth-review-for-optimal-wi-fi-experience/"><u>Achieving Reliable Internet with TP-Link's Deco P9: In-Depth Review for Optimal Wi-Fi Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/decembers-silence-on-instagram-thread-activity/"><u>December's Silence on Instagram Thread Activity</u></a></li>
+<li><a href="https://facebook.techidaily.com/deep-dive-into-facebooks-metaverse-three-concerns-raised/"><u>Deep Dive Into Facebook's Metaverse: Three Concerns Raised</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-with-determination-strategies-for-discarding-your-fb-brand-pages/"><u>Deleting with Determination: Strategies for Discarding Your FB Brand Pages</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-tutorial-enhancing-image-clarity-on-facebook/"><u>Detailed Tutorial: Enhancing Image Clarity on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-bonds-that-matter-the-top-9-advantages-of-social-networks/"><u>Digital Bonds That Matter: The Top 9 Advantages of Social Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/discovering-the-meaning-of-inactive-contacts-on-social-media/"><u>Discovering the Meaning of Inactive Contacts on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/diving-into-deeper-connections-facebooks-past-narrative/"><u>Diving Into Deeper Connections: Facebook’s Past Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-methods-for-managing-page-followings/"><u>Effective Methods for Managing Page Followings</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-infinix-hot-40-pro-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Infinix Hot 40 Pro Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-maximizing-your-youtube-clicks-with-optimal-dimensions/"><u>In 2024, Maximizing Your YouTube Clicks with Optimal Dimensions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-s24-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-quality-hero5-black-battery-packs-legit-and-third-party-options/"><u>In 2024, Top-Quality Hero5 Black Battery Packs - Legit & Third-Party Options</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/revel-in-filmoras-top-9-edits-every-editor-loves/"><u>Revel in Filmora's Top 9 Edits Every Editor Loves</u></a></li>
+<li><a href="https://apple-account.techidaily.com/troubleshooting-error-connecting-to-the-apple-id-server-from-iphone-13-by-drfone-ios/"><u>Troubleshooting Error Connecting to the Apple ID Server From iPhone 13</u></a></li>
+</ul></div>
 

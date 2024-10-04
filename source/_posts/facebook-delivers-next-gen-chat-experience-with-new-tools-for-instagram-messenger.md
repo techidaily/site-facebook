@@ -1,7 +1,7 @@
 ---
 title: Facebook Delivers Next-Gen Chat Experience with New Tools for Instagram, Messenger
-date: 2024-09-16T17:46:53.744Z
-updated: 2024-09-21T20:13:21.763Z
+date: 2024-09-29T17:24:08.710Z
+updated: 2024-10-03T18:53:44.624Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
 
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hands-Free Audio Messaging in Messenger
 
  Facebook acknowledged the popularity of audio messaging on Messenger and to make it easier, it has added a tap-to-record feature. Using this, users will no longer have to hold down the record button when sending audio messages.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/ce2c767b4ea66790422350863194f4cca1e1e1f1b
  Facebook states that this new feature will allow users to focus on other tasks while simultaneously recording an audio message.
 
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## New Inbox Management Features
 
@@ -69,12 +83,22 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-androids-premier-animal-experience-compilation/"><u>[New] 2024 Approved Android's Premier Animal Experience Compilation</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/experts-choice-4-exceptional-free-cad-programs-for-designers/"><u>Experts' Choice: 4 Exceptional Free CAD Programs for Designers</u></a></li>
+<li><a href="https://facebook.techidaily.com/friday-and-saturday-are-now-for-live-bargain-hunting-at-fb/"><u>Friday and Saturday Are Now for Live Bargain Hunting at FB</u></a></li>
+<li><a href="https://network-issues.techidaily.com/patching-flaws-in-civilization-v-pc-edition/"><u>Patching Flaws in Civilization V PC Edition</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-simple-guide-update-your-amd-radeon-rx-470-drivers/"><u>Quick and Simple Guide: Update Your AMD Radeon RX 470 Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-process-with-facebooks-mobile-code-creator/"><u>Secure Login Process with Facebook's Mobile Code Creator</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solutions-for-windows-11-users-facing-a-puzzling-black-display/"><u>Step-by-Step Solutions for Windows 11 Users Facing a Puzzling Black Display</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-of-therapy-will-ai-revolutionize-mental-health-assistance-for-better-or-worse/"><u>The Future of Therapy: Will AI Revolutionize Mental Health Assistance, for Better or Worse?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/total-transparency-in-retrospect-download-tutorial-for-fb-data/"><u>Total Transparency in Retrospect: Download Tutorial for FB Data</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-potential-of-your-vehicle-with-halo-bolts-portable-chargers-and-starters/"><u>Unlocking the Potential of Your Vehicle with Halo Bolt's Portable Chargers and Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwanted-facebook-interactions-a-step-by-step-removal-guide/"><u>Unwanted Facebook Interactions: A Step-by-Step Removal Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-5-most-affecting-facebook-slip-ups/"><u>Unwrapping the 5 Most Affecting Facebook Slip-Ups</u></a></li>
+<li><a href="https://facebook.techidaily.com/unwrapping-the-facebook-reimbursement-procedure/"><u>Unwrapping the Facebook Reimbursement Procedure</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-conversations-take-flight-with-facebooks-podcast-hub/"><u>Virtual Conversations Take Flight with Facebook’s Podcast Hub</u></a></li>
+</ul></div>
 

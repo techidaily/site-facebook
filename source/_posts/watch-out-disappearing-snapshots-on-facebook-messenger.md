@@ -1,7 +1,7 @@
 ---
 title: "Watch Out: Disappearing Snapshots on Facebook Messenger"
-date: 2024-09-21T16:47:36.704Z
-updated: 2024-09-28T17:10:40.528Z
+date: 2024-09-26T18:47:46.937Z
+updated: 2024-10-03T20:17:46.346Z
 tags:
   - facebook
 categories:
@@ -40,13 +40,6 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
  Meta expects default encryption on Messenger to be[globally implemented by 2023](https://www.makeuseof.com/meta-delays-end-to-end-encryption-until-2023/) , when Instagram and Messenger are also likely to merge.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Activate Screenshot Notifications on Messenger
 
  Because Messenger's end-to-end encryption isn't turned on by default, you have to enable Secret Conversations with each Messenger contact. Both parties must have the latest version of the app. If one party doesn't, they'll have to update the app before this feature can work on their end.
@@ -59,22 +52,29 @@ thumbnail: https://thmb.techidaily.com/8fb2d0d577922e31978350cb180e7bc0e8d3ea4b5
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -82,10 +82,10 @@ Close
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Updates to Messenger
@@ -109,24 +109,14 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-budget-gaming-setup-find-the-best-keyboards-for-less/"><u>[New] Budget Gaming Setup Find the Best Keyboards for Less</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-cataloging-fb-video-ratios/"><u>[New] In 2024, Cataloging FB Video Ratios</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-complete-guide-to-record-google-meet-for-free-as-hostpaticipants/"><u>[New] In 2024, Complete Guide to Record Google Meet for Free [As Host/Paticipants]</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-supercharge-your-channels-a-guide-to-the-best-keyword-research-software/"><u>[New] In 2024, Supercharge Your Channels A Guide to the Best Keyword Research Software</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-before-you-buy-the-complete-guide-to-smart-drone-purchasing-for-2024/"><u>[Updated] Before You Buy The Complete Guide to Smart Drone Purchasing for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-best-8-subtitle-transformers-seamless-switch-from-sub-to-srtr-in-seconds-on-windowsmacos-for-2024/"><u>[Updated] Best 8 Subtitle Transformers Seamless Switch From SUB to SRTR in Seconds on Windows/MacOS for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-introduction-to-stories-essence-and-art/"><u>2024 Approved Introduction to Stories' Essence and Art</u></a></li>
-<li><a href="https://facebook.techidaily.com/access-denied-heres-the-path-to-password-reload/"><u>Access Denied? Here's the Path to Password Reload</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-privacy-and-usefulness-facebook-apps-and-webs/"><u>Balancing Privacy and Usefulness: Facebook Apps & Webs</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-practices-in-managing-connected-websites-and-apps-on-fb/"><u>Best Practices in Managing Connected Websites & Apps on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypassing-online-security-after-losing-your-phonefb/"><u>Bypassing Online Security After Losing Your Phone:FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/changing-identity-online-facebook-name-revision-tips/"><u>Changing Identity Online: Facebook Name Revision Tips</u></a></li>
-<li><a href="https://facebook.techidaily.com/chat-no-more-introducing-realistic-scenarios-in-fb-messenger/"><u>Chat No More: Introducing Realistic Scenarios in FB Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/checking-the-legitimacy-of-fbs-safety-mail-address-(securityfbcom)/"><u>Checking the Legitimacy of FB's Safety Mail Address: <security@fb.com></u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-conversation-culture-with-care/"><u>Cultivating Conversation Culture with Care</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152816501-enhance-your-conversation-security-with-end-to-end-encrypted-services-on-facebook/"><u>Enhance Your Conversation Security with End-to-End Encrypted Services on Facebook.</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-top-5-economical-game-ready-keyboards/"><u>In 2024, Top 5 Economical Game-Ready Keyboards</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-driver-failure-correcting-set-user-settings/"><u>Resolving 'Driver Failure' - Correcting Set User Settings</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/this-weeks-tech-highlights-unpacking-the-atandt-security-flaw-and-exciting-new-releases-from-samsung/"><u>This Week's Tech Highlights: Unpacking the AT&T Security Flaw and Exciting New Releases From Samsung</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-best-ten-spotify-equipment-for-high-quality-recording-for-2024/"><u>[New] The Best Ten Spotify Equipment for High-Quality Recording for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/1726030041225-handbrake/"><u>「ビデオファイルを自由に使えるように: HandBrakeコピーガード対策手法」</u></a></li>
+<li><a href="https://article-helps.techidaily.com/best-three-tactics-for-maximizing-zoom-transcoding/"><u>Best Three Tactics for Maximizing Zoom Transcoding</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gifs-automatici-dal-vero-fatto-scorri-il-passaggio-alla-conversione-video-su-pcbrowser-con-metodo-di-movavi/"><u>GIFs Automatici Dal Vero Fatto: Scorri Il Passaggio Alla Conversione Video Su PC/Browser Con Metodo Di Movavi</u></a></li>
+<li><a href="https://facebook.techidaily.com/gymnastics-groups-reject-social-networking/"><u>Gymnastics Groups Reject Social Networking</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-enables-2fa-via-whatsapp-for-secure-access/"><u>Instagram Enables 2FA via WhatsApp for Secure Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphones-escape-from-app-surveillance-prowess/"><u>IPhones Escape From App Surveillance Prowess</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-details-for-your-youngsters-facebook-messenger/"><u>Streamlining Details for Your Youngster’s Facebook Messenger</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/youtube-free-conversion-hack-turn-hd-fb-videos-into-high-res-mp4-for-free/"><u>YouTube-Free Conversion Hack Turn HD FB Videos Into High-Res MP4 For Free</u></a></li>
 </ul></div>
 

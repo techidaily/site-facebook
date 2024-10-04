@@ -1,7 +1,7 @@
 ---
 title: Why Did Facebook Ditch 'News Feed' In Favor of Just 'Feed'?
-date: 2024-09-19T23:10:13.382Z
-updated: 2024-09-21T20:42:01.354Z
+date: 2024-09-30T20:17:30.294Z
+updated: 2024-10-03T17:30:17.501Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ Not so fast.
 
  Therefore, segregating the news away from regular updates by your friends and family is a legally smart move for Facebook. It will certainly help their case with regulators if it drives down misinformation. In that regard, a change from News Feed to Feed makes sense.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Is Facebook Getting Out of the News Business?
 
  News Feed made Facebook the biggest distributor of news and information in the world. For better or worse, News Feed has had important consequences for the world, especially in politics.
@@ -69,12 +76,24 @@ Not so fast.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-frame-your-cinematic-tales-three-paths-for-instagram-borders/"><u>[New] 2024 Approved Frame Your Cinematic Tales Three Paths for Instagram Borders</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-visualize-better-incorporating-borders-in-insta-videos/"><u>[New] Visualize Better Incorporating Borders in Insta-Videos</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solved-minecraft-no-sound-on-pc/"><u>[SOLVED] Minecraft No Sound on PC</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-maximizing-obs-broadcasts-to-facebook-feed/"><u>2024 Approved Maximizing OBS Broadcasts to Facebook Feed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/a-list-cameras-for-dreamy-4k-videos-18-selection/"><u>A-List Cameras for Dreamy 4K Videos (#18 Selection)</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/chuckle-champions-humor-hunt-on-twitter/"><u>Chuckle-Champions Humor Hunt on Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/filter-bubble-act-explained-for-everyday-users/"><u>Filter Bubble Act Explained for Everyday Users</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/instant-resolution-for-your-kernelbase-dll-errors-troubleshooting-steps-inside/"><u>Instant Resolution for Your KernelBase DLL Errors: Troubleshooting Steps Inside</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-facebooks-home-smart-hub/"><u>Maximizing Facebook's Home Smart Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/nearly-all-iphones-dodging-app-data-collection/"><u>Nearly All iPhones Dodging App Data Collection</u></a></li>
+<li><a href="https://facebook.techidaily.com/recovering-an-invalidated-facebook-login-attempt/"><u>Recovering an Invalidated Facebook Login Attempt</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-login-simplified-instagram-to-whatsapp-2fa-codes/"><u>Secure Login Simplified: Instagram to WhatsApp 2FA Codes</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/sleek-superior-substantial-reviewing-the-asus-mg28uq-4k-display-for-2024/"><u>Sleek, Superior, Substantial – Reviewing the ASUS MG28UQ 4K Display for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamline-your-sound-experience-spotify-on-facebook-tips/"><u>Streamline Your Sound Experience: Spotify on Facebook Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-reemergence-of-second-life-metaverse-trends-examined/"><u>The Reemergence of Second Life: Metaverse Trends Examined</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-5-best-monitors-for-ps5-for-2024/"><u>Top 5 Best Monitors for Ps5 for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-suggested-for-you-content-on-facebook-and-why-cant-you-disable-it/"><u>What Is “Suggested for You” Content on Facebook, and Why Can’t You Disable It?</u></a></li>
+</ul></div>
 

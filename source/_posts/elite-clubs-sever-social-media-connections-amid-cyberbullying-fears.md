@@ -1,7 +1,7 @@
 ---
 title: Elite Clubs Sever Social Media Connections Amid Cyberbullying Fears
-date: 2024-09-14T18:58:40.885Z
-updated: 2024-09-21T19:49:09.447Z
+date: 2024-10-01T17:06:05.359Z
+updated: 2024-10-03T16:12:03.021Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,12 +86,21 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-audiovisual-cooperation-the-duet-phenomenon/"><u>[New] 2024 Approved Audiovisual Cooperation The Duet Phenomenon</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-no-cost-camera-screenshot-tool-reviews-and-selections-for-2024/"><u>[Updated] No-Cost Camera Screenshot Tool Reviews & Selections for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-essentials-of-gameplay-saving-a-complete-guide-to-recording-minecraft-on-mac/"><u>[Updated] The Essentials of Gameplay Saving A Complete Guide to Recording Minecraft on Mac</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-bridging-music-sections-advanced-audacity-techniques/"><u>2024 Approved Bridging Music Sections Advanced Audacity Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-sleep-mode-a-guide-to-efficiently-using-the-feature-in-messenger-kids/"><u>Decoding Sleep Mode: A Guide to Efficiently Using the Feature in Messenger Kids</u></a></li>
+<li><a href="https://facebook.techidaily.com/detailed-breakdown-of-every-action-on-your-facebook-page/"><u>Detailed Breakdown of Every Action on Your Facebook Page</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-the-network-that-makes-you-smile/"><u>Discover the Network That Makes You Smile</u></a></li>
+<li><a href="https://facebook.techidaily.com/economic-empowerment-how-reels-and-revenue-work-together-for-creators/"><u>Economic Empowerment: How Reels and Revenue Work Together for Creators</u></a></li>
+<li><a href="https://facebook.techidaily.com/effective-content-planning-on-social-media-without-breaking-your-banks/"><u>Effective Content Planning on Social Media Without Breaking Your Banks</u></a></li>
+<li><a href="https://facebook.techidaily.com/effortlessly-redefine-yourself-in-the-social-media-sphere/"><u>Effortlessly Redefine Yourself in the Social Media Sphere</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-artificial-intelligence-chatbots-revolutionize-digital-content-development/"><u>How Artificial Intelligence Chatbots Revolutionize Digital Content Development</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-action-cameras-for-thrill-seekers/"><u>Leading Action Cameras for Thrill Seekers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-the-differences-between-standard-and-premium-copilots-is-it-worth-the-upgrade/"><u>Navigating the Differences Between Standard and Premium Copilots - Is It Worth The Upgrade?</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/transformer-des-fichiers-caf-en-aiff-gratuite-et-facile-avec-movavi-en-ligne/"><u>Transformer Des Fichiers CAF en AIFF Gratuite Et Facile Avec Movavi en Ligne</u></a></li>
+</ul></div>
 

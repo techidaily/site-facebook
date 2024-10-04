@@ -1,7 +1,7 @@
 ---
 title: Whispered Crackdown on Honest Marketing in FB
-date: 2024-09-14T17:31:35.004Z
-updated: 2024-09-21T22:50:57.381Z
+date: 2024-09-27T21:13:35.826Z
+updated: 2024-10-03T18:08:49.354Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/3a086eb5f8446de2870210890acaafe476fc2c59a
 
  In a post on the[Signal Blog](https://signal.org/blog/the-instagram-ads-you-will-never-see/) , the company shared the Instagram ads that Facebook doesn't want you to see. Furthermore, Signal took to social media to share these ads as well.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Responds to Signal's Move
 
 Facebook responded with the following statement to the media:
@@ -44,6 +51,13 @@ Facebook responded with the following statement to the media:
 
  "We wanted to use Instagram ads to highlight how ad tech invades your privacy," according to Signal's post on Twitter. "Instead, Facebook shut our account down."
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Signal's Ads You’ll Never See on Instagram
 
  Signal created other ads to drive its message home, with one of the ads reading as follows:
@@ -53,10 +67,10 @@ Facebook responded with the following statement to the media:
  All told, Signal created more than half a dozen ads following a similar theme, including advertisements targeted towards a single person, London-based divorcees with degrees in art history, teachers based in Moscow, K-pop loving chemical engineers, and similar.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is This Nothing But a PR Stunt on Signal's Part?
@@ -82,5 +96,26 @@ Facebook responded with the following statement to the media:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-techniques-to-perfectly-transcribe-ppts/"><u>[Updated] 2024 Approved Techniques to Perfectly Transcribe PPTs</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-complete-introduction-to-advanced-features-in-final-cut-pro/"><u>[Updated] A Complete Introduction to Advanced Features in Final Cut Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-high-cash-content-creators-for-2024/"><u>[Updated] High-Cash Content Creators for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-omnipresent-iptv-networking-model-for-2024/"><u>[Updated] Omnipresent IPTV Networking Model for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-high-fidelity-portals-to-ps3-gaming-on-pcs/"><u>2024 Approved High-Fidelity Portals to Ps3 Gaming on PCs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-next-gen-storytelling-10-sci-fi-films-transporting-you-elsewhere/"><u>2024 Approved Next Gen Storytelling 10 Sci-Fi Films Transporting You Elsewhere</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/easy-methods-to-change-your-mov-videos-to-m4a-on-a-pc/"><u>Easy Methods to Change Your MOV Videos to M4A on a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-security-standards-on-fb-profile/"><u>Elevating Security Standards on FB Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-for-alerting-about-child-users-in-virtual-spaces/"><u>Guidelines for Alerting About Child Users in Virtual Spaces</u></a></li>
+<li><a href="https://facebook.techidaily.com/guidelines-to-label-safe-user-on-fb/"><u>Guidelines to Label Safe User on FB</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-meizu-21-pro-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-realme-gt-neo-5-se-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Realme GT Neo 5 SE to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-visual-voyage-exploring-pexels-for-perfect-shots/"><u>In 2024, A Visual Voyage Exploring Pexels for Perfect Shots</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconsidering-ties-unfriending-someone-from-fb/"><u>Reconsidering Ties: Unfriending Someone From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/reject-the-auto-suggestions-on-social-platforms/"><u>Reject the Auto-Suggestions on Social Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-stronger-teen-facebook-privacy-measures/"><u>Setting Up Stronger Teen Facebook Privacy Measures</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-nurturing-professional-client-relations-on-fb/"><u>Social Media Mastery: Nurturing Professional Client Relations on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-silent-whispers-predicting-facebooks-woes/"><u>The Silent Whispers Predicting Facebook's Woes</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-strategy-for-departing-facebook-communities/"><u>The Strategy for Departing Facebook Communities</u></a></li>
+</ul></div>
 

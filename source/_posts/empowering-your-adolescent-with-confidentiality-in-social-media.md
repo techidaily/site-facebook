@@ -1,7 +1,7 @@
 ---
 title: Empowering Your Adolescent with Confidentiality in Social Media
-date: 2024-09-23T17:32:19.979Z
-updated: 2024-09-28T17:21:30.718Z
+date: 2024-10-02T16:10:59.386Z
+updated: 2024-10-03T19:30:44.499Z
 tags:
   - facebook
 categories:
@@ -36,13 +36,26 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -50,13 +63,6 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -91,10 +97,10 @@ Close
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -106,10 +112,10 @@ Close
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
@@ -133,24 +139,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/alive-and-well-decoding-facebooks-resistance-to-die-off/"><u>'Alive and Well': Decoding Facebook’s Resistance to Die-Off</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-premium-podcast-partners-in-academia/"><u>[New] In 2024, Premium Podcast Partners in Academia</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-ultimate-seal-on-immersive-odyssey-for-2024/"><u>[New] Ultimate Seal on Immersive Odyssey for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevating-your-youtube-comments-with-emoji-skills/"><u>[Updated] 2024 Approved Elevating Your YouTube Comments with Emoji Skills</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-pinnacle-of-photography-exceptional-sky-hd-sites-catalog/"><u>[Updated] 2024 Approved Pinnacle of Photography - Exceptional Sky HD Sites Catalog</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-whispered-wealth-the-silent-online-auction-for-secrecys-treasures-2023/"><u>[Updated] In 2024, Whispered Wealth The Silent Online Auction for Secrecy's Treasures, 2023</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-call-for-action-facebook-and-google-must-tackle-online-scams-head-on/"><u>A Call for Action: Facebook & Google Must Tackle Online Scams Head-On</u></a></li>
-<li><a href="https://facebook.techidaily.com/comparing-profiles-and-ppages-why-brands-thrive-with-the-right-choice/"><u>Comparing Profiles & Ppages: Why Brands Thrive with the Right Choice</u></a></li>
-<li><a href="https://facebook.techidaily.com/directive-mechanisms-for-leading-facebook-group-discussions/"><u>Directive Mechanisms for Leading Facebook Group Discussions</u></a></li>
-<li><a href="https://facebook.techidaily.com/fighting-fake-news-keeping-users-informed-amidst-outbreak/"><u>Fighting Fake News: Keeping Users Informed Amidst Outbreak</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-macx-mp4-video-transcoder-top-choice-for-converting-videos-to-mp4-on-mac/"><u>Free MacX MP4 Video Transcoder: Top Choice for Converting Videos to MP4 on Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-quickly-switch-between-facebook-accounts/"><u>How to Quickly Switch Between Facebook Accounts</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-unlocking-viewer-analysis-on-your-instagram-snapshots/"><u>In 2024, Unlocking Viewer Analysis on Your Instagram Snapshots</u></a></li>
-<li><a href="https://facebook.techidaily.com/life-after-unlinking-from-social-networks/"><u>Life After Unlinking From Social Networks</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/optimizing-storage-spend-best-prices-in-cloud-services-for-2024/"><u>Optimizing Storage Spend Best Prices in Cloud Services for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/resolving-microsoft-store-blockage-issue-on-win11/"><u>Resolving Microsoft Store Blockage Issue on Win11</u></a></li>
-<li><a href="https://facebook.techidaily.com/thriving-in-silence-6-advantages-to-exiting-facebook/"><u>Thriving in Silence - 6 Advantages to Exiting Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-secrets-to-optimal-social-media-imagery/"><u>Unveiling Secrets to Optimal Social Media Imagery</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-13-pro-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone 13 Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-instagram-filter-mastery-essential-skills/"><u>[New] 2024 Approved Instagram Filter Mastery - Essential Skills</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quiet-echo-architects-6-unpublicized-voice-recorder-apps/"><u>[New] 2024 Approved Quiet Echo Architects 6 Unpublicized Voice Recorder Apps</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-insider-insights-unpacking-the-dji-phantom-3-pro-features/"><u>[New] In 2024, Insider Insights Unpacking the DJI Phantom 3 Pro Features</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-power-of-consistency-rising-up-the-charts-on-youtube-for-2024/"><u>[Updated] The Power of Consistency Rising Up the Charts on YouTube for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-bring-your-video-to-life-from-standard-to-hdri-excellence/"><u>2024 Approved Bring Your Video to Life From Standard to HDRI Excellence</u></a></li>
+<li><a href="https://win11.techidaily.com/7-key-steps-to-restore-your-usb-wi-fi-on-a-pc/"><u>7 Key Steps to Restore Your USB Wi-Fi On a PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/giphys-survival-at-stake-as-fb-divestment-rumors-swirl/"><u>Giphy's Survival at Stake as FB Divestment Rumors Swirl</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-get-clients-on-facebook-for-work/"><u>How to Get Clients on Facebook for Work</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hp-officejet-4655-upgrade-to-current-version-step-by-step-driver-installation-tutorial/"><u>HP Officejet 4655 Upgrade to Current Version: Step-by-Step Driver Installation Tutorial</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-the-best-drivers-for-your-hp-zbook-15-g3-optimize-performance-on-windows-devices/"><u>Installing the Best Drivers for Your HP ZBook 15 G3 – Optimize Performance on Windows Devices</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/optimize-web-insights-with-cookiebot-technology-advanced-user-engagement-tools/"><u>Optimize Web Insights with Cookiebot Technology – Advanced User Engagement Tools</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-infinix-hot-30i-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Infinix Hot 30i to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-hidden-usage-in-your-tech-environment/"><u>Spotting Hidden Usage in Your Tech Environment</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-plans-retrieving-a-disabled-facebook-profile/"><u>Strategic Plans: Retrieving a Disabled Facebook Profile</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pivotal-moment-when-i-joined-facebook/"><u>The Pivotal Moment: When I Joined Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-players-of-techs-most-divided-arena/"><u>The Power Players of Tech's Most Divided Arena</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-scams-how-to-protect-your-online-presence/"><u>Understanding Scams: How to Protect Your Online Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-the-filter-bubble-transparency-act-and-how-will-it-affect-you/"><u>What Is the Filter Bubble Transparency Act and How Will It Affect You?</u></a></li>
+<li><a href="https://facebook.techidaily.com/winning-a-share-of-the-725-million-facebook-settlement/"><u>Winning a Share of the $725 Million Facebook Settlement</u></a></li>
 </ul></div>
 

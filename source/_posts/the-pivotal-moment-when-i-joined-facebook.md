@@ -1,7 +1,7 @@
 ---
 title: "The Pivotal Moment: When I Joined Facebook"
-date: 2024-09-14T17:53:42.688Z
-updated: 2024-09-21T17:48:24.842Z
+date: 2024-09-29T20:26:54.750Z
+updated: 2024-10-03T20:37:24.738Z
 tags:
   - facebook
 categories:
@@ -78,6 +78,13 @@ Close
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Find How Old Your Facebook Account Is Using a Profile Picture
 
  Facebook usually asks you to upload a profile picture as soon as you’ve finished creating an account. This means the upload date of your first profile picture should be your Facebook account creation date.
@@ -92,18 +99,19 @@ Close
 4. On the**Photos** screen, find and click the**Albums** option. This lets you view your Facebook photo albums.  
 ![facebook photo albums page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-photo-albums-page-1.jpg)
 5. Click**Profile pictures** on the album screen to open your profile photos album.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
  That date should be the day you made your Facebook profile or very close to that date.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
 
@@ -121,15 +129,22 @@ Close
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
@@ -151,5 +166,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/-second-stories-explained-well-in-2024/"><u>[New] 5-Second Stories Explained Well, In 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-live-stream-to-screen-seamlessly-reviewed/"><u>[Updated] Live-Stream to Screen, Seamlessly Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/a-guide-to-navigating-posting-on-altered-instagram-landscape/"><u>A Guide to Navigating Posting on Altered Instagram Landscape</u></a></li>
+<li><a href="https://program-issues.techidaily.com/elden-ring-launch-on-pause-exploring-the-factors-contributing-to-its-postponement/"><u>Elden Ring Launch on Pause - Exploring the Factors Contributing to Its Postponement</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/elevate-performance-and-eliminate-lags-expert-advice-for-enhancing-frames-per-second-fps-in-valorant/"><u>Elevate Performance & Eliminate Lags: Expert Advice for Enhancing Frames Per Second (FPS) in Valorant</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-isolation-to-integration-linking-your-social-profiles-in-xbox-land/"><u>From Isolation to Integration: Linking Your Social Profiles in Xbox Land</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-optimizing-lifes-dual-roles-job-and-youtubing/"><u>In 2024, Optimizing Life's Dual Roles Job & YouTubing</u></a></li>
+<li><a href="https://facebook.techidaily.com/making-your-fb-life-invisible-to-outside-eyes/"><u>Making Your FB Life Invisible to Outside Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-file-retrieval-from-facebook-gallery/"><u>Navigating File Retrieval From Facebook Gallery</u></a></li>
+<li><a href="https://facebook.techidaily.com/noncompliant-zone-facebook-continues-to-host-anti-vax-groups/"><u>Noncompliant Zone: Facebook Continues to Host Anti-Vax Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-for-metas-e2e-encryption-postponement-until-2023/"><u>Reasons for Meta's E2E Encryption Postponement Until 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-clean-up-for-your-facebook-account/"><u>The Ultimate Clean-Up for Your Facebook Account</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-xiaomi-redmi-note-12-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Xiaomi Redmi Note 12 5G Phones</u></a></li>
+</ul></div>
 

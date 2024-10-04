@@ -1,7 +1,7 @@
 ---
 title: Whistleblowers Pleased as Germany Halts Facebook From Collecting WhatsApp User Info
-date: 2024-09-27T17:28:44.045Z
-updated: 2024-09-28T16:26:45.387Z
+date: 2024-09-26T22:33:28.601Z
+updated: 2024-10-03T23:15:09.005Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,10 +56,16 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -83,22 +89,22 @@ thumbnail: https://thmb.techidaily.com/40dacce0cb547ba8c0e5ef7c77101f1f8b7f316b2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/everaging-youtubes-ecosystem-for-financial-gain-for-2024/"><u>[New] Leveraging YouTube's Ecosystem for Financial Gain for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-bestdiscords-ultimate-guide-to-popular-themes/"><u>[Updated] BestDiscord's Ultimate Guide to Popular Themes</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>4 Feasible Ways to Fake Location on Facebook For your Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-6-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone 6 Screen with PC | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-web-that-wounds-10-harmful-effects-of-social-connectivity/"><u>A Web That Wounds: 10 Harmful Effects of Social Connectivity</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/bebop-unfurled-in-flight-form-the-secondary-parrot-review-for-2024/"><u>Bebop Unfurled in Flight Form – The Secondary Parrot Review for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/bringing-nintendo-switch-back-to-life/"><u>Bringing Nintendo Switch Back to Life</u></a></li>
-<li><a href="https://network-issues.techidaily.com/end-stage-say-goodbye-to-screen-flashes-on-win11/"><u>End Stage: Say Goodbye to Screen Flashes on Win11</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-guide-resolving-enigmatic-computer-crash-issues/"><u>Expert Guide: Resolving Enigmatic Computer Crash Issues</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-unveils-enhanced-user-experience-layouts/"><u>Facebook Unveils Enhanced User Experience Layouts</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-facebook-down-how-to-find-out-and-see-when-its-back-up/"><u>Is Facebook Down? How to Find Out and See When It's Back Up</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-newsfeed-narrative-with-customization-choices/"><u>Mastering the Newsfeed Narrative with Customization Choices</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-realme-c33-2023-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Realme C33 2023? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-giants-iron-fisted-approach-to-combatting-false-claims/"><u>Social Giant's Iron-Fisted Approach to Combatting False Claims</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-for-decreasing-unsolicited-fb-messages/"><u>Strategies for Decreasing Unsolicited FB Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-covert-elements-filtering-your-fb-timeline/"><u>The Covert Elements Filtering Your Fb Timeline</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-language-beyond-words-interpreting-icons-and-symbols-on-fb/"><u>The Language Beyond Words: Interpreting Icons and Symbols on FB</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-grassroots-video-marketing-strategies/"><u>[Updated] Grassroots Video Marketing Strategies</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-art-of-iphone-photos-arrangement-strategies-and-icloud-coordination/"><u>[Updated] The Art of iPhone Photos Arrangement Strategies and iCloud Coordination</u></a></li>
+<li><a href="https://change-location.techidaily.com/discovering-the-premier-police-scanners-of-24/"><u>Discovering the Premier Police Scanners of '24</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-user-interactions-with-a-focus-on-news-streams/"><u>Exploring User Interactions with a Focus on News Streams</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-from-novice-to-pro-transforming-videos-using-vida/"><u>In 2024, From Novice to Pro Transforming Videos Using Vida</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-tecno-camon-20-pro-5g-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Tecno Camon 20 Pro 5G Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-window-customization-8-essential-tips-from-winbubble/"><u>Mastering Window Customization: 8 Essential Tips From WinBubble</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/melodic-marvels-device-spotlight/"><u>Melodic Marvels Device Spotlight</u></a></li>
+<li><a href="https://facebook.techidaily.com/redesigning-your-fb-profiles-address-and-aesthetics/"><u>Redesigning Your FB Profile's Address and Aesthetics</u></a></li>
+<li><a href="https://facebook.techidaily.com/resurrect-the-inactive-restore-your-facebook-experience/"><u>Resurrect the Inactive: Restore Your Facebook Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-connectivity-what-to-expect-from-fbs-boombox-with-spotify/"><u>Revolutionizing Connectivity: What to Expect From FB's Boombox With Spotify</u></a></li>
+<li><a href="https://facebook.techidaily.com/sealing-your-social-exit-complete-unsubscription-from-fb/"><u>Sealing Your Social Exit: Complete Unsubscription From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-a-fresh-online-persona-renaming-procedures-for-facebook/"><u>The Pathway to a Fresh Online Persona: Renaming Procedures for Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-etiquette-in-digital-interactions/"><u>Understanding Social Etiquette in Digital Interactions</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-instagrams-chat-is-discontinuing-in-december/"><u>Why Instagram's Chat Is Discontinuing in December</u></a></li>
+<li><a href="https://techtrends.techidaily.com/winx-mediatrans-la-solution-ultime-pour-transferer-votre-contenu-musical-et-multimedia-entre-ios-et-pc-facile-a-utiliser-and-efficace/"><u>WinX MediaTrans : La Solution Ultime Pour Transferer Votre Contenu Musical Et Multimédia Entre iOS Et PC - Facile À Utiliser & Efficace</u></a></li>
 </ul></div>
 

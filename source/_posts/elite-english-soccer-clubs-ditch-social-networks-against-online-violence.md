@@ -1,7 +1,7 @@
 ---
 title: Elite English Soccer Clubs Ditch Social Networks Against Online Violence
-date: 2024-09-18T16:26:18.638Z
-updated: 2024-09-21T17:57:51.495Z
+date: 2024-09-28T18:15:20.194Z
+updated: 2024-10-03T19:00:12.033Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/5d3200ea7acc8a267e33f7e3f6be29344352dcba6
 
  For reference, Ofcom is the UK's Office of Communications, a regulatory authority for telecoms.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## The Social Media Abuse of Soccer Stars Is Ongoing
 
  In February 2021, the English football community wrote[a joint letter](https://www.premierleague.com/news/2022448) to Jack Dorsey, CEO of Twitter, and Mark Zuckerberg, CEO of Facebook. Part of which read:
@@ -79,12 +86,26 @@ thumbnail: https://thmb.techidaily.com/5d3200ea7acc8a267e33f7e3f6be29344352dcba6
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-choosing-the-right-recorder-top-4-full-screen-picks-for-pcmac/"><u>[Updated] Choosing the Right Recorder Top 4 Full-Screen Picks for PC/Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortifying-your-visual-identity-on-facebook/"><u>Fortifying Your Visual Identity on Facebook</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-solve-gtfo-crashing/"><u>How to Solve GTFO Crashing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-comprehensive-guide-to-recording-and-embedding-audio-powerpoint/"><u>In 2024, Comprehensive Guide to Recording & Embedding Audio (PowerPoint)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-apple-iphone-12-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 12 Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-lava-blaze-2-pro-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Lava Blaze 2 Pro to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-auto-captioning-for-faces-on-facebook/"><u>Mastering Auto-Captioning for Faces on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/messengers-magic-temporarily-secure-your-messages/"><u>Messenger’s Magic: Temporarily Secure Your Messages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/perfecting-panoramic-videography-with-premiere-pros-tools/"><u>Perfecting Panoramic Videography with Premiere Pro's Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-page-reputation-banning-unsuitable-accounts-on-facebook/"><u>Protecting Page Reputation: Banning Unsuitable Accounts on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/reconnecting-on-fb-a-path-to-rekindled-bonds/"><u>Reconnecting on FB: A Path to Rekindled Bonds</u></a></li>
+<li><a href="https://extra-support.techidaily.com/shot-perfecting-made-simple-the-best-cinematic-practices-for-2024/"><u>Shot Perfecting Made Simple The Best Cinematic Practices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-the-process-of-posting-to-multiple-social-networks/"><u>Streamlining the Process of Posting to Multiple Social Networks</u></a></li>
+<li><a href="https://windows11.techidaily.com/success-tips-reviving-your-intel-unison-app/"><u>Success Tips: Reviving Your Intel Unison App</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-balance-of-privacy-and-safety-removing-identifying-facial-information-from-facebook/"><u>The Balance of Privacy and Safety: Removing Identifying Facial Information From Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-structure-and-public-accessibility-of-facebook-local-groups/"><u>The Structure and Public Accessibility of Facebook Local Groups</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-motorola-moto-g84-5g-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Motorola Moto G84 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-facebooks-internal-blueprint/"><u>Understanding Facebook's Internal Blueprint</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-2024-approved-join-multiple-mov-files-into-one-top-5-free-video-joiners/"><u>Updated 2024 Approved Join Multiple MOV Files Into One Top 5 Free Video Joiners</u></a></li>
+</ul></div>
 

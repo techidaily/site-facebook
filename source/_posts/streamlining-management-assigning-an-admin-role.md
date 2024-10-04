@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Management: Assigning an Admin Role"
-date: 2024-09-15T22:29:35.753Z
-updated: 2024-09-21T23:00:30.308Z
+date: 2024-10-01T18:31:34.960Z
+updated: 2024-10-03T18:10:13.417Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -56,6 +63,13 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Click on Settings
 
  Once in the**Settings** tab, you’ll find loads of other ways to change how the page performs, from letting visitors share and comment on your posts to censoring profanity and connecting Instagram and WhatsApp.
@@ -63,20 +77,6 @@ You actually have five roles to choose from on a Facebook page:
  In terms of how to make someone an admin on your Facebook page, you need to visit the**Page roles** tab on the**Page settings** menu.
 
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Click on Page Roles
 
@@ -95,10 +95,10 @@ You actually have five roles to choose from on a Facebook page:
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Edit an Admin’s Page Role to Remove Them
@@ -110,16 +110,16 @@ You actually have five roles to choose from on a Facebook page:
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Add an Admin to Your Facebook Page on Mobile
@@ -135,6 +135,19 @@ Android and iOS platforms differ slightly as well.
 ![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
 
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -163,5 +176,26 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-from-vision-to-viewers-step-by-step-guide-to-live-tv-screens-on-windows-pcs/"><u>[Updated] 2024 Approved From Vision to Viewers Step-by-Step Guide to Live TV Screens on Windows PCs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-harness-the-power-of-youtubes-movie-maker-for-professionals/"><u>[Updated] 2024 Approved Harness the Power of YouTube's Movie Maker for Professionals</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-from-chaos-to-calm-quick-edits-for-your-overwhelming-tiktok-drafters/"><u>[Updated] From Chaos to Calm Quick Edits for Your Overwhelming TikTok Drafters</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unraveling-the-best-mac-mp4-software-a-comprehensive-guide/"><u>[Updated] Unraveling the Best Mac MP4 Software A Comprehensive Guide</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-to-follow-methods-for-updating-and-downloading-reliable-amd-ryzen-drivers/"><u>Easy-to-Follow Methods for Updating and Downloading Reliable AMD Ryzen Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-privacy-for-your-childs-messenger-kids-information/"><u>Ensuring Privacy for Your Child's Messenger Kids Information</u></a></li>
+<li><a href="https://facebook.techidaily.com/hacked-account-recovery-users-turn-to-oculus-quest-investments/"><u>Hacked Account Recovery: Users Turn to Oculus Quest Investments</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-iphone-13-mini-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock iPhone 13 mini with/without SIM Card</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-all-about-srt-essential-information-made-easy/"><u>In 2024, All About SRT Essential Information Made Easy</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/luts-utilization-in-movie-color-grading/"><u>Luts Utilization in Movie Color Grading</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-messenger-kids-understanding-and-utilizing-sleep-mode-feature/"><u>Mastering Messenger Kids: Understanding and Utilizing Sleep Mode Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-support-functions-explored/"><u>Navigating Facebook Support - Functions Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-facebook-through-adverse-headlines/"><u>Navigating Facebook Through Adverse Headlines</u></a></li>
+<li><a href="https://facebook.techidaily.com/prevent-eavesdroppers-from-accessing-your-social-media/"><u>Prevent Eavesdroppers From Accessing Your Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/sharp-sanctions-to-combat-falsehood-spreaders-on-fb/"><u>Sharp Sanctions to Combat Falsehood Spreaders on FB</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/taotronics-tt-dl16-led-lamp-review-modern-and-stylish/"><u>TaoTronics TT-DL16 LED Lamp Review: Modern and Stylish</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-honor-x50-gt-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Honor X50 GT Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-undisclosed-rules-behind-accepting-facebook-friends/"><u>Unveiling the Undisclosed Rules Behind Accepting Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-last-login-on-fb-should-be-memorable-for-these-reasons/"><u>Your Last Login on FB Should Be Memorable for These Reasons</u></a></li>
+</ul></div>
 

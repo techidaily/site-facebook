@@ -1,7 +1,7 @@
 ---
 title: Online Powerhouse Donates $5 Million to Pandemic Support Fund
-date: 2024-09-20T22:20:49.320Z
-updated: 2024-09-21T20:32:02.874Z
+date: 2024-09-29T18:00:00.601Z
+updated: 2024-10-03T18:12:46.258Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ Image Credit: Facebook
 
  "These fundraisers will support equitable vaccine distribution around the world, reducing the spread of COVID-19 and putting countries on a path to recovery," Facebook notes. Facebook will donate a total of $5 million to the cause.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Also Aims to Highlight "Trusted Messengers"
 
  In the same blog post, Facebook also outlined its goal to help people affected by COVID-19 the most.
@@ -44,6 +51,19 @@ Image Credit: Facebook
 
 ![Facebook COVID messages](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-covid-messages.png)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The platform is teaming up with AARP and Johns Hopkins University's Bloomberg School of Public Health to roll out vaccine-related campaigns in Spanish as well.
 
  Meanwhile, in the UK, Facebook is partnering with Dope Black Dads, the British Islamic Medical Association, and the Caribbean African Health Network to ensure that all communities are informed about the COVID-19 vaccines.
@@ -51,6 +71,13 @@ Image Credit: Facebook
  Related: [Facebook Makes It Easier to Find Out Where to Get Your COVID-19 Vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/)
 
  Lastly, Facebook will also be working with UNICEF to promote posts of healthcare workers receiving the vaccine around the globe. By making these posts more visible, Facebook hopes that it will encourage more people to get the vaccine.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook Fights for Vaccine Equity
 
@@ -69,18 +96,18 @@ Image Credit: Facebook
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-the-next-generation-of-social-video-periscopes-counterparts/"><u>[Updated] In 2024, The Next Generation of Social Video Periscope's Counterparts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-top-techniques-for-high-resolution-webcam-videos-for-2024/"><u>[Updated] Top Techniques for High-Resolution WebCam Videos for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/esoteric-exchanges-facebook-friends-anonymity/"><u>Esoteric Exchanges: Facebook Friends Anonymity</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-top-10-no-cost-digital-photography-tools/"><u>Explore Top 10 No-Cost Digital Photography Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-missteps-5-lessons-learned-from-where-users-were-let-down/"><u>Facebook's Missteps: 5 Lessons Learned From Where Users Were Let Down</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-amplify-visual-narratives-with-audio-in-premiere-pro/"><u>In 2024, Amplify Visual Narratives with Audio in Premiere Pro</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-preferences-private-fb-like-camouflage/"><u>Keep Your Social Preferences Private: FB Like Camouflage</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-likes-discreet-on-the-world-wide-web/"><u>Keeping Your Likes Discreet on the World Wide Web</u></a></li>
+<li><a href="https://facebook.techidaily.com/majority-opinion-on-tech-virtual-networking-harms-society/"><u>Majority Opinion on Tech: Virtual Networking Harms Society</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/prime-digital-photography-recovery/"><u>Prime Digital Photography Recovery</u></a></li>
+</ul></div>
 

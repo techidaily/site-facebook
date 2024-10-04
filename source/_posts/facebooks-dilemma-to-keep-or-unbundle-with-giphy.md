@@ -1,7 +1,7 @@
 ---
 title: "Facebook's Dilemma: To Keep or Unbundle with Giphy"
-date: 2024-09-14T20:04:29.576Z
-updated: 2024-09-21T16:22:29.786Z
+date: 2024-09-30T17:34:42.143Z
+updated: 2024-10-03T19:03:26.680Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Meta's Appeal to Keep Giphy
 
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -55,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8
  Unfortunately, the investigation has not been going smoothly for Meta. According to a[press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
 
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 
@@ -77,18 +98,21 @@ thumbnail: https://thmb.techidaily.com/ff4b473fea2e89c79aee76abe0eab2251a21420b8
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-resolving-fb-message-app-video-not-sending-error-on-mobile-devices/"><u>[New] In 2024, Resolving FB Message App Video Not Sending Error on Mobile Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-haul-vids-creation-and-editing-basics-for-2024/"><u>[Updated] Mastering Haul Vids Creation & Editing Basics for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-t2x-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-social-sync-with-these-3-smart-tagging-approaches-in-fb/"><u>Enhance Social Sync with These 3 Smart Tagging Approaches in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/expert-tips-for-updating-fb-birth-yearmonth-with-ease/"><u>Expert Tips for Updating FB Birth Year/Month with Ease</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-sensory-features-worth-your-time/"><u>Facebook's Sensory Features: Worth Your Time?</u></a></li>
+<li><a href="https://facebook.techidaily.com/identifying-the-chronology-marker-in-my-social-media-timeline/"><u>Identifying the Chronology Marker in My Social Media Timeline</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/igtv-to-facebook-distribution-masterclass-approach-for-2024/"><u>IGTV to Facebook Distribution Masterclass Approach for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-how-to-setup-continuous-auto-video-in-fb/"><u>In 2024, How to Setup Continuous Auto-Video in Fb</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-surge-in-tiktok-like-ratings-with-smart-unboxing/"><u>In 2024, Surge in TikTok Like Ratings with Smart Unboxing</u></a></li>
+<li><a href="https://facebook.techidaily.com/its-getting-easier-to-customize-your-facebook-feed/"><u>It's Getting Easier to Customize Your Facebook Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-cost-to-america-excessive-damage/"><u>Social Media's Cost to America: Excessive Damage</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/the-experts-guide-to-discord-streaming/"><u>The Expert's Guide to Discord Streaming</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-desktop-drawing-tips-and-tricks-compilation/"><u>Windows Desktop Drawing: Tips & Tricks Compilation</u></a></li>
+</ul></div>
 

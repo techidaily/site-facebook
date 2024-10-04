@@ -1,7 +1,7 @@
 ---
 title: "No More Prying Eyes: German Mandate Against Facebook's WhatsApp Data Invasion"
-date: 2024-09-22T16:13:09.277Z
-updated: 2024-09-28T17:08:57.714Z
+date: 2024-09-28T19:48:08.873Z
+updated: 2024-10-03T16:46:46.195Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 > The order aims to secure the rights and freedoms of millions of users which are agreeing to the terms Germany-wide. We need to prevent damage and disadvantages linked to such a black-box-procedure.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Where Does Facebook Go From Here?
@@ -56,16 +56,10 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
  The new WhatsApp privacy policy will take effect on May 15 and after this date, those who don't accept the new policy will have limited functionality in the app. Their accounts will also be removed after 120 days of forced inactivity from not accepting the policy.
 
 <!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Everyone Is Gunning for Facebook Right Now
@@ -89,18 +83,24 @@ thumbnail: https://thmb.techidaily.com/9cc1ab34a2708ce6599562965ce7d038d6461c86c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-sonys-leap-into-4k-with-xperia-xz-premium-insights/"><u>[New] 2024 Approved Sony's Leap Into 4K with Xperia XZ Premium Insights</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-enrich-your-status-with-harmony-notes/"><u>[New] In 2024, Enrich Your Status with Harmony Notes</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-in-depth-look-at-instagrams-video-time-restrictions/"><u>[Updated] In 2024, In-Depth Look at Instagram's Video Time Restrictions</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-social-strategy-apps-to-optimize-your-content-release/"><u>5 Social Strategy Apps to Optimize Your Content Release</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-swipe-to-the-future-understanding-facebooks-new-dating-landscape/"><u>A Swipe to the Future: Understanding Facebook's New Dating Landscape</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-sensational-stories-rethinking-social-media-scandals/"><u>Beyond the Sensational Stories: Rethinking Social Media Scandals</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-overcome-latency-problems-with-the-keyboard-on-a-windows-10-system/"><u>How to Overcome Latency Problems with the Keyboard on a Windows 10 System</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-nokia-c12-pro-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Nokia C12 Pro to New Phone | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-ordinary-text-to-stunning-three-dimensional-designs-photo/"><u>In 2024, From Ordinary Text to Stunning Three-Dimensional Designs PHOTO</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-chromebook-friendly-video-editors-a-2023-comparison/"><u>New Chromebook-Friendly Video Editors A 2023 Comparison</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144840090-should-you-harness-facebooks-power-for-your-events-heres-why-not/"><u>Should You Harness Facebook's Power for Your Events? Here's Why Not</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-downloading-and-setting-up-the-latest-ios-update/"><u>Step-by-Step Guide: Downloading and Setting up the Latest iOS Update</u></a></li>
-<li><a href="https://fox-access.techidaily.com/the-ultimate-guide-to-implementing-podcast-seo-for-2024/"><u>The Ultimate Guide to Implementing Podcast SEO for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-from-one-off-to-firm-follower-an-ethical-approach/"><u>[New] 2024 Approved From One-Off to Firm Follower An Ethical Approach</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-blend-visuals-and-soundtracks-for-movie-making/"><u>[New] Blend Visuals and Soundtracks for Movie Making</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-identifying-leading-drone-motors-for-superior-stability-for-2024/"><u>[New] Identifying Leading Drone Motors for Superior Stability for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-streaming-mastery-zoom-plus-fb-live-tactics/"><u>[Updated] Streaming Mastery ZOOM + FB Live Tactics</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-innovative-editions-windowed-film-editing-software/"><u>2024 Approved Innovative Editions Windowed Film Editing Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-facebook-visibility-hide-from-randoms/"><u>Enhancing Facebook Visibility: Hide From Randoms</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-stagnant-iphone-mailboxes-a-comprehensive-approach/"><u>Fixing Stagnant iPhone Mailboxes: A Comprehensive Approach</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-nokia-130-music-phone-without-google-account-by-drfone-android/"><u>How to Unlock Nokia 130 Music Phone without Google Account?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-reset-itunes-backup-password-of-iphone-8-plus-prevention-and-solution-by-drfone-ios/"><u>In 2024, Reset iTunes Backup Password Of iPhone 8 Plus Prevention & Solution</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-user-id-setup-email-and-number-changes/"><u>New User ID Setup: Email & Number Changes</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-security-breaches-by-the-numbers/"><u>Online Security Breaches by the Numbers</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-a-picture-of-perfection-chromatic-mastery-for-beauty/"><u>Paint a Picture of Perfection Chromatic Mastery for Beauty</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-the-birth-of-meta/"><u>Redefining Relationships : The Birth of Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/surveying-the-digital-community-for-news-feed-insights/"><u>Surveying the Digital Community for News Feed Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-setting-rules-in-virtual-gatherings-on-fb/"><u>The Art of Setting Rules in Virtual Gatherings on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/thriving-in-the-world-of-online-influence/"><u>Thriving in the World of Online Influence</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-functionalities-stay-unaltered-with-policy-non-compliance/"><u>WhatsApp Functionalities Stay Unaltered with Policy Non-Compliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-spoke-out-about-facebooks-data-missteps/"><u>Who Spoke Out About Facebook's Data Missteps?</u></a></li>
 </ul></div>
 

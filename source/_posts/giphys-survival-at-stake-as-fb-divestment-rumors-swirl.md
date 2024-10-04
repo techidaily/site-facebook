@@ -1,7 +1,7 @@
 ---
 title: Giphy's Survival at Stake as FB Divestment Rumors Swirl
-date: 2024-09-16T21:40:58.337Z
-updated: 2024-09-22T00:04:17.397Z
+date: 2024-09-28T17:02:55.243Z
+updated: 2024-10-03T19:28:30.601Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Meta's Appeal to Keep Giphy
 
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
 
@@ -55,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
  Unfortunately, the investigation has not been going smoothly for Meta. According to a[press release by the CMA](https://www.gov.uk/government/news/cma-fines-facebook-over-enforcement-order-breach) , Meta has repeatedly failed to provide the required updates regarding its compliance, which resulted in a $70 million fine.
 
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
 
@@ -77,12 +98,26 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-evolution-of-youtube-shorts-popularity-metrics/"><u>[New] 2024 Approved The Evolution of YouTube Shorts Popularity Metrics</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-way-of-the-warrior-game-lineup-mirroring-ghost-of-tsushima/"><u>[New] 2024 Approved The Way of the Warrior Game Lineup Mirroring Ghost of Tsushima</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-whatsapps-telephony-services/"><u>2024 Approved Understanding WhatsApp’s Telephony Services</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mize-video-speed-to-match-your-desired-watch-time/"><u>Customize Video Speed to Match Your Desired Watch Time</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-performance-top-ranked-os-xwin-mods-for-srt-systems/"><u>Elevate Performance Top-Ranked OS X/Win Mods for SRT Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-media-brand-not-just-name/"><u>Elevate Your Social Media Brand, Not Just Name</u></a></li>
+<li><a href="https://facebook.techidaily.com/elude-common-facebook-frauds-the-essential-list-of-14/"><u>Elude Common Facebook Frauds: The Essential List of 14</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-mind-behavior-interactions-the-latest-isbm-cbt-strategies/"><u>Harnessing Mind-Behavior Interactions: The Latest ISBM CBT Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-life-on-facebook-protecting-you-from-unfamiliar-eyes/"><u>Hidden Life on Facebook: Protecting You From Unfamiliar Eyes</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-effective-privacy-rules-for-youth-on-facebook/"><u>Implementing Effective Privacy Rules for Youth on Facebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-lenovo-thinkphone-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Lenovo ThinkPhone | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/installation-guide-epson-xp-400-printer-driver-complete-walkthrough/"><u>Installation Guide: Epson XP-400 Printer Driver - Complete Walkthrough</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-secure-email-access-a-guide-to-efficiently-setting-up-2fa/"><u>Mastering Secure Email Access: A Guide to Efficiently Setting up 2FA</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-no-sound-error-in-powerpoint-screen-capture/"><u>Overcoming No Sound Error in PowerPoint Screen Capture</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/proven-techniques-for-amplifying-tiktok-unboxing-success/"><u>Proven Techniques for Amplifying TikTok Unboxing Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-shutdown-unraveling-causes/"><u>Social Media Shutdown: Unraveling Causes</u></a></li>
+<li><a href="https://facebook.techidaily.com/take-your-fb-content-global-upload-and-transfer-to-major-websites-now/"><u>Take Your Fb Content Global: Upload and Transfer to Major Websites Now!</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-foundations-of-hosting-virtual-festivals-on-fb/"><u>The Foundations of Hosting Virtual Festivals on FB</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-linguistic-explorers-guide-106plus-must-know-croatian-terminology/"><u>The Linguistic Explorer’s Guide: 106+ Must-Know Croatian Terminology</u></a></li>
+</ul></div>
 

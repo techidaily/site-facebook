@@ -1,7 +1,7 @@
 ---
 title: Exploring Subconscious Dialogues in Facebook Messages
-date: 2024-09-19T17:35:00.856Z
-updated: 2024-09-21T22:18:32.806Z
+date: 2024-09-28T23:15:33.550Z
+updated: 2024-10-03T19:04:22.968Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90
 
  To see your hidden messages in the mobile Messenger app, tap the hamburger menu at the top-left and choose**Message requests** from the resulting menu. We’ll use the desktop version to illustrate below, but the same applies to the mobile apps too.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Replying to Hidden and Spam Messages
 
  Once you have this menu open using either method, it shows two tabs:**You may know** and**Spam** .**You may know** holds messages from friends of friends, or people that Facebook thinks you might have a connection to.**Spam** , as the name suggests, filters messages from people you have no connection with.
@@ -47,6 +54,13 @@ thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90
  For messages you aren’t interested in, click the**I don’t want to hear from \[name\]** link above the reply box.
 
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
 
@@ -64,13 +78,6 @@ thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Potential Connections: Legitimate Requests
 
  In the**Potential Connections** section, you can choose how to handle message requests from**People with your phone number** and**Friends of friends on Facebook** . The former includes anyone who has your[number in their phone and has uploaded it to Facebook](https://www.makeuseof.com/tag/upload-delete-phone-contacts-facebook/) , even if they aren’t Facebook friends with you. This is relevant since you can[use Messenger without Facebook](https://www.makeuseof.com/tag/use-messenger-without-facebook/) .
@@ -87,14 +94,14 @@ thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90
 
 ![01b Messenger Privacy Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01b-Messenger-Privacy-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -108,14 +115,14 @@ Close
 
 ![Messenger Archived Chats](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Archived-Chats.jpg)
 
- This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
 ## How to Block People on Facebook Messenger
 
@@ -126,10 +133,10 @@ Close
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Seek and Find Hidden Messages on Facebook Messenger
@@ -153,5 +160,21 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-digital-magic-uncovering-premier-3d-animation-software/"><u>[New] 2024 Approved Digital Magic Uncovering Premier 3D Animation Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-crafting-perfection-an-essential-guide-to-hdr-imaging-for-2024/"><u>[New] Crafting Perfection An Essential Guide to HDR Imaging for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-leading-action-cameras-for-thrill-seekers/"><u>[New] Leading Action Cameras for Thrill Seekers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-mastering-video-storytelling-adding-narration-step-by-step/"><u>[New] Mastering Video Storytelling Adding Narration Step-by-Step</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-color-fidelity-unleashed-in-hps-dreamcolor-monitor/"><u>[Updated] In 2024, Color Fidelity Unleashed in HP's DreamColor Monitor</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-harmony-in-transit-relocating-your-loved-songs/"><u>2024 Approved Harmony in Transit Relocating Your Loved Songs</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-convert-srt-fastly-a-compreenas-the-minute-blueprint-2023/"><u>In 2024, Convert SRT Fastly A Compreenas-the-Minute Blueprint 2023</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspiring-community-engagement-through-fb-event-creation/"><u>Inspiring Community Engagement Through FB Event Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-innovators-thoughts-on-ai-an-international-roundtable-discussion/"><u>Leading Innovators' Thoughts on AI: An International Roundtable Discussion</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-to-overcome-unanticipated-networking-site-disconnections/"><u>Strategies to Overcome Unanticipated Networking Site Disconnections</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamline-your-viewing-with-these-9-playlist-extractors-for-2024/"><u>Streamline Your Viewing with These 9 Playlist Extractors for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-your-facebook-feed-for-relevance/"><u>Tailoring Your Facebook Feed for Relevance</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/top-5-essentials-for-mastering-tiktok-on-macos-for-2024/"><u>Top 5 Essentials for Mastering TikTok on macOS for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-why-some-users-are-missing-from-chats/"><u>Understanding Why Some Users Are Missing From Chats</u></a></li>
+</ul></div>
 

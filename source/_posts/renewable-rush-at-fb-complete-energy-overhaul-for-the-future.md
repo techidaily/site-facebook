@@ -1,7 +1,7 @@
 ---
 title: "Renewable Rush at FB: Complete Energy Overhaul for the Future"
-date: 2024-09-22T17:05:57.977Z
-updated: 2024-09-28T16:39:43.234Z
+date: 2024-10-01T19:10:48.867Z
+updated: 2024-10-03T22:59:19.113Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Has Already Set Its Next Environmental Target
@@ -58,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/1bbd0a3f8dc1d9288d108f379c03c690ea0ce4f34
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
@@ -89,20 +83,19 @@ So, things may, finally, be moving in the right direction.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevate-your-skill-discovering-the-top-10-budget-friendly-video-artists-on-youtube/"><u>[New] In 2024, Elevate Your Skill Discovering the Top 10 Budget-Friendly Video Artists on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-a-viral-strategy-for-impressive-instagram-stories/"><u>[Updated] In 2024, A Viral Strategy for Impressive Instagram Stories</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-engage-audiences-skywards-drone-filming-and-facebook-live/"><u>[Updated] In 2024, Engage Audiences Skywards Drone Filming and Facebook Live</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-hot-30-5g-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Infinix Hot 30 5G Photos An Easy Method Explained.</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-avoiding-camera-induced-image-disruption/"><u>In 2024, Avoiding Camera-Induced Image Disruption</u></a></li>
-<li><a href="https://solve-news.techidaily.com/installing-the-fluxus-iptv-plug-in-for-kodi-19-matrix-a-comprehensive-tutorial/"><u>Installing the Fluxus IPTV Plug-In for Kodi 19 Matrix - A Comprehensive Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/outsmart-facebooks-tracking-mechanisms-now/"><u>Outsmart Facebook's Tracking Mechanisms Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventive-practices-at-play-how-meta-halt-intimate-photo-sharing/"><u>Preventive Practices at Play: How Meta Halt Intimate Photo Sharing</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/quick-fix-annoyance-free-deletion-of-youtube-comments-for-2024/"><u>Quick Fix Annoyance-Free Deletion of Youtube Comments for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/revive-your-speaking-gear-solutions-for-non-functional-mics-on-microsofts-latest-os/"><u>Revive Your Speaking Gear: Solutions for Non-Functional Mics on Microsoft's Latest OS</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-tapestry-reconstructed-the-influence-of-platforms-on-society/"><u>Social Tapestry Reconstructed: The Influence of Platforms on Society</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-exit-strategy-an-unshakeable-departure-from-facebook/"><u>The Exit Strategy: An Unshakeable Departure From Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-facebook-touch-and-is-it-worth-using/"><u>What Is Facebook Touch and Is It Worth Using?</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-choose-a-professional-platform-eight-key-reasons-to-prefer-company-pages/"><u>Why Choose A Professional Platform: Eight Key Reasons to Prefer Company Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-time-offline-is-an-investment-in-happiness/"><u>Why Time Offline Is an Investment in Happiness</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-enhancing-presence-how-to-effortlessly-eliminate-borders-for-2024/"><u>[New] Enhancing Presence How to Effortlessly Eliminate Borders for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-convert-and-edit-wonders-select-10-best-youtube-converters/"><u>[Updated] In 2024, Convert & Edit Wonders Select 10 Best YouTube Converters</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-user-numbers-take-a-hit-from-tiktoks-rise/"><u>Facebook’s User Numbers Take a Hit From TikTok’s Rise</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-realme-note-50-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Realme Note 50 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/influence-or-hoax-assessing-hashtag-power-on-fb/"><u>Influence or Hoax: Assessing Hashtag Power on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-virtual-connections-a-strategy-for-productivity-enhancement/"><u>Limiting Virtual Connections: A Strategy for Productivity Enhancement</u></a></li>
+<li><a href="https://facebook.techidaily.com/one-word-picture-multitude-of-styles-facebooks-ai/"><u>One-Word Picture, Multitude of Styles - Facebook's AI</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-shorthand-success-a-list-of-30-key-online-acronyms/"><u>Social Shorthand Success: A List of 30 Key Online Acronyms</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-fixes-for-wrath-of-the-righteous-game-stability-issues/"><u>Solved: Fixes for 'Wrath of the Righteous' Game Stability Issues</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-impact-of-luts-on-professional-photography/"><u>The Impact of LUTs on Professional Photography</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-ultimate-guide-to-legally-sharing-tunes-on-instagram/"><u>The Ultimate Guide to Legally Sharing Tunes on Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-unseen-contacts-in-messaging-apps/"><u>Understanding Unseen Contacts in Messaging Apps</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-google-pixel-8s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Google Pixel 8s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://win-able.techidaily.com/why-cant-i-play-addressing-initial-launch-issues-with-diablo-ii-resurrected/"><u>Why Can't I Play? Addressing Initial Launch Issues with Diablo II: Resurrected</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Elevating Community Governance: Facebook Unveils New Admin Features"
-date: 2024-09-24T16:23:19.108Z
-updated: 2024-09-28T17:30:48.458Z
+date: 2024-09-28T16:21:21.217Z
+updated: 2024-10-03T21:52:06.471Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  Going further, Facebook went on to acknowledge that "community leaders are at the heart of communities on Facebook" and that sometimes "contentious conversations do come up". Facebook also stressed that keeping groups safe is "a priority for Facebook", and it appears these new admin tools put this to the test.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Are Facebook's New Admin Tools?
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 ![Screenshots of Facebook's new admin tools in the mobile app, specifically the new AI tool.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-New-Admin-Tools-Example-e1623859571101.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Image Credit: Facebook
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
  All the new tools are found in the new**Admin Home** on Facebook. From here, group admins can also get quick access to group settings.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is Taking Bad Behavior More Seriously
@@ -88,20 +88,14 @@ thumbnail: https://thmb.techidaily.com/4a7e35e05dbbab3383219ac491b7159c730c023be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-elevating-your-marketing-game-making-impactful-fb-videos/"><u>[New] Elevating Your Marketing Game Making Impactful FB Videos</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-seamlessly-blend-music-with-visuals-in-premiere-pro/"><u>[Updated] 2024 Approved Seamlessly Blend Music with Visuals in Premiere Pro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-exclusive-top-5-iphone-podcast-apps-guide/"><u>[Updated] In 2024, Exclusive Top 5 iPhone Podcast Apps Guide</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-step-up-your-file-game-compiling-top-20-free-spacious-cloud-storage-solutions/"><u>2024 Approved Step Up Your File Game Compiling Top 20 Free, Spacious Cloud Storage Solutions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-most-popular-vr-game-experiences-on-oculus/"><u>2024 Approved The Most Popular VR Game Experiences on Oculus</u></a></li>
-<li><a href="https://facebook.techidaily.com/7-essential-steps-for-a-tidy-social-media-space/"><u>7 Essential Steps for a Tidy Social Media Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-clean-conversations-utilizing-facebooks-groups-moderation-innovations/"><u>A Guide to Clean Conversations: Utilizing Facebook's Groups Moderation Innovations</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-quick-guide-showing-you-are-via-fbmessenger/"><u>A Quick Guide: Showing You Are via FBMessenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-visual-dictionary-understanding-online-social-symbolism/"><u>A Visual Dictionary: Understanding Online Social Symbolism</u></a></li>
-<li><a href="https://facebook.techidaily.com/buzzword-breakdown-a-comprehensive-list-of-30-must-know-abbreviations-for-users/"><u>Buzzword Breakdown: A Comprehensive List of 30 Must-Know Abbreviations for Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/choosing-presence-over-permanence-quit-fb/"><u>Choosing Presence Over Permanence, Quit FB</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-pop-8-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Pop 8.</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/oxford-unleashes-language-potential-essentials-first/"><u>Oxford Unleashes Language Potential: Essentials First</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/troubleshoot-tweets-on-chrome-not-loading-for-2024/"><u>Troubleshoot Tweets on Chrome Not Loading for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/wonderfoxweb/"><u>WonderFoxの最新ニュースとWebガイド - リアルタイム情報を手に入れよう</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-step-by-step-end-screen-customization-guide-for-vimeo/"><u>[New] 2024 Approved Step-by-Step End Screen Customization Guide for Vimeo</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-quick-guide-to-capturing-timelapses-with-gopro-hero5/"><u>[Updated] In 2024, Quick Guide to Capturing Timelapses with GoPro Hero5</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-user-interaction-on-facebook-through-content-variety/"><u>Elevating User Interaction on Facebook Through Content Variety</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/googles-proven-technique-for-accurate-speech-conversion-for-2024/"><u>Google’s Proven Technique for Accurate Speech Conversion for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-contacts-from-apple-iphone-12-pro-to-iphone-quickly-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Contacts from Apple iPhone 12 Pro to iPhone Quickly | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-moments-to-consider-for-new-fb-photo/"><u>Key Moments to Consider for New Fb Photo</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-engagement-peaks-and-troughs-analysis/"><u>Social Engagement Peaks and Troughs Analysis</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-giants-experiment-with-sponsored-content/"><u>Social Media Giants Experiment with Sponsored Content</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/step-by-step-instructions-for-watching-dvd-video-format-vob-across-windows-10-macos-and-other-platforms/"><u>Step-by-Step Instructions for Watching DVD Video Format (VOB) Across Windows 10, macOS & Other Platforms</u></a></li>
 </ul></div>
 

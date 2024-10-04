@@ -1,7 +1,7 @@
 ---
 title: Meta's Precursor to a Radical Redesign for European Market
-date: 2024-09-18T00:00:30.125Z
-updated: 2024-09-22T00:34:08.918Z
+date: 2024-10-02T16:49:08.450Z
+updated: 2024-10-03T20:17:10.061Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
 
  Meta's primary business is selling advertising spaces based upon the data it collects on its users. Instagram and Facebook account for somewhere between 400 million and 500 million users. Losing out on this data would be extremely damaging to Meta's targeted advertising (despite Meta claiming to the contrary).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Is the Privacy Shield No Longer Legal?
 
  So, back in 2011, Austrian lawyer Maximillian Schrems analyzed 1,222 pages of information Facebook held about him after requesting the data from the company. He found that Facebook held onto information he believed he had deleted from the service along with other information that had been shared without his permission. Schrems lodged a complaint with the Irish data protection commissioner, where Facebook was registered for tax purposes.
@@ -43,6 +50,13 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
  Roll forwards to 2020, and the EU Court of Justice found that Privacy Shield, the law that enables US companies and authorities to collect information on EU citizens, was fundamentally flawed. Privacy Shield did not provide enough safeguarding for EU user data (in the EU, user data protection laws are more stringent than the US) and it did not provide adequate means for EU citizens to content issues with the US government regarding personal data privacy breaches.
 
  With the data transfer vehicle of the Privacy Shield no longer lawful, companies like Meta, Google, Amazon, and Microsoft will all have to consider their European operations. Considering that the cloud computing services offered by Google, Amazon, and Microsoft make up a huge chunk of the internet as we know it, Meta is far from the only major tech company facing a major data headache.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Meta Pull Facebook and Instagram?
 
@@ -69,12 +83,22 @@ So, is Meta about to pull Facebook and Instagram out of Europe?
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-video-playback-device-pcmobile-focus/"><u>[New] Ultimate Video Playback Device - PC/Mobile Focus</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715860607967-2024-approved-capture-your-screen-in-a-flash-free-no-hassle/"><u>2024 Approved Capture Your Screen in a Flash - Free, No Hassle!</u></a></li>
+<li><a href="https://facebook.techidaily.com/group-features-face-off-casual-vs-career-focused-networking-spaces/"><u>Group Features Face-Off: Casual Vs. Career-Focused Networking Spaces</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-change-your-apple-id-on-iphone-12-with-or-without-password-by-drfone-ios/"><u>In 2024, How To Change Your Apple ID on iPhone 12 With or Without Password</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-5-inspiring-book-trailers/"><u>In 2024, Top 5 Inspiring Book Trailers</u></a></li>
+<li><a href="https://facebook.techidaily.com/iphone-users-push-back-against-app-monitoring/"><u>IPhone Users Push Back Against App Monitoring</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-digital-districts-with-facebook-written-content/"><u>Redefining Digital Districts with Facebook' Written Content</u></a></li>
+<li><a href="https://common-error.techidaily.com/revive-your-keyboards-glow-a-guide-for-troubleshooting-backlight-problems-on-mac-and-pc/"><u>Revive Your Keyboard's Glow: A Guide for Troubleshooting Backlight Problems on Mac and PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-fabric-reimagined-the-top-4-platform-driven-changes/"><u>Social Fabric Reimagined: The Top 4 Platform-Driven Changes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-fix-for-realtek-universal-graphics-drivers-problems-solved/"><u>Step-by-Step Fix for Realtek Universal Graphics Drivers - Problems Solved!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-fixes-for-vpn-troubleshooting-decoding-error-800-in-clientsservers/"><u>Step-by-Step Fixes for VPN Troubleshooting - Decoding Error #800 in Clients/Servers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-people-uncovering-the-benefits-in-your-social-feed/"><u>The Power of People: Uncovering the Benefits in Your Social Feed</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/the-ultimate-guide-to-recording-hulu-episodes-on-multiple-devices/"><u>The Ultimate Guide to Recording Hulu Episodes on Multiple Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebook-portal-tvs-video-conferencing-features/"><u>Unveiling Facebook Portal TV's Video Conferencing Features</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: One-Word Picture, Multitude of Styles - Facebook's AI
-date: 2024-09-18T16:29:47.240Z
-updated: 2024-09-21T16:56:14.120Z
+date: 2024-09-27T22:35:05.974Z
+updated: 2024-10-03T21:07:48.956Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -65,12 +72,19 @@ thumbnail: https://thmb.techidaily.com/f0ebe7bbeaa83391f6bb15edc8e752caf5cabced7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-efficient-use-of-snap-in-zoom-webinar/"><u>2024 Approved Efficient Use of Snap in Zoom Webinar</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ultimate-budget-friendly-high-definition-action-cams/"><u>2024 Approved Ultimate Budget-Friendly High Definition Action Cams</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-guide-to-understanding-smartwatch-capabilities/"><u>A Comprehensive Guide to Understanding Smartwatch Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-crafting-new-audio-centric-interactions/"><u>Facebook Crafting New Audio-Centric Interactions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-avoidance-manual-how-to-skip-edgenuity-courses-without-penalty/"><u>In 2024, Avoidance Manual How to Skip Edgenuity Courses Without Penalty</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-artisan-writes-crafting-hdr-magic-with-iphone/"><u>In 2024, The Artisan’ Writes Crafting HDR Magic with iPhone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactions-reimagined-unveiling-the-four-pivotal-socio-media-revolutions/"><u>Interactions Reimagined: Unveiling the Four Pivotal Socio-Media Revolutions</u></a></li>
+<li><a href="https://techtrends.techidaily.com/macbook-tricks-for-continuous-use-avoid-sleep-mode-when-you-close-the-lid/"><u>MacBook Tricks for Continuous Use - Avoid Sleep Mode When You Close the Lid</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-friends-right-to-see-you-active/"><u>Optimize Friends' Right to See You Active</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-silver-linings-top-9-reasons-for-connection/"><u>Social Media's Silver Linings: Top 9 Reasons for Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-favored-social-network-again-post-code/"><u>Unlocking Your Favored Social Network Again Post Code</u></a></li>
+</ul></div>
 

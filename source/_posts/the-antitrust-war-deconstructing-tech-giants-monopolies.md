@@ -1,7 +1,7 @@
 ---
 title: "The Antitrust War: Deconstructing Tech Giants' Monopolies"
-date: 2024-09-27T17:00:33.762Z
-updated: 2024-09-28T17:02:31.596Z
+date: 2024-09-27T21:10:57.486Z
+updated: 2024-10-03T19:16:47.676Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
  These examples show the lack of early, immediate indicators of Big Tech’s success. However, things have changed, and these companies now affect sectors other than technology. The already large and growing influence makes some government leaders cautious.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Big Tech Companies Use Data for Profit
 
 ![Facebook logo on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-logo-on-a-wall-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Big Tech companies often provide free resources. For example, there’s no subscription fee required to do a Google search or have a Facebook profile. However, large tech companies gather customer information and use it to profit. Facebook collects information about users’ races, religions, and political views. It can then sell that information to advertisers.
 
@@ -55,13 +69,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 ## Big Tech Fails to Catch Misleading Ads
 
 ![paper ads on a wall](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/paper-ads-on-a-wall.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  People often want to know what Big Tech does to prevent data collection and advertising issues. Unfortunately, evidence shows it often falls short in policing the ads on the respective platforms. Information also emerged on foreign countries purchasing misleading ads to influence elections in the United States.
 
@@ -83,13 +90,6 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![Amazon boxes in a distribution center](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/amazon-boxes-in-a-distribution-center.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Small-business advocacy groups also want more restrictions against Amazon, complaining that the e-commerce giant’s resources help it dominate less-established entities.[Bloomberg reported](https://www.bloomberg.com/news/articles/2023-03-02/amazon-targeted-by-small-business-group-to-encourage-antitrust-scrutiny?leadSource=uverify%20wall) how a coalition of small-business owners intends to take collective action to reduce Amazon’s negative impact on them.
 
  However, Big Tech can also help smaller companies. The Google Play Store and Apple’s App Store give lesser-known developers a larger platform, making it easier for customers to find products. Also, Amazon’s Marketplace allows small companies to sell items on Amazon and let the e-commerce site fulfill those orders. As a result, products often reach customers faster than they otherwise would.
@@ -109,22 +109,15 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Big Tech companies’ interactions with the government can also create beneficial situations for everyone. For example, Google and Apple partnered to develop a privacy-focused contact-tracing solution during the COVID-19 pandemic.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798161/11305" target="_top" id="798161">
+  <img src="//a.impactradius-go.com/display-ad/11305-798161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798161/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Big Tech Companies Have Incredible Influence
 
 ![Google Maps on a smartphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/google-maps-on-a-smartphone.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Big Tech companies have so much power and resources that their impact spreads far beyond single entities. Meta owns Facebook, Instagram, and WhatsApp. Additional data indicates it has made more than 100 acquisitions.
 
@@ -136,6 +129,13 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 ![starlink satellite with desert background](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/starlink-satellite-with-desert-background.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit: Mike Mareen/[Shutterstock](https://www.shutterstock.com/image-illustration/szczecinpolandfebruary-2022satellite-dish-internet-starlink-illustration-2133739611)
 
  As Big Tech companies exert power in more areas, positives become apparent, too. Increased technological investments and commitments to innovation are some examples. Facebook’s involvement in campaigns to broaden internet availability could decrease the digital divide.
@@ -143,10 +143,16 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
  Still, the company’s intentions aren't always benevolent, as seen with its Indian internet scheme that placed Facebook services at the center of the internet. That left potential users little choice but to provide their data.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## No Easy Path Forward for Regulating Big Tech
@@ -172,20 +178,24 @@ thumbnail: https://thmb.techidaily.com/1da8846cbd836d9712f7b59a73630f863ec9ad2fa
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-ultimate-listings-for-3d-type-creation/"><u>[Updated] 2024 Approved Ultimate Listings for 3D Type Creation</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-creating-compelling-cost-free-youtube-intros/"><u>2024 Approved Creating Compelling, Cost-Free YouTube Intros</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-balanced-look-at-online-expat-communities-via-facebook/"><u>A Balanced Look at Online Expat Communities via Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/addressing-security-token-issues-in-the-faceboook-login-procedure/"><u>Addressing Security Token Issues in the Faceboook Login Procedure</u></a></li>
-<li><a href="https://facebook.techidaily.com/bypass-facebooks-tracking-utilizing-off-fb-tool/"><u>Bypass Facebook's Tracking - Utilizing Off-FB Tool</u></a></li>
-<li><a href="https://facebook.techidaily.com/conserve-your-time-diminishing-fb-interactions/"><u>Conserve Your Time: Diminishing FB Interactions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/crusader-kings-2-not-loading-discover-expert-fixes-and-solutions-for-a-successful-startup/"><u>Crusader Kings 2 Not Loading? Discover Expert Fixes and Solutions for a Successful Startup</u></a></li>
-<li><a href="https://facebook.techidaily.com/curbing-contentious-captured-conversations-metas-way/"><u>Curbing Contentious Captured Conversations: Meta's Way</u></a></li>
-<li><a href="https://facebook.techidaily.com/customized-virtual-spirits-set-to-invade-vr-space/"><u>Customized Virtual Spirits Set to Invade VR Space</u></a></li>
-<li><a href="https://video-capture.techidaily.com/gamers-eden-record-without-paying-in-24-for-2024/"><u>Gamers' Eden Record Without Paying in '24 for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-tecno-pop-8-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Tecno Pop 8 to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-quick-steps-for-recording-insta-stories/"><u>In 2024, Quick Steps for Recording Insta Stories</u></a></li>
-<li><a href="https://driver-download.techidaily.com/newest-dolby-sound-drivers-available-free-downloads-and-updates-for-windows-11-10-and-81/"><u>Newest Dolby Sound Drivers Available: Free Downloads & Updates for Windows 11, 10 & 8.1</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/portable-powerhouse-a-comprehensive-eyoyo-em105-105-screen-value-assessment/"><u>Portable Powerhouse: A Comprehensive EYOYO EM105 10.5” Screen Value Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-hp-omen-obelisk-top-pick-for-gamers-seeking-performance-and-value/"><u>Ultimate Guide to the HP Omen Obelisk – Top Pick for Gamers Seeking Performance and Value</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-distinguished-crafters-superior-online-instagram-hlv-creators/"><u>[New] 2024 Approved Distinguished Crafters Superior Online Instagram HLV Creators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-ultimate-checklist-facebook-and-youtube-video-integration/"><u>[New] In 2024, The Ultimate Checklist Facebook & YouTube Video Integration</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-webcam-ingenuity-for-productivity-boost/"><u>[New] In 2024, Webcam Ingenuity for Productivity Boost</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-the-ultimate-success-setup-top-trending-tools-and-products-for-todays-entrepreneurs/"><u>[Updated] 2024 Approved The Ultimate Success Setup Top Trending Tools and Products for Today's Entrepreneurs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-building-better-montages-a-creative-guide/"><u>[Updated] Building Better Montages A Creative Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-experience-the-joy-sorrow-merge-with-these-ten-meme-ig-accounts/"><u>[Updated] Experience the Joy-Sorrow Merge with These Ten Meme IG Accounts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-strategic-lines-for-striking-iphone-photography/"><u>2024 Approved Strategic Lines for Striking iPhone Photography</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-tecno-camon-20-pro-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Tecno Camon 20 Pro 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagrams-two-factor-authentication-whatsapp-code-delivery/"><u>Instagram's Two-Factor Authentication: WhatsApp Code Delivery</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-altering-facebooks-birthdate/"><u>Mastering the Art of Altering Facebook's Birthdate</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-policies-on-expressing-displeasure/"><u>Platform Policies on Expressing Displeasure</u></a></li>
+<li><a href="https://win-able.techidaily.com/quick-fixes-resolving-discord-installation-has-failed-issues/"><u>Quick Fixes: Resolving 'Discord Installation Has Failed' Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/rebranding-your-fb-profile-with-a-fresh-url/"><u>Rebranding Your FB Profile with a Fresh URL</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-up-your-digital-gathering-space-on-fb/"><u>Setting Up Your Digital Gathering Space on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-strategy-benefits-and-trade-offs-of-fb-events/"><u>Social Media Strategy: Benefits & Trade-Offs of FB Events</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-facebooks-shortcomings-the-top-5-times-it-lost-its-way-with-us/"><u>Unmasking Facebook's Shortcomings: The Top 5 Times It Lost Its Way with Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/unraveling-the-future-3-metaverse-risks-in-social-media/"><u>Unraveling the Future: 3 Metaverse Risks in Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-is-in-store-at-your-fingertips-with-facebook-assistance/"><u>What Is in Store at Your Fingertips with Facebook Assistance?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/winxvideo-ai-per-il-miglioramento-e-la-riparazione-di-video-ad-alta-risoluzione-4k8k10k/"><u>WinxVideo AI per Il Miglioramento E La Riparazione Di Video Ad Alta Risoluzione (4K/8K/10K)</u></a></li>
 </ul></div>
 

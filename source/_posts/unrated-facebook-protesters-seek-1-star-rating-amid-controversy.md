@@ -1,7 +1,7 @@
 ---
 title: "Unrated Facebook: Protesters Seek 1-Star Rating Amid Controversy"
-date: 2024-09-15T18:38:09.144Z
-updated: 2024-09-21T17:28:52.590Z
+date: 2024-10-02T22:37:44.238Z
+updated: 2024-10-03T18:46:27.337Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
 
  Apparently, Facebook also contacted Apple to have the negative reviews removed from the App Store, but its request was denied.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Under Fire, Again
 
 ![A close-up of a bunch of Facebook logo pin badges.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Facebook-Launches-Transparency-Center-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Unfortunately, it's become pretty easy these days to find a reason to be frustrated with Facebook. For instance, despite its efforts to stop the spread of COVID-19 misinformation, the platform still allows the use of[anti-vax themed profile picture borders](https://www.makeuseof.com/facebook-anti-vax-profile-borders/) .
 
@@ -69,12 +83,23 @@ thumbnail: https://thmb.techidaily.com/e5791482249db05b2c83cd0dadb655c84a6fd60d4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-dive-deep-into-the-world-of-creator-studio/"><u>[New] 2024 Approved Dive Deep Into the World of Creator Studio</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-temporary-pause-image-save-guide/"><u>2024 Approved Temporary Pause Image Save Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/experience-nft-culture-via-instagramfacebook-meta-drops-testing/"><u>Experience NFT Culture via Instagram/Facebook Meta Drops Testing</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-depth-of-facebooks-security-system/"><u>Exploring the Depth of Facebook’s Security System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reimagined-romance-a-new-era-of-social-interaction-and-dating/"><u>Facebook's Reimagined Romance: A New Era of Social Interaction and Dating</u></a></li>
+<li><a href="https://facebook.techidaily.com/freedom-from-shared-social-spaces-unlinking-fb-and-instagram/"><u>Freedom From Shared Social Spaces: Unlinking FB & Instagram</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/gratuit-mp3-en-m4a-konverteren-onlinespoedig-zonder-risico/"><u>Gratuit MP3 en M4A Konverteren - Onlinespoedig Zonder Risico!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guide-overcoming-missing-comctl32dll-error-in-windows-systems/"><u>Guide: Overcoming Missing comctl32.dll Error in Windows Systems</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-nokia-c12-plus-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Nokia C12 Plus</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-change-your-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Your Location on Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-harmonizing-multiple-recordings-achieving-an-exclusive-one-file-mix/"><u>New Harmonizing Multiple Recordings Achieving an Exclusive One-File Mix</u></a></li>
+<li><a href="https://facebook.techidaily.com/should-platforms-feature-disapproval-options/"><u>Should Platforms Feature Disapproval Options?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-views-into-a-following/"><u>Transforming Views Into a Following</u></a></li>
+<li><a href="https://facebook.techidaily.com/unpacking-data-extraction-economy/"><u>Unpacking Data Extraction Economy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-moto-g-stylus-your-ultimate-guide-to-a-budget-friendly-smartphone/"><u>Unveiling the Moto G Stylus – Your Ultimate Guide to a Budget-Friendly Smartphone</u></a></li>
+<li><a href="https://howto.techidaily.com/why-does-my-motorola-g54-5g-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Motorola G54 5G Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+</ul></div>
 

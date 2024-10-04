@@ -1,7 +1,7 @@
 ---
 title: The Imperative for More Stringent Online Fraud Control by Tech Firms
-date: 2024-09-21T17:16:41.779Z
-updated: 2024-09-28T16:57:04.417Z
+date: 2024-10-02T18:05:59.245Z
+updated: 2024-10-03T22:47:23.823Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,24 +78,18 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/updated-the-path-to-digital-riches-on-facebook-for-2024/"><u>[Updated] The Path to Digital Riches on Facebook for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/beating-the-glitch-fixes-for-opening-issues-with-nvidias-geforce-experience-software/"><u>Beating the Glitch: Fixes for Opening Issues with Nvidia's GeForce Experience Software</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-social-networking-6-groundbreits-of-fbs-metaverse-vision/"><u>Beyond Social Networking: 6 Groundbreits of FB's Metaverse Vision</u></a></li>
-<li><a href="https://facebook.techidaily.com/boundaries-in-the-virtual-world-key-privacy-protectors-to-know/"><u>Boundaries in the Virtual World: Key Privacy Protectors to Know</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-news-ios-145-complicates-facebook-tracking/"><u>Breaking News: IOS 14.5 Complicates Facebook Tracking</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-brand-loyalty-through-interactive-fb-campaigns/"><u>Building Brand Loyalty Through Interactive FB Campaigns</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-engaging-content-on-facebook-with-ease/"><u>Building Engaging Content on Facebook with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/clarifying-misunderstandings-in-fb-data-revelations/"><u>Clarifying Misunderstandings in FB Data Revelations</u></a></li>
-<li><a href="https://fox-info.techidaily.com/clearview-resolution-amplifier-cross-platform-edition-for-2024/"><u>ClearView Resolution Amplifier Cross-Platform Edition for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-through-sound-facebooks-audio-revolution/"><u>Connecting Through Sound: Facebook's Audio Revolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/curating-personalized-social-network-content-on-fb/"><u>Curating Personalized Social Network Content on FB</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-newest-usb-to-hdmi-software-patch-free-download/"><u>Get the Newest USB to HDMI Software Patch - Free Download</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-honor-play-8t-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Honor Play 8T Phone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-iphone-8-plus-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On iPhone 8 Plus? 5 Tips You Must Know</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-honor-play-40cfrp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Honor Play 40CFRP Lock</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/seamless-integration-updating-the-software-interface-for-your-serial-to-usb-adapter/"><u>Seamless Integration: Updating the Software Interface for Your Serial-to-USB Adapter</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/synchronize-and-watch-connecting-disneyplus-library-to-chromecast-for-ultimate-convenience/"><u>Synchronize and Watch: Connecting Disney+ Library to Chromecast for Ultimate Convenience</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/winx-mediatrans-the-ultimate-iphone-and-ipad-photo-music-video-manager-for-seamless-pc-to-mobile-transfer/"><u>WinX MediaTrans™: The Ultimate iPhone & iPad Photo Music Video Manager for Seamless PC to Mobile Transfer</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152659864-zuck-reveals-naming-his-goat-after-digital-currency/"><u>Zuck Reveals: Naming His Goat After Digital Currency</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-x-recorder-plus-professional-edition/"><u>[Updated] 2024 Approved X-Recorder Plus - Professional Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/debunking-photoshake-is-it-essential-or-excessive-in-2024/"><u>Debunking PhotoShake Is It Essential or Excessive, In 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-new-horizons-in-facebook-romance-features/"><u>Exploring New Horizons in Facebook Romance Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-strategy-is-it-enough-to-dethrone-tiktoks-rule/"><u>Facebook’s Reel Strategy: Is It Enough to Dethrone TikTok's Rule?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gadget-unveiling-top-youtube-channels-to-watch-for-2024/"><u>Gadget Unveiling Top YouTube Channels to Watch for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-a-broken-webex-microphone-a-comprehensive-guide/"><u>How to Fix a Broken Webex Microphone: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-whether-metaai-will-dominate-ai-dialogue/"><u>Investigating Whether MetaAI Will Dominate AI Dialogue</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/making-classroom-content-video-editing-insights/"><u>Making Classroom Content Video Editing Insights</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/overcoming-speaker-issues-while-playing-resident-evil-village/"><u>Overcoming Speaker Issues While Playing Resident Evil Village</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/simplified-guide-rapid-conversion-of-flv-files-into-webm-format/"><u>Simplified Guide: Rapid Conversion of FLV Files Into WebM Format</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-enhanced-tool-for-directing-consumers-to-brands/"><u>Unveiling Facebook’s Enhanced Tool for Directing Consumers to Brands</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-benefits-detailed-assessment-of-the-oneplus-nord-n10-5g/"><u>Unveiling the Benefits: Detailed Assessment of the OnePlus Nord N10 5G</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/updated-2024-approved-top-10-free-ai-voice-generators-to-use-in-daily-life/"><u>Updated 2024 Approved Top 10 Free AI Voice Generators to Use in Daily Life</u></a></li>
 </ul></div>
 

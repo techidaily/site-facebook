@@ -1,7 +1,7 @@
 ---
 title: Social Intrusion Turned Financial Strategy
-date: 2024-09-14T21:56:19.138Z
-updated: 2024-09-21T20:07:50.843Z
+date: 2024-09-30T18:32:00.628Z
+updated: 2024-10-03T22:29:15.413Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
 ![Matter smart home products](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/matter-logo-smart-home.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  For surveillance capitalism to work, its primary well of power lies in its ability to gather data as granular as possible.
 
  Unfortunately,[acquiring data has never been so easy](https://www.makeuseof.com/keep-advertisers-from-stealing-data/) . With the rise of social media, smart home devices, wearable technology, ecommerce, telemedicine, and online financial services, data brokers have a myriad of options to gather a terrifying amount of data on individuals in real-time.
@@ -53,22 +60,15 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
  If you're wondering what's the problem with this, it's that having such a granular image of you and your lifestyle increases the chances of identity theft or fraud if a hacker will be able to get a hold of it. With time, a single breach can cost you everything. And of course, there's the big issue of personal privacy, which we all have a right to.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Emotional Volatility
 
 ![Instagram disable sensitive content](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Instagram-Explore-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because it is inherently market-driven, surveillance capitalism encourages businesses to sell people anything at the highest price they are willing to pay. However, many businesses don't or will find it difficult to take into consideration if it is ethical to do so.
 
@@ -88,6 +88,19 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
 
 ![online shopping](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/07/online-shopping.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  At first glance, we seem to be living in an ideal future. A decade ago, the instant nature of many online transactions such as the normalization of fast fashion, seamless checkout processes, and next day delivery options would have just been a dream. However, no one could have known the negative impacts it would have on our society as a whole.
 
  Ads, pop-ups, and direct email marketing has conditioned an entire generation to have poor impulse control. We have become accustomed to self-soothing with our purchases, giving into every emotional trigger and craving for a never-ending stream of dopamine hits from things that we may not always need.
@@ -103,10 +116,10 @@ thumbnail: https://thmb.techidaily.com/ea90287aad1128dcf73001caefa47ec3f1c16bb10
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### The Commodification of Personal Experiences
@@ -144,5 +157,21 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-the-apex-of-narrative-content-youtubes-finest-in-23/"><u>[Updated] In 2024, The Apex of Narrative Content YouTube’s Finest in '23</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-instaclips-crafting-effective-video-promotions/"><u>[Updated] Mastering InstaClips Crafting Effective Video Promotions</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-oculus-vr-ultimate-player-reviews/"><u>[Updated] Top Oculus VR Ultimate Player Reviews</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-twin-screens-archive-capture/"><u>[Updated] Twin Screens Archive Capture</u></a></li>
+<li><a href="https://fox-links.techidaily.com/chinas-bargain-bin-of-virtual-reality-gear-for-2024/"><u>China's Bargain Bin of Virtual Reality Gear for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-office-insights-essential-workplace-wisdom/"><u>Facebook Office Insights: Essential Workplace Wisdom</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-quizzes-a-gateway-for-data-breaches/"><u>Facebook Quizzes: A Gateway for Data Breaches?</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-merge-duplicate-photographs-featuring-identical-subjects-a-guide-for-iphone-and-mac-users/"><u>How to Merge Duplicate Photographs Featuring Identical Subjects: A Guide for iPhone and Mac Users</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ildiko-gera-expert-software-engineer-at-abbyy-unveiling-the-journey-on-timeline/"><u>Ildikó Gera: Expert Software Engineer at ABBYY - Unveiling the Journey on Timeline</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-anonymity-on-social-networking-fb/"><u>Mastering the Art of Anonymity on Social Networking (FB)</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-biggest-tech-debates-starters/"><u>The Biggest Tech Debates Starters</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-man-or-woman-behind-60-minutes-facebook-scoop/"><u>The Man or Woman Behind 60 Minutes' Facebook Scoop</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-effective-facebook-navigation-addingremoving-links/"><u>Tips for Effective Facebook Navigation: Adding/Removing Links</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/why-does-imovie-enforce-dimensions/"><u>Why Does iMovie Enforce Dimensions?</u></a></li>
+</ul></div>
 

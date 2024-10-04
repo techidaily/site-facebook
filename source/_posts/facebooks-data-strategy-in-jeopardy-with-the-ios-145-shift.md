@@ -1,7 +1,7 @@
 ---
 title: Facebook's Data Strategy in Jeopardy with the iOS 14.5 Shift
-date: 2024-09-25T16:56:00.154Z
-updated: 2024-09-28T16:45:06.743Z
+date: 2024-09-30T22:14:22.815Z
+updated: 2024-10-03T17:24:57.672Z
 tags:
   - facebook
 categories:
@@ -52,58 +52,52 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
  The other 2% of Facebook's revenue comes from sources like Oculus sales and e-commerce payments.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What Is Facebook's Official Stance on App Tracking Transparency?
 
 ![facebook laptop plant](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-laptop.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Since Apple announced the ATT feature last year, Facebook has flip-flopped between saying the feature would harm its business model and supporting the new choice for users.
 
  After strongly opposing the feature at the time of its announcement, Facebook now supports ATT, claiming that the feature could potentially strengthen the company's position.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Many Users Allow App Tracking?
 
 ![iphone girl hand](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-hand.jpg)
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Before ATT was implemented, a survey from the[Post IDFA-Alliance](https://noidfanoproblem.com/app-marketers/almost-2-in-5-consumers-say-theyll-provide-idfa-access/) found that 38.5% of users would allow app tracking in iOS 14.
 
  It now appears that this number was highly optimistic as[data shows that in the US only 4% of users allow app tracking](https://www.makeuseof.com/iphone-users-opting-out-of-tracking/) , with a slightly higher 12% figure worldwide.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Does This All Mean for Facebook?
 
 ![facebook widget on iphone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/iphone-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Previously, Facebook would track users and collect information about them across different apps. This information would help Facebook decide what ads to show users.
@@ -141,20 +135,14 @@ thumbnail: https://thmb.techidaily.com/a340b32764d713af4f960a065c1dc4d886b3bb5db
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-the-ideal-youtube-playlist-an-easy-step-by-step-method/"><u>[New] 2024 Approved Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-optimal-remote-voice-recorders/"><u>[New] In 2024, Optimal Remote Voice Recorders</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-10-shopping-powerhouses-where-to-buy-personalized-present-wrappers-for-2024/"><u>[Updated] 10 Shopping Powerhouses Where to Buy Personalized Present Wrappers for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-digital-universe-understanding-and-evaluating-facebooks-metaverse/"><u>A New Digital Universe: Understanding and Evaluating Facebook's Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-telegrams-sudden-spurt-amidst-social-media-crisis/"><u>Analyzing Telegram’s Sudden Spurt Amidst Social Media Crisis</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-sheryl-sandberg-effect-at-facebook/"><u>Analyzing the Sheryl Sandberg Effect at Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/capitalisms-newest-frontier-monitoring-markets/"><u>Capitalism's Newest Frontier: Monitoring Markets</u></a></li>
-<li><a href="https://facebook.techidaily.com/cease-all-mass-notification-on-facebook/"><u>Cease All Mass Notification on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/charting-the-course-top-podcasts-reviewed-and-analyzed-for-22/"><u>Charting the Course: Top Podcasts Reviewed & Analyzed for '22</u></a></li>
-<li><a href="https://blog-min.techidaily.com/comment-reparer-un-titre-dvd-mal-lu-avec-handbrake-tutoriel-detaille-et-solutions-efficaces/"><u>Comment Réparer Un Titre DVD Mal Lu Avec HandBrake - Tutoriel Détaillé Et Solutions Efficaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-disinformation-the-12-influencer-connection/"><u>Covid Disinformation: The 12 Influencer Connection</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/evaluating-the-accuracy-is-chatgpt-an-effective-tool-for-health-info/"><u>Evaluating the Accuracy: Is ChatGPT an Effective Tool for Health Info?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-honor-x50-gt-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Honor X50 GT PC | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/the-best-of-both-worlds-screenflow-for-mac-creatives-reviewed-for-2024/"><u>The Best of Both Worlds ScreenFlow for Mac Creatives Reviewed for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/winning-against-cyberpunk-2077-pc-crashes-heres-your-step-by-step-solution/"><u>Winning Against Cyberpunk 2077 PC Crashes? Here's Your Step-by-Step Solution!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-blueprint-for-successful-collaborative-video-production-on-youtube/"><u>[Updated] 2024 Approved The Blueprint for Successful Collaborative Video Production on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-a-curated-list-of-happiness-crying-combo-on-instagram-pages/"><u>[Updated] In 2024, A Curated List of Happiness-Crying Combo on Instagram Pages</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-lone-path-with-3d-printers-in-the-3dr-world/"><u>2024 Approved A Lone Path with 3D Printers in the '3DR' World</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-facebooks-mtfc-for-enhanced-security/"><u>Harnessing Facebook's MTFC for Enhanced Security</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-14-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 14 Plus Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/january-update-trump-and-fb-account-future/"><u>January Update: Trump and FB Account Future</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-gionee-f3-pro-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Gionee F3 Pro – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/suspending-facebooks-in-app-browsing-feature/"><u>Suspending Facebook's In-App Browsing Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-breakers-blueprint-escape-from-facebook/"><u>The Breaker's Blueprint: Escape From Facebook</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Reviving Frozen Facebook Alerts Display
-date: 2024-09-27T16:18:16.193Z
-updated: 2024-09-28T16:31:59.265Z
+date: 2024-09-28T23:12:16.548Z
+updated: 2024-10-03T17:54:56.807Z
 tags:
   - facebook
 categories:
@@ -78,6 +78,13 @@ Close
 
 ![Facebook notifications in iPhone settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Faacebook-notifications-in-iPhone-settings.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Allow notifications for Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Allow-notifications-for-Facebook.JPG)
 
 Close
@@ -93,10 +100,10 @@ For an Android device, follow these steps:
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
@@ -104,13 +111,6 @@ For an Android device, follow these steps:
 ![Turn on Show notifications option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/turn-on-show-notifications-option.jpg)
 
 Close
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Check Notifications Settings on Facebook
 
@@ -143,6 +143,13 @@ On Android, follow these steps to enable Facebook notifications:
 
 ![Facebook menu on Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/01-facebook-menu-page-with-settings-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Settings an privacy page on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/02-facebook-settings-privacy-page-android.jpg)
 
 ![Notification settings on Facebook Android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/03-facebook-notification-settings-android.jpg)
@@ -156,16 +163,10 @@ Close
  The Facebook app will load all the pending alerts as soon as you refresh.
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Restart Your Phone
@@ -190,16 +191,16 @@ To clear your Facebook cache on your iOS device:
 
 ![iPhone software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-software-update.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![iPhone storage check](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/iPhone-storage-check.JPG)
 
 ![Offload Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Offload-Facebook-app.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -211,16 +212,16 @@ If you have an Android device, follow these steps:
 
 ![Android Software update](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/android-software-update.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook Storage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/facebook-storage.jpg)
 
 ![Clear cache of Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/clear-cache-of-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -235,20 +236,19 @@ Close
 ![Open Facebook on Android device](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/open-facebook-on-android-device.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Update Your Android or iPhone
 
@@ -268,14 +268,14 @@ Close
 
 ![Tap Download and install](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/tap-download-and-install.jpg)
 
-![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Software is up to date](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/03/software-is-up-to-date.jpg)
 
 Close
 
@@ -308,24 +308,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-expert-level-mp4-integrator-with-fb-compatibility/"><u>[New] 2024 Approved Expert-Level MP4 Integrator with FB Compatibility</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-obs-dominion-vs-streamlabs-kingdom/"><u>[New] 2024 Approved OBS Dominion Vs. Streamlabs Kingdom</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-6-creative-editors-on-the-latest-macos-big-sur/"><u>2024 Approved Top 6 Creative Editors on the Latest macOS Big Sur</u></a></li>
-<li><a href="https://facebook.techidaily.com/activating-your-digital-guard-facebooks-privacy-toolkit/"><u>Activating Your Digital Guard: Facebook's Privacy Toolkit</u></a></li>
-<li><a href="https://facebook.techidaily.com/admin-steps-for-enhanced-facebook-control/"><u>Admin Steps for Enhanced Facebook Control</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-your-fb-friends-list-unfollow-and-follow-dynamics-explained/"><u>Balancing Your FB Friends List: Unfollow & Follow Dynamics Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-facebook-portal-for-home-use/"><u>Best Facebook Portal for Home Use</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/brainiacs-guide-to-best-gk-quizzes-online/"><u>Brainiac's Guide to Best GK Quizzes Online</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-building-through-7-key-social-media-aspects/"><u>Community Building Through 7 Key Social Media Aspects</u></a></li>
-<li><a href="https://facebook.techidaily.com/conveying-where-you-are-via-facebook-messenger/"><u>Conveying Where You Are via Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-captivating-facebook-live-videos-a-step-by-step-guide/"><u>Crafting Captivating Facebook Live Videos: A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/cure-your-canceled-connections-on-facebook-platform/"><u>Cure Your Canceled Connections on Facebook Platform</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146552580-decoding-and-rectifying-common-social-network-issues-your-guide-to-fixing-them/"><u>Decoding & Rectifying Common Social Network Issues: Your Guide to Fixing Them</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/explore-data-depths-like-never-before-select-perplexity-ai/"><u>Explore Data Depths Like Never Before - Select Perplexity AI</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-governing-bodies-can-manage-and-supervise-emerging-ai-tools-4-key-approaches/"><u>How Governing Bodies Can Manage and Supervise Emerging AI Tools: 4 Key Approaches</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-infinix-zero-30-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Infinix Zero 30 5G to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-legal-pathways-for-flawless-free-imagery-purchases/"><u>In 2024, Legal Pathways for Flawless Free Imagery Purchases</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/spice-up-stories-tailored-creative-qandas-for-users-for-2024/"><u>Spice Up Stories Tailored Creative Q&As for Users for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-guide-to-night-photos-on-iphones-for-2024/"><u>The Ultimate Guide to Night Photos on iPhones for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-full-assessment-razers-hd-webcam/"><u>[New] Full Assessment Razer's HD Webcam</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-no-fuss-streaming-technique-for-podcasts/"><u>[New] No-Fuss Streaming Technique for Podcasts</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-perfect-your-youtube-clips-essential-editing-techniques-unveiled/"><u>[Updated] In 2024, Perfect Your YouTube Clips Essential Editing Techniques Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-perfecting-gameplay-capture-on-the-newest-windows-11/"><u>[Updated] In 2024, Perfecting Gameplay Capture on the Newest Windows 11</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-smooth-privacy-tear-away-facial-features/"><u>[Updated] Smooth Privacy Tear Away Facial Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-breaking-down-instagrams-per-video-ceiling/"><u>2024 Approved Breaking Down Instagram's Per-Video Ceiling</u></a></li>
+<li><a href="https://games-able.techidaily.com/breathing-life-back-into-your-gps-reclaiming-signal-in-pokemon-go-adventures/"><u>Breathing Life Back Into Your GPS: Reclaiming Signal in Pokémon Go Adventures</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/elevate-instagram-creativity-with-musical-elements-for-2024/"><u>Elevate Instagram Creativity with Musical Elements for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-shatters-boundaries-in-online-shopping-fridays/"><u>Facebook Shatters Boundaries in Online Shopping Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-pause-to-playback-a-new-era-for-instagram/"><u>From Pause to Playback: A New Era for Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-restricted-to-total-freedom-the-impact-of-facebooks-oculus-go-decision/"><u>From Restricted to Total Freedom: The Impact of Facebook's Oculus Go Decision</u></a></li>
+<li><a href="https://facebook.techidaily.com/hack-alert-recognize-these-9-social-network-dangers/"><u>Hack Alert! Recognize These 9 Social Network Dangers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-your-privacy-on-display-in-every-push-notification/"><u>Is Your Privacy on Display in Every Push Notification?</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-on-sns-more-harm-than-good/"><u>National Survey on SNS: More Harm Than Good</u></a></li>
+<li><a href="https://facebook.techidaily.com/reasons-for-the-decline-social-vs-forum-dynamics/"><u>Reasons for the Decline: Social vs Forum Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-with-strategic-admins/"><u>Securing Your Pages with Strategic Admins</u></a></li>
+<li><a href="https://facebook.techidaily.com/ungrouping-techniques-on-the-social-giant-facebook/"><u>Ungrouping Techniques on the Social Giant, Facebook</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/vtech-kidizoom-duo-camera-review-endless-entertainment/"><u>VTech Kidizoom Duo Camera Review: Endless Entertainment</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Facebook's CMO Carolyn Steps Down - Marketing Leadership Change
-date: 2024-09-15T19:52:15.456Z
-updated: 2024-09-22T00:21:27.272Z
+date: 2024-09-26T21:39:06.831Z
+updated: 2024-10-03T20:54:12.293Z
 tags:
   - facebook
 categories:
@@ -48,9 +48,23 @@ thumbnail: https://thmb.techidaily.com/7077ddd1132ef7b304c8a4c6d57fc2c4c3da823c4
 
  Prior to Facebook, Everson worked as head of ad sales at ViacomCBS' MTV Networks, then global head of advertising at Microsoft.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144282/7443" target="_top" id="2144282">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144282" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144282/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Does This Mean for Facebook?
 
 ![facebook-spying](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2019/11/facebook-spying.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With this change in leadership may come a change in how Facebook deals with its advertisers. While the company surely has other qualified, long-term employees that could fill the position, it'll be hard-pressed to find someone willing to fill Everson's shoes.
 
@@ -71,12 +85,18 @@ thumbnail: https://thmb.techidaily.com/7077ddd1132ef7b304c8a4c6d57fc2c4c3da823c4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-straightforward-strategies-for-iphones-screen-recording/"><u>[New] 2024 Approved Straightforward Strategies for iPhone's Screen Recording</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-unleash-potential-7-exceptional-services-for-digital-art-nfts/"><u>2024 Approved Unleash Potential 7 Exceptional Services for Digital Art NFTs</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-mention-all-group-members-in-a-facebook-post/"><u>How to Mention All Group Members in a Facebook Post</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-beat-breakers-crafting-compelling-video-music-scores/"><u>In 2024, Beat Breakers Crafting Compelling Video Music Scores</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-five-star-duo-of-picture-taking-and-musical-integration/"><u>In 2024, Five-Star Duo of Picture Taking & Musical Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-the-future-web-decoding-facebooks-metaverse-concepts/"><u>Inside The Future Web: Decoding Facebook’s Metaverse Concepts</u></a></li>
+<li><a href="https://fox-access.techidaily.com/sync-soundscapes-from-downloads-to-personalized-phone-alerts/"><u>Sync Soundscapes From Downloads to Personalized Phone Alerts</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/transform-your-3gp-files-into-animation-music-video-amv-format-with-ease/"><u>Transform Your 3GP Files Into Animation Music Video (AMV) Format with Ease</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-steps-for-unpairing-and-pairing-airpods-to-your-window-laptopdesktop-2024-update/"><u>Troubleshooting Steps for Unpairing and Pairing AirPods to Your Window Laptop/Desktop - 2024 Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-image-ownership-on-web-platforms/"><u>Understanding Image Ownership on Web Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-exposed-the-shadow-behind-fb-written-code/"><u>Who Exposed the Shadow Behind FB’ Written Code</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Privacy Probe: WhatsApp Legalizes Challenge to Indian Legislation"
-date: 2024-09-20T22:36:28.478Z
-updated: 2024-09-21T17:39:43.174Z
+date: 2024-09-26T21:02:04.748Z
+updated: 2024-10-03T16:11:17.125Z
 tags:
   - facebook
 categories:
@@ -30,6 +30,13 @@ thumbnail: https://thmb.techidaily.com/5ab9533fc8b349be19f63e7cbad029dfd19e210f5
 
  This basically means that WhatsApp should provide details on the origins of a message, i.e., the sender if requested by the government. WhatsApp claims in its lawsuit that this rule is unconstitutional.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Indian Government Wants to Regulate Social Media Content
 
  The Information Technology (Intermediary Guidelines and Digital Media Ethics Code) Rules, 2021, was[first announced](https://www.meity.gov.in/content/notification-dated-25th-february-2021-gsr-139e-information-technology-intermediary) by the Indian government on February 25, 2021\. It aims to regulate social media and messaging platforms using a code of ethics.
@@ -37,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/5ab9533fc8b349be19f63e7cbad029dfd19e210f5
  However, since WhatsApp uses end-to-end encryption, this is technically not possible, and breaking the encryption protocol to adhere to the regulations would put the privacy of WhatsApp users at risk.
 
 ![Close-up of the WhatsApp logo on a phone being held up](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/India-Not-Backing-Down-WhatsApp-Featured.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  A WhatsApp spokesperson issued the following statement to[The New York Times](https://www.nytimes.com/2021/05/25/technology/whatsapp-india-lawsuit.html) on the lawsuit:
 
@@ -54,9 +68,23 @@ thumbnail: https://thmb.techidaily.com/5ab9533fc8b349be19f63e7cbad029dfd19e210f5
 
 ![WhatsApp](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/fix-whatsapp-notifications-windows-10-featured.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  WhatsApp's move against the Indian government comes at a time when it has itself been[subjected to a lot of criticism](https://www.makeuseof.com/whatsapp-delays-privacy-policy-facebook-data-sharing-controversy/) over its new privacy policy in the country. The Indian government has already asked Facebook-owned[WhatsApp to take down its new privacy policy twice](https://www.makeuseof.com/whatsapp-privacy-policy-india-not-backing-down/) since it believes it "undermines values of informational privacy, data security."
 
  Related:[Best WhatsApp Alternatives That Don’t Share Your Data With Facebook](https://www.makeuseof.com/whatsapp-alternatives-dont-share-data-facebook/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## India Is One of WhatsApp's Key Markets
 
@@ -77,12 +105,23 @@ thumbnail: https://thmb.techidaily.com/5ab9533fc8b349be19f63e7cbad029dfd19e210f5
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-steps-for-capturing-online-conversations/"><u>2024 Approved Steps for Capturing Online Conversations</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-strategies-for-precise-age-entry-in-tiktok-profiles/"><u>2024 Approved Strategies for Precise Age Entry in TikTok Profiles</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/additional-tips-about-sinnoh-stone-for-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Additional Tips About Sinnoh Stone For Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/enhancing-your-photos-effective-use-of-luts-in-photoshop-cs6-for-2024/"><u>Enhancing Your Photos Effective Use of LUTs in Photoshop CS6 for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ensuring-your-pictures-endure-top-rated-cloud-storage-services/"><u>Ensuring Your Pictures Endure Top-Rated Cloud Storage Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-reboot-to-renaissance-instagrams-potential-return/"><u>From Reboot to Renaissance: Instagram's Potential Return</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/getting-the-best-sound-diagnosing-and-fixing-issues-with-your-corsair-hs50-microphone/"><u>Getting the Best Sound: Diagnosing and Fixing Issues With Your Corsair HS50 Microphone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/grasp-quality-photo-display-with-top-tier-nixplay-seed-frame/"><u>Grasp Quality Photo Display with Top-Tier Nixplay Seed Frame</u></a></li>
+<li><a href="https://facebook.techidaily.com/kid-safety-boost-revise-data-in-messenger-kids-app/"><u>Kid Safety Boost: Revise Data in Messenger Kids App</u></a></li>
+<li><a href="https://facebook.techidaily.com/pros-cons-or-neither-choosing-facebook-as-an-events-platform/"><u>Pros, Cons, or Neither?: Choosing Facebook as an Events Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/secrets-attracting-business-clients-via-facebook/"><u>Secrets: Attracting Business Clients via Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steering-clear-of-random-account-termination-on-social-media/"><u>Steering Clear of Random Account Termination on Social Media</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-next-generation-awaits-decode-the-upcoming-apple-watch-xs-cost-launch-date-specifications-and-more-hidden-gems/"><u>The Next Generation Awaits: Decode the Upcoming Apple Watch X’s Cost, Launch Date, Specifications, and More Hidden Gems</u></a></li>
+<li><a href="https://facebook.techidaily.com/tiktoks-ascent-impacting-facebooks-economic-strength/"><u>TikTok's Ascent Impacting Facebook's Economic Strength</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-poco-x5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Poco X5 to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-ramifications-of-facebooks-oculus-go-decision/"><u>Understanding the Ramifications of Facebook's Oculus Go Decision</u></a></li>
+</ul></div>
 

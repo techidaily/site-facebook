@@ -1,7 +1,7 @@
 ---
 title: "The Shift: How Meta Plans to Kill Off FB’s Face Tech"
-date: 2024-09-24T17:23:23.597Z
-updated: 2024-09-28T17:03:35.062Z
+date: 2024-09-30T19:53:52.742Z
+updated: 2024-10-03T20:53:55.606Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
  Related:[How Dark Patterns Mislead You Into Making Bad Privacy Choices](https://www.makeuseof.com/tag/dark-patterns-bad-privacy-choices/)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144284/7443" target="_top" id="2144284">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144284" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144284/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Meta Disabling Facial Recognition on Facebook?
@@ -52,10 +52,10 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 ![blonde woman taking photo with phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/blonde-woman-pixabay.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The official reason, given in a[Meta blogpost](https://about.fb.com/news/2021/11/update-on-use-of-face-recognition/) , is that regulators have not provided a clear set of rules to govern facial recognition. This regulatory vacuum has led to user privacy concerns about the role of facial recognition technology. Meta claims that this resulting uncertainty has left it with no choice but to limit the use of facial recognition on Facebook.
@@ -71,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
  Related:[The End of an Era: Is Big Tech in Trouble?](https://www.makeuseof.com/is-big-tech-in-trouble/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Meta's Disabling of Facebook's Facial Recognition Enhance Privacy?
@@ -102,20 +102,24 @@ thumbnail: https://thmb.techidaily.com/6fd0cef62e823c305fb86e64196b6559e3c33c787
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-expert-picks-11-easy-waterproof-kids-camcorders-for-vlogging/"><u>[New] Expert Picks 11 Easy, Waterproof Kids' Camcorders For Vlogging</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-playcapture-x-the-cost-free-videography-for-games/"><u>[Updated] 2024 Approved PlayCapture X The Cost-Free Videography for Games</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-a-beginners-tutorial-on-using-luts-in-ar-for-2024/"><u>[Updated] A Beginner's Tutorial on Using LUTs in AR for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critique-and-insight-the-pros-and-cons-of-criacrs-compact-fm-transmitter-model-cp24/"><u>Critique and Insight: The Pros & Cons of CRIACR's Compact FM Transmitter Model CP24</u></a></li>
-<li><a href="https://facebook.techidaily.com/decline-to-share-your-digital-footprint-with-facebook/"><u>Decline to Share Your Digital Footprint with Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhanced-administrator-capabilities-for-online-communities-on-fb/"><u>Enhanced Administrator Capabilities for Online Communities on FB</u></a></li>
-<li><a href="https://fox-access.techidaily.com/global-cloud-savings-summary-comparing-and-choosing-the-cheapest/"><u>Global Cloud Savings Summary Comparing and Choosing the Cheapest</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-on-your-iphone-13-pro-max-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock on your iPhone 13 Pro Max and iPad</u></a></li>
-<li><a href="https://facebook.techidaily.com/is-confidential-communication-on-fb-reliable/"><u>Is Confidential Communication on FB Reliable?</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-step-for-teens-rethinking-daily-instagram-interactions-with-facebook-insights/"><u>Next Step for Teens: Rethinking Daily Instagram Interactions with Facebook Insights</u></a></li>
-<li><a href="https://facebook.techidaily.com/opening-doors-to-facebooks-community-platforms/"><u>Opening Doors to Facebook's Community Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/preventing-misinformation-about-pandemic-on-digital-platforms/"><u>Preventing Misinformation About Pandemic on Digital Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailored-guide-to-dissolve-your-facebook-collective/"><u>Tailored Guide to Dissolve Your Facebook Collective</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/vault-selection-for-top-corporate-use-for-2024/"><u>Vault Selection for Top Corporate Use for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/wonderfox-dvd-ripper-effortless-digital-movie-downloads/"><u>WonderFox DVD Ripper - Effortless Digital Movie Downloads</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-the-essential-guide-to-obs-and-zoom-live-stream-setup/"><u>[New] 2024 Approved The Essential Guide to OBS and Zoom Live Stream Setup</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-capturing-marine-magic-pro-tips-for-filming-oceanic-scenes-using-gopro/"><u>[New] Capturing Marine Magic Pro Tips for Filming Oceanic Scenes Using GoPro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-crafting-cinematic-magic-making-your-instagram-videos-shine-for-2024/"><u>[Updated] Crafting Cinematic Magic Making Your Instagram Videos Shine for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/complete-guide-download-and-upgrade-drivers-for-hp-officejet-pro-8610-on-all-windows-systems/"><u>Complete Guide: Download & Upgrade Drivers for HP Officejet Pro 8610 on All Windows Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-enhances-experience-with-launch-of-ray-ban-stories/"><u>Facebook Enhances Experience with Launch of Ray-Ban Stories</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fixing-non-operational-windows-drivers-immediately/"><u>Fixing Non-Operational Windows Drivers Immediately</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-use-smschat-without-linking-to-fb/"><u>How to Use SMS/Chat Without Linking to FB</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-m54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy M54 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-a79-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo A79 5G Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/incredible-savings-in-managing-social-platforms/"><u>Incredible Savings in Managing Social Platforms</u></a></li>
+<li><a href="https://extra-support.techidaily.com/master-the-art-of-pace-control-for-instas-live-videos-for-2024/"><u>Master the Art of Pace Control for Insta's Live Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/poco-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>Poco support - Forgotten screen lock.</u></a></li>
+<li><a href="https://facebook.techidaily.com/potential-for-social-media-to-merge-with-physical-commerce/"><u>Potential for Social Media to Merge with Physical Commerce</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sleuthing-pinpointing-facebook-profile-links/"><u>Social Sleuthing: Pinpointing Facebook Profile Links</u></a></li>
+<li><a href="https://facebook.techidaily.com/stay-incognito-on-social-media-fb-with-these-7-protocols/"><u>Stay Incognito on Social Media (FB) with These 7 Protocols</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-fantastic-facebook-cover-images/"><u>Step-By-Step Guide to Fantastic Facebook Cover Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-quest-for-truth-identifying-fake-facebooks-users/"><u>The Quest for Truth: Identifying Fake Facebooks Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/think-twice-before-enabling-facebooks-link-tracker/"><u>Think Twice Before Enabling Facebook's Link Tracker</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/unlocking-advanced-tracking-with-cookiebot-integration-for-improved-seo-results/"><u>Unlocking Advanced Tracking with Cookiebot Integration for Improved SEO Results</u></a></li>
 </ul></div>
 

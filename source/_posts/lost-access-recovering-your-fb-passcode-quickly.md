@@ -1,7 +1,7 @@
 ---
 title: "Lost Access: Recovering Your FB Passcode Quickly"
-date: 2024-09-24T17:10:50.590Z
-updated: 2024-09-28T17:26:55.236Z
+date: 2024-09-26T18:55:52.567Z
+updated: 2024-10-03T19:42:18.462Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ Close
 
  If you didn't find your Facebook login details in your saved passwords, you will need to reset your password to regain access to your account.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Reset Your Facebook Password
 
  Resetting your Facebook password should be a breeze if you have previously added an email address and an alternate phone number (different from the one you use for two-factor authentication).
@@ -64,10 +57,16 @@ Close
 ![Facebook login page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-login-page.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here's what to do to reset your password:
@@ -82,10 +81,10 @@ Here's what to do to reset your password:
 ![Identify your account](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Identify-your-account.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If your account is found, click**This is my account** . If not found, follow the screen prompts.
@@ -97,22 +96,22 @@ Once you have done this, follow these steps:
 3. Create a new password.
 4. Click**Continue** to complete your password reset.
 
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Didn't Get the Password Reset Code?
 
 ![Facebook enter security code](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-enter-security-code.png)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you didn't get the reset code, do the following.
 
@@ -127,6 +126,19 @@ If you didn't get the reset code, do the following.
  In that case, you'll have to wait for 24 hours before you can try again.
 
  Related:[How to Reset or Change Your Instagram Password](https://www.makeuseof.com/how-to-reset-change-instagram-password/)
+
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Not Forget Your Facebook Password Again
 
@@ -157,24 +169,18 @@ If you didn't get the reset code, do the following.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://blog-min.techidaily.com/mp3mp4-movavi/"><u>移動網站無限制地MP3到MP4過渡 - 使用Movavi轉換工具</u></a></li>
-<li><a href="https://facebook.techidaily.com/best-sites-and-platforms-for-freelancers/"><u>Best Sites and Platforms for Freelancers</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/bypassing-the-common-pitfalls-effective-techniques-to-fix-obs-audio-malfunctions-using-movavi/"><u>Bypassing the Common Pitfalls: Effective Techniques to Fix OBS Audio Malfunctions Using Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/disabling-friends-who-remain-unseen-on-fb/"><u>Disabling Friends Who Remain Unseen on FB</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-and-update-your-scansnap-s1300i-driver-today-with-this-simple-tutorial/"><u>Download & Update Your ScanSnap S1300i Driver Today with This Simple Tutorial</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensure-the-legitimacy-of-(securityfacebookmailcom)-as-a-security-email-service/"><u>Ensure the Legitimacy of @<security@facebookmail.com> as a Security Email Service</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-guide-to-restoring-mic-functionality-on-windows-11-systems/"><u>Expert Guide to Restoring Mic Functionality on Windows 11 Systems</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-introduces-enhanced-community-layouts/"><u>Facebook Introduces Enhanced Community Layouts</u></a></li>
-<li><a href="https://program-issues.techidaily.com/gaming-hacks-addressing-and-repairing-continuous-crash-issues-in-cod-modern-warfare-2/"><u>Gaming Hacks: Addressing and Repairing Continuous Crash Issues in COD: Modern Warfare 2</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-create-a-memorable-3d-image-for-facebook-friends/"><u>How to Create a Memorable 3D Image for Facebook Friends</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-the-essential-tutorial-for-xbox-fb-streams/"><u>In 2024, The Essential Tutorial for Xbox FB Streams</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/mastering-iphone-screen-casts-with-ease/"><u>Mastering iPhone Screen Casts with Ease</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-hd-content-efficient-posting-in-fb-app/"><u>Navigating HD Content: Efficient Posting in FB App</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-fixes-for-a-malfunctioning-bose-audio-setup/"><u>Quick Fixes for a Malfunctioning Bose Audio Setup</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-chats-anticipating-facebooks-e2ee-move/"><u>Securing Chats: Anticipating Facebook's E2EE Move</u></a></li>
-<li><a href="https://facebook.techidaily.com/take-control-prevent-facebooks-oversee-usage/"><u>Take Control: Prevent Facebook’s Oversee Usage</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-mechanism-behind-windows-sound-graph-isolation/"><u>The Mechanism Behind Windows Sound Graph Isolation</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-did-i-first-connect-to-the-world-wide-web-a-facebook-story/"><u>When Did I First Connect to the World Wide Web? - A Facebook Story</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-1110-hevc-h265-transcoding-software-for-high-quality-4k-video-conversion/"><u>Windows 11/10 HEVC H.265 Transcoding Software for High-Quality 4K Video Conversion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-cut-the-cord-free-tiktok-videos-here-for-2024/"><u>[New] Cut the Cord - FREE TikTok Videos Here for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-mastering-obs-for-android-streaming/"><u>[Updated] Mastering OBS for Android Streaming</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-vlc-screen-recorder-review-and-using-guide/"><u>[Updated] VLC Screen Recorder Review and Using Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/image-input-ai-output-new-form-of-writing-experiment/"><u>Image Input, AI Output: New Form of Writing Experiment</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-apple-iphone-xr-by-name-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Apple iPhone XR by Name | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-video-production-pro-tips-incorporating-audio-into-youtube-content/"><u>In 2024, Video Production Pro Tips Incorporating Audio Into YouTube Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/investigating-metas-approved-content-worthiness/"><u>Investigating Meta’s Approved Content Worthiness</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/navigating-the-maximum-duration-limit-for-instagram-videos/"><u>Navigating the Maximum Duration Limit for Instagram Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/respectful-farewells-guiding-the-management-of-deceaseds-facebook-profile/"><u>Respectful Farewells: Guiding the Management of Deceased's Facebook Profile</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>The Magnificent Art of Pokemon Go Streaming On Apple iPhone 12 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-low-frame-rate-and-gameplay-hiccups-on-naraka-bladepoint/"><u>Troubleshooting Low Frame Rate & Gameplay Hiccups on Naraka: Bladepoint</u></a></li>
+<li><a href="https://facebook.techidaily.com/when-will-your-conversations-be-safe-with-e2ee-on-facebook-messenger/"><u>When Will Your Conversations Be Safe with E2EE on Facebook Messenger?</u></a></li>
 </ul></div>
 

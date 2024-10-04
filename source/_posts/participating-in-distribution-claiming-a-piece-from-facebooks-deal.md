@@ -1,7 +1,7 @@
 ---
 title: "Participating in Distribution: Claiming a Piece From Facebook’s Deal"
-date: 2024-09-22T17:18:31.121Z
-updated: 2024-09-28T17:08:39.132Z
+date: 2024-09-27T16:53:10.020Z
+updated: 2024-10-03T18:43:03.909Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
  The testimony didn't exactly invoke confidence that Facebook and Zuckerberg at large were taking the leak seriously. This spawned the class-action lawsuit later that year, stretching for years until the settlement in December 2022 for $725 million.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Join the Class Action Settlement
@@ -44,13 +44,6 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
  To send through a claim, head over to the[Facebook User Privacy Settlement site](https://www.facebookuserprivacysettlement.com/) . Select**Submit Claim** at the top of the homepage. If you need instructions, select**Click for General Instructions** .
 
 ![The Facebook settlement homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-settlement-page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Fill out the form, ensuring that you add important information, such as the date you deleted your Facebook count if applicable. Be sure to add at least one email address, phone number, and username associated with your Facebook account. If it has been a while since you last logged into your Facebook account and you lost your credentials somewhere along the way, you'll need to[recover your Facebook account](http://www.makeuseof.com/tag/recover-facebook-account-longer-log/) to find your username before filing a claim.
 
@@ -66,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
  Do keep in mind[how Zelle scams work](https://www.makeuseof.com/how-zelle-scams-work/) if you choose this payment option. It’s not out of the realm of possibility to suggest that bad actors could send fake emails encouraging you to “claim” your settlement via Zelle between now and when you receive your payout. Be vigilant, and know the[signs of a phishing scam](https://www.makeuseof.com/top-signs-phishing-scams/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Will Your Claim Be Settled?
@@ -79,10 +72,16 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
 ![An image of the Facebook homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/wm/2023/04/facebook-homepage.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  After the claim deadline has passed (August 25, 2023), the settlement administrator overseeing the class-action settlement will decide the monetary value of each point. They'll do this by:
@@ -92,6 +91,13 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
 * Subtracting that number from the costs of the lawsuit (like administrative fees).
 
  This final number will determine the monetary value for each point. The monetary value will then be multiplied by the number of points assigned to each user filing a claim, determining each individual user’s entitled compensation. For example, if one point is worth $1 and you didn't deactivate your Facebook account for the entire 15.5-year timeframe of the lawsuit, you would receive $186.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Facebook May Owe You, but Don’t Expect Life Changing Cash
 
@@ -114,22 +120,16 @@ thumbnail: https://thmb.techidaily.com/e95b10a90432b136a95f53788d2f6a34587f22e15
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-breaking-the-boundaries-vr-film-production-essentials-top-9/"><u>[New] Breaking the Boundaries VR Film Production Essentials (Top 9)</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-step-up-to-professionalism-navigating-dslr-and-facebook-live-with-your-computer/"><u>[Updated] 2024 Approved Step Up to Professionalism Navigating DSLR & Facebook LIVE with Your Computer</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/18-fainomena-epitheth-dwroymena-gennada-windows-kai-mac/"><u>18 Φαινόμενα Επιθέτη Δωρούμενα Γεννάδα [Windows Και Mac]</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-play-40c-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Play 40C</u></a></li>
-<li><a href="https://facebook.techidaily.com/eco-friendly-total-renewable-energy-for-fb/"><u>Eco-Friendly: Total Renewable Energy for FB</u></a></li>
-<li><a href="https://program-issues.techidaily.com/eliminating-game-interruptions-how-to-prevent-frequent-overwatch-pc-software-failures/"><u>Eliminating Game Interruptions: How to Prevent Frequent Overwatch ² PC Software Failures</u></a></li>
-<li><a href="https://facebook.techidaily.com/embark-on-a-digital-romance-journey-with-facebook/"><u>Embark on a Digital Romance Journey with Facebook</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-guide-addressing-the-silent-glitches-in-dying-light/"><u>Expert Guide: Addressing the Silent Glitches in Dying Light</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-blacklist-why-it-occurs/"><u>Facebook Blacklist: Why It Occurs</u></a></li>
-<li><a href="https://facebook.techidaily.com/identifying-users-youve-blocked-on-fb/"><u>Identifying Users You've Blocked on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/llifes-comeback-story-will-it-play-out-in-metaverse-times/"><u>LLife's Comeback Story: Will It Play Out In Metaverse Times?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-infinix-hot-40i-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Infinix Hot 40i</u></a></li>
-<li><a href="https://facebook.techidaily.com/quantifying-reset-actions-facebook-users-oculus-purchases-explored/"><u>Quantifying Reset Actions - Facebook User's Oculus Purchases Explored</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/reimagining-code-the-potential-effect-of-artificial-intelligence-on-developer-workflow/"><u>Reimagining Code: The Potential Effect of Artificial Intelligence on Developer Workflow</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategies-to-leverage-facebook-in-your-professional-life/"><u>Strategies to Leverage Facebook in Your Professional Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/techniques-to-designate-safe-status-on-fb/"><u>Techniques to Designate Safe Status on FB</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/voyage-vocabulary-top-phrases-to-conquer-francophone-lands/"><u>Voyage Vocabulary: Top Phrases to Conquer Francophone Lands</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-iphone-6-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on iPhone 6? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-razr-40-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Motorola Razr 40 Phone with Broken Screen</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-paves-the-way-for-artists-with-enhanced-earning-features/"><u>Instagram Paves the Way for Artists with Enhanced Earning Features</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-blue-snowball-driver-updates-for-windows-pcs-what-you-need-to-know/"><u>Latest Blue Snowball Driver Updates for Windows PCs: What You Need to Know</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-moderation-instruments-released-by-facebook/"><u>New Moderation Instruments Released by Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/offline-existence-completely-unplugging-from-fb/"><u>Offline Existence: Completely Unplugging From FB</u></a></li>
+<li><a href="https://win-forum.techidaily.com/organization-hacks-for-android-users-with-revo-uninstallers-easy-solutions/"><u>Organization Hacks for Android Users with Revo Uninstaller’s Easy Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/revealed-whats-triggering-discussions-around-fb-papers/"><u>Revealed: What's Triggering Discussions Around FB Papers?</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-nomad-case-for-the-apple-iphone-13-features-magsafe-compatibility-superior-drop-defense-and-stylish-design-rated-by-tech-experts-at-zdnet/"><u>Ultimate Nomad Case for the Apple iPhone 13: Features MagSafe Compatibility, Superior Drop Defense & Stylish Design - Rated by Tech Experts at ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-the-hang-up-your-headphones-message-from-instagram-matters/"><u>Why the 'Hang Up Your Headphones' Message From Instagram Matters</u></a></li>
 </ul></div>
 

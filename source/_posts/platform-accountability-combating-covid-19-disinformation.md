@@ -1,7 +1,7 @@
 ---
 title: "Platform Accountability: Combating COVID-19 Disinformation"
-date: 2024-09-24T17:00:27.345Z
-updated: 2024-09-28T16:31:05.531Z
+date: 2024-10-01T19:00:42.071Z
+updated: 2024-10-03T21:58:01.384Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ Here's what social media platforms can do to tackle the issue.
 
  These include prominent public figures such as Children's Health Defense Chairman Robert F. Kennedy Jr. and the entrepreneur Joseph Mercola.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Social Media Companies Are Doing to Combat the Spread of COVID-19 Misinformation
 
 ![covid-19 misinformation on social media](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/covid-social-media-1.png)
@@ -65,15 +72,22 @@ YouTube also removes videos that violate its COVID-19 policy.
  Read more: [Is Facebook Doing Enough to Tackle Misinformation?](https://www.makeuseof.com/is-facebook-doing-enough-misinformation/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Social Media Companies Can Protect Users From Harmful Misinformation
 
  In addition to removing repeat offenders, social media platforms can take the following steps toward decreasing the spread of misinformation online.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Tap Into Celebrities and Religious and Community Leaders
 
@@ -81,16 +95,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  They can also share their personal experiences around getting vaccinated.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Establish Shared Online Standards Across Social Media Platforms
 
  Social media platforms have algorithms to detect fake news. However, they can take it a step further by establishing a shared online standard of conduct regarding the treatment of fake news.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Establish a Clear Threshold for Enforcement Action
 
@@ -102,13 +116,6 @@ YouTube also removes videos that violate its COVID-19 policy.
 
  Social media platforms can show users who have been exposed to content in violation of the COVID-19 policy corrective posts from experts and trusted sources.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Add Warning Screens When Users Click Links to Misinformation Sites
 
  Companies should consider adding a warning screen in front of third-party websites or untrustworthy sources housing COVID-19-related misinformation.
@@ -118,13 +125,6 @@ YouTube also removes videos that violate its COVID-19 policy.
 ### 6\. Ban Private and Secret Anti-Vaccine Facebook Groups
 
  Ban private groups that traffic primarily in vaccine disinformation and prevent groups that require a Facebook disclaimer from existing as private or secret groups, as anti-vaxxers rely on the privacy of these groups to spread dangerous anti-vaccine misinformation.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Social Media Companies Play a Key Role in Reducing COVID-19 Related Misinformation Online
 
@@ -147,22 +147,16 @@ YouTube also removes videos that violate its COVID-19 policy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-videos.techidaily.com/new-10-essential-tips-for-achieving-wealth-through-youtube-video-views/"><u>[New] 10 Essential Tips for Achieving Wealth Through YouTube Video Views</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-biting-snippets-to-captivating-narratives-an-experts-guide-to-youtube-edits-for-2024/"><u>[New] From Biting Snippets to Captivating Narratives An Expert's Guide to Youtube Edits for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-expert-strategies-for-fbx-filming-in-video-games/"><u>[Updated] 2024 Approved Expert Strategies for FBX Filming in Video Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-insights-into-crafting-responses-to-youtube-comments/"><u>[Updated] Insights Into Crafting Responses to YouTube Comments</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-the-fundamentals-of-creating-breathtaking-canon-time-lapses/"><u>[Updated] The Fundamentals of Creating Breathtaking Canon Time-Lapses</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-lut-lovers-delight-complimentary-sets-for-djis-miniair2/"><u>2024 Approved LUT Lovers Delight Complimentary Sets for DJI's Mini/Air2</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-robust-client-base-using-social-medias-platform-fb/"><u>Building a Robust Client Base Using Social Media's Platform: FB</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/carving-out-the-ultimate-tiktok-final-act-for-2024/"><u>Carving Out the Ultimate TikTok Final Act for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-step-by-step-shooting-slow-motion-videos-on-iphone/"><u>In 2024, Step by Step Shooting Slow Motion Videos on iPhone</u></a></li>
-<li><a href="https://facebook.techidaily.com/leading-change-in-online-communities-with-new-admin-resources-from-fb/"><u>Leading Change in Online Communities with New Admin Resources From FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-facebooks-emoji-expressions/"><u>Navigating the Nuances of Facebook’s Emoji Expressions</u></a></li>
-<li><a href="https://facebook.techidaily.com/next-step-facebook-suggests-social-pause-for-youths/"><u>Next Step: Facebook Suggests Social Pause for Youths</u></a></li>
-<li><a href="https://facebook.techidaily.com/simplified-steps-how-to-disassociate-from-facebook-tags/"><u>Simplified Steps: How to Disassociate From Facebook Tags</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-pillars-leading-todays-facebook/"><u>The Pillars Leading Today’s Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/twitter-inspired-initiative-for-informed-sharing-on-facebook/"><u>Twitter-Inspired Initiative for Informed Sharing on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/ultra-fast-access-between-separate-facebook-accounts/"><u>Ultra-Fast Access Between Separate Facebook Accounts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/virtual-horizon-8-best-metaverse-glasses-and-headsets/"><u>Virtual Horizon 8 Best Metaverse Glasses & Headsets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-essential-guide-to-cleansing-image-backdrops/"><u>[Updated] 2024 Approved Essential Guide to Cleansing Image Backdrops</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-secure-shots-with-a-steadier-gopro-video-technique/"><u>2024 Approved Secure Shots with a Steadier GoPro Video Technique</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-revolutionizes-relationships-riskily/"><u>Facebook Revolutionizes Relationships, Riskily</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-iphone-6-plus-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock iPhone 6 Plus with iTunes | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-realme-12-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Realme 12 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/key-decisions-before-cutting-your-social-cord/"><u>Key Decisions Before Cutting Your Social Cord</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-postpones-e2e-by-default-analysis-and-expectations-for-23/"><u>Meta Postpones E2E By Default: Analysis and Expectations for '23</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-unraveling-6-fundamental-distinctions/"><u>Metaverse Vs. Virtual Reality: Unraveling 6 Fundamental Distinctions</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-to-facebooks-top-recent-videos/"><u>Navigate to Facebook’s Top Recent Videos</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-copyright-strategy-for-online-video-creators-for-2024/"><u>The Ultimate Copyright Strategy for Online Video Creators for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/top-5-pc-emulators-bringing-ps1-to-life/"><u>Top 5 PC Emulators Bringing PS1 to Life</u></a></li>
 </ul></div>
 

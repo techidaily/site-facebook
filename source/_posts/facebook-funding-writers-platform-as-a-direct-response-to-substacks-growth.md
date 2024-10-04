@@ -1,7 +1,7 @@
 ---
 title: Facebook Funding Writers Platform as a Direct Response to Substack's Growth
-date: 2024-09-26T16:39:42.768Z
-updated: 2024-09-28T17:01:21.688Z
+date: 2024-09-28T16:01:48.067Z
+updated: 2024-10-03T21:08:34.408Z
 tags:
   - facebook
 categories:
@@ -37,16 +37,10 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's News Drive
@@ -72,14 +66,19 @@ thumbnail: https://thmb.techidaily.com/d2d94c4e77b77ed0c83b7c2ce10b6132329d86304
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-how-to-apply-a-classic-video-transition-with-camtasia-9/"><u>[New] 2024 Approved How to Apply a Classic Video Transition with Camtasia 9</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-from-twitter-to-snaps-a-guide-to-cross-platform-posting/"><u>[New] From Twitter to Snaps A Guide to Cross-Platform Posting</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mac-screen-alignment-rapid-video-format-changes/"><u>[Updated] Mac Screen Alignment Rapid Video Format Changes</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-compreayers-blueprint-to-fb-image-security/"><u>A Compreayer's Blueprint to Fb Image Security</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-guide-to-erasing-your-history-on-facebook-watch/"><u>A Guide to Erasing Your History on Facebook Watch</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/breaking-performance-records-the-alibaba-yitian-710-arm-cpu-surpasses-rivals-in-rapid-data-handling-for-cloud-infrastructures/"><u>Breaking Performance Records - The Alibaba Yitian 710 ARM CPU Surpasses Rivals in Rapid Data Handling for Cloud Infrastructures</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivity-change-up-how-social-media-redefined-interactions-fourfold/"><u>Connectivity Change-Up: How Social Media Redefined Interactions Fourfold</u></a></li>
-<li><a href="https://facebook.techidaily.com/convergent-cultures-the-alliance-of-fb-and-insta/"><u>Convergent Cultures: The Alliance of FB and Insta</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-inside-scoop-on-samsung-unpacked-2025-scheduled-events-and-buzz-worthy-product-hints-revealed/"><u>The Inside Scoop on Samsung Unpacked 2025: Scheduled Events & Buzz-Worthy Product Hints Revealed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-photo-to-cartoon-software-for-windows-and-mac/"><u>[New] 2024 Approved Best Photo to Cartoon Software for Windows & Mac</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-building-a-business-from-blogs-and-video-reviews-for-2024/"><u>[Updated] Building a Business From Blogs and Video Reviews for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-culinary-connoisseurs-must-watch-food-content/"><u>[Updated] In 2024, Culinary Connoisseurs Must-Watch Food Content</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-secrets-to-stellar-podcast-summaries/"><u>[Updated] The Secrets to Stellar Podcast Summaries</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/convertire-i-file-mxf-in-mp4-senza-costi-le-strategie-migliore-su-pc-o-mac/"><u>Convertire I File MXF in MP4 Senza Costi: Le Strategie Migliore Su PC O Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-tech-two-cameras-on-first-fb-wearable-suggested/"><u>Emerging Tech: Two Cameras on First FB Wearable Suggested</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-zero-to-hero-in-online-communities/"><u>From Zero to Hero in Online Communities</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-iphone-12-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-navigating-lut-integration-in-adobe-ae/"><u>In 2024, Navigating LUT Integration in Adobe AE</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-legal-boundaries-when-grabbing-private-fb-content/"><u>Navigating Legal Boundaries When Grabbing Private FB Content</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-android-essentials-the-most-popular-apps-you-need/"><u>New In 2024, Android Essentials The Most Popular Apps You Need</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-mastery-for-career-growth-and-success/"><u>Social Media Mastery for Career Growth and Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncover-most-watched-videos-on-facebook-today/"><u>Uncover Most Watched Videos on Facebook Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-identity-of-the-courageous-fb-insider/"><u>Unveiling Identity of the Courageous FB Insider</u></a></li>
 </ul></div>
 

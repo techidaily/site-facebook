@@ -1,7 +1,7 @@
 ---
 title: Navigating the Seas of Social Media’s Past Highlights
-date: 2024-09-25T17:15:40.349Z
-updated: 2024-09-28T17:10:34.555Z
+date: 2024-09-30T17:19:27.574Z
+updated: 2024-10-03T20:26:04.109Z
 tags:
   - facebook
 categories:
@@ -54,14 +54,14 @@ To share a memory from the On This Day feature:
 
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
-![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
-
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button.JPG)
 
 Close
 
@@ -80,20 +80,13 @@ You can save your On This Day posts with the following steps:
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Save Facebook post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Save-Facebook-post.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -106,19 +99,33 @@ To access your saved memories:
 ![Facebook Memories](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![View saved post](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/View-saved-post.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  To save pictures on your phone, open the image and tap the three dots. Then tap**Save Photo** . Facebook does not offer the option to download a video. However, you can[download your Facebook videos through several other methods](https://www.makeuseof.com/tag/3-ways-to-download-videos-from-facebook-si/) . You can also take a screenshot to save the memory on your phone.
 
  If you want to delete unwanted memories, select**Delete** from the menu. This removes the post permanently.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. See What Your Friends Shared on Your Wall
 
@@ -136,22 +143,15 @@ Close
 
 ![Tap the Share button](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Tap-the-Share-button-1.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook Memories Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/Facebook-Memories-Settings.JPG)
 
 Close
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Set the Time Duration of Memories
@@ -191,24 +191,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-all-round-kinetics-examination-2023/"><u>[New] All-Round Kinetics Examination 2023</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-10-best-instagram-video-editor-for-android-pc-online/"><u>[New] In 2024, 10 Best Instagram Video Editor for Android, PC, Online</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-game-up-your-content-with-these-effective-freefire-video-hashtags-for-2024/"><u>[Updated] Game Up Your Content with These Effective FreeFire Video Hashtags for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-audiovisual-pro-perfect-ppt-presentation-recording/"><u>2024 Approved Audiovisual Pro Perfect PPT Presentation Recording</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-must-have-tools-for-effective-social-media-scheduling/"><u>5 Must-Have Tools for Effective Social Media Scheduling</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-deep-dive-into-the-most-influential-podcasts-this-year/"><u>A Deep Dive Into the Most Influential Podcasts This Year</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-authenticity-of-security-email-at-facebookmailcom-for-fb-safety/"><u>Analyzing the Authenticity of Security Email at facebookmail.com for FB Safety</u></a></li>
-<li><a href="https://facebook.techidaily.com/banishing-falsehoods-a-request-to-tech-giants-like-facebook-and-google/"><u>Banishing Falsehoods: A Request to Tech Giants Like Facebook and Google</u></a></li>
-<li><a href="https://facebook.techidaily.com/changing-the-birth-monthyear-in-facebook-account/"><u>Changing the Birth Month/Year in Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/chirp-cheer-and-celebrate-mastering-messengers-auditory-emojis/"><u>Chirp, Cheer, and Celebrate: Mastering Messenger’s Auditory Emojis</u></a></li>
-<li><a href="https://facebook.techidaily.com/circumventing-two-factor-authentication-on-fb-wo-device/"><u>Circumventing Two-Factor Authentication on Fb W/O Device</u></a></li>
-<li><a href="https://facebook.techidaily.com/claims-facebook-clears-advertising-standards/"><u>Claims: Facebook Clears Advertising Standards</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-a-new-social-persona-changing-name-on-facebook-platform/"><u>Crafting a New Social Persona: Changing Name on Facebook Platform</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/full-spectrum-data-salvage-system-next-level-technical-assistance-for-complete-data-recovery/"><u>Full-Spectrum Data Salvage System: Next-Level Technical Assistance for Complete Data Recovery</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-2-ways-to-transfer-text-messages-from-lava-blaze-pro-5g-to-iphone-1514131211x8-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 2 Ways to Transfer Text Messages from Lava Blaze Pro 5G to iPhone 15/14/13/12/11/X/8/ | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-realme-c33-2023-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Realme C33 2023 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-top-professional-camera-choices-complete-360-guide-2023/"><u>In 2024, Top Professional Camera Choices - Complete 360 Guide 2023</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-ranking-gaming-laptops-of-2024-expert-reviews-and-performance-tests/"><u>Top-Ranking Gaming Laptops of 2024 - Expert Reviews & Performance Tests</u></a></li>
-<li><a href="https://win-able.techidaily.com/ultimate-guide-to-enhancing-frame-rates-and-reducing-lag-in-watch-dogs-legion/"><u>Ultimate Guide to Enhancing Frame Rates & Reducing Lag in Watch Dogs: Legion</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-pun-picture-studio-chucklecrafts/"><u>[New] 2024 Approved Pun Picture Studio ChuckleCrafts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-apply-photo-motion-blur-in-adobe-photoshop/"><u>[Updated] Apply Photo Motion Blur in Adobe Photoshop</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-curate-engaging-content-with-top-igtv-editor-tools/"><u>[Updated] In 2024, Curate Engaging Content with Top IGTV Editor Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-elevate-your-footage-quality-with-top-handheld-stabilizers/"><u>2024 Approved Elevate Your Footage Quality with Top Handheld Stabilizers</u></a></li>
+<li><a href="https://driver-install.techidaily.com/amdradeon5770supportxps13/"><u>AMDRADEON5770SupportXPS13</u></a></li>
+<li><a href="https://os-tips.techidaily.com/boosting-storage-capacity-effective-methods-to-clear-memory-on-your-iphoneipad/"><u>Boosting Storage Capacity: Effective Methods to Clear Memory on Your iPhone/iPad</u></a></li>
+<li><a href="https://facebook.techidaily.com/eliminating-unwanted-facebook-advertisements-a-step-by-step-guide/"><u>Eliminating Unwanted Facebook Advertisements: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-watch-concept-with-potential-for-separate-cameras/"><u>Facebook Unveils Watch Concept with Potential for Separate Cameras</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/from-playtime-to-production-sims-4-video-capturing/"><u>From Playtime to Production Sims 4 Video Capturing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/insiders-guide-facebook-privacy-lines/"><u>Insider's Guide: Facebook Privacy Lines</u></a></li>
+<li><a href="https://facebook.techidaily.com/insight-deciphering-changes-in-facebook-page-labels/"><u>Insight: Deciphering Changes in Facebook Page Labels</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimizing-fb-settings-for-personal-space-and-security/"><u>Optimizing Fb Settings for Personal Space and Security</u></a></li>
+<li><a href="https://article-tips.techidaily.com/precision-and-excellence-a-guide-to-professional-audacity-recordings/"><u>Precision and Excellence A Guide to Professional Audacity Recordings</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-facebook-predicaments-with-ease-and-swiftness/"><u>Resolving FaceBook Predicaments with Ease and Swiftness</u></a></li>
+<li><a href="https://facebook.techidaily.com/shop-online-live-the-experience-on-fb-fridays/"><u>Shop Online, Live the Experience on FB Fridays</u></a></li>
+<li><a href="https://facebook.techidaily.com/text-room-success-starts-here-novice-guidance/"><u>Text Room Success Starts Here: Novice Guidance</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-social-media-cleanup-tips-and-tools/"><u>Top 8 Social Media Cleanup Tips & Tools</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Vivo X Fold 2 | Dr.fone</u></a></li>
 </ul></div>
 

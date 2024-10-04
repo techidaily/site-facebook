@@ -1,7 +1,7 @@
 ---
 title: "Image Input, AI Output: New Form of Writing Experiment"
-date: 2024-09-17T18:22:17.988Z
-updated: 2024-09-21T18:50:19.912Z
+date: 2024-09-29T22:26:18.086Z
+updated: 2024-10-03T17:13:04.156Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d7
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -65,12 +72,24 @@ thumbnail: https://thmb.techidaily.com/99c9865a6c9c6ec80635e573e65ff37309dc9b7d7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-best-streaming-setup-leading-livestream-hardware-and-software-guide-for-2024/"><u>[Updated] Best Streaming Setup Leading Livestream Hardware & Software Guide for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-updated-sony-s3700-bd-review-2023/"><u>[Updated] Updated Sony S3700 BD REVIEW 2023</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Nubia Z50S Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-tecno-spark-10c-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Tecno Spark 10C to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-tecno-camon-30-pro-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Tecno Camon 30 Pro 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://facebook.techidaily.com/leadership-and-division-the-top-6-in-tech-world/"><u>Leadership and Division: The Top 6 in Tech World</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/minimizing-vr-nausea-effective-strategies-for-2024/"><u>Minimizing VR Nausea Effective Strategies for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-personal-information-change-facebooks-birth-details/"><u>Revamping Personal Information: Change Facebook's Birth Details</u></a></li>
+<li><a href="https://facebook.techidaily.com/seeking-clarity-in-contempt-for-global-connectivity-websites/"><u>Seeking Clarity in Contempt for Global Connectivity Websites</u></a></li>
+<li><a href="https://facebook.techidaily.com/slimmer-apps-the-speedy-alternatives-to-large-titles/"><u>Slimmer Apps: The Speedy Alternatives to Large Titles</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-guide-to-enable-facebooks-protective-features/"><u>Step-by-Step Guide to Enable Facebook's Protective Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/touch-and-tap-are-they-boosting-user-engagement-on-facebook/"><u>Touch & Tap: Are They Boosting User Engagement on Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-art-and-tech-meta-drops-trial-launch/"><u>Transforming Art and Tech: Meta Drops' Trial Launch</u></a></li>
+<li><a href="https://video-capture.techidaily.com/ultimate-unboxing-the-logitech-4k-webcam-review/"><u>Ultimate Unboxing The Logitech 4K Webcam Review</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-your-previously-shared-stories-on-facebook/"><u>Unlocking Your Previously Shared Stories on Facebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/why-does-your-rust-code-keep-halt-understanding-and-fixing-the-issue/"><u>Why Does Your Rust Code Keep Halt? Understanding & Fixing the Issue</u></a></li>
+</ul></div>
 

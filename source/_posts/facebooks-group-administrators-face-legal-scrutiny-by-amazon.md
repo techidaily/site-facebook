@@ -1,7 +1,7 @@
 ---
 title: Facebook's Group Administrators Face Legal Scrutiny by Amazon
-date: 2024-09-24T16:25:41.177Z
-updated: 2024-09-28T16:40:24.758Z
+date: 2024-09-30T16:25:53.698Z
+updated: 2024-10-03T19:15:38.309Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Amazon Filed the Case
@@ -50,10 +50,16 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
@@ -65,10 +71,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
@@ -82,10 +88,10 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -109,22 +115,22 @@ thumbnail: https://thmb.techidaily.com/89f58c00fabb0b3ac26622205cb1b82f67ddb2d73
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/eyword-optimization-for-higher-youtube-viewership-for-2024/"><u>[New] Keyword Optimization for Higher YouTube Viewership for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723005077392-solved-fortnite-login-failed-quickly-and-easily/"><u>[SOLVED] | Fortnite Login Failed | Quickly & Easily</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-perfect-your-intro-practical-tips-and-example-scripts/"><u>2024 Approved Perfect Your Intro Practical Tips & Example Scripts</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-unleash-zooms-full-potential-with-essential-3-methods/"><u>2024 Approved Unleash Zoom's Full Potential with Essential 3 Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/embracing-the-online-world-9-ways-social-media-enhances-life/"><u>Embracing the Online World: 9 Ways Social Media Enhances Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-life-balance-through-facebooks-time-out-reminder/"><u>Enhance Life Balance Through Facebook's Time-Out Reminder</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-chat-upgrade-enhanced-messenger-instagram-communication-awaits/"><u>Facebook's Chat Upgrade: Enhanced Messenger, Instagram Communication Awaits</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-next-step-boosting-user-engagement-with-new-panel-features/"><u>Facebook’s Next Step: Boosting User Engagement With New Panel Features</u></a></li>
-<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-nubia-z50-ultra-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Nubia Z50 Ultra Phone | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-oppo-a79-5g-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Oppo A79 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-3d-images-posting-them-on-facebook/"><u>Mastering 3D Images: Posting Them on Facebook</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-mac-movie-creation-a-beginners-tutorial-for-2024/"><u>New Mac Movie Creation A Beginners Tutorial for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-discontinuation-of-facebooks-facial-id-by-meta-explored/"><u>The Discontinuation of Facebook's Facial ID by Meta Explored</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-future-fabricated-the-metaverses-visionary-path/"><u>The Future Fabricated: The Metaverse's Visionary Path</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-social-leaders-playbook-cultivating-a-thriving-fb-cohort/"><u>The Social Leader's Playbook: Cultivating a Thriving Fb Cohort</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-and-resolving-operational-breakdowns-of-your-windows-stylus/"><u>Understanding and Resolving Operational Breakdowns of Your Windows Stylus</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/windows-1011mpgmp4/"><u>Windows 10・11上でMPGビデオをMP4形式へ容易な変換方法</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-never-a-cap-on-saved-instagram-stories/"><u>[New] In 2024, Never a Cap on Saved Instagram Stories</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/tep-into-song-savvy-youtube-playlist-excellence/"><u>[New] Step Into Song Savvy YouTube Playlist Excellence</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-device-based-digital-recording-pcmac-plus-phone-edition/"><u>[Updated] 2024 Approved Device-Based Digital Recording PC/Mac + Phone Edition</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-diversifying-audience-across-30plus-online-venues/"><u>[Updated] 2024 Approved Diversifying Audience Across 30+ Online Venues</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-maximizing-engagement-10-tips-for-stellar-yt-shorts-content-for-2024/"><u>[Updated] Maximizing Engagement 10 Tips for Stellar YT Shorts Content for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>3 Things You Must Know about Fake Snapchat Location On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-like-comment-and-share-download-strategies-for-facebook-history/"><u>Every Like, Comment, and Share: Download Strategies for Facebook History</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/explore-the-best-4-ai-storytelling-apps-to-unleash-your-imagination/"><u>Explore the Best 4 AI Storytelling Apps to Unleash Your Imagination</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-networking-to-oversharing-the-changing-landscape-of-relationships-via-facebook/"><u>From Networking to Oversharing: The Changing Landscape of Relationships via Facebook</u></a></li>
+<li><a href="https://fox-info.techidaily.com/harness-power-of-persuasion-with-these-tips-for-reddit/"><u>Harness Power of Persuasion with These Tips for Reddit</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-determine-whitelisted-media/"><u>How Does Facebook Determine Whitelisted Media?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-facebooks-governance-structure-with-a-new-platform/"><u>Navigating Through Facebook's Governance Structure with a New Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/peaceful-pages-the-technique-of-deleting-post-comments/"><u>Peaceful Pages: The Technique of Deleting Post Comments</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-communications-in-the-digital-age-facebook-introduces-advanced-end-to-end-encryption-on-direct-messaging-and-calls/"><u>Securing Communications in the Digital Age: Facebook Introduces Advanced End-to-End Encryption on Direct Messaging & Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-privacy-levels-in-vr-apps-meta-and-facebook/"><u>Understanding Privacy Levels in VR Apps: Meta & Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-messenger-kids-sleep-mode-for-optimal-performance/"><u>Unlocking Messenger Kids' Sleep Mode for Optimal Performance</u></a></li>
+<li><a href="https://win11.techidaily.com/unraveling-error-code-0x80073cf3-at-microsoft-store-windows-1111/"><u>Unraveling Error Code 0X80073CF3 at Microsoft Store, Windows 11/11</u></a></li>
 </ul></div>
 

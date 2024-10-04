@@ -1,7 +1,7 @@
 ---
 title: "Social Stealth: Evasion of Friendlists"
-date: 2024-09-27T17:12:15.050Z
-updated: 2024-09-28T16:48:01.719Z
+date: 2024-10-02T16:36:21.376Z
+updated: 2024-10-03T21:37:48.959Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
  Another possible scenario is that no one can see your friends list, in which case it's already hidden. If you'd like to double-check your settings or make your friends list private, here's what to do...
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Hide Your Facebook Friends List
 
  You can hide your friends list either from the Facebook app or on the desktop website. Either way, you will be able to change the same setting.
@@ -52,18 +59,25 @@ thumbnail: https://thmb.techidaily.com/acfc08d56b4206022979b3dc0ecd7952203549957
 
 ![facebook settings and privacy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-and-privacy.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook settings scrolled down](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-settings-scrolled-down.jpeg)
 
 ![facebook how people find and contact you menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-how-people-find-and-contact-you-menu.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook who can view your friends list menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/facebook-who-can-view-your-friends-list-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -77,40 +91,26 @@ The steps are similar on Facebook's desktop website.
 
 ![desktop facebook settings screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-settings-screen.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  3\. From the left sidebar, click**Privacy** .
 
 ![desktop facebook change friends list viewers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktop-facebook-change-friends-list-viewers.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  4\. Scroll to**How people find and contact you** .
 
 ![desktopfacebooksettings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/desktopfacebooksettings.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  5\. Click**Edit** next to**Who can see you friends list?** and change the setting to your preference.
 
  On either device, you can change your friends list from Public to only viewable by friends, only certain friends, or no one at all. This makes who can see your friends list easily customizable, and you can change the setting at any time. There are other[ways to boost your privacy on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) too if you are looking for more protection over your information.
 
  No one will receive a notification that the setting was changed or that they can't see your friends list anymore. They would only know if they try to look at your friends list from your profile and notice that they can no longer access it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Gaining Privacy on Facebook
 
@@ -133,21 +133,17 @@ The steps are similar on Facebook's desktop website.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/less-likes-more-life-the-reality-in-instagrams-call-to-slow-down/"><u>'Less Likes, More Life': The Reality in Instagram's Call to Slow Down</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-6-devices-for-flawless-film-translation/"><u>[Updated] Ultimate 6 Devices for Flawless Film Translation</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/comprehensive-solutions-for-dealing-with-deathloop-freezes-and-lag-on-your-ps5-or-pc-setup/"><u>Comprehensive Solutions for Dealing with Deathloop Freezes and Lag on Your PS5 or PC Setup</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/converti-file-dts-in-formato-flac-online-senza-costi-movavi/"><u>Converti File DTS in Formato FLAC Online Senza Costi - Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-hidden-constraints-of-facebook-connection-invites/"><u>Decoding Hidden Constraints of Facebook Connection Invites</u></a></li>
-<li><a href="https://win-blog.techidaily.com/effortless-guide-to-overcome-kernelbasedll-system-failures-now/"><u>Effortless Guide to Overcome KernelBase.dll System Failures - Now!</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-the-metaverse-landscape-an-introduction/"><u>Exploring The Metaverse Landscape: An Introduction</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-redmi-note-12-pro-4g-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Redmi Note 12 Pro 4G to Outlook | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-through-business-page-discontinuation-on-facebook/"><u>Navigating Through Business Page Discontinuation on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/realigning-your-facebook-profile-with-current-preferences/"><u>Realigning Your Facebook Profile with Current Preferences</u></a></li>
-<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Lava Yuva 3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-roadmap-to-successful-online-job-promotions/"><u>The Roadmap to Successful Online Job Promotions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/0-free-stock-footage-websites-you-should-know/"><u>Top 10 Free Stock Footage Websites You Should Know</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-vivo-x-flip-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Vivo X Flip FRP Bypass</u></a></li>
-<li><a href="https://win-answers.techidaily.com/understanding-and-fixing-valorants-pc-input-latency-in-the-latest-update-march-2024/"><u>Understanding and Fixing Valorant's PC Input Latency in the Latest Update (March 2024)</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-hides-behind-facebooks-invisible-mode/"><u>What Hides Behind Facebook's Invisible Mode?</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-chuckles-and-cheers-top-tweets-saver-with-gif/"><u>[Updated] In 2024, Chuckles & Cheers Top Tweets Saver with GIF</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-amplify-visual-narratives-with-audio-in-premiere-pro/"><u>2024 Approved Amplify Visual Narratives with Audio in Premiere Pro</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/a-closer-look-at-applecare-plus-is-it-a-smart-addition/"><u>A Closer Look at AppleCare Plus: Is It a Smart Addition?</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/capture-and-replay-screen-recording-for-instagram-stories/"><u>Capture and Replay Screen Recording for Instagram Stories</u></a></li>
+<li><a href="https://facebook.techidaily.com/facial-data-deletion-potential-threat-to-facebooks-user-security/"><u>Facial Data Deletion – Potential Threat to Facebook's User Security?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-x50-by-fonelab-android-recover-messages/"><u>How to recover old messages from your X50</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-realtek-pcie-fe-family-controller-drivers-in-windows-7/"><u>How to Update Realtek PCIe FE Family Controller Drivers in Windows 7</u></a></li>
+<li><a href="https://facebook.techidaily.com/inside-or-out-assessing-facebooks-expat-group-dynamics/"><u>Inside or Out: Assessing Facebook’s Expat Group Dynamics</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-daring-maneuvers-in-europe-could-rename-the-tech-titans-landscape/"><u>Meta’s Daring Maneuvers in Europe Could Rename the Tech Titans Landscape</u></a></li>
+<li><a href="https://tools.techidaily.com/movavi/effects-store/"><u>Movavi Effects Store</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-prioritized-the-iphone-trend-shift/"><u>Privacy Prioritized: The iPhone Trend Shift</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryls-blueprint-for-success-in-social-networking/"><u>Sheryl's Blueprint for Success in Social Networking</u></a></li>
 </ul></div>
 

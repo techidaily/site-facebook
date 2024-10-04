@@ -1,7 +1,7 @@
 ---
 title: Mastering Hidden Feedback Mechanisms in FB Communities
-date: 2024-09-27T16:39:58.306Z
-updated: 2024-09-28T16:26:16.426Z
+date: 2024-10-01T16:01:28.629Z
+updated: 2024-10-03T21:44:07.651Z
 tags:
   - facebook
 categories:
@@ -61,10 +61,10 @@ Close
  All anonymous posts are subject to approval from admins and moderators, even if you don’t have post approval turned on for your group. As an admin, you’ll also be able to see the identity of users who wish to post anonymously on the pending posts page.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Might You Want to Enable Anonymous Posts on Facebook?
@@ -76,10 +76,10 @@ Close
  Enabling anonymous posts will encourage people who are shy or worried about expressing themselves publicly to share their thoughts with everyone else. This will increase your group engagement and reduce the chances of people[leaving the group](https://www.makeuseof.com/how-to-leave-a-facebook-group/) .
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Enable Anonymous Posting in Your Facebook Group?
@@ -103,17 +103,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-utilizing-obs-in-android-setups-a-beginners-manual/"><u>[New] In 2024, Utilizing OBS in Android Setups A Beginner's Manual</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-comprehensive-app-exploration-az-capture-essentials/"><u>[Updated] In 2024, Comprehensive App Exploration AZ Capture Essentials</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-enhance-your-content-creating-engaging-loop-videos-for-ig/"><u>[Updated] In 2024, Enhance Your Content Creating Engaging Loop Videos for IG</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-innovative-youtube-titles-crafting-a-standout-brand/"><u>[Updated] Innovative YouTube Titles Crafting a Standout Brand</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-social-strategies-for-disseminating-health-information/"><u>2024 Approved Social Strategies for Disseminating Health Information</u></a></li>
-<li><a href="https://facebook.techidaily.com/controlled-consumption-navigate-without-fb-reels/"><u>Controlled Consumption: Navigate without Fb Reels</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-motorola-moto-g24-location-by-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Motorola Moto G24 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-the-end-of-your-facebook-era-key-steps/"><u>Navigating the End of Your Facebook Era: Key Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/step-by-step-to-upgrade-your-social-media-agebirthdate/"><u>Step-by-Step to Upgrade Your Social Media Age/Birthdate</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-enhancing-your-online-impression/"><u>The Ultimate Guide to Enhancing Your Online Impression</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unveiling-features-and-performance-of-the-asus-ax6000-rt-ax88u-the-ultimate-wi-fi-6-router-guide/"><u>Unveiling Features and Performance of the Asus AX6000 RT-AX88U - The Ultimate Wi-Fi 6 Router Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-advanced-techniques-for-capturing-vr-content-on-iphone/"><u>[New] 2024 Approved Advanced Techniques for Capturing VR Content on iPhone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-delving-deep-into-dji-inspire-2s-design/"><u>[New] 2024 Approved Delving Deep Into DJI Inspire 2'S Design</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-ios-gamers-top-5-ps2-emulators-unveiled/"><u>[New] 2024 Approved IOS Gamers' Top 5 PS2 Emulators Unveiled</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-guide-to-mastering-zero-cost-timer-functionality/"><u>[New] Expert Guide to Mastering Zero Cost Timer Functionality</u></a></li>
+<li><a href="https://facebook.techidaily.com/hear-and-engage-more-facebooks-updated-audio-platform/"><u>Hear and Engage More: Facebook's Updated Audio Platform</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-tecno-spark-10-pro-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Tecno Spark 10 Pro to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-approach-breaking-down-videos-into-chapters-for-youtube-for-2024/"><u>Innovative Approach Breaking Down Videos Into Chapters for YouTube for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-the-marketplace-the-best-4-business-analytics-resources/"><u>Master the Marketplace: The Best 4 Business Analytics Resources</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-the-art-of-privacy-a-comprehensive-fb-guide/"><u>Mastering the Art of Privacy: A Comprehensive FB Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/smart-steps-to-avoid-burnout-with-facebook-timers/"><u>Smart Steps to Avoid Burnout with Facebook Timers</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-removing-regretful-status-updates/"><u>The Ultimate Guide to Removing Regretful Status Updates</u></a></li>
 </ul></div>
 

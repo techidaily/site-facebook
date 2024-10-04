@@ -1,7 +1,7 @@
 ---
 title: "Facebook Metaverse Insight: 3 Cautionary Points"
-date: 2024-09-20T22:31:42.670Z
-updated: 2024-09-21T23:05:42.632Z
+date: 2024-09-28T17:21:44.871Z
+updated: 2024-10-03T23:12:55.399Z
 tags:
   - facebook
 categories:
@@ -44,9 +44,23 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
 
  Here are some reasons why a Meta-led metaverse is something we should be worried about.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. A Privacy Nightmare
 
 ![person wearing virtual reality headset](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/pexels-eren-li-7241655.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Facebook's poor privacy practices](http://www.makeuseof.com/tag/facebook-security-privacy-nightmare/) have always been a subject of concern. One of the most high-profile examples was the Cambridge Analytica scandal of 2018.
 
@@ -77,15 +91,22 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
  Meta's history of promoting addictive content to a young addiction-susceptible market is a potentially dangerous combination for the metaverse.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. A Dangerous Monopoly
 
 ![logo of Meta](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/logo-of-meta.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Meta already enjoys a significant[monopoly over our social digital life](https://www.makeuseof.com/facebook-metaverse-explained/) . It's difficult to have a digital social presence without using any of Meta's social media products.
 
@@ -96,13 +117,6 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
  A Meta-dominated metaverse could also spell the death of independent innovation within the metaverse. Meta's business strategies are rooted in scaling and muscling out competitors. It acquired WhatsApp and Instagram, copied Snapchat features (after failing to buy it), and[launched Instagram Reels](https://www.makeuseof.com/tag/what-is-instagram-reels/) to put a check on TikTok.
 
  If you're not Microsoft, Google, Apple, or a tech company with similar financial resources, innovating on a Meta-led metaverse could be a stifling experience.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Meta's Vision of the Metaverse
 
@@ -125,5 +139,26 @@ thumbnail: https://thmb.techidaily.com/73f237caff1293d1dd4178031db987cf4821ccb81
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-screenrec-made-simple-for-laptop-users/"><u>[New] 2024 Approved ScreenRec Made Simple for Laptop Users</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instavision-blend-androidplusios-video-tiles/"><u>[New] In 2024, InstaVision Blend Android+iOS Video Tiles</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-facebook-hashtags-for-strategic-marketing-for-2024/"><u>[New] Mastering Facebook Hashtags for Strategic Marketing for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-add-video-to-text-for-free/"><u>[Updated] 2024 Approved How to Add Video to Text for Free</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-escaping-reality-top-10-games-like-gta-v-but-not-for-2024/"><u>[Updated] Escaping Reality - Top 10 Games Like GTA V (But Not) for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-master-the-art-of-cutting-a-video-editors-handbook-for-instagram/"><u>[Updated] Master the Art of Cutting A Video Editor's Handbook for Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-transform-moments-with-these-premium-screenshot-and-video-editing-apps/"><u>2024 Approved Transform Moments with These Premium Screenshot & Video Editing Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-oppo-find-n3-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Oppo Find N3 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-storm-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Storm 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/eradicate-every-single-facebook-notification/"><u>Eradicate Every Single Facebook Notification</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/imagecapture-reviews-hub-for-2024/"><u>ImageCapture Reviews Hub for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/protecting-our-social-space-choices/"><u>Protecting Our Social Space Choices</u></a></li>
+<li><a href="https://facebook.techidaily.com/rekindling-friendship-post-block/"><u>Rekindling Friendship Post Block</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-detox-the-journey-begins/"><u>Social Media Detox: The Journey Begins</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pixel-journey-facebooks-evolution-into-meta/"><u>The Pixel Journey: Facebook's Evolution Into Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-rules-behind-facebooks-whitelist/"><u>Understanding the Rules Behind Facebook's Whitelist</u></a></li>
+<li><a href="https://facebook.techidaily.com/uniting-everyones-names-fb-posts-that-count-all-groupies/"><u>Uniting Everyone's Names: FB Posts That Count All Groupies</u></a></li>
+<li><a href="https://facebook.techidaily.com/validation-process-for-securityfacebookmailcom-as-a-safe-fb-account/"><u>Validation Process for @security@facebookmail.com as a Safe FB Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-will-we-leave-behind-once-facebook-fades/"><u>What Will We Leave Behind Once Facebook Fades?</u></a></li>
+</ul></div>
 

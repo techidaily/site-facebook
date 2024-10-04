@@ -1,7 +1,7 @@
 ---
 title: Understanding Our Observed World Economy
-date: 2024-09-16T17:47:32.915Z
-updated: 2024-09-21T19:43:44.470Z
+date: 2024-10-02T17:46:02.879Z
+updated: 2024-10-03T16:22:47.064Z
 tags:
   - facebook
 categories:
@@ -63,10 +63,10 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
 ![game streamer taking a selfie](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/game-streamer-selfie.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  According to[Wall Street Journal](https://emakicms.com/brand/21/articles/edit/2002984) , Facebook has known for years how Instagram creates an environment of social comparison, exacerbates mental health issues, and magnifies body image issues in teen girls. In addition, while saying that it made them feel terrible about themselves, many[teens reported not having the self-control to stop using Instagram](https://www.wsj.com/articles/instagram-adds-more-protections-for-teenagers-11627390800?mod=article%5Finline) .
@@ -78,16 +78,10 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
  For this reason, social media becomes the perfect channel to market products and services. It sells the idea that you should always strive to be better, but the only way that you can do so is by adding to your cart, go on vacations that you can't really afford, or living someone else's life highlights.
 
 <!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Ease of Transactions
@@ -108,22 +102,29 @@ thumbnail: https://thmb.techidaily.com/e0a34c7a81fb8279e0e4f8e61ff399b11932a0b05
 
  In addition, Amazon's Prime membership which offers free and fast shipping also[hides billions in envrionmental costs](https://www.buzzfeednews.com/article/nicolenguyen/environmental-impact-of-amazon-prime) .
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### The Commodification of Personal Experiences
 
 ![Woman Taking Selfie With Selfie Stick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/woman-taking-selfie-with-selfie-stick.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  With the increased use of social media, the commodification of personal experiences have reached unprecedented levels. Everything from our profile bios to life events such as starting university, getting married, or moving to a new town becomes a data point to be added to your online persona.
 
  From a marketing perspective, it becomes easy to dehumanize the people and look at them simply from their customer lifecycle value. It's apparent that, with the rise of data brokers and intrusive targeted ads, we are already on the path of surveillance-driven consumerism.
 
  Nowadays, the pressure to commodify ourselves can be seen in the obsession with influencer culture, plastic surgery, and going viral. Instead of rejecting this culture of commodification, we have actually embraced it, encouraged it, and accepted it as a part of the new normal.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Running Out of Ways to Opt Out
 
@@ -150,5 +151,23 @@ In fact, we are already running out of ways to opt out.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-channel-milestone-hurdle-cross-the-10k-view-threshold-fast/"><u>[New] In 2024, Channel Milestone Hurdle – Cross the 10K View Threshold Fast</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-expert-group-chat-options-for-virtual-gatherings/"><u>[New] In 2024, Expert Group Chat Options for Virtual Gatherings</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-year-end-visualizations-mind-bending-youtube-figures-and-trends/"><u>[New] Year-End Visualizations Mind Bending Youtube Figures and Trends</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-bottom-line-gear-collect-all-these-trendsetting-tools-to-win-in-business/"><u>[Updated] Bottom Line Gear Collect All These Trendsetting Tools to Win in Business</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-step-into-a-world-of-eye-catching-imagery-at-pexels/"><u>[Updated] Step Into a World of Eye-Catching Imagery at Pexels</u></a></li>
+<li><a href="https://facebook.techidaily.com/englands-football-legends-excise-snapchat-twitter-for-mental-health/"><u>England's Football Legends Excise Snapchat, Twitter for Mental Health</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-leading-vr-gear-for-drone-operators/"><u>In 2024, Leading VR Gear for Drone Operators</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-ranking-10-must-see-history-youtube-channels-for-learners/"><u>In 2024, Ranking 10 Must-See History YouTube Channels for Learners</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-ripl-for-high-engagement-smm-content/"><u>Leveraging Ripl for High-Engagement SMM Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-poll-shows-people-dont-trust-big-tech-but-especially-facebook/"><u>New Poll Shows People Don't Trust Big Tech, but Especially Facebook</u></a></li>
+<li><a href="https://win-answers.techidaily.com/seamless-media-playback-across-all-device-formats/"><u>Seamless Media Playback Across All Device Formats</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/securing-your-pc-a-step-by-step-guide-to-locking-windows-11-with-command-line/"><u>Securing Your PC: A Step-by-Step Guide to Locking Windows 11 with Command Line</u></a></li>
+<li><a href="https://facebook.techidaily.com/step-by-step-instructions-revoking-a-social-media-post/"><u>Step-by-Step Instructions: Revoking a Social Media Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/taking-privacy-to-the-next-level-facebooks-messenger-and-instagram-now-have-encrypted-conversations/"><u>Taking Privacy to the Next Level: Facebook's Messenger and Instagram Now Have Encrypted Conversations.</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-justification-why-social-media-platforms-like-facebook-permit-dual-or-more-profiles-under-one-account/"><u>The Justification: Why Social Media Platforms Like Facebook Permit Dual or More Profiles Under One Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pillar-of-price-understanding-stablecoin-mechanisms/"><u>The Pillar of Price: Understanding Stablecoin Mechanisms</u></a></li>
+</ul></div>
 

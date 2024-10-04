@@ -1,7 +1,7 @@
 ---
 title: "Social Media Sanctuary: Why Instagram Encourages Digital Disengagement"
-date: 2024-09-22T16:02:56.233Z
-updated: 2024-09-28T16:25:10.934Z
+date: 2024-09-30T16:39:11.473Z
+updated: 2024-10-03T17:44:19.441Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Instagram Wants You to "Take a Break"
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
@@ -91,15 +91,22 @@ thumbnail: https://thmb.techidaily.com/0c6d2fd1a73159563e57dda315b30eb330741092c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/updated-moviemakerpro-insights-full-analysis/"><u>[Updated] MovieMakerPro Insights – Full Analysis</u></a></li>
-<li><a href="https://facebook.techidaily.com/easy-feast-of-images-building-beautiful-collages-in-minutes/"><u>Easy Feast of Images: Building Beautiful Collages in Minutes</u></a></li>
-<li><a href="https://facebook.techidaily.com/evade-conversation-trails-with-facebooks-feature/"><u>Evade Conversation Trails with Facebook's Feature</u></a></li>
-<li><a href="https://facebook.techidaily.com/framework-for-alerting-misuse-of-facebook-by-youngsters/"><u>Framework for Alerting Misuse of Facebook by Youngsters</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-zte-nubia-flip-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your ZTE Nubia Flip 5G Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-realme-12-proplus-5g-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-12-pro-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone 12 Pro with iTunes | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-online-free-mp3-to-wav-converter/"><u>Movavi Online - Free MP3 to WAV Converter</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-asus-rog-phone-8-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Asus ROG Phone 8 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/rank-the-networks-that-keep-us-connected/"><u>Rank the Networks That Keep Us Connected</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-comprehensive-guide-to-crafting-engaging-youtube-outros/"><u>[Updated] 2024 Approved Comprehensive Guide to Crafting Engaging YouTube Outros</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-an-insider-look-at-vegaspro-2019-for-2024/"><u>[Updated] An Insider Look at VegasPro 2019 for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-streaming-virtual-classrooms/"><u>[Updated] Streaming Virtual Classrooms</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-samsung-galaxy-m34-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on Samsung Galaxy M34.</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-latest-hp-all-in-one-deskjet-3755-driver-for-windows-10-8-and-7-now-available/"><u>Get Your Latest HP All-in-One DeskJet 3755 Driver for Windows 10, 8 & 7 - Now Available!</u></a></li>
+<li><a href="https://facebook.techidaily.com/hearing-through-conversations-facebooks-sound-features/"><u>Hearing Through Conversations: Facebook's Sound Features</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-dark-patterns-mislead-you-into-making-bad-privacy-choices/"><u>How Dark Patterns Mislead You Into Making Bad Privacy Choices</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-samsung-galaxy-f34-5g-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Samsung Galaxy F34 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/looking-past-hype-examining-the-impact-of-facebook-leaks/"><u>Looking Past Hype: Examining The Impact of Facebook Leaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/most-user-friendly-platforms-for-elderly-community/"><u>Most User-Friendly Platforms For Elderly Community</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-rotate-videos-for-free-top-10-video-flip-and-rotate-tools/"><u>New Rotate Videos for Free Top 10 Video Flip and Rotate Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/peak-hours-for-social-media-engagement/"><u>Peak Hours for Social Media Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/preemptive-actions-for-recovering-a-breached-social-media-account/"><u>Preemptive Actions for Recovering a Breached Social Media Account</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-struggle-amazon-vs-the-ruling-factions-in-thousands-of-fb-groups/"><u>The Struggle: Amazon Vs. The Ruling Factions in Thousands of FB Groups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-video-monikers-brainstorming-insights/"><u>Unique Video Monikers Brainstorming Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-secrets-of-photodnas-image-matching/"><u>Unlocking the Secrets of PhotoDNA's Image Matching</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/zoom-like-a-pro-with-powershot-sx720hs-reviewed/"><u>Zoom Like a Pro with PowerShot SX720HS Reviewed</u></a></li>
 </ul></div>
 

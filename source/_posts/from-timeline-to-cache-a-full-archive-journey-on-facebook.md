@@ -1,7 +1,7 @@
 ---
 title: "From Timeline to Cache: A Full Archive Journey on Facebook"
-date: 2024-09-15T22:42:11.020Z
-updated: 2024-09-21T21:46:19.601Z
+date: 2024-09-30T16:53:19.942Z
+updated: 2024-10-03T20:33:37.617Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/a74c765fb6818efdc56bfc7805aa17daf214ba70c
 
 ![Facebook download your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-download-your-data.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To download your Facebook data using the Facebook website on your desktop browser, follow these steps:
 
 1. Log in to[Facebook.com](http://www.facebook.com) .
@@ -68,6 +75,13 @@ When it does arrive, your data will be delivered in a ZIP archive.
 
  Related: [How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Exploring Your Downloaded Facebook Data
 
  Once you've downloaded your ZIP file, extract it and you'll see a basic folder hierarchy that matches up with the items you selected or deselected earlier. You're free to trawl through these folders, but it's a lot easier to open**index.html** or**index** in the root folder.
@@ -86,13 +100,6 @@ Other downloadable datasets include:
 * **Messages:** Including those you thought you'd deleted.
 * **Friends:** Including juicy categories like **Rejected friend requests** and **Removed friends** you'd forgotten about.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What's Not Included in Downloaded Facebook Data?
 
  Facebook doesn't give away everything it knows about you, just the things you've explicitly shared. There are some limited advertising flags, like your broader interests and adverts you've interacted with; but these don't tell the whole story.
@@ -102,10 +109,16 @@ Other downloadable datasets include:
 ![Facebook data download preferences ads](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-data-download-preferences-ads.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Instead, you'll need to find the list titled "Interest Categories" in the Ad Preferences section of your Facebook settings to see[what Facebook thinks it knows about you](https://www.makeuseof.com/tag/what-facebook-knows-about-you/) . This is inferred data—descriptors used to categorize you based on all manner of interactions with Facebook services.
@@ -114,9 +127,29 @@ Other downloadable datasets include:
 
 ![Facebook Data Locations and Calls History](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/locations_calls_fb.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The social network clearly knows more about you than it includes in the download, and users need to be aware of this. We don't know what data Facebook collects based on our browsing history—which profiles we visit and the groups we are most active in.
 
  It'll be interesting to see legislation evolve as the authorities continue to probe into Facebook's handling of user data.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Downloading Other Facebook Photos and Videos
 
@@ -125,19 +158,6 @@ Other downloadable datasets include:
  We've covered plenty of ways to[download Facebook photos and videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/) .
 
 ![FBDown Facebook Video Downloader](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2018/04/fbdown.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Downloading private Facebook videos](https://www.makeuseof.com/tag/download-private-facebook-videos/) is a little more difficult, since you'll need to grab the page source code and paste it into a specific private video downloader.[FBDown Private Video Downloader](https://www.fbdown.net/private-downloader.php) seems like the best bet in this instance.
 
@@ -162,5 +182,23 @@ Other downloadable datasets include:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-navigating-song-rights-on-social-media/"><u>[New] Navigating Song Rights on Social Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-top-5-eco-conscious-filmmaking-advances/"><u>2024 Approved Top 5 Eco-Conscious Filmmaking Advances</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-the-essential-driver-package-for-your-logitech-k350/"><u>Download & Install: The Essential Driver Package for Your Logitech K350</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-novice-to-connoisseur-deciphering-social-media-symbolism/"><u>From Novice to Connoisseur: Deciphering Social Media Symbolism</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-ensure-fair-payment-for-artists/"><u>How Does Facebook Ensure Fair Payment for Artists?</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-the-d3derrnotavailble-challenge-in-gamingpcs/"><u>How To Overcome The D3DERR_NotAvailble Challenge in Gaming/PCs</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, All You Need To Know About Mega Greninja For Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/live-streaming-with-manycam-ultimate-virtual-camera-and-editing-suite/"><u>Live Streaming with ManyCam: Ultimate Virtual Camera and Editing Suite</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/outshine-filmora-a-roundup-of-the-best-tablets-for-image-tweaking-for-2024/"><u>Outshine Filmora A Roundup of the Best Tablets for Image Tweaking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/speed-boost-top-10-lightweight-android-apps/"><u>Speed Boost: Top 10 Lightweight Android Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotting-scams-in-social-swapping-platforms-protective-guidelines-revealed/"><u>Spotting Scams in Social Swapping Platforms – Protective Guidelines Revealed</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/step-by-step-guide-to-lut-mastery/"><u>Step-by-Step Guide to LUT Mastery</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-tidbit-facebook-prototype-smartwatch-features-dual-lenses/"><u>Tech Tidbit: Facebook Prototype Smartwatch Features Dual Lenses?</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-home-entertainment-with-facebook-portals-for-videocalls/"><u>Transforming Home Entertainment with Facebook Portals for Videocalls</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/wnb-in-your-feeds-facebook-twitter-join-forces/"><u>WNB in Your Feeds: Facebook, Twitter Join Forces</u></a></li>
+</ul></div>
 

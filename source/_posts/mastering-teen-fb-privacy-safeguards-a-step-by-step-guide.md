@@ -1,7 +1,7 @@
 ---
 title: "Mastering Teen FB Privacy Safeguards: A Step-by-Step Guide"
-date: 2024-09-24T16:11:06.538Z
-updated: 2024-09-28T16:14:01.921Z
+date: 2024-09-27T17:53:05.269Z
+updated: 2024-10-03T22:56:15.136Z
 tags:
   - facebook
 categories:
@@ -32,22 +32,15 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
  Whether they are mature enough or not, that is up to you to determine. But if you do let them create their own account, it is important to check that their online activity is private, and that what they're seeing on Facebook is appropriate.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Do a Privacy Check of Your Teen's Facebook Account
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/315881243_876397690203581_4735515869331129459_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook privacy settings home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316141350_1312742282896479_4695683312913005289_n.jpg)
@@ -57,6 +50,13 @@ Close
  When checking if your teen is safe on Facebook, there are a few things you need to cover. It's important to tell them that you're not trying to snoop through their profile, and the way to do that is to[ask your teens about their social media use](https://www.makeuseof.com/things-to-ask-kids-about-social-media-use/) , and if they are aware of online threats.
 
  All you need to do is go to their**profile picture** on the top right-hand side, then go to the icon for**Settings.** Click on**Profile settings** next to the profile picture. This will take you to**Privacy** and**Notifications** for that account.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Privacy Setting Basics
 
@@ -88,20 +88,13 @@ Close
 
 ![Ad settings on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316042883_531424965553209_5566649838999979785_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Ad preferences on Facebook home screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/316046945_638937141260407_2107848749364099732_n.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -111,6 +104,13 @@ Close
  To check the kinds of ads your teen can see on their news feed, you will need to go back to**Settings** . Scroll down to**Ads** and click on**Ad preferences** .
 
  In this section, you'll be able to see your teen's activity (ads they have interacted with recently). You can click on the button**Hide Ads** if you think that the ads they are interacting with are not appropriate. You will also be able to choose the**Ad topics** your teen is being shown.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why Online Safety Is More Important Than Ever
 
@@ -133,20 +133,15 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-ace-list-of-low-cost-youtube-caption-tools/"><u>[New] Ace List of Low-Cost YouTube Caption Tools</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-mastering-google-meet-recording-on-iphonesandroids/"><u>[Updated] 2024 Approved Mastering Google Meet Recording on iPhones/Androids</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-deciphering-youtube-conversations/"><u>[Updated] Deciphering YouTube Conversations</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-streamlining-video-craft-youtube-studio-edition/"><u>[Updated] Streamlining Video Craft YouTube Studio Edition</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-method-for-producing-captivating-video-thumbnails/"><u>2024 Approved Step-by-Step Method for Producing Captivating Video Thumbnails</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-digital-detox-diary-my-journey-beyond-the-feeds/"><u>A Digital Detox Diary: My Journey Beyond the Feeds</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-scenes-selective-posting-on-fb/"><u>Behind-the-Scenes: Selective Posting on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridges-and-barriers-in-a-facebook-era/"><u>Bridges and Barriers in a Facebook Era</u></a></li>
-<li><a href="https://facebook.techidaily.com/captivating-your-audience-tips-for-photographic-proficiency/"><u>Captivating Your Audience: Tips for Photographic Proficiency</u></a></li>
-<li><a href="https://facebook.techidaily.com/clearing-every-unwanted-fb-notification-type/"><u>Clearing Every Unwanted FB Notification Type</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-chatter-champions-best-20-conversation-hubs-on-the-web/"><u>Cyber Chatter Champions: Best 20 Conversation Hubs on the Web</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-new-tech-horizons-in-depth-analysis-by-toms-hardware-experts/"><u>Navigating New Tech Horizons: In-Depth Analysis by Tom's Hardware Experts</u></a></li>
-<li><a href="https://games-able.techidaily.com/pc-harmony-a-how-to-guide-for-preventive-measures/"><u>PC Harmony: A How-To Guide for Preventive Measures</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/quick-and-painless-ways-to-screen-record-stories/"><u>Quick & Painless Ways to Screen Record Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719148143401-the-biggest-tech-updates-that-have-been-underestimated-and-forgotten/"><u>The Biggest Tech Updates That Have Been Underestimated and Forgotten</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-top-tricks-making-powerful-yt-thumbnails/"><u>[New] 2024 Approved Top Tricks Making Powerful YT Thumbnails</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-crafting-engaging-sims-4-gameplay-videos/"><u>2024 Approved Crafting Engaging Sims 4 Gameplay Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/advanced-photo-editing-how-to-clean-up-unwanted-space/"><u>Advanced Photo Editing How to Clean Up Unwanted Space</u></a></li>
+<li><a href="https://fox-http.techidaily.com/exploring-new-dimensions-q500-typhoon-adventure/"><u>Exploring New Dimensions Q500 Typhoon Adventure</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-fix-the-smbus-touchscreen-driver-error-on-windows-11-devices/"><u>How to Fix the SMBus Touchscreen Driver Error on Windows 11 Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-technology-for-automatic-image-captions-on-fb/"><u>Leveraging Technology for Automatic Image Captions on FB</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/mastering-the-samsung-galaxy-tab-s7plus-an-in-depth-look-at-a-premier-android-marvel/"><u>Mastering the Samsung Galaxy Tab S7+: An In-Depth Look at a Premier Android Marvel</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximize-social-media-impact-with-these-5-cost-effective-fb-strategies/"><u>Maximize Social Media Impact with These 5 Cost-Effective FB Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/safeguard-your-digital-footprint-in-the-age-of-fb/"><u>Safeguard Your Digital Footprint in the Age of FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/stimulate-online-discourse-strategic-pages-surveys/"><u>Stimulate Online Discourse: Strategic Pages Surveys</u></a></li>
 </ul></div>
 

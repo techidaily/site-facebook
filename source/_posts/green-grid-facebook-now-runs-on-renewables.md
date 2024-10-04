@@ -1,7 +1,7 @@
 ---
 title: "Green Grid: Facebook Now Runs on Renewables"
-date: 2024-09-16T23:38:53.091Z
-updated: 2024-09-21T16:44:43.991Z
+date: 2024-09-26T19:16:48.307Z
+updated: 2024-10-03T17:07:58.970Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/32e2647cfec7540fd7d33c1c66a7dde730efec283
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -67,18 +81,22 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-4-unrooted-ways-to-log-internal-android-audio/"><u>[New] 2024 Approved 4 Unrooted Ways to Log Internal Android Audio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-through-paid-product-evaluations-online-for-2024/"><u>[New] Navigating Through Paid Product Evaluations Online for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-tutorial-purging-your-youtube-download-history/"><u>[New] Tutorial Purging Your YouTube Download History</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/discovering-the-comprehensive-ffmpeg-encoding-options-understanding-and-utilizing-supported-codecs/"><u>Discovering the Comprehensive FFmpeg Encoding Options: Understanding and Utilizing Supported Codecs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/guide-correcting-the-directx-12-initialization-issue-gta-vs-errgfxd3dinit/"><u>Guide: Correcting the DirectX 12 Initialization Issue - GTA V's ERR_GFX_D3D_INIT</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-from-poco-m6-pro-4g-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Poco M6 Pro 4G Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigating-cross-platform-social-media-fb-vids-on-whatsapp/"><u>In 2024, Navigating Cross-Platform Social Media FB Vids on WhatsApp</u></a></li>
+<li><a href="https://facebook.techidaily.com/insights-into-facebooks-impending-name-evolution/"><u>Insights Into Facebook’s Impending Name Evolution</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/protect-your-digital-life-dont-become-an-easy-target/"><u>Protect Your Digital Life: Don't Become an Easy Target</u></a></li>
+<li><a href="https://facebook.techidaily.com/revolutionizing-posts-automated-captions-for-facebook-photos/"><u>Revolutionizing Posts: Automated Captions for Facebook Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotlight-everyone-listing-full-groups-on-fb-posts/"><u>Spotlight Everyone: Listing Full Groups on FB Posts</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailored-data-protection-exploring-new-features-in-facebooks-privacy-hub/"><u>Tailored Data Protection: Exploring New Features in Facebook's Privacy Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essentials-of-creating-engrossing-digital-biographies/"><u>The Essentials of Creating Engrossing Digital Biographies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726027396642-nhk/"><u>フリーソフトでNHKラジオ番組を効率的にダウンロードするためのテクニック</u></a></li>
+</ul></div>
 

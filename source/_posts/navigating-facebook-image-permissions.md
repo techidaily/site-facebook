@@ -1,7 +1,7 @@
 ---
 title: Navigating Facebook Image Permissions
-date: 2024-09-18T18:04:21.266Z
-updated: 2024-09-22T01:14:52.942Z
+date: 2024-10-01T19:31:31.568Z
+updated: 2024-10-03T17:35:57.689Z
 tags:
   - facebook
 categories:
@@ -53,6 +53,13 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -60,13 +67,6 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
  Luckily, it is possible to change the privacy level of your old snaps. You have three methods open to you:
 
 ![facebook old photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-old-photo.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Individual Photos:** If you only want to modify the privacy setting of one photo, you need to[locate the old Facebook post](https://www.makeuseof.com/tag/see-every-like-post-comment-you-made-facebook/) on your wall, in your Activity Log, or in your albums.
 
@@ -88,16 +88,16 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
 
  Click on the**Activity Log** link from your profile page, click on Filter, and select and select**Photos and Videos** in the pop-up box. Next, choose**Public** in the drop-down box that appears.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Photos You're Tagged In
 
@@ -115,15 +115,22 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
  In the latest version of Facebook, you need to disable the face recognition feature to prevent the suggestions from appearing. Go to**Settings and Privacy > Settings > Face Recognition** and make sure the setting displays**No** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Does Facebook Photo Privacy Concern You?
@@ -143,5 +150,24 @@ thumbnail: https://thmb.techidaily.com/96b0dc304ed2f0b22e595834a3c54ad2566287334
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-picturing-perfect-profile-visions/"><u>[New] 2024 Approved Picturing Perfect Profile Visions</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-precision-guided-tour-unearthing-hidden-youtube-gems/"><u>[New] Precision-Guided Tour Unearthing Hidden YouTube Gems</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-insider-secrets-macs-top-rated-snipping-software-list/"><u>[Updated] 2024 Approved Insider Secrets Mac's Top-Rated Snipping Software List</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-photo-sharpening-mastery-with-1-10-online-editors/"><u>2024 Approved Photo Sharpening Mastery with #1-10 Online Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-unveils-policy-centric-hub-transparency-now/"><u>Facebook Unveils Policy-Centric Hub: Transparency Now</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-hot-30-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Infinix Hot 30 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://facebook.techidaily.com/interactive-bridge-building-with-facebooks-channels/"><u>Interactive Bridge-Building with Facebook's Channels</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-the-future-of-social-media-without-facebook-and-giphy-feasible/"><u>Is the Future of Social Media without Facebook & Giphy Feasible?</u></a></li>
+<li><a href="https://facebook.techidaily.com/recharge-by-unplugging-top-benefits-of-taking-breaks/"><u>Recharge by Unplugging: Top Benefits of Taking Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/resolving-no-security-code-on-facebook-login-attempt/"><u>Resolving No Security Code on Facebook Login Attempt</u></a></li>
+<li><a href="https://windows11.techidaily.com/reviving-ccleaner-performance-in-win11/"><u>Reviving CCleaner Performance in Win11</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/risk-free-strategies-for-youtube-to-mp4-file-conversion/"><u>Risk-Free Strategies for YouTube to MP4 File Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-protecting-your-fb-account-from-unauthorized-access/"><u>Strategies for Protecting Your Fb Account From Unauthorized Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-art-of-undetected-supports-on-fb/"><u>The Art of Undetected Supports on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-rise-of-secure-web-navigation-tools/"><u>The Rise of Secure Web Navigation Tools</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/transforming-timepieces-the-top-6-innovations-of-chatgpt-for-smartwatch-enthusiasts/"><u>Transforming Timepieces: The Top 6 Innovations of ChatGPT for Smartwatch Enthusiasts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-y27-4g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo Y27 4G Device</u></a></li>
+</ul></div>
 

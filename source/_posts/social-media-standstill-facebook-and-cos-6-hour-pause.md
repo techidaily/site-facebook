@@ -1,7 +1,7 @@
 ---
 title: "Social Media Standstill: Facebook & Co.'s 6-Hour Pause"
-date: 2024-09-24T16:08:29.658Z
-updated: 2024-09-28T16:24:36.347Z
+date: 2024-09-29T19:22:36.775Z
+updated: 2024-10-03T21:42:59.050Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
  So, why were Facebook's apps down? And what caused this epic outage?
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Facebook Went Down for Six Hours
@@ -62,10 +62,10 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 > Every failure like this is an opportunity to learn and get better, and there’s plenty for us to learn from this one. After every issue, small and large, we do an extensive review process to understand how we can make our systems more resilient. That process is already underway.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Your Facebook Data Safe After the Outage?
@@ -89,22 +89,20 @@ thumbnail: https://thmb.techidaily.com/bb9accbf9aa450f0fe34df3fa6aee3bab970d5d0d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/1719148392562-terra-trotter-a-tech-savvy-goats-new-identity/"><u>'Terra Trotter': A Tech-Savvy Goat's New Identity.</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-how-to-record-gameplay-in-samsung-galaxy-phones-for-2024/"><u>[New] How to Record Gameplay in Samsung Galaxy Phones for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-copycat-cinema-steps-for-satirical-video-making/"><u>[Updated] In 2024, Copycat Cinema Steps for Satirical Video Making</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-defensive-move-in-a-thousand-facebook-battles/"><u>Amazon's Defensive Move in a Thousand Facebook Battles</u></a></li>
-<li><a href="https://facebook.techidaily.com/annual-review-of-the-years-most-captivating-podcasts/"><u>Annual Review of the Year's Most Captivating Podcasts</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-virtual-marketplace-frauds-identifying-and-evading-traps/"><u>Avoiding Virtual Marketplace Frauds - Identifying & Evading Traps</u></a></li>
-<li><a href="https://facebook.techidaily.com/breach-proofing-clearing-your-past-facebook-visits/"><u>Breach-Proofing: Clearing Your Past Facebook Visits</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/conquer-your-pcs-blues-in-depth-strategies-for-dealing-with-the-stop-error-0x0000001a-on-windows-machines/"><u>Conquer Your PC's Blues: In-Depth Strategies for Dealing With the STOP Error 0X0000001A on Windows Machines</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-memorable-social-media-image-covers/"><u>Creating Memorable Social Media Image Covers</u></a></li>
-<li><a href="https://facebook.techidaily.com/cutting-off-or-keeping-connected-post-death-facebook-management/"><u>Cutting Off or Keeping Connected: Post-Death Facebook Management</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/digital-dive-essential-recording-tactics-for-shows/"><u>Digital Dive Essential Recording Tactics for Shows</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719144572163-elevate-sharing-experience-new-integration-of-fb-content-across-platforms/"><u>Elevate Sharing Experience: New Integration of FB Content Across Platforms.</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enhance-photos-add-dynamic-shake-with-ps/"><u>Enhance Photos Add Dynamic Shake with PS</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/-uninterrupted-viewing-top-20-youtube-download-apps/"><u>Enjoy Uninterrupted Viewing Top 20 YouTube Download Apps</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-find-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo Find X6 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-fine-art-of-instagram-photo-borders-for-2024/"><u>Mastering the Fine Art of Instagram Photo Borders for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/mastering-tiktoks-economy-with-these-8-profitable-methods/"><u>Mastering TikTok's Economy with These 8 Profitable Methods</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-comprehensive-look-at-razer-kiyo-webcam-for-2024/"><u>[New] Comprehensive Look at Razer Kiyo Webcam for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-peak-playtime-power-yts-top-10-by-view-count/"><u>[Updated] 2024 Approved Peak Playtime Power YT's Top 10 by View Count</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-android-playground-the-hottest-wildlife-games-for-2024/"><u>[Updated] Android Playground The Hottest Wildlife Games for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-androids-video-reversion-secrets-unveiled/"><u>[Updated] In 2024, Android's Video Reversion Secrets Unveiled</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-mastering-pixlr-15-essential-tips-for-enhanced-editing/"><u>[Updated] Mastering Pixlr 15 Essential Tips for Enhanced Editing</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-pushback-why-it-continues-to-evolve-and-thrive/"><u>Facebook's Pushback: Why It Continues to Evolve and Thrive</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-resounding-beats-audio-studio-mac/"><u>In 2024, Resounding Beats Audio Studio Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-data-safe-a-guide-to-privacy-controls-in-fb/"><u>Keep Your Data Safe: A Guide to Privacy Controls in FB</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/nurturing-discussions-strategies-to-connect-with-followers-for-2024/"><u>Nurturing Discussions Strategies to Connect With Followers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/sever-instagrams-ties-with-fb-a-compreenasional-approach/"><u>Sever Instagram's Ties with FB: A Compreenasional Approach</u></a></li>
+<li><a href="https://facebook.techidaily.com/spotify-announces-undercover-tracking-for-unhindered-streaming-experience/"><u>Spotify Announces Undercover Tracking for Unhindered Streaming Experience</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-announces-launch-of-phoenix-jpeg-repair-for-mac/"><u>Stellar Announces Launch of Phoenix JPEG Repair for Mac</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metaai-beyond-basic-chatbot-capabilities/"><u>Understanding MetaAI: Beyond Basic Chatbot Capabilities</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-social-media-blackout-phenomena/"><u>Understanding Social Media Blackout Phenomena</u></a></li>
 </ul></div>
 

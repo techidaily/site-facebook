@@ -1,7 +1,7 @@
 ---
 title: "From Unfriended to Friended: Rebuilding on FB"
-date: 2024-09-16T18:28:38.800Z
-updated: 2024-09-21T21:54:04.512Z
+date: 2024-09-29T21:02:01.812Z
+updated: 2024-10-03T22:58:25.897Z
 tags:
   - facebook
 categories:
@@ -42,6 +42,13 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
 
  Use the right option for the situation and you shouldn't have to worry about unblocking and refriending people in the future. Follow our[guide to Facebook blocking](https://www.makeuseof.com/tag/complete-guide-blocking-facebook-invites/) for more help.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Refriend Someone on Facebook After Unblocking Them
 
  Once you've unblocked someone using the instructions above, simply visit their profile on Facebook. You can get to it by searching with the bar at the top, clicking on a tag containing their name, or similar methods.
@@ -49,6 +56,13 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
  On their profile page, you should see an**Add Friend** button as normal.
 
 ![Facebook Send Friend Request](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/06/Facebook-Send-Friend-Request.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Click that to send them a new friend request; if they accept, you'll be friends again. However, keep in mind that if you've had a bad interaction with this person, they may delete your request. If they do, Facebook provides the**Mark as Spam** option to them, which prevents you from sending more friend requests.
 
@@ -59,6 +73,13 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
  They may also have their Facebook account set to only accept friend requests from friends of friends. In this case, you'll need to have at least one mutual friend to refriend them. Check out[the unwritten rules regarding Facebook friend requests](https://www.makeuseof.com/tag/facebook-friend-requests-unwritten-rules-hidden-settings-weekly-facebook-tips/) for more help.
 
  Finally, there's also a chance that your former friend deactivated their Facebook account while you had them blocked. To find out if this is the case, try asking a mutual friend if they're still friends with the person you had blocked. If they aren't using Facebook anymore, you'll have to connect with them elsewhere.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Refriending on Facebook Is Possible, Even After Blocking
 
@@ -79,12 +100,20 @@ thumbnail: https://thmb.techidaily.com/02e725c673b3c10c639720505ea896a1091c0eab7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-brief-video-explanations-all-inclusive/"><u>[New] 2024 Approved Brief Video Explanations, All-Inclusive</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/critical-review-of-microsoft-surface-duo-high-price-tag-meets-a-multitude-of-problems/"><u>Critical Review of Microsoft Surface Duo: High Price Tag Meets a Multitude of Problems</u></a></li>
+<li><a href="https://facebook.techidaily.com/forge-stronger-bonds-and-drive-success-top-8-facebook-workplace-features/"><u>Forge Stronger Bonds & Drive Success: Top 8 Facebook Workplace Features</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guide-to-identifying-blank-cells-with-isblank-feature-in-excel-spreadsheets/"><u>Guide to Identifying Blank Cells with ISBLANK Feature in Excel Spreadsheets</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-ticklish-titles-laugh-out-loud-gaming-for-children/"><u>In 2024, Ticklish Titles Laugh-Out-Loud Gaming for Children</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transform-your-brand-with-a-decades-worth-of-smm-wisdom-distilled-into-10-steps/"><u>In 2024, Transform Your Brand with a Decade's Worth of SMM Wisdom, Distilled Into 10 Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/innovate-interaction-elevate-your-groups-social-standing/"><u>Innovate Interaction: Elevate Your Group's Social Standing</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-priority-list-avoid-these-three-traps/"><u>Privacy Priority List: Avoid These Three Traps</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-the-swift-solution-for-forgetful-fb-users/"><u>Regaining Access - The Swift Solution for Forgetful FB Users</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-platforms-add-sponsored-content-features/"><u>Social Media Platforms Add Sponsored Content Features</u></a></li>
+<li><a href="https://video-capture.techidaily.com/top-8-best-video-grabbers-for-windows-10/"><u>Top 8 Best Video Grabbers for Windows 10</u></a></li>
+<li><a href="https://facebook.techidaily.com/user-skepticism-rises-examining-five-times-facebook-missed-the-target/"><u>User Skepticism Rises: Examining Five Times Facebook Missed the Target</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/zdnet-review-the-ultimate-fun-in-yard-work-our-experience-with-a-remote-controlled-lawn-mower/"><u>ZDNet Review: The Ultimate Fun in Yard Work - Our Experience with a Remote-Controlled Lawn Mower</u></a></li>
+</ul></div>
 

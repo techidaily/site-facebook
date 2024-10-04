@@ -1,7 +1,7 @@
 ---
 title: Maintaining Separation in On This Day Stories
-date: 2024-09-17T21:08:12.047Z
-updated: 2024-09-21T21:56:54.487Z
+date: 2024-09-28T18:30:35.986Z
+updated: 2024-10-03T20:46:36.483Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
 
  As Meyer pointed out, there is an algorithm failing here, but there is also a human failing. The human failing was that Facebook pushed this to users without giving them a way to opt-out. But the social site has since introduced ways to do this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Block People in Facebook's 'On This Day'
 
 ![Screenshot of Memories on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/memories-home-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Facebook now lets you hide memories of your friends or anyone else on Facebook if don't want to see reminders associated with that person, like an ex after a bad breakup. Here's how to do it.
 
@@ -51,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
 5. Click**Save** .
 
  That's it, memories associated with that person won't show up in Facebook Memories anymore.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Block Dates or Date Ranges in Facebook Memories
 
@@ -65,16 +86,16 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
 
  That's it, memories from that particular date range won't show up.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Turn Off Facebook Memories Notifications
 
 ![Facebook memories home screen notifications](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/11/notifications.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  You can actually switch off Facebook Memories notifications in your news feed entirely, just like you can[get rid of annoying Facebook notifications](https://www.makeuseof.com/tag/how-to-delete-facebook-notifications/) . It's a simple process too.
 
@@ -85,13 +106,6 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
  That's really all there is to it. Now you won't see Facebook Memories suggestions in your news feed, but you can still check them out any time by going to the direct URL for[Facebook Memories](https://www.facebook.com/memories/) .
 
  If there are memories you would like to share however, click the Share button under your memories and show them to people. Remember, you don't need to share them publicly, Facebook's[Facebook's photo privacy options](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) let you select the audience.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Learn to Live with Your Past
 
@@ -110,5 +124,21 @@ thumbnail: https://thmb.techidaily.com/ef9be7780d43a1d277262443e1e1ad4f9cd5011c4
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exclusive-content-delivery-assessment/"><u>[New] 2024 Approved Exclusive Content Delivery Assessment</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-safeguard-your-videos-in-the-age-of-youtube/"><u>[New] 2024 Approved How to Safeguard Your Videos in the Age of YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-pathway-to-get-your-hands-on-movie-maker-6/"><u>[New] Pathway to Get Your Hands on Movie Maker 6</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seamless-nba-viewing-discover-the-best-15-streaming-options/"><u>[Updated] Seamless NBA Viewing Discover the Best 15 Streaming Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-duplicitous-online-barter-schemes-on-facebook/"><u>Deciphering Duplicitous Online Barter Schemes on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-signals-whats-next-for-facebook/"><u>Deciphering the Signals: What's Next for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-your-fb-blocked-network-list/"><u>Decoding Your Fb Blocked Network List</u></a></li>
+<li><a href="https://facebook.techidaily.com/driving-results-with-key-business-meta-tools-and-strategies/"><u>Driving Results with Key Business Meta Tools and Strategies</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-how-to-downloading-and-installing-brother-l2absolutely-here-are-five-new-seo-friendly-titles-similar-to-brother-mfc-l2700dw-driver-download-and-install17/"><u>Easy How-To: Downloading and Installing Brother L2absolutely! Here Are Five New SEO-Friendly Titles Similar to Brother MFC-L2700DW Driver Download & Install for Windows:</u></a></li>
+<li><a href="https://facebook.techidaily.com/efficient-management-selecting-the-ideal-page-administrator/"><u>Efficient Management: Selecting the Ideal Page Administrator</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-6-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 6 without Apple Account</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-oppo-find-x7-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Oppo Find X7</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-finding-the-best-fit-essential-tips-to-choose-your-ideal-4k-monitor/"><u>In 2024, Finding the Best Fit Essential Tips to Choose Your Ideal 4K Monitor</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-moto-e13-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Motorola Moto E13 Device</u></a></li>
+</ul></div>
 

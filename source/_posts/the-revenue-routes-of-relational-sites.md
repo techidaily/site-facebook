@@ -1,7 +1,7 @@
 ---
 title: The Revenue Routes of Relational Sites
-date: 2024-09-14T17:26:53.755Z
-updated: 2024-09-21T16:49:02.750Z
+date: 2024-09-26T23:10:38.973Z
+updated: 2024-10-03T19:38:46.068Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
 
  Advertising is a fine line to tread. If social media companies flood their sites with too many adverts, users will be turned off or use ad-blockers. Just the right amount and users will be more likely to see things that interest them, click through, and potentially make a purchase.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. User Data
 
 ![how facebook uses your data](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/how-facebook-uses-your-data.jpg)
@@ -61,13 +68,6 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
  However, what many of them do sell is aggregated and anonymized usage patterns. For example, Twitter sells advanced access to its API, which companies can use to view all historical tweets and filter, sample, and batch them. This makes up around 11% of Twitter's revenue.
 
  Another example is Facebook, which has often been under the spotlight thanks to things like the Cambridge Analytica scandal. Despite the uproar, Facebook isn't purposely giving other companies your data—it wants to keep it for itself. However, Facebook monitors your usage, such as the pages you like, and uses this to put you in a category so that advertisers can pay to target that group.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Premium Memberships
 
@@ -85,11 +85,25 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
 
 ![facebook fundraisers](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/facebook-fundraisers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Some social networks offer services for other people to sell or raise money through them. The social network will collect a transaction fee on this.
 
  For example, on Facebook you can raise money for charity. Facebook used to charge a transaction fee for this, but no longer does. However, it does still charge for personal fundraisers, which it claims is to "cover payment processing" and "taxes".
 
  Another way of making money is through virtual products. This can be seen in something like Tumblr, which charges for some blog themes. Elsewhere, Facebook used to sell "Gifts" (amusing icons that you can put on someone's profile), but it has since retired this.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Diversifying
 
@@ -100,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
  Diversifying goes beyond just buying other companies. For example, take the Portal. This is Facebook's video chat camera. It wants you to buy this not only to make a profit on the physical device, but also to hook you in to its ecosystem—soon you'll be using Messenger to chat to friends or Workplace to collaborate within your business. Though note, there are[concerns with Facebook Portal privacy](https://www.makeuseof.com/tag/trust-facebook-portal-privacy/) .
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## You Can Make Money on Social Media
@@ -125,5 +139,22 @@ thumbnail: https://thmb.techidaily.com/e1a2efe9bf1f732226416442fb362e8363cdb8595
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-turning-tides-creative-methods-to-flip-your-youtube-video/"><u>[New] 2024 Approved Turning Tides Creative Methods to Flip Your YouTube Video</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/breakdown-of-electric-vehicle-power-up-options-exploring-the-variances-between-level-1-2-and-3-charging/"><u>Breakdown of Electric Vehicle Power-Up Options: Exploring the Variances Between Level 1, 2 & 3 Charging</u></a></li>
+<li><a href="https://win-able.techidaily.com/end-minecraft-game-freezing-discover-6-quick-solutions-to-stabilize-your-playtime/"><u>End Minecraft Game Freezing - Discover 6 Quick Solutions to Stabilize Your Playtime</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhance-personal-time-management-facebooks-daily-notification-feature/"><u>Enhance Personal Time Management: Facebook’s Daily Notification Feature</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-the-roi-of-meta-verified-accounts/"><u>Evaluating the ROI of Meta Verified Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/exclusive-guide-to-chat-apps-not-facebooks-messenger/"><u>Exclusive Guide to Chat Apps, Not Facebook's Messenger</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exporting-your-spotify-listens-to-readable-text-a-comprehensive-tutorial/"><u>Exporting Your Spotify Listens to Readable Text - A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-learn-cinematic-techniques-with-youtube-veterans-and-novices/"><u>In 2024, Learn Cinematic Techniques with YouTube Veterans and Novices</u></a></li>
+<li><a href="https://facebook.techidaily.com/overcoming-password-and-access-code-challenges-on-facebook/"><u>Overcoming Password and Access Code Challenges on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/recalling-the-day-that-transformed-my-social-interactions-online/"><u>Recalling the Day that Transformed My Social Interactions Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamp-your-facebook-profile-official-name-change-steps/"><u>Revamp Your Facebook Profile: Official Name Change Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-social-memories-fb-imagevideo-save-techniques/"><u>Securing Your Social Memories: FB Image/Video Save Techniques</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-of-successful-tiktok-duets-for-beginners/"><u>Unlocking the Secrets of Successful TikTok Duets for Beginners</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-melody-and-mics-the-10-most-user-friendly-voice-capture-tools-in-technology/"><u>Updated Melody and Mics The 10 Most User-Friendly Voice Capture Tools in Technology</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-11-tips-maximizing-gaming-speeds-and-efficiency/"><u>Windows 11 Tips: Maximizing Gaming Speeds and Efficiency</u></a></li>
+</ul></div>
 

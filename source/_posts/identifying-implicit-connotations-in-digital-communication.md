@@ -1,7 +1,7 @@
 ---
 title: Identifying Implicit Connotations in Digital Communication
-date: 2024-09-18T17:29:17.048Z
-updated: 2024-09-22T00:07:50.743Z
+date: 2024-09-27T18:18:10.257Z
+updated: 2024-10-03T20:16:32.809Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
 ![Messenger Stop Hearing From Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Messenger-Stop-Hearing-From-Person.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You’ll then get a choice to**Delete chat** (good for cleaning up your request inbox) or**Block** the person (useful if they won’t stop messaging you). Either way, the other person won’t be aware you’ve done this.
 
  To delete many requests at once, click the**Pencil** icon above the message list to show checkboxes next to all threads. Check the boxes for each one you want to erase, then choose**Delete** to remove them.
@@ -60,15 +67,22 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
 ![Facebook Message Request Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Message-Request-Delivery.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To see this on the mobile Messenger app, slide out the left menu, tap the**Settings** gear, and go to**Privacy & safety > Message delivery** .
 
  Note that in addition to the below controls, Facebook will move messages it detects as going against its Community Standards to Spam. In addition, people from Marketplace, Facebook Dating, or a Facebook job post can message you directly.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Potential Connections: Legitimate Requests
@@ -89,13 +103,6 @@ thumbnail: https://thmb.techidaily.com/876b4cf01691e6a76beb54576565375ccfec6aaf5
 
 ![01c Messenger Message Delivery](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/01c-Messenger-Message-Delivery.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
 ## How to See Your Archived Messages on Messenger
@@ -111,10 +118,10 @@ Close
  This is useful for reducing clutter in your message list, without deleting the thread in case you need it later.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Block People on Facebook Messenger
@@ -126,16 +133,10 @@ Close
 ![Facebook Messenger Blocking](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/Facebook-Messenger-Blocking.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Seek and Find Hidden Messages on Facebook Messenger
@@ -159,5 +160,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-what-is-screencasting-and-how-to-choose-the-right-screencasting-software/"><u>[Updated] 2024 Approved What Is Screencasting and How to Choose the Right Screencasting Software?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/affordable-aethervault-substantial-file-safekeeping/"><u>Affordable AetherVault Substantial File Safekeeping</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-facebooks-symbolic-lexicon-for-enhanced-communication/"><u>Deciphering Facebook’s Symbolic Lexicon for Enhanced Communication</u></a></li>
+<li><a href="https://facebook.techidaily.com/deleting-all-your-fb-alerts-a-step-by-step-guide/"><u>Deleting All Your FB Alerts: A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/deletion-dynamics-removing-a-business-page-from-social-media/"><u>Deletion Dynamics: Removing a Business Page From Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/disable-fb-tracking-navigating-the-off-facebook-hub/"><u>Disable Fb Tracking: Navigating the Off-Facebook Hub</u></a></li>
+<li><a href="https://facebook.techidaily.com/disclose-where-youre-at-facebook-direct-messages/"><u>Disclose Where You're At: Facebook Direct Messages</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-how-six-factors-make-facebook-indispayer-for-modern-life/"><u>Discover How Six Factors Make Facebook Indispayer for Modern Life</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-online-identity-how-to-use-your-avatar-for-a-striking-fb-cover-photo/"><u>Elevate Your Online Identity: How to Use Your Avatar for a Striking FB Cover Photo</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/essential-obs-adjustments-for-inexpensive-machines/"><u>Essential OBS Adjustments for Inexpensive Machines</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On Vivo Y77t | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/gaming-transformed-by-tech/"><u>Gaming Transformed by Tech</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovations-for-elevating-your-gopro-filmmaking-skills-for-2024/"><u>Innovations for Elevating Your GoPro Filmmaking Skills for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/social-video-marketing-insights-for-small-business-infographic-for-2024/"><u>Social Video Marketing Insights for Small Business [Infographic] for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-balanced-approach-to-smartphones-a-thorough-review-of-the-new-apple-iphone-se-2/"><u>The Balanced Approach to Smartphones: A Thorough Review of the New Apple iPhone SE (2#)</u></a></li>
+</ul></div>
 

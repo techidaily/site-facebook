@@ -1,7 +1,7 @@
 ---
 title: "The Power Duo: Boosting Earnings on Facebook & Instagram Together"
-date: 2024-09-20T23:46:58.035Z
-updated: 2024-09-21T23:55:37.410Z
+date: 2024-09-27T21:08:16.255Z
+updated: 2024-10-03T22:13:19.593Z
 tags:
   - facebook
 categories:
@@ -47,15 +47,22 @@ thumbnail: https://thmb.techidaily.com/2921f580a005bca983d6da9a3afb73cd46b329730
  Facebook will launch the service with a limited group of partners before expanding.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Facebook Stars
 
  Facebook Stars is now open to all creators. However, they must have at least 1000 followers since the preceding 60 days, be in a country where Stars are available, and meet Meta’s[Partner Monetization Policies](https://www.facebook.com/business/help/169845596919485?id=2520940424820218) and[Content Monetization Policies](https://www.facebook.com/business/help/1348682518563619?id=2520940424820218) . This applies to Facebook Live, videos on-demand, and will soon be available on Facebook Reels.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Monetizing Reels
 
@@ -73,6 +80,13 @@ thumbnail: https://thmb.techidaily.com/2921f580a005bca983d6da9a3afb73cd46b329730
 
  "When they’ve found a creator they want to partner with, they’ll be able to send a project that outlines the details of the opportunity, including deliverables and payment offered," according to Meta.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Digital Collectibles
 
 [Instagram started allowing NFTs to be shared on its platform](https://www.makeuseof.com/how-nfts-work-on-instagram/) in May 2022\. Now Meta will allow this feature to be available to more creators in select countries, and soon on Facebook as well (starting with a small group of US creators). Users will be able to cross-post on both Instagram and Facebook.
@@ -80,10 +94,16 @@ thumbnail: https://thmb.techidaily.com/2921f580a005bca983d6da9a3afb73cd46b329730
  Instagram Stories will also start hosting NFTs, in partnership with SparkAR.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Creators Have the Upper Hand
@@ -105,5 +125,24 @@ thumbnail: https://thmb.techidaily.com/2921f580a005bca983d6da9a3afb73cd46b329730
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-watching-social-media-videos-on-appletv/"><u>[New] 2024 Approved Watching Social Media Videos on AppleTV</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-capturing-smiles-and-chuckles-learn-the-lens-magic-in-snapchat-for-2024/"><u>[Updated] Capturing Smiles and Chuckles Learn the Lens Magic in Snapchat for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-find-your-custom-box-top-10-online-stores-offering-tailored-packaging/"><u>[Updated] Find Your Custom Box Top 10 Online Stores Offering Tailored Packaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-mystery-behind-facebooks-name-alteration/"><u>Decoding the Mystery Behind Facebook’s Name Alteration</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-implementation-of-whatsapps-updated-privacy-terms/"><u>Delay in Implementation of WhatsApp's Updated Privacy Terms</u></a></li>
+<li><a href="https://facebook.techidaily.com/determining-if-securityfbcom-is-a-secure-and-legitimate-mail-service-from-fb/"><u>Determining if security@fb.com Is a Secure and Legitimate Mail Service From FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-quitting-as-friends-on-social-media/"><u>Digital Detox: Quitting as Friends on Social Media</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-disruption-all-key-social-networks-downed/"><u>Digital Disruption: All Key Social Networks Downed</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-frontier-contributes-to-health-crisis-alleviation/"><u>Digital Frontier Contributes to Health Crisis Alleviation</u></a></li>
+<li><a href="https://facebook.techidaily.com/digitally-dividable-social-sites-revenue-rules/"><u>Digitally Dividable: Social Sites' Revenue Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-facebooks-updated-policy-framework-with-hub-debut/"><u>Dive Into Facebook’s Updated Policy Framework with Hub Debut</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-nubia-red-magic-8s-proplus-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Nubia Red Magic 8S Pro+ Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to Use Pokémon Emerald Master Ball Cheat On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/in-depth-look-at-the-patriot-viper-vp4300-lite-4tb-high-capacity-low-cost-reviewed/"><u>In-Depth Look at the Patriot Viper VP4300 Lite 4TB: High Capacity, Low Cost Reviewed</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/purely-user-centric-start-in-w11/"><u>Purely User-Centric Start in W11</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-vlc-media-player-issues-with-wmv-files/"><u>Resolving VLC Media Player Issues with WMV Files</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egies-for-adding-value-youtubes-card-system-for-2024/"><u>Strategies for Adding Value YouTube's Card System for 2024</u></a></li>
+</ul></div>
 

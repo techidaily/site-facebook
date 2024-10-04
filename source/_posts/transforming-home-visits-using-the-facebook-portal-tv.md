@@ -1,7 +1,7 @@
 ---
 title: "Transforming Home Visits: Using the Facebook Portal TV"
-date: 2024-09-17T00:42:06.721Z
-updated: 2024-09-22T00:03:50.498Z
+date: 2024-09-27T22:48:38.125Z
+updated: 2024-10-03T16:28:43.101Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/0fde8be80e602ff65625842ff908df27188b32034
 
 ![Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-tv-alexa.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The[Portal TV](https://portal.facebook.com/) is a smart product from Facebook that allows you to make TV-based video calls in the comfort of your home. If your friends and family don’t have the Portal TV, you can also video chat with them from their smartphones and tablets via WhatsApp or Messenger.
 
  To enhance the user experience during calls, the Portal TV has a built-in smart sound that projects your voice and reduces background noise for audio clarity.
@@ -64,13 +71,20 @@ thumbnail: https://thmb.techidaily.com/0fde8be80e602ff65625842ff908df27188b32034
 
 ![Facebook Portal TV](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-portal-tv.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Having a Facebook or WhatsApp account is a requirement for using the Portal TV. If you don’t have one, you can open a Facebook account or sign up on WhatsApp with a valid phone number.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Plugging In Your Portal TV
@@ -84,13 +98,6 @@ thumbnail: https://thmb.techidaily.com/0fde8be80e602ff65625842ff908df27188b32034
 1. Place your Portal TV close to your TV, either on top of it or underneath it, on a flat surface.
 2. Don't place your Portal TV very close to a speaker or soundbar.
 3. Your Portal TV comes with Dolby Atmos sound. For effective use, it requires Dolby Atmos-encoded streaming content as well as a compatible audio system.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Mounting Your Portal TV on Top of Your TV
 
@@ -106,16 +113,16 @@ Your Portal TV has two clips.
 1. Take off the plastic battery tab on the back of your remote.
 2. Press**Select** on the center button. Follow the on-screen instructions to complete the setup.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Selecting Your Language and Connecting to Wi-Fi
 
 ![Portal TV Augmented Reality](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Portal-TV-augmented-reality.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Having plugged in your Portal TV as instructed above, follow the on-screen instructions below to commence setup.
 
@@ -125,6 +132,13 @@ Your Portal TV has two clips.
 4. Tap**Join > Next > Continue** .
 
  If the software on your Portal TV isn’t up to date, you'll be required to download the latest version. You may need to restart your Portal TV to proceed with the setup.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Choosing a Name for Your Portal TV and Logging In With Facebook or WhatsApp
 
@@ -146,13 +160,6 @@ Your Portal TV has two clips.
 
 **To hang up a call** , say "Hey Portal, hang up."
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Building Stronger Relationships by Connecting on the Big Screen
 
  Video chatting with family and friends on the big screen can make you feel closer to them even when they are far away. You can see their faces and expressions clearly like they are standing in front of you.
@@ -172,5 +179,24 @@ Your Portal TV has two clips.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-generating-podcast-identity-the-top-ai-naming-software/"><u>[New] Generating Podcast Identity The Top AI Naming Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-uncovering-the-efficacy-of-youtubes-4-second-rule/"><u>[Updated] Uncovering the Efficacy of YouTube's 4-Second Rule</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unveiling-the-best-practices-for-uploading-videos-to-instagram/"><u>[Updated] Unveiling the Best Practices for Uploading Videos to Instagram</u></a></li>
+<li><a href="https://article-posts.techidaily.com/best-free-video-viewing-software-guide-top-16/"><u>Best Free Video Viewing Software Guide - Top 16</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-expat-network-a-double-edged-sword/"><u>Facebook's Expat Network – A Double-Edged Sword?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fixing-the-flaws-in-your-social-media-setup/"><u>Fixing the Flaws in Your Social Media Setup</u></a></li>
+<li><a href="https://facebook.techidaily.com/hashtagging-strategic-use-for-social-media-growth-on-facebook/"><u>HashTagging: Strategic Use for Social Media Growth on Facebook</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-infinix-note-30i-frp-by-drfone-android/"><u>How Can We Bypass Infinix Note 30i FRP?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-huawei-nova-y91-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Huawei Nova Y91</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-samsung-galaxy-xcover-7-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Samsung Galaxy XCover 7 Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://facebook.techidaily.com/immediate-responses-to-prevent-long-term-damage-from-fb-hack/"><u>Immediate Responses to Prevent Long-Term Damage From FB Hack</u></a></li>
+<li><a href="https://facebook.techidaily.com/optimize-your-fb-experience-best-mobile-settings/"><u>Optimize Your FB Experience: Best Mobile Settings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/personal-coaching-elevated-by-chatgpt-technology/"><u>Personal Coaching Elevated by ChatGPT Technology</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-tactics-to-dial-back-fb-chats/"><u>Privacy Tactics to Dial Back Fb Chats</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revealing-the-faces-behind-your-viral-facebook-post-a-comprehensive-guide/"><u>Revealing the Faces Behind Your Viral Facebook Post: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlined-video-calls-tips-for-using-facebook-portal-tv/"><u>Streamlined Video Calls: Tips for Using Facebook Portal TV</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-messages-the-art-and-science-behind-facebook-messenger-symbols/"><u>Unlocking Messages: The Art & Science Behind Facebook Messenger Symbols</u></a></li>
+</ul></div>
 

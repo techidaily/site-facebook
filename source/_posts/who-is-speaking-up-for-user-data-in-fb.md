@@ -1,7 +1,7 @@
 ---
 title: Who Is Speaking Up for User Data in FB?
-date: 2024-09-18T20:10:23.942Z
-updated: 2024-09-21T19:22:49.819Z
+date: 2024-10-02T16:55:43.445Z
+updated: 2024-10-03T19:20:35.240Z
 tags:
   - facebook
 categories:
@@ -34,6 +34,13 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
  Here are some of the biggest claims made by Haugen in her recent 60 Minutes interview:
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5 Claims Made by Frances Haugen on 60 Minutes
 
 ### 1\. Facebook’s Algorithm Shows You Hateful and Divisive Content
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 > One of the consequences of how Facebook is picking out that content today is it is -- optimizing for content that gets engagement, or reaction. But its own research is showing that content that is hateful, that is divisive, that is polarizing, it's easier to inspire people to anger than it is to other emotions.
 
  Related:[How to Disable Algorithmic Feeds on Twitter, Instagram, and Facebook](https://www.makeuseof.com/tag/how-and-why-to-disable-algorithmic-feeds-on-twitter-instagram-and-facebook/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Facebook Is Profiting From Showing You Hateful and Divisive Content
 
@@ -56,13 +70,6 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
 > Facebook has demonstrated they cannot act independently, Facebook, over and over again, has shown it chooses profit over safety. It is subsidizing, it is paying for its profits with our safety.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Facebook Is Lying to You About Its Fight Against Hate, Violence, and Misinformation
 
  Haugen claims that Facebook turned on safety systems to reduce misinformation around the 2020 Election, but that many of those measures were temporary.
@@ -71,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 
  Related:[Study Suggests Facebook Handled Election Misinformation Poorly](https://www.makeuseof.com/study-facebook-election-misinformation/)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Instagram Is Harming Teenage Girls
 
  As already widely reported, Haugen claims that Instagram is negatively impacting the teenagers using the social media app.
@@ -78,16 +92,10 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
 > Facebook's own research says, as these young women begin to consume this-- this eating disorder content, they get more and more depressed. And it actually makes them use the app more. And so, they end up in this feedback cycle where they hate their bodies more and more. Facebook's own research says it is not just the Instagram is dangerous for teenagers, that it harms teenagers, it's that it is distinctly worse than other forms of social media.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Is the Way Forward for Facebook?
@@ -109,5 +117,18 @@ thumbnail: https://thmb.techidaily.com/be861d402be1baaf3140ac6faae85bc70a45ab620
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-direct-download-and-conversion-best-youtube-to-mp3-software/"><u>[Updated] In 2024, Direct Download & Conversion Best YouTube to MP3 Software</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unraveling-the-secrets-to-dynamic-youtube-trailers-in-filmora/"><u>[Updated] Unraveling the Secrets to Dynamic YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://extra-information.techidaily.com/comprehensive-fullscreen-guide-in-premiere-pro-for-2024/"><u>Comprehensive Fullscreen Guide in Premiere Pro for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/online-assembly-7-networking-strategies-fostering-unity/"><u>Online Assembly: 7 Networking Strategies Fostering Unity</u></a></li>
+<li><a href="https://facebook.techidaily.com/rethinking-online-population-puzzles-facebook-edition/"><u>Rethinking Online Population Puzzles - Facebook Edition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/secrets-revealed-achieving-immortal-wealth-with-infinity-cave-on-pc/"><u>Secrets Revealed: Achieving Immortal Wealth with 'Infinity Cave' On PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-presence-silent-likes-on-networks/"><u>Secure Your Social Presence: Silent Likes on Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-invisible-chat-fb-messengers-hidden-mode/"><u>The Invisible Chat: FB Messenger’s Hidden Mode</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-a-408-request-timeout-issue-steps-to-successfully-fix-it/"><u>Troubleshooting a 408 Request Timeout Issue: Steps to Successfully Fix It</u></a></li>
+<li><a href="https://driver-error.techidaily.com/usb-headset-not-chargingworking-windows-10-fixes-explained/"><u>USB Headset Not Charging/Working: Windows 10 Fixes Explained</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-is-meta-ditching-face-tech-at-facebook/"><u>Why Is Meta Ditching Face Tech at Facebook?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: How to Change Which Facebook Friends Can See You Online
-date: 2024-09-27T17:29:14.136Z
-updated: 2024-09-28T16:00:34.528Z
+date: 2024-10-01T22:26:23.014Z
+updated: 2024-10-03T18:55:08.746Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,16 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
  But what if you don't want certain people to see you online or you don't want your online status reflected at all? Here's how to adjust your Active Status settings so that only certain people can see you online on Facebook...
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Change Who Can See You Online on Facebook (Web)
@@ -69,7 +75,34 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 3. This will bring up a popup where you can select your options. You can toggle Active Status to**OFF** , allow**Active Status ON for some** , or turn**Active Status OFF for some** . If you want to change the Facebook friends who can or cannot see you online by selecting the**Edit** button next to the relevant option.  
 ![facebook active status settings updated](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/facebook-active-status-settings-updated.jpg)
 4. Select whichever setting you prefer. If you select**Edit** , a popup will appear allowing you to search for contacts you want to add to the Active Status ON or Active Status OFF list. Then choose**Save** to implement the settings.  
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![select facebook friends for active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/02/select-facebook-friends-for-active-status.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Switch Off Facebook Online Status Completely
 
@@ -81,23 +114,16 @@ thumbnail: https://thmb.techidaily.com/45c2e614d8b961c8b72ebf5ec64f89d95bf54c93b
 
 ![facebook chat settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-chat-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![facebook active status settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-active-status-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook turn off active status](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/facebook-turn-off-active-status.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -137,13 +163,6 @@ This is different from a full Facebook block.
 
  Disabling your online status is just one of the ways you can ensure[privacy and security on Facebook](https://www.makeuseof.com/facebook-privacy-and-security-checklist/) . While you're changing your online status, you may also want to check other privacy settings to ensure you're only showing the information you want to show on Facebook.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Control Who Sees You Online on Facebook
 
  Online privacy and Facebook are far from synonymous. But there are ways you can gain more control over who can see you online on the platform—and whether you appear online at all.
@@ -165,22 +184,19 @@ This is different from a full Facebook block.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-combine-photos-for-captivating-instagram-stories/"><u>[New] 2024 Approved How to Combine Photos for Captivating Instagram Stories</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-unleash-creative-potential-tips-and-tricks-for-filming-with-logitech-cam/"><u>[New] In 2024, Unleash Creative Potential Tips and Tricks for Filming with Logitech Cam</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-discover-the-top-11-kid-videography-gear-for-initial-use/"><u>[Updated] 2024 Approved Discover the Top 11 Kid Videography Gear for Initial Use</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-elevate-your-posts-with-these-instagram-filters-hacks/"><u>[Updated] Elevate Your Posts with These Instagram Filters Hacks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-swiftclick-retrorecall-video/"><u>[Updated] In 2024, SwiftClick RetroRecall Video</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-innovating-visual-storytelling-through-photo-mosaics/"><u>2024 Approved Innovating Visual Storytelling Through Photo Mosaics</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/effective-techniques-to-fix-memory-management-bugs-like-bad-pool-header-across-different-windows-platforms/"><u>Effective Techniques to Fix Memory Management Bugs Like Bad Pool Header Across Different Windows Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/expert-tips-for-bypassing-unwanted-social-media-offers/"><u>Expert Tips for Bypassing Unwanted Social Media Offers</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-enables-oculus-gos-full-access-an-overview-for-users/"><u>Facebook Enables Oculus Go's Full Access: An Overview for Users</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/inhibit-friends-who-remain-undisclosed-in-fb/"><u>Inhibit Friends Who Remain Undisclosed in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/public-skepticism-grows-large-tech-companies-losing-faith/"><u>Public Skepticism Grows: Large Tech Companies Losing Faith</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-password-management-preventing-fb-account-breaches/"><u>Secure Password Management: Preventing FB Account Breaches</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-medias-effect-on-personal-and-professional-relationships-before-leaving/"><u>Social Media's Effect on Personal and Professional Relationships Before Leaving</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-planning-for-your-facebook-image-overhaul/"><u>Strategic Planning for Your Facebook Image Overhaul</u></a></li>
-<li><a href="https://facebook.techidaily.com/trapped-in-online-purgatory-discover-why/"><u>Trapped in Online Purgatory? Discover Why</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-resolving-starfield-game-crashes-on-windows/"><u>Troubleshooting Guide: Resolving Starfield Game Crashes on Windows</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-first-edition-top-notch-user-centric-game-edit-apps/"><u>[Updated] First Edition Top-Notch, User-Centric Game Edit Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revealing-historys-best-anime-openers/"><u>[Updated] Revealing History's Best Anime Openers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-kinemaster-android-an-in-depth-gaming-guide-review/"><u>2024 Approved KineMaster Android An In-Depth Gaming Guide Review</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cyberpunk-2077-pc-optimization-how-to-enable-gpu-usage-under-windows-nvidia/"><u>Cyberpunk 2077 PC Optimization - How to Enable GPU Usage Under Windows nVidia</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-facebooks-interactive-features-are-they-valuable/"><u>Exploring Facebook's Interactive Features: Are They Valuable?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-death-spell-your-informations-end/"><u>Facebook's Death Spell: Your Information's End</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-oversight-board-will-soon-announce-ruling-on-trumps-ban/"><u>Facebook's Oversight Board Will Soon Announce Ruling on Trump's Ban</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-from-oneplus-12-by-drfone-android/"><u>How to Bypass FRP from OnePlus 12?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-xiaomi-14-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Xiaomi 14</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-navigating-snapchats-hidden-story-arena/"><u>In 2024, Navigating Snapchat's Hidden Story Arena</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-the-ultimate-windows-11-guide-to-recording-games/"><u>In 2024, The Ultimate Windows 11 Guide to Recording Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/pioneering-nft-trends-with-meta-drops-short-term-support-test/"><u>Pioneering NFT Trends with Meta Drop's Short-Term Support Test</u></a></li>
+<li><a href="https://facebook.techidaily.com/preventing-unexpected-logouts-from-virtual-reality-platforms/"><u>Preventing Unexpected Logouts From Virtual Reality Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/young-users-in-the-spotlight-balancing-digital-consumption-with-real-life-experiences-as-suggested-by-facebook/"><u>Young Users in the Spotlight: Balancing Digital Consumption with Real-Life Experiences, as Suggested by Facebook</u></a></li>
 </ul></div>
 

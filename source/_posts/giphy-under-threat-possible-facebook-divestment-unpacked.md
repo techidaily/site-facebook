@@ -1,7 +1,7 @@
 ---
 title: Giphy Under Threat? Possible Facebook Divestment Unpacked
-date: 2024-09-24T17:34:30.167Z
-updated: 2024-09-28T17:31:01.429Z
+date: 2024-09-27T16:27:50.405Z
+updated: 2024-10-03T21:33:33.668Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,16 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  After all, there's nothing stopping Facebook from putting caps or removing access to its full library of GIFs for its competitors.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Meta's Appeal to Keep Giphy
@@ -52,10 +58,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 ![Facebook Rebrands to Meta Featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/10/Facebook-Rebrands-to-Meta-Featured.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Since Giphy's acquisition,[the Facebook group of companies has been renamed to Meta](https://www.makeuseof.com/facebook-announced-meta-its-new-brand/) . However, its subsidiaries like Facebook, WhatsApp, and Instagram maintain their original branding.
@@ -71,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
  Notably, this is the first time the CMA has ever fined a company for “consciously refusing to report all the required information.” Aside from this, there was also an additional fine of $700,000 due to Meta's swapping of its Chief Compliance Officer twice without prior approval.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Giphy Plays a Key Role in a Healthy Social Media Ecosystem
@@ -100,22 +106,18 @@ thumbnail: https://thmb.techidaily.com/0cc7e321d1f451639d7bc59d3e2137f7bee3ef2e1
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-how-to-make-viral-buzz-on-facebook/"><u>[New] In 2024, How to Make Viral Buzz on Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigating-the-lands-marketplace-of-product-sponsored-youtube-content-for-2024/"><u>[New] Navigating the Lands Marketplace of Product-Sponsored YouTube Content for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-elevate-your-experience-top-5-facebook-revelations/"><u>[Updated] 2024 Approved Elevate Your Experience Top 5 Facebook Revelations</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-guiding-principles-for-speech-conversion-in-google-translate/"><u>[Updated] 2024 Approved Guiding Principles for Speech Conversion in Google Translate</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-transforming-realities-into-engaging-documentaries-through-scriptwriting/"><u>2024 Approved Transforming Realities Into Engaging Documentaries Through Scriptwriting</u></a></li>
-<li><a href="https://facebook.techidaily.com/agile-operations-top-lite-android-workhorses/"><u>Agile Operations: Top Lite Android Workhorses</u></a></li>
-<li><a href="https://facebook.techidaily.com/amazons-legal-action-against-10k-facebook-groups-administration/"><u>Amazon's Legal Action Against 10K Facebook Groups Administration</u></a></li>
-<li><a href="https://facebook.techidaily.com/digital-responsibility-a-marketers-guide-to-mindful-sharing/"><u>Digital Responsibility: A Marketer's Guide to Mindful Sharing</u></a></li>
-<li><a href="https://app-tips.techidaily.com/empowering-citizen-devs-the-rising-influence-in-crafting-business-software-solutions-zdnet/"><u>Empowering Citizen Devs: The Rising Influence in Crafting Business Software Solutions | ZDNet</u></a></li>
-<li><a href="https://extra-information.techidaily.com/identifying-optimal-frame-rate-in-slow-motion-film-production/"><u>Identifying Optimal Frame Rate in Slow Motion Film Production</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-chronology-of-success-best-release-schedule/"><u>In 2024, Chronology of Success Best Release Schedule</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/insiders-pick-of-advanced-audio-software-a-vtubers-guide-for-2024/"><u>Insider's Pick of Advanced Audio Software A Vtuber's Guide for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/leveraging-tech-for-discovering-the-latest-online-circles/"><u>Leveraging Tech for Discovering the Latest Online Circles</u></a></li>
-<li><a href="https://facebook.techidaily.com/maximize-your-network-5-ways-to-use-social-media-careers/"><u>Maximize Your Network: 5 Ways to Use Social Media Careers</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-social-vanishing-utilizing-archive-feature-wisely/"><u>Strategic Social Vanishing: Utilizing Archive Feature Wisely</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasked-truths-rethinking-the-significance-of-facebook-reports/"><u>Unmasked Truths: Rethinking the Significance of Facebook Reports</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapps-legal-standoff-against-privacy-rule-impact/"><u>WhatsApp's Legal Standoff Against Privacy Rule Impact</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-small-companys-guide-to-the-safest-online-chat-services-for-2024/"><u>[New] Small Company's Guide to the Safest Online Chat Services for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-beginning-zoom-video-calls-on-android-devices/"><u>[Updated] Beginning Zoom Video Calls on Android Devices</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/becoming-a-youtube-pro-the-ultimate-picture-post-guide-for-2024/"><u>Becoming a YouTube Pro The Ultimate Picture Post Guide for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/discover-the-finest-freebie-html-programs-elite-picks-for-windows-users/"><u>Discover the Finest Freebie HTML Programs: Elite Picks for Windows Users</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-top-3-cheap-fast-internet-plans-for-gamers/"><u>In 2024, Top 3 Cheap, Fast Internet Plans for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/instagram-live-silent-mode-unlocked/"><u>Instagram Live Silent Mode Unlocked</u></a></li>
+<li><a href="https://facebook.techidaily.com/simplifying-personal-details-change-age-and-date-of-birth-on-facebook/"><u>Simplifying Personal Details: Change Age & Date of Birth on Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smooth-shots-stronger-impressions-fixing-iphone-video-instability-for-2024/"><u>Smooth Shots, Stronger Impressions Fixing iPhone Video Instability for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tailoring-trailers-to-amplify-your-youtube-channels-earnings-for-2024/"><u>Tailoring Trailers to Amplify Your YouTube Channel's Earnings for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-pathway-to-professionalism-elevating-your-social-media-impact-on-fb/"><u>The Pathway to Professionalism: Elevating Your Social Media Impact on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-scale-analyzing-facebooks-influence-on-expat-groups/"><u>The Social Scale: Analyzing Facebook's Influence on Expat Groups</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-viewing-guide-watching-the-matrix-trilogy-sequentially/"><u>The Ultimate Viewing Guide: Watching The Matrix Trilogy Sequentially</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ultimate-app-review-with-az-screenshotter-for-2024/"><u>Ultimate App Review with AZ Screenshotter for 2024</u></a></li>
 </ul></div>
 

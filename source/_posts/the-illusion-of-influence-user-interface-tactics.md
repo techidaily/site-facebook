@@ -1,7 +1,7 @@
 ---
 title: "The Illusion of Influence: User Interface Tactics"
-date: 2024-09-17T18:54:04.470Z
-updated: 2024-09-21T16:47:48.286Z
+date: 2024-09-29T23:28:34.849Z
+updated: 2024-10-03T17:26:26.269Z
 tags:
   - facebook
 categories:
@@ -61,6 +61,13 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
@@ -85,20 +92,6 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Twitter Privacy Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Twitter-Privacy-Settings.png)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Framing
 
  A huge part of dark patterns concerns how options are presented. Companies tell you the positives of letting them sell your data to advertisers, but not the negatives. And they tell you all the reasons you shouldn't increase your privacy options, but none of the privacy concerns you might face without them.
@@ -111,13 +104,6 @@ The site lists 12 types of dark patterns to watch out for:
 
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Reward and Punishment
 
  You've probably seen that both Facebook and Google warn that you'll lose functionality if you protect your data. At the time of the report, when Facebook presented you with the option to delete your account, it failed to point out that you can download all your data first.
@@ -126,6 +112,13 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Facebook GDPR Flowchart](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-GDPR-Flowchart.png)
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
  Once you've spent the time to walk through all these choices, are you really going to decide to hit the**Delete Account** button at the end? Probably not, and Facebook knows it. The site doesn't want to make it easy for you to make a decision that it doesn't like.
@@ -133,6 +126,13 @@ The site lists 12 types of dark patterns to watch out for:
  Companies tell you all the time that you'll get better service if you share your data. They warn that if you turn off data sharing, you might miss out on some features, get fewer personalized recommendations, and similar. You're warned with a stick when you stray off the "recommended" path.
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Forced Action and Timing
 
@@ -160,6 +160,13 @@ The site lists 12 types of dark patterns to watch out for:
 
  You can also help efforts that expose dark patterns, in order to make more people aware of them. Consumer Reports runs a website called[Dark Pattern Tipline](https://darkpatternstipline.org/sightings) , where you can report dark patterns you spot and browse what others have shared. It's worth looking through the catalog to spot these issues in case you're confronted with them yourself.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Dark Patterns Are Rough for Privacy
 
  Companies want you to part with your data so they can take advantage of it. If you won't do that willingly, they'll use every psychological trick they have to manipulate you into giving your info away. You must be vigilant to spot, and avoid falling for, these tactics.
@@ -179,5 +186,16 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/everaging-youtubes-cc-for-high-quality-video-creation/"><u>[New] Leveraging YouTube’s CC for High-Quality Video Creation</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-premium-tools-for-6-undetectable-viewings/"><u>[Updated] 2024 Approved Premium Tools for 6 Undetectable Viewings</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-experience-next-level-media-craftsmanship-install-xp-maker/"><u>[Updated] Experience Next-Level Media Craftsmanship Install XP Maker</u></a></li>
+<li><a href="https://app-tips.techidaily.com/beyond-point-and-click-the-transformation-of-ui-with-generative-artificial-intelligence/"><u>Beyond Point-and-Click: The Transformation of UI with Generative Artificial Intelligence</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/how-to-validate-your-xml-documents-effective-techniques-and-tips/"><u>How To Validate Your XML Documents: Effective Techniques & Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/reel-into-weekend-shopping-bliss-via-facebook-shops/"><u>Reel Into Weekend Shopping Bliss via Facebook Shops</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-secret-mastering-the-art-of-social-network-returns/"><u>Unlock the Secret: Mastering the Art of Social Network Returns</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-challenges-india-over-privacy-threatening-tech-regulations/"><u>WhatsApp Challenges India Over Privacy-Threatening Tech Regulations</u></a></li>
+<li><a href="https://facebook.techidaily.com/will-digital-footprints-ever-fade-away/"><u>Will Digital Footprints Ever Fade Away?</u></a></li>
+</ul></div>
 

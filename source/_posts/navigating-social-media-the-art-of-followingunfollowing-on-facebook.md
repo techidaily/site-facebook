@@ -1,7 +1,7 @@
 ---
 title: "Navigating Social Media: The Art of Following/Unfollowing on Facebook"
-date: 2024-09-14T21:11:39.568Z
-updated: 2024-09-21T23:17:44.050Z
+date: 2024-09-26T19:16:44.620Z
+updated: 2024-10-03T19:36:15.789Z
 tags:
   - facebook
 categories:
@@ -51,6 +51,13 @@ There are two reasons to use the follow feature.
 
 ![facebook follow](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-follow.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  You automatically follow all your friends. Anyone else, you need to follow manually.
 
  To follow someone, go to their profile page and click on the three dots below the lower right-hand corner of the person's cover photo, then hit**Follow** .
@@ -65,6 +72,13 @@ There are two reasons to use the follow feature.
 
  Expand the dropdown menu, and you'll see four options:**Favorites** (if you want to add the person to your favorites list to their posts get priority in your news feed),**Edit Friend List** ,**Unfollow** , and**Unfriend** . You need to click on**Unfollow** .
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You See Who You're Following?
 
  You can see who you're following on your friends list. Go to your profile page and select the**Friends** tab.
@@ -75,6 +89,13 @@ There are two reasons to use the follow feature.
 
 ![facebook enable following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-enable-following.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  So, following other people is straightforward enough, but how do you let other people follow your profile and posts?
 
  You need to turn on the feature in Facebook's settings. Go to **Settings and Privacy > Settings > Public Posts > Who Can Follow Me** and select**Public** from the dropdown menu.
@@ -84,13 +105,6 @@ This same page contains three other settings you need to be aware of:
 * **Public Post Comments:** Decide whether you want to let random people comment on your public posts.
 * **Public Post Notifications:** Do you wish to receive notifications for actions taken by individuals who aren't your friend?
 * **Public Profile Info:** Some of your profile---such as your profile picture, cover image, and short bio---is always public. This setting restricts who can comment on it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What Do Your Facebook Followers See?
 
@@ -104,6 +118,13 @@ This same page contains three other settings you need to be aware of:
 
 ![facebook see following](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-see-following.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  To make the people you're following public knowledge, go back to **Settings and Privacy > Settings > Privacy** , then change the **Who can see the people, Pages, and lists you follow** setting to**Public** .
 
 ## How to See Who Follows You on Facebook
@@ -114,23 +135,9 @@ This same page contains three other settings you need to be aware of:
 
  When a new person follows you who is not already one of your friends, you will receive a notification.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Can You Remove Facebook Followers?
 
 ![facebook block](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/02/facebook-block.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  So far, so good? Great. Next, how do you get rid of people who you don't want to follow you anymore?
 
@@ -143,10 +150,10 @@ This same page contains three other settings you need to be aware of:
  If you just want to prevent someone from seeing your public content, choose**Block** . The person will not be able to see your timeline, tag you in posts or photos, invite you to groups, start a chat conversation with you, or add you as a friend. If the person has been abusive, choose**Report** . You can either report the person's whole profile or one individual post/comment.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Should You Use the Follow Feature on Facebook?
@@ -168,5 +175,26 @@ This same page contains three other settings you need to be aware of:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-pinnacle-camera-technology-the-best-reviewed/"><u>[New] Pinnacle Camera Technology – The Best Reviewed</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-sky-symphony-top-10-websites-presenting-dynamic-hdr-imagery-for-2024/"><u>[New] Sky Symphony - Top 10 Websites Presenting Dynamic HDR Imagery for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-secret-sleuths-guide-exploring-instagram-stories-without-profile-visibility-pcandroidios-for-2024/"><u>[New] The Secret Sleuth's Guide Exploring Instagram Stories without Profile Visibility [PC/Android/iOS] for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-5-leading-edge-4k-tvs-for-gamers/"><u>2024 Approved 5 Leading Edge 4K TVs for Gamers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-building-a-brand-on-fb-covers-that-speak-volumes/"><u>2024 Approved Building a Brand on FB Covers that Speak Volumes</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-unique-ways-to-personalize-your-phones-physical-appearance-why-stop-at-just-the-screen/"><u>Exploring Unique Ways to Personalize Your Phone’s Physical Appearance: Why Stop at Just the Screen?</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-power-of-pixels-income-ideas-on-fbig/"><u>Harnessing Power of Pixels: Income Ideas on FB/IG</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-correctly-repair-a-troublesome-device-manager-code-28-glitch-in-windows-systems/"><u>How to Correctly Repair a Troublesome 'Device Manager Code #28' Glitch in Windows Systems</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-in-a-flash-streamlined-techniques-for-cutting-images-online/"><u>In 2024, In a Flash Streamlined Techniques for Cutting Images Online</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-top-5-nubia-red-magic-9-proplus-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Nubia Red Magic 9 Pro+ Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-path-to-safer-digital-conversations-with-gmail-and-outlooks-2fa/"><u>Navigating the Path to Safer Digital Conversations with Gmail & Outlook's 2FA</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-no-budget-no-problem-best-free-mod-video-editors/"><u>New 2024 Approved No Budget, No Problem Best Free MOD Video Editors</u></a></li>
+<li><a href="https://facebook.techidaily.com/rediscover-humanity-six-good-arguments-for-losing-facebook/"><u>Rediscover Humanity: Six Good Arguments for Losing Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-medias-new-frontier-in-relationship-building-with-facebook/"><u>Social Media's New Frontier in Relationship Building with Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-safeguard-your-social-media-passphrase-on-facebook/"><u>Steps to Safeguard Your Social Media Passphrase on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-privacy-e2ee-adoption-in-fb-messaging/"><u>The Future of Privacy: E2EE Adoption in FB Messaging</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-framework-of-facebooks-core-mechanics/"><u>Unveiling the Framework of Facebook's Core Mechanics</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapps-judicial-bid-to-protect-user-privacy-from-new-rules/"><u>WhatsApp's Judicial Bid to Protect User Privacy From New Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-facebooks-recorded-browsing-isnt-for-everyone/"><u>Why Facebook's Recorded Browsing Isn't for Everyone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "National Perspective on Platforms: Harmful Trends Prevail"
-date: 2024-09-22T16:47:26.906Z
-updated: 2024-09-28T16:24:22.768Z
+date: 2024-09-28T18:11:09.279Z
+updated: 2024-10-03T16:03:12.559Z
 tags:
   - facebook
 categories:
@@ -45,10 +45,10 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
  Well, most of them. Answers were split among Black respondents, with 42 percent saying social media is more divisive, versus 40 percent saying that it's unifying.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Does Social Media Affect Your Life?
@@ -62,19 +62,19 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 ![mobile learning apps for kids featured](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/android-learning-kid-tablet.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  38 percent of parents say their children are getting the same amount of screen time as they did before, and only four percent say their screen time has declined.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Help Make Social Media Great Again
@@ -100,20 +100,18 @@ thumbnail: https://thmb.techidaily.com/64bcba811dca59ee452fde50283dc6af9516c46b5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-free-audio-to-text-conversion/"><u>[New] 2024 Approved Free Audio to Text Conversion</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-facebook-instream-ads-how-to-setup-and-evaluate-facebook-instream-ad/"><u>[Updated] 2024 Approved Facebook Instream Ads | How to Setup and Evaluate Facebook Instream Ad</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-screenshot-simplicity-compatible-free-capturing-apps-for-windows/"><u>[Updated] In 2024, Screenshot Simplicity Compatible Free Capturing Apps for Windows</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-smartphone-solutions-top-voice-changer-applications-for-2024/"><u>[Updated] Smartphone Solutions Top Voice Changer Applications for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/4-ways-to-customize-your-facebook-feed/"><u>4 Ways to Customize Your Facebook Feed</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-poco-m6-pro-4g-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Poco M6 Pro 4G System Crash Issue | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150184377-alert-recover-your-compromised-fb-profile-now/"><u>Alert: Recover Your Compromised FB Profile Now</u></a></li>
-<li><a href="https://facebook.techidaily.com/anticipating-trouble-fbs-future-headline-outlook/"><u>Anticipating Trouble: FB's Future Headline Outlook</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-boundaries-metamating-at-facebook/"><u>Breaking Boundaries: Metamating at Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/buy-in-to-obtain-metas-paid-verification-badge/"><u>Buy-In to Obtain Meta's Paid Verification Badge</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-successful-facebook-gatherings-tips-and-tricks/"><u>Crafting Successful Facebook Gatherings: Tips & Tricks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-superstar-sites-for-crafting-unique-handmade-boxes/"><u>In 2024, Superstar Sites for Crafting Unique, Handmade Boxes</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/in-2024-top-6-free-talking-stock-photo-sites/"><u>In 2024, Top 6 Free Talking Stock Photo Sites</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-vivo-x90s-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719148119499-transform-your-online-presence-seamless-fb-posts-and-notes-movement/"><u>Transform Your Online Presence: Seamless Fb Posts & Notes Movement!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-find-the-right-aspect-ratio-for-your-video/"><u>[New] 2024 Approved Find The Right Aspect Ratio For Your Video</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-for-videos-vlc-or-mx/"><u>[Updated] Best for Videos VLC or MX?</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-top-group-video-chat-apps-for-video-conferences-and-meetings/"><u>2024 Approved Top Group Video Chat Apps For Video Conferences and Meetings</u></a></li>
+<li><a href="https://facebook.techidaily.com/engage-with-ease-listen-to-spotifys-mini-player-on-facebook/"><u>Engage with Ease: Listen to Spotify’s Mini Player on Facebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/error-code-80cu70057-in-call-of-duty-black-ops-cold-war-masterful-fix-steps/"><u>Error Code 80Cu70057 in Call of Duty Black Ops Cold War - Masterful Fix Steps</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-users-turn-to-expensive-oculus-for-account-restoration/"><u>Facebook Users Turn to Expensive Oculus for Account Restoration</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-to-do-if-your-iphone-xs-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>In 2024, What to do if your iPhone XS has bad ESN or blacklisted IMEI?</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-your-digital-footprint-under-wraps/"><u>Keeping Your Digital Footprint Under Wraps</u></a></li>
+<li><a href="https://facebook.techidaily.com/outwitting-virtual-vultures-top-schemes-to-dodge/"><u>Outwitting Virtual Vultures: Top Schemes to Dodge</u></a></li>
+<li><a href="https://common-error.techidaily.com/searching-for-hidden-tool-to-manage-screen-contrast/"><u>Searching for Hidden Tool to Manage Screen Contrast</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-security-a-comparative-analysis/"><u>Social Media Security: A Comparative Analysis</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unleash-the-full-potential-of-your-chatbot-mastering-effective-prompt-crafting/"><u>Unleash the Full Potential of Your ChatBot: Mastering Effective Prompt Crafting</u></a></li>
+<li><a href="https://facebook.techidaily.com/world-class-uk-teams-banish-instagram-and-youtube-over-hate-speech/"><u>World-Class UK Teams Banish Instagram and YouTube over Hate Speech</u></a></li>
 </ul></div>
 

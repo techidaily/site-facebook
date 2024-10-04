@@ -1,7 +1,7 @@
 ---
 title: "The Struggle: Amazon Vs. The Ruling Factions in Thousands of FB Groups"
-date: 2024-09-20T17:32:07.273Z
-updated: 2024-09-21T16:27:25.975Z
+date: 2024-09-30T16:52:39.132Z
+updated: 2024-10-03T17:53:46.249Z
 tags:
   - facebook
 categories:
@@ -38,9 +38,23 @@ thumbnail: https://thmb.techidaily.com/dc048da36d4f74b4d171bfb2845fad3bf8d729c04
 
  One of the groups targeted by the lawsuit filed in Seattle's King County Superior Court is the Amazon Product Review group, which had more than 43,000 members before Meta deleted it in early 2022.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Amazon Filed the Case
 
 ![man writing on white paper](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/07/case.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Although Amazon has deployed 12,000 employees and an AI-driven algorithm to detect fraudsters on its site, it doesn't find them all.
 
@@ -49,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/dc048da36d4f74b4d171bfb2845fad3bf8d729c04
  Therefore, Amazon intends to use the information that this case uncovers to "identify bad actors and remove fake reviews" that both Facebook and Amazon have failed to catch.
 
  The issue of fake reviews is also being investigated in the UK, according to a[statement by the UK Competition and Markets Authority](https://www.gov.uk/government/news/cma-to-investigate-amazon-and-google-over-fake-reviews) . In the past,[Amazon has blamed social media companies for fake reviews](https://www.makeuseof.com/amazon-blames-fake-reviews-on-social-media/) .
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Are Fake Reviews a Big Problem?
 
@@ -61,10 +82,10 @@ thumbnail: https://thmb.techidaily.com/dc048da36d4f74b4d171bfb2845fad3bf8d729c04
  There are several[tools to help detect fake reviews](https://www.makeuseof.com/fake-reviews-amazon/) . But the problem continues to persist.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Amazon Might Never Succeed in Eliminating All Fake Reviews
@@ -86,5 +107,18 @@ thumbnail: https://thmb.techidaily.com/dc048da36d4f74b4d171bfb2845fad3bf8d729c04
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-boosting-windows-file-audit-with-precision/"><u>[Updated] In 2024, Boosting Windows File Audit with Precision</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/10-advanced-techniques-to-master-with-canva-designer/"><u>10 Advanced Techniques to Master with Canva Designer</u></a></li>
+<li><a href="https://facebook.techidaily.com/expatry-at-a-crossroads-the-good-and-the-bad-of-online-networks/"><u>Expatry at a Crossroads – The Good and The Bad of Online Networks</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-notorious-aw-snap-glitch-on-your-chrome-browser/"><u>Fixing the Notorious Aw, Snap! Glitch on Your Chrome Browser</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-vivo-v29-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Vivo V29 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-keep-a-clutter-free-space-with-facebook-integrated-tools/"><u>How to Keep a Clutter-Free Space with Facebook Integrated Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/picture-perfect-panoramas-creating-a-facebook-photo-mosaic/"><u>Picture Perfect Panoramas: Creating a Facebook Photo Mosaic</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-turmoil-facebook-and-friends-down-for-a-day/"><u>Tech Turmoil: Facebook & Friends Down for a Day</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-2022-podcasts-compendium-reviews-and-insights/"><u>The Ultimate 2022 Podcasts Compendium: Reviews & Insights</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-razer-barracuda-headset-mic-fixes-for-windows-1110-compatibility/"><u>Troubleshooting Razer Barracuda Headset Mic: Fixes for Windows 11/10 Compatibility</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unleash-your-potential-with-these-top-12-pc-clickers-for-2024/"><u>Unleash Your Potential with These Top 12 PC Clickers for 2024</u></a></li>
+</ul></div>
 

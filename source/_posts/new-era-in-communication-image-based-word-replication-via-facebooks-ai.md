@@ -1,7 +1,7 @@
 ---
 title: "New Era in Communication: Image-Based Word Replication via Facebook's AI"
-date: 2024-09-20T20:05:06.225Z
-updated: 2024-09-21T22:24:09.091Z
+date: 2024-09-30T20:03:15.289Z
+updated: 2024-10-03T20:16:54.960Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/b21b5439f80b1a102ace85a9da59aeae7943c3aff
 
  Related: [Google Translate Mobile Features You Must Know](https://www.makeuseof.com/tag/google-translate-mobile-features/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Faces Aren't the Only Thing That Can Be Deepfaked
 
  We're hearing about this research because Facebook hopes that by publishing it, there will be even more research and discussion on deepfake text attacks.
@@ -65,18 +72,20 @@ thumbnail: https://thmb.techidaily.com/b21b5439f80b1a102ace85a9da59aeae7943c3aff
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-harnessing-the-full-spectrum-of-vsco-filters/"><u>[New] Harnessing the Full Spectrum of VSCO Filters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-permanent-shutdown-guide-to-youtube-shorts-feature/"><u>[Updated] Permanent Shutdown Guide to YouTube Shorts Feature</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-broadcasting-solo-youtube-live-from-your-smartphone/"><u>2024 Approved Broadcasting Solo YouTube Live From Your Smartphone</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-rights-upheld-by-german-mandate-against-facebooks-whatsapp-user-surveillines/"><u>Data Rights Upheld by German Mandate Against Facebook's WhatsApp User Surveillines</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-top-podcasts-the-ultimate-22-rankings-revealed/"><u>Decoding Top Podcasts - The Ultimate '22 Rankings Revealed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/defining-the-metaverse-the-visionaries-behind-its-creation/"><u>Defining the Metaverse - The Visionaries Behind Its Creation</u></a></li>
+<li><a href="https://facebook.techidaily.com/demystifying-facebook-help-center-options/"><u>Demystifying Facebook Help Center Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/discover-effective-mobile-settings-to-boost-fb-usage/"><u>Discover Effective Mobile Settings to Boost Fb Usage</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-global-communication-with-mondlys-brilliance/"><u>Embrace Global Communication with Mondly's Brilliance</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-access-your-apple-iphone-13-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Access Your Apple iPhone 13 When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-in-2024-wondering-how-to-create-a-stunning-intro-video-with-kinemaster-here-are-the-simple-steps-to-use-kinemaster-to-design-your-intro-video-in-simple-/"><u>New In 2024, Wondering How to Create a Stunning Intro Video with KineMaster? Here Are the Simple Steps to Use KineMaster to Design Your Intro Video in Simple Steps</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722999463495-smooth-gaming-experience-achieved-cyberpunk-2077s-lag-and-stuttering-solved/"><u>Smooth Gaming Experience Achieved: Cyberpunk 2077'S Lag and Stuttering Solved</u></a></li>
+<li><a href="https://article-posts.techidaily.com/superior-cameras-for-stop-motion-shorts/"><u>Superior Cameras for Stop Motion Shorts</u></a></li>
+</ul></div>
 

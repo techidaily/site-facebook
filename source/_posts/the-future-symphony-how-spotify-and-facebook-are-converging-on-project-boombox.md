@@ -1,7 +1,7 @@
 ---
 title: "The Future Symphony: How Spotify & Facebook Are Converging on Project Boombox"
-date: 2024-09-17T00:16:50.983Z
-updated: 2024-09-21T22:35:18.382Z
+date: 2024-09-28T18:51:31.211Z
+updated: 2024-10-03T20:53:42.517Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a
 
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Audio Is Exploding, But Is It Here to Stay?
 
  Facebook is making an aggressive push towards audio as it races to compete with Clubhouse, an app for audio-based chatrooms. Other platforms are creating their own versions of Clubhouse as well, with Twitter launching Spaces and even LinkedIn working on Live Audio Rooms.
@@ -57,12 +64,17 @@ thumbnail: https://thmb.techidaily.com/930df60c591e2a9cac7ea1bfd12cb488be55e4b8a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-asmr-app-selection-guide-for-phones-for-2024/"><u>[New] ASMR App Selection Guide for Phones for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-screen-space-the-art-of-close-up-views/"><u>[New] Maximizing Screen Space The Art of Close Up Views</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-evaluation-of-fb-video-shapes/"><u>[Updated] In 2024, Evaluation of FB Video Shapes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/best-3-oppo-f23-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Oppo F23 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/computer-comedy-past-present-and-protective-web-ventures/"><u>Computer Comedy: Past, Present, and Protective Web Ventures</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/how-to-optimize-solo-streaming-with-flawless-execution-for-2024/"><u>How to Optimize Solo Streaming with Flawless Execution for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-social-media-silence-is-fb-offline/"><u>Navigating Social Media Silence - Is FB Offline?</u></a></li>
+<li><a href="https://facebook.techidaily.com/reimagining-connection-meta-the-next-chapter-of-facebooks-journey/"><u>Reimagining Connection: Meta - The Next Chapter of Facebook's Journey</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-facebooks-verification-mechanism/"><u>Unveiling Facebook's Verification Mechanism</u></a></li>
+<li><a href="https://facebook.techidaily.com/who-protects-you-more-meta-or-facebook-for-virtual-escapades/"><u>Who Protects You More? Meta or Facebook for Virtual Escapades?</u></a></li>
+</ul></div>
 

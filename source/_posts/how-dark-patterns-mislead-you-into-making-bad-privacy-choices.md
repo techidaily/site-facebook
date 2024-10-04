@@ -1,7 +1,7 @@
 ---
 title: How Dark Patterns Mislead You Into Making Bad Privacy Choices
-date: 2024-09-18T01:27:07.438Z
-updated: 2024-09-21T16:18:54.179Z
+date: 2024-09-26T16:26:22.958Z
+updated: 2024-10-03T16:34:31.942Z
 tags:
   - facebook
 categories:
@@ -57,6 +57,13 @@ The site lists 12 types of dark patterns to watch out for:
 
  The big problem with these tactics is that humans aren't well-equipped to deal with them. We have psychological biases, called heuristics, that make us more likely to respond in certain ways. And when companies take advantage of those heuristics, many people argue that they're taking away our agency as consumers.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Companies Trick You Into Giving Up Your Privacy
 
 ![Decevied by Design Table](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Decevied-by-Design-Table.png)
@@ -64,6 +71,13 @@ The site lists 12 types of dark patterns to watch out for:
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
  Let's look at a few of the ways that sites commonly trick you into giving up more private information than you intend to, illustrated in a 2018 report on this topic titled[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf) . It examines several tactics used by Facebook, Google, and Microsoft to trick you into selecting certain options.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Default Settings
 
@@ -98,10 +112,16 @@ The site lists 12 types of dark patterns to watch out for:
  The California Consumer Privacy Act (CCPA) specifically prevents using dark patterns in this manner. In the state, using these deceptive tricks with "the substantial effect of subverting or impairing a consumer's choice to opt-out" is not allowed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Reward and Punishment
@@ -112,13 +132,6 @@ The site lists 12 types of dark patterns to watch out for:
 
 ![Facebook GDPR Flowchart](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/Facebook-GDPR-Flowchart.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Image Credit:[Deceived by Design](https://fil.forbrukerradet.no/wp-content/uploads/2018/06/2018-06-27-deceived-by-design-final.pdf)
 
  Once you've spent the time to walk through all these choices, are you really going to decide to hit the**Delete Account** button at the end? Probably not, and Facebook knows it. The site doesn't want to make it easy for you to make a decision that it doesn't like.
@@ -126,6 +139,13 @@ The site lists 12 types of dark patterns to watch out for:
  Companies tell you all the time that you'll get better service if you share your data. They warn that if you turn off data sharing, you might miss out on some features, get fewer personalized recommendations, and similar. You're warned with a stick when you stray off the "recommended" path.
 
  Microsoft, at least, includes a statement that Windows would still work at full capacity even if you didn't share your data.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Forced Action and Timing
 
@@ -138,13 +158,6 @@ The site lists 12 types of dark patterns to watch out for:
  Facebook is especially bad at this; it locked people out of their profiles until they accepted the GDPR updated documentation. Most people would be in a rush to get back into their Facebook account, so they would hastily accept the default options. See how these problems feed into each other?
 
  Don't be surprised to see companies use the same tactics that get you to spend more money, like counting down the hours until a limited-time promotion ends, to goad you into giving up more of your data.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Fighting Back Against Dark Patterns
 
@@ -179,5 +192,26 @@ The site lists 12 types of dark patterns to watch out for:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-capturing-the-perfect-snap-on-pexels/"><u>[New] 2024 Approved Capturing the Perfect Snap on Pexels</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-leveraging-tiktok-to-mirror-your-best-features/"><u>[Updated] 2024 Approved Leveraging TikTok to Mirror Your Best Features</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-download-x-recorder-for-pc/"><u>[Updated] In 2024, Download X-Recorder for PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-newcomers-playbook-for-youtube-success-setup-and-revenue-generation-for-2024/"><u>[Updated] The Newcomer's Playbook for Youtube Success Setup & Revenue Generation for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-transforming-industries-via-vr/"><u>[Updated] Transforming Industries via VR</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/1722999642112-arcadegeddon-now-flawlessly-operational-pc-gaming-experience-enhanced/"><u>Arcadegeddon Now Flawlessly Operational - PC Gaming Experience Enhanced!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/customize-your-windows-11-lock-screen-duration-tips-and-tricks/"><u>Customize Your Windows 11 Lock Screen Duration: Tips & Tricks</u></a></li>
+<li><a href="https://fox-that.techidaily.com/effortless-entry-into-recovery-a-beginners-manual-for-ipad-troubleshooting/"><u>Effortless Entry Into Recovery: A Beginner's Manual for iPad Troubleshooting</u></a></li>
+<li><a href="https://facebook.techidaily.com/eluding-eyes-friend-list-anonymity-tips/"><u>Eluding Eyes: Friend List Anonymity Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dawn-in-my-digital-history/"><u>Facebook's Dawn in My Digital History</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-from-your-iphone-se-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID From Your iPhone SE</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-realme-c53-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Realme C53 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/initiating-permanent-exclusion-from-facebook-services/"><u>Initiating Permanent Exclusion From Facebook Services</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-unveils-a-major-obstacle-for-facebook-analytics/"><u>IOS 14.5 Unveils a Major Obstacle for Facebook Analytics</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-sheryls-tenure-at-facebook/"><u>Navigating Success: Sheryl's Tenure at Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/retrieving-former-facebook-interactions/"><u>Retrieving Former Facebook Interactions</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-hiatus-taking-a-break-from-facebook-friends/"><u>Social Hiatus: Taking a Break From Facebook Friends</u></a></li>
+<li><a href="https://facebook.techidaily.com/solve-your-facebook-dilemmas-addressing-11-common-issues/"><u>Solve Your FaceBook Dilemmas: Addressing 11 Common Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-functionality-and-operation-of-sleep-mode-in-messenger-kids/"><u>The Functionality & Operation of Sleep Mode in Messenger Kids</u></a></li>
+</ul></div>
 

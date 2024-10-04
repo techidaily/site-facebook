@@ -1,7 +1,7 @@
 ---
 title: "Initiating Stronger Privacy: Facebook's Messenger & Instagram End-to-End Encryption Launched."
-date: 2024-09-16T21:53:53.856Z
-updated: 2024-09-21T21:22:54.640Z
+date: 2024-09-29T20:44:05.951Z
+updated: 2024-10-03T21:59:29.987Z
 tags:
   - facebook
 categories:
@@ -38,6 +38,13 @@ thumbnail: https://thmb.techidaily.com/da30e1ebb9eb5ab25a7effb66e03594a33963d6af
 
  Aside from expanding end-to-end encryption, Facebook also said that it's giving users more control over their disappearing messages. Users in the chat can choose from a wider range of times when it comes to how long it takes for new messages to disappear. You'll now be able to choose from anywhere between five seconds and 24 hours.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Adapts to Growing Security Awareness Among Users
 
  Many messaging apps, such as Signal, WhatsApp, and Telegram already use end-to-end encryption. More users are prioritizing their security, and that means limiting the communication apps they use to those that offer end-to-end encryption.
@@ -59,12 +66,23 @@ thumbnail: https://thmb.techidaily.com/da30e1ebb9eb5ab25a7effb66e03594a33963d6af
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-avoid-stress-with-these-easy-to-follow-ipad-screen-saving-methods/"><u>[New] 2024 Approved Avoid Stress with These Easy-to-Follow iPad Screen Saving Methods</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-superior-image-quality-the-power-of-youtubes-av1-settings/"><u>[New] Superior Image Quality The Power of YouTube's AV1 Settings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-from-the-inside-out-engaging-100-self-affirming-instagram-captions/"><u>[Updated] From the Inside Out Engaging 100 Self-Affirming Instagram Captions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-lava-yuva-3-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Lava Yuva 3? Fixed | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-analysis-beneath-the-surface-of-fb-invites/"><u>In-Depth Analysis: Beneath the Surface of FB Invites</u></a></li>
+<li><a href="https://facebook.techidaily.com/instantaneously-transforming-your-virtual-visage-facebook-update/"><u>Instantaneously Transforming Your Virtual Visage: Facebook Update</u></a></li>
+<li><a href="https://facebook.techidaily.com/is-e-commerce-buying-history-permanent/"><u>Is E-Commerce Buying History Permanent?</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-message-formatting-emphasizing-text-with-bold-and-italics/"><u>Mastering Message Formatting: Emphasizing Text with Bold & Italics</u></a></li>
+<li><a href="https://games-able.techidaily.com/mastery-in-joining-your-controller-to-a-device/"><u>Mastery in Joining Your Controller to a Device</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726227099055-mp3-movavi/"><u>MP3形式の最適な圧縮技術について学ぶ: Movaviでの手引き</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/optimizing-video-playback-for-engaged-audiences/"><u>Optimizing Video Playback for Engaged Audiences</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-potential-of-full-control-facebook-and-the-future-of-oculus-go-rooting/"><u>The Potential of Full Control: Facebook and the Future of Oculus Go Rooting</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-amazons-legal-stance-on-10k-fb-groups/"><u>Unveiling Amazon’s Legal Stance on 10K FB Groups</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-the-ultimate-list-of-windows-compatible-daws-a-guide-to-the-best-free-and-paid-options-for-2024/"><u>Updated The Ultimate List of Windows-Compatible DAWs A Guide to the Best Free & Paid Options for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/verified-identities-meta-gold-or-twitters-silver-tie/"><u>Verified Identities: Meta Gold or Twitter's Silver Tie?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zero-price-text-enhancements-for-vfx-artists/"><u>Zero-Price Text Enhancements for VFX Artists</u></a></li>
+</ul></div>
 

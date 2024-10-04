@@ -1,7 +1,7 @@
 ---
 title: Navigate Friend's Coordinates via FB Chat
-date: 2024-09-23T16:40:14.409Z
-updated: 2024-09-28T16:15:58.722Z
+date: 2024-09-30T18:02:44.423Z
+updated: 2024-10-03T16:10:51.921Z
 tags:
   - facebook
 categories:
@@ -51,10 +51,10 @@ Close
  Once you reach your destination or you want to stop sharing your live location, click on**Stop Sharing Location** .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Share a Pinned Location in Facebook Messenger
@@ -74,19 +74,19 @@ Follow these simple instructions to send a pinned location:
 ![Pinning a Specific Location By Dragging In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/6-Pinning-a-Specific-Location-By-Dragging-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Searching a Specific Location To Pin In Facebook Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/7-Searching-a-Specific-Location-To-Pin-In-Facebook-Messenger.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -94,16 +94,10 @@ Close
  This is how you can easily share your live location or pin a random one easily. After sharing your location, make a habit of[deleting your Facebook location history](https://www.makeuseof.com/tag/view-delete-location-history-facebook/) so that Facebook won't be able to spy on you for too long.
 
 <!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Share Live Location or Pin It Through Facebook Messenger
@@ -127,22 +121,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-reels-a-prodigys-blueprint/"><u>[New] 2024 Approved Instagram Reels A Prodigy’s Blueprint</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-expand-your-viewing-realm-on-youtube-platforms/"><u>[New] Expand Your Viewing Realm on YouTube Platforms</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/iggles-in-the-garage-ingenious-funny-video-concepts-for-youtubers/"><u>[New] Giggles in the Garage Ingenious Funny Video Concepts for YouTubers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-front-seat-pleasures-not-so-sporty-top-ten/"><u>[New] In 2024, Front Seat Pleasures Not So Sporty Top Ten</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-mastering-income-via-youtube-channel/"><u>[Updated] 2024 Approved Mastering Income via YouTube Channel</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-immersive-worlds-vrs-impact-on-entertainment-for-2024/"><u>[Updated] Immersive Worlds VR's Impact on Entertainment for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unleashing-creativity-converting-youtube-videos-into-captivating-gifs/"><u>[Updated] In 2024, Unleashing Creativity Converting YouTube Videos Into Captivating GIFs</u></a></li>
-<li><a href="https://facebook.techidaily.com/decoding-metas-enhanced-commitment-to-user-privacy/"><u>Decoding Meta’s Enhanced Commitment to User Privacy</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebook-papers-unraveled-public-perception-and-reactions/"><u>Facebook Papers Unraveled: Public Perception and Reactions</u></a></li>
-<li><a href="https://facebook.techidaily.com/frontiersmen-of-tech-clashes-the-elite-six/"><u>Frontiersmen of Tech Clashes: The Elite Six</u></a></li>
-<li><a href="https://facebook.techidaily.com/innovative-whispers-tracing-social-medias-future-wrist-tech/"><u>Innovative Whispers: Tracing Social Media's Future Wrist Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/investigating-this-years-most-puzzling-tech-failures/"><u>Investigating This Year's Most Puzzling Tech Failures</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/no-fog-only-clarity-gopro-lens-care-essentials-for-2024/"><u>No Fog, Only Clarity GoPro Lens Care Essentials for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719151110559-revolutionize-content-sharing-facebook-storages-adaptable-across-services/"><u>Revolutionize Content Sharing: Facebook Storages Adaptable Across Services</u></a></li>
-<li><a href="https://windows11.techidaily.com/revolutionize-your-pc-clear-tpm-from-windows-11/"><u>Revolutionize Your PC: Clear TPM From Windows 11</u></a></li>
-<li><a href="https://facebook.techidaily.com/tailoring-your-online-presence-effective-follow-and-unfollow-techniques-on-facebook/"><u>Tailoring Your Online Presence: Effective Follow & Unfollow Techniques on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-complete-explorers-compendium-for-fb-activity-tracking-and-reporting/"><u>The Complete Explorer's Compendium for FB Activity Tracking and Reporting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-avoiding-malpractice-how-to-safely-grow-a-million-fanbase/"><u>[New] Avoiding Malpractice How to Safely Grow a Million Fanbase</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-essential-techniques-for-funimate-video-extraction/"><u>[New] In 2024, Essential Techniques for Funimate Video Extraction</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-maximizing-mobile-video-quality-in-tweets-for-2024/"><u>[Updated] Maximizing Mobile Video Quality in Tweets for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-uncomplicated-techniques-reverse-playback-in-vlc-media-player-for-2024/"><u>[Updated] Uncomplicated Techniques Reverse Playback in VLC Media Player for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-effortless-audio-transfer-on-iphone-pick-top-6-tools-to-convert-youtube/"><u>2024 Approved Effortless Audio Transfer on iPhone Pick Top 6 Tools to Convert YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dawn-of-auditory-enhanced-ar-apps/"><u>Dawn of Auditory-Enhanced AR Apps</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-the-social-media-soundtrack-with-spotify-integration/"><u>Enhancing the Social Media Soundtrack with Spotify Integration</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723206758917-errtoomanyredirects-get-instant-solutions-now/"><u>ERR_TOO_MANY_REDIRECTS? Get Instant Solutions Now!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/euro-truck-simulator-2-troubleshooting-pc-crash-issues-solved/"><u>Euro Truck Simulator 2: Troubleshooting PC Crash Issues - Solved</u></a></li>
+<li><a href="https://facebook.techidaily.com/pause-or-play-trumps-platform-prospects/"><u>Pause or Play? Trump's Platform Prospects</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/simplify-your-workflow-10-essential-timecode-calculators-for-filmmakers/"><u>Simplify Your Workflow 10 Essential Timecode Calculators for Filmmakers</u></a></li>
+<li><a href="https://facebook.techidaily.com/status-syndicate-which-platform-claims-the-highest-honor-meta-or-twitter/"><u>Status Syndicate: Which Platform Claims the Highest Honor, Meta or Twitter?</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-digital-frontier-understanding-the-6-differences-in-metaverse-and-vr/"><u>The Digital Frontier: Understanding the 6 Differences in Metaverse & VR</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explorers-blueprint-recording-reviewing-every-fb-engagement-you-have-made/"><u>The Explorer's Blueprint: Recording, Reviewing Every Fb Engagement You Have Made</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-insiders-tactic-blocking-all-comments-on-fb/"><u>The Insider's Tactic: Blocking All Comments on FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-unseen-criteria-in-your-social-media-feed/"><u>The Unseen Criteria in Your Social Media Feed</u></a></li>
+<li><a href="https://facebook.techidaily.com/tune-into-music-effortlessly-spotify-and-the-miniplayer-in-facebook-app/"><u>Tune Into Music Effortlessly - Spotify and the Miniplayer in Facebook App</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ultimate-guide-to-the-most-effective-body-cams-on-the-market/"><u>Ultimate Guide to the Most Effective Body Cams on the Market</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveil-the-14-typical-traps-on-facebook-first-aid/"><u>Unveil the 14 Typical Traps on Facebook First Aid</u></a></li>
 </ul></div>
 

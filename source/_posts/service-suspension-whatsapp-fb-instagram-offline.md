@@ -1,7 +1,7 @@
 ---
 title: "Service Suspension: WhatsApp, FB, Instagram Offline"
-date: 2024-09-26T16:59:45.529Z
-updated: 2024-09-28T16:36:01.898Z
+date: 2024-10-02T17:12:52.768Z
+updated: 2024-10-03T21:35:54.190Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  It also appears that it isn't just regular Facebook users that face issues with the service. A tweet from Jane Manchun Wong revealed that Facebook's internal services are suffering, too.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Down? Is Facebook Up Yet?
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  The good news is that this is a perfectly fixable issue, albeit one that might take a little time to get back up and running after such a massive shutdown.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Is Facebook Down Due to a Cyber Attack or Security Breach?
@@ -77,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  At this time, nothing points to Facebook's downtime as an attack or security incident. The information taken from Facebook's BGP configuration (which is openly accessible) shows what the issue is. Cloudfare CEO Matthew Prince tweeted his consensus with the situation, advising that "Nothing we're seeing related to the Facebook services outage suggests it was an attack."
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Hashtag #facebookdown Trends on Twitter
@@ -90,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
  Trending alongside the #facebookdown hashtag is, somewhat amusingly, the hashtag #deletefacebook, with the outage coming on the back of a tumultuous day for the social network. Prior to going offline, a[Facebook whistleblower delivered a damning exposé](https://www.makeuseof.com/who-is-facebook-whistleblower-60-minutes-interview-claims/) on the company, alleging that Facebook always puts the company before the public, amongst other issues.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## When Will Facebook Come Back Online?
@@ -117,22 +117,20 @@ thumbnail: https://thmb.techidaily.com/e9bfba9f2cfc27dda62a022203f7d3d74b3b40178
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-guide-to-the-best-video-editors-not-on-youtoo/"><u>[New] 2024 Approved The Ultimate Guide to the Best Video Editors Not on YouToo</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-gopros-finest-fights-black-battery-showdown-with-session/"><u>[New] GoPro's Finest Fights Black Battery Showdown with Session</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-effortless-screen-saving-on-android-devices/"><u>[New] In 2024, Effortless Screen Saving on Android Devices</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-mastering-steams-switch-pro-controllers/"><u>[Updated] 2024 Approved Mastering Steam's Switch Pro Controllers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-launch-your-first-sporty-video-channel-on-apple-systems-for-2024/"><u>[Updated] How to Launch Your First Sporty Video Channel on Apple Systems for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-unlock-the-power-of-discord-broadcasts-for-2024/"><u>[Updated] Unlock the Power of Discord Broadcasts for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-deep-dive-into-metas-enhanced-user-privacy-measures/"><u>A Deep Dive Into Meta’s Enhanced User Privacy Measures</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-era-image-inspired-style-evolution-via-facebooks-ai/"><u>A New Era: Image-Inspired Style Evolution via Facebook's AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-step-by-step-approach-hd-media-mastery-in-fb-mobile/"><u>A Step-by-Step Approach: HD Media Mastery in Fb Mobile</u></a></li>
-<li><a href="https://facebook.techidaily.com/analyzing-the-cost-benefit-of-meta-verified-users/"><u>Analyzing the Cost-Benefit of Meta Verified Users</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-feeds-six-implications-of-facebooks-emerging-metaverse/"><u>Beyond the Feeds: Six Implications of Facebook's Emerging Metaverse</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-investment-facebooks-5-million-venture-in-writer-focused-platforms/"><u>Big Investment: Facebook's $5 Million Venture in Writer-Focused Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bridges-discover-shared-experienences-via-polls/"><u>Building Bridges: Discover Shared Experienences via Polls</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-memorable-facebook-events-from-scratch/"><u>Building Memorable Facebook Events From Scratch</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-google-frp-lock-on-xiaomi-redmi-k70e-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Xiaomi Redmi K70E Devices</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-watch-avchd-mts-video-on-motorola-defy-2-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to watch AVCHD MTS video on Motorola Defy 2?</u></a></li>
-<li><a href="https://windows11.techidaily.com/streamlining-microsoft-edge-by-disabling-redundant-features-techniques-and-tips/"><u>Streamlining Microsoft Edge by Disabling Redundant Features - Techniques and Tips</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-prime-mobile-hd-video-playback-androids-top-picks/"><u>[New] Prime Mobile HD Video Playback Android's Top Picks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-scheduling-effective-zoom-conversations-on-android-platforms-for-2024/"><u>[Updated] Scheduling Effective Zoom Conversations on Android Platforms for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/complete-guide-to-installing-samsung-960-evo-ssd-drivers-on-your-windows-machine/"><u>Complete Guide to Installing Samsung 960 EVO SSD Drivers on Your Windows Machine</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-enterprise-strategies-with-top-5-platforms/"><u>Elevating Enterprise Strategies with Top 5 Platforms</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/enhance-your-business-with-the-latest-update-of-abbyy-flexicapture-cloud/"><u>Enhance Your Business with the Latest Update of ABBYY FlexiCapture Cloud</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/image-innovation-unveiling-secrets-of-photo-enhancement/"><u>Image Innovation Unveiling Secrets of Photo Enhancement</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-tecno-camon-20-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Tecno Camon 20 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-no-cost-mkv-cutting-solutions-our-top-10-picks/"><u>New 2024 Approved No-Cost MKV Cutting Solutions Our Top 10 Picks</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-fixes-and-expert-advice-dealing-with-the-elusive-winhttpdll-problem/"><u>Quick Fixes and Expert Advice: Dealing With the Elusive Winhttp.dll Problem</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-consequences-of-incorporating-meta-ai-on-instagramfacebook/"><u>The Consequences of Incorporating Meta AI on Instagram/Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/track-us-target-ads-datas-new-frontier/"><u>Track Us, Target Ads: Data's New Frontier</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-photos-into-stereoscopic-delights-for-fb/"><u>Transforming Photos Into Stereoscopic Delights for FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unseen-sharing-features-how-to-access-privately-shared-fb-vids/"><u>Unseen Sharing Features: How to Access Privately Shared FB Vids</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-void-key-apps-cease-to-function/"><u>Virtual Void: Key Apps Cease to Function</u></a></li>
 </ul></div>
 

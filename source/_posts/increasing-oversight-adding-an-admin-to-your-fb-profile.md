@@ -1,7 +1,7 @@
 ---
 title: "Increasing Oversight: Adding an Admin to Your FB Profile"
-date: 2024-09-19T20:17:49.792Z
-updated: 2024-09-21T16:32:38.344Z
+date: 2024-09-27T23:01:07.799Z
+updated: 2024-10-03T20:48:19.517Z
 tags:
   - facebook
 categories:
@@ -48,6 +48,13 @@ You actually have five roles to choose from on a Facebook page:
 
  If you are using Facebook in your desktop browser, follow these steps to make someone an admin on your page...
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Go to Your Facebook Page
 
  Sign in to Facebook and open the page that needs a new admin. On the**Manage Page** menu, you’ll see lots of options, a first indication of how much power and freedom you have as the page’s manager.
@@ -55,6 +62,13 @@ You actually have five roles to choose from on a Facebook page:
  Scroll down to**Settings** , where you can customize features on a deeper level.
 
 ![Manage Page Tools on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/manage-page-tools-on-facebook.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Click on Settings
 
@@ -65,10 +79,17 @@ You actually have five roles to choose from on a Facebook page:
 ![Page Settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/page-settings-on-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Click on Page Roles
@@ -87,20 +108,6 @@ You actually have five roles to choose from on a Facebook page:
 
 ![Setting Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/setting-page-roles-on-facebook.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Edit an Admin’s Page Role to Remove Them
 
  If you want to replace or remove your extra administrator, find them in the**Existing Page roles** and click the**Edit** button beside their name.
@@ -108,13 +115,6 @@ You actually have five roles to choose from on a Facebook page:
  This opens a window where you can change their role or delete them completely from your team. To add someone else as an admin, just go through Facebook’s role assigning process again.
 
 ![Existing Page Roles on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/existing-page-roles-on-facebook.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Add an Admin to Your Facebook Page on Mobile
 
@@ -127,6 +127,13 @@ Android and iOS platforms differ slightly as well.
 ![Facebook Page Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-page-settings.png)
 
 ![Facebook Add Person to Page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-add-person-to-page.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Facebook Choose Role for Person](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/09/facebook-choose-role-for-person.png)
 
@@ -157,5 +164,20 @@ The app usually asks for your password to reach the final steps.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-continuous-streams-perfect-loops-of-youtube-videos-for-tvs-for-2024/"><u>[New] Continuous Streams Perfect Loops of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-top-offline-mobile-world-choose-the-ultimate-game-for-fun-for-2024/"><u>[New] Top Offline Mobile World - Choose the Ultimate Game for Fun for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-uncover-your-photos-true-colors-with-picart/"><u>[Updated] Uncover Your Photo's True Colors with PicArt</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/25plus-best-practices-for-crafting-witty-metaverse-visual-jokes/"><u>25+ Best Practices for Crafting Witty Metaverse Visual Jokes</u></a></li>
+<li><a href="https://facebook.techidaily.com/decluttering-tips-for-social-media-savvy/"><u>Decluttering Tips for Social Media Savvy</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-changes-to-home-and-activity-tabs-on-fb/"><u>Decoding Changes to Home and Activity Tabs on Fb</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-discourse-analysis-negative-impact-dominant/"><u>Digital Discourse Analysis: Negative Impact Dominant</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-virtual-cosmos-is-facebook-a-major-player/"><u>Dissecting the Virtual Cosmos: Is Facebook a Major Player?</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-virtual-bonds-the-impact-of-fb-expat-circles/"><u>Dissecting Virtual Bonds: The Impact of FB Expat Circles</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/fast-fix-better-bass-effortlessly-upgrade-to-the-newest-nahimic-audio-drivers/"><u>Fast Fix, Better Bass: Effortlessly Upgrade to the Newest Nahimic Audio Drivers</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/guia-abrangente-para-executar-midias-vob-no-sistema-operacional-windows-ou-macos-12-maneiras-simples-e-eficientes/"><u>Guia Abrangente Para Executar Mídias VOB No Sistema Operacional Windows Ou macOS: 12 Maneiras Simples E Eficientes</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/guide-to-effortlessly-moving-all-your-android-apps-onto-another-phone-or-tablet/"><u>Guide to Effortlessly Moving All Your Android Apps Onto Another Phone or Tablet</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/understanding-the-basics-a-comprehensive-guide-to-mp3-technology/"><u>Understanding the Basics: A Comprehensive Guide to MP3 Technology</u></a></li>
+</ul></div>
 

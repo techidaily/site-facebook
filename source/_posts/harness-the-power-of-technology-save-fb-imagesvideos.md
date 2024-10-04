@@ -1,7 +1,7 @@
 ---
 title: "Harness the Power of Technology: Save Fb Images/Videos"
-date: 2024-09-15T20:05:21.034Z
-updated: 2024-09-22T01:05:52.893Z
+date: 2024-09-27T22:52:38.951Z
+updated: 2024-10-03T18:34:16.613Z
 tags:
   - facebook
 categories:
@@ -37,6 +37,13 @@ thumbnail: https://thmb.techidaily.com/de25cad762d1b1da1023e95cc7ce6ed0cc716ab65
 
  However, to download your friends' Facebook photos, their[Facebook photo privacy settings](https://www.makeuseof.com/tag/facebook-photo-privacy-settings-need-know/) will need to allow this feature.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Download Facebook Albums
 
  If you want to download a Facebook album from your own profile, Facebook has a simple method to do that. Again, you don't need any third-party downloader apps for this. However, you'll need to use Facebook on the web since mobile apps don't let you download albums.
@@ -47,6 +54,14 @@ Follow these steps to download your Facebook album:
 2. Go to**Photos > Albums** .  
 ![Facebook's album page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-albums-page-web.jpg)
 3. Open the album that you want to download.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 4. In the top-right corner, click the**three-dot icon** and select**Download album** .  
 ![Downloading an album on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/download-facebook-album.jpg)
 5. Next, select**Continue** .
@@ -78,6 +93,13 @@ Follow these steps to download your Facebook album:
 ![Facebook information download page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/facebook-photo-download-settings-page.jpg)
 5. After that, click**Submit Request** at the bottom.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  After submitting the request, Facebook will take you back to the**Download your information** page, indicating you have a pending request.
 
  Facebook will take some time to get the ZIP file ready, depending on how many photos and videos you have on Facebook. Once it's done, you will get a notification to download it from**Available Files** .
@@ -85,10 +107,10 @@ Follow these steps to download your Facebook album:
  Download and unzip the file to see all of your posts and images, with albums as sub-folders.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Which Is the Best Facebook Photo Downloader App?
@@ -119,10 +141,10 @@ Here's how to use it:
  There are lots of other sites that work the same as FDown. Now that you can save Facebook videos, you might want to go back and search for old videos you liked.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Other Facebook Download Tools
@@ -144,5 +166,20 @@ Here's how to use it:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-amazons-trendy-treasures-the-must-have-tiktok-finds-of-2023/"><u>[New] 2024 Approved Amazon's Trendy Treasures - The Must-Have TikTok Finds of 2023</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-enabledisable-picture-in-picture-with-safari-on-ios-ipad-for-2024/"><u>[New] Enable/Disable Picture-in-Picture with Safari on iOS, iPad for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-swift-systems-simplified-screen-capture-procedures-dell/"><u>[New] Swift Systems Simplified Screen Capture Procedures (Dell)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/airborne-ingenuity-sections/"><u>Airborne Ingenuity Sections</u></a></li>
+<li><a href="https://facebook.techidaily.com/fix-for-inaccessible-verification-codes-on-social-media-platforms-fb/"><u>Fix for Inaccessible Verification Codes on Social Media Platforms (FB)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-elitebook-x360-1030-g2-latest-system-updates-and-drivers/"><u>HP EliteBook X360 1030 G2: Latest System Updates and Drivers</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-a18-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo A18 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/ms-pc-manager-woes-in-windows-heres-help/"><u>MS PC Manager Woes in Windows? Here's Help</u></a></li>
+<li><a href="https://android-frp.techidaily.com/reviving-your-logitech-g230-headset-microphone-a-comprehensive-troubleshooting-guide/"><u>Reviving Your Logitech G230 Headset Microphone: A Comprehensive Troubleshooting Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sites-converging-facebook-meets-instagram/"><u>Social Sites Converging: Facebook Meets Instagram</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-subtle-seduction-of-compromising-your-data/"><u>The Subtle Seduction Of Compromising Your Data</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-4-tricks-for-finding-exciting-online-communities/"><u>Top 4 Tricks for Finding Exciting Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-drives-the-desire-to-reinvent-instagram/"><u>What Drives the Desire to Reinvent Instagram?</u></a></li>
+</ul></div>
 

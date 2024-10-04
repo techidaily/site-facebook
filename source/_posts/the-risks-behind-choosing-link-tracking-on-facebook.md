@@ -1,7 +1,7 @@
 ---
 title: The Risks Behind Choosing Link Tracking on Facebook
-date: 2024-09-17T20:33:52.448Z
-updated: 2024-09-21T16:47:43.187Z
+date: 2024-09-29T21:22:47.447Z
+updated: 2024-10-03T16:32:05.589Z
 tags:
   - facebook
 categories:
@@ -33,6 +33,13 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
 
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Facebook's Link History Feature Works
 
  Every time you tap on a link within the Facebook app, which leads you to a webpage, the app logs it and stores it for 30 days, enabling you to revisit it later if you need to. Link History has its own dedicated section in the app, similar to how you can view your browsing history in[web browsers like Chrome](https://www.makeuseof.com/chrome-alternatives-to-browse-in-unique-ways/) .
@@ -42,13 +49,6 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
  Enabling Link History allows Meta to track the sites you visited through the Facebook app in the last 30 days. And by doing so, it's able to deliver targeted ads across its apps and services, including Instagram and Threads (both owned by Meta).
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Check if You've Opted In to Facebook's Link History
 
@@ -62,28 +62,29 @@ thumbnail: https://thmb.techidaily.com/e773ad143d0e6a181e98946175694e64ba11aabb2
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -107,13 +108,6 @@ Close
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Close
 
  In the same menu, you'll also find the option to clear your link history if you don't want to disable it altogether.
@@ -133,5 +127,24 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-capture-and-conquer-speedy-photos-on-windows-11/"><u>[Updated] Capture & Conquer Speedy Photos on Windows 11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/audacitys-blueprint-for-high-fidelity-sound-recording/"><u>Audacity's Blueprint for High-Fidelity Sound Recording</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/clearing-up-display-preferences-save-error/"><u>Clearing Up Display Preferences Save Error</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-engagement-best-post-time/"><u>Facebook Engagement: Best Post Time</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/free-online-converter-transform-avi-files-into-high-quality-aac-audio-streaming/"><u>Free Online Converter: Transform AVI Files Into High-Quality AAC Audio Streaming</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/how-to-choose-the-right-mesh-network-a-deep-dive-into-the-features-of-tp-link-deco-p9-revealed/"><u>How to Choose the Right Mesh Network: A Deep Dive Into the Features of TP-Link Deco P9 Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/invasion-of-privacy-detecting-unauthorized-fb-access/"><u>Invasion of Privacy? Detecting Unauthorized FB Access</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-memories-alive-not-social-media-presence-post-death-options/"><u>Keeping Memories Alive, Not Social Media Presence - Post-Death Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/masked-engagement-for-discreet-facebook-groups/"><u>Masked Engagement for Discreet Facebook Groups</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-is-bringing-back-trumps-facebook-and-instagram-accounts/"><u>Meta Is Bringing Back Trump's Facebook and Instagram Accounts</u></a></li>
+<li><a href="https://facebook.techidaily.com/personal-info-paradox-how-much-can-you-really-share/"><u>Personal Info Paradox: How Much Can You Really Share?</u></a></li>
+<li><a href="https://facebook.techidaily.com/setting-strict-rules-to-govern-online-communities/"><u>Setting Strict Rules to Govern Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-untagging-regain-control-over-your-facebook-presence/"><u>Strategic Untagging: Regain Control Over Your Facebook Presence</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-common-issues-with-remote-procedure-calls-solutions-inside/"><u>Troubleshooting Common Issues with Remote Procedure Calls – Solutions Inside</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-onikuma-microphone-issues-now-resolved/"><u>Troubleshooting Guide: Fixing Onikuma Microphone Issues - Now Resolved!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-the-xinput13dll-error-methods-to-restore-file-integrity/"><u>Troubleshooting the xinput1_3.dll Error: Methods to Restore File Integrity</u></a></li>
+<li><a href="https://driver-error.techidaily.com/usb-composite-device-an-overview-of-older-technology-fixes-solved/"><u>USB Composite Device - An Overview of Older Technology Fixes [SOLVED]</u></a></li>
+</ul></div>
 

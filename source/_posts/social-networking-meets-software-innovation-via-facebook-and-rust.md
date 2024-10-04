@@ -1,7 +1,7 @@
 ---
 title: Social Networking Meets Software Innovation via Facebook and Rust
-date: 2024-09-21T17:01:40.779Z
-updated: 2024-09-28T17:02:44.366Z
+date: 2024-09-26T21:23:41.775Z
+updated: 2024-10-03T22:45:39.611Z
 tags:
   - facebook
 categories:
@@ -35,10 +35,10 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
  Facebook has long been a booster of the Rust language. It initially used Rust for its internal source control tool in 2016\. Following the new announcement about the Rust Foundation, Facebook is reportedly upping its internal developer support for Rust during 2021\. As well as having different teams throughout the company coding in Rust, the social networking giant has a "dedicated Rust team" responsible for the growth of, and contribution toward, Rust projects---as well as overall engagement with Rust's developer community.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Embracing Rust
@@ -60,22 +60,17 @@ thumbnail: https://thmb.techidaily.com/bc2d4277b292ae7f5948b4f932bd10c3a9f77d53f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/he-complete-guide-to-earnings-via-video-ads-on-youtube-for-2024/"><u>[New] The Complete Guide to Earnings via Video Ads on YouTube for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-selections-5-fast-screen-recorders-for-2024/"><u>[Updated] Elite Selections 5 Fast Screen Recorders for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/accessing-most-recent-videos-on-fb/"><u>Accessing Most Recent Videos on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/apples-vision-for-technology-not-chasing-after-virtual-space/"><u>Apple's Vision for Technology: Not Chasing After Virtual Space</u></a></li>
-<li><a href="https://facebook.techidaily.com/astonishing-ai-translates-single-word-to-varied-text-styles/"><u>Astonishing AI Translates Single Word to Varied Text Styles</u></a></li>
-<li><a href="https://facebook.techidaily.com/averting-misunderstandings-on-web-during-health-emergenenas/"><u>Averting Misunderstandings on Web During Health Emergenenas</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719150513382-awaiting-judgement-social-media-governance-board-vs-trump-ban/"><u>Awaiting Judgement: Social Media Governance Board Vs. Trump Ban</u></a></li>
-<li><a href="https://win-able.techidaily.com/bid-farewell-to-steam-problems-a-quick-solution-to-prevent-crashes/"><u>Bid Farewell to Steam Problems: A Quick Solution to Prevent Crashes</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/big-names-in-tech-shaping-the-future-of-ai/"><u>Big Names in Tech: Shaping the Future of AI</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-robust-online-defense-for-teens-on-fb/"><u>Building a Robust Online Defense for Teens on FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-deception-whos-behind-the-misinfo/"><u>Covid Deception: Who's Behind the Misinfo?</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-an-impactful-and-memorable-fb-image/"><u>Crafting an Impactful and Memorable FB Image</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/effortless-music-playlist-creation-for-youtube-anywhere-webmobile-for-2024/"><u>Effortless Music Playlist Creation for YouTube, Anywhere (Web/Mobile) for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/guide-to-resolving-windows-service-response-errors/"><u>Guide to Resolving Windows Service Response Errors</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-vivo-y100i-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Vivo Y100i to Other Android Devices? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-tecno-spark-go-2023-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Tecno Spark Go (2023) Phone</u></a></li>
-<li><a href="https://windows11.techidaily.com/solutions-to-reduce-cpu-consumption-fixing-dropbox-on-windows/"><u>Solutions to Reduce CPU Consumption: Fixing Dropbox on Windows</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-high-definition-playtime-best-hdmi-21-gaming-displays-ps5-compatible/"><u>[New] 2024 Approved High Definition Playtime Best HDMI 2.1 Gaming Displays [PS5 Compatible]</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-chuckles-and-cheers-top-tweets-saver-with-gif/"><u>[Updated] In 2024, Chuckles & Cheers Top Tweets Saver with GIF</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-designing-for-success-how-space-arrangement-boosts-work-performance/"><u>[Updated] In 2024, Designing for Success How Space Arrangement Boosts Work Performance</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-streamlining-youtube-content-onto-insta-feed-for-2024/"><u>[Updated] Streamlining YouTube Content Onto Insta Feed for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-maximizing-multi-display-with-ms-edges-pip/"><u>2024 Approved Maximizing Multi-Display with MS Edge's PIP</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-does-facebook-justify-permitting-duplicate-personal-profiles/"><u>How Does Facebook Justify Permitting Duplicate Personal Profiles?</u></a></li>
+<li><a href="https://facebook.techidaily.com/implementing-a-controlled-cycle-of-online-socializing/"><u>Implementing a Controlled Cycle of Online Socializing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-troubleshooting-airdrop-issues-iphoneipadmac-solutions/"><u>In 2024, Troubleshooting Airdrop Issues IPhone/iPad/Mac Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/large-internet-companies-face-backlash-facebook-most-feared/"><u>Large Internet Companies Face Backlash, Facebook Most Feared</u></a></li>
+<li><a href="https://facebook.techidaily.com/metas-delayed-strategy-understanding-the-push-to-2023-for-encryption/"><u>Meta's Delayed Strategy: Understanding the Push to 2023 for Encryption</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-demands-unbiased-platforms-in-freedom-of-expression-case/"><u>Trump Demands Unbiased Platforms in Freedom of Expression Case</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/why-is-my-chatgpt-account-blocked-understanding-the-4-main-reasons-with-remedies/"><u>Why Is My ChatGPT Account Blocked? Understanding the 4 Main Reasons with Remedies</u></a></li>
 </ul></div>
 

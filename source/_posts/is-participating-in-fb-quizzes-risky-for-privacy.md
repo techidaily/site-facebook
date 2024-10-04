@@ -1,7 +1,7 @@
 ---
 title: Is Participating in FB Quizzes Risky for Privacy?
-date: 2024-09-26T17:09:41.778Z
-updated: 2024-09-28T17:16:20.866Z
+date: 2024-09-29T20:03:37.623Z
+updated: 2024-10-03T18:05:28.627Z
 tags:
   - facebook
 categories:
@@ -31,22 +31,15 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 [The Better Business Bureau](https://www.bbb.org/article/scams/16992-bbb-scam-alert-bored-think-before-taking-that-facebook-quiz) issued a warning about these quizzes—and they have a good reason for it.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Cybersecurity Risks of Facebook Quizzes
 
 ![A man spying through binoculars with the Facebook logo over each lens.](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/man-staring-at-the-camera-through-binoculars-with-the-fb-logo-on-lenses.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  There's a big difference between many Facebook quizzes and harmless online tests. A safe, just-for-fun quiz might ask for favorites but doesn't ask for your name or any personal information. In contrast, quizzes you answer through a Facebook post are tied to your identity.
 
@@ -55,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  If you answer one of these quizzes as a Facebook post or comment, you give anyone on the internet access to your security question answers alongside your name. Hackers and scammers can use that information to break into your online, bank, and credit card accounts. This data could even be used to open accounts in your name and commit fraud or identity theft.
 
  These quizzes are[a form of phishing](https://www.makeuseof.com/biggest-security-threat-2023-phishing/) , a malicious hacking strategy that tricks you into giving away private information. You might know about phishing from spam emails you get once in a while, but it can appear on social media, too.
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## What to Do if You’ve Taken Facebook Quizzes
 
@@ -68,33 +68,26 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
  Try to remember if the quiz asked for your name, phone number, email, or any other personal contact information. This could be a sign that the quiz maker was trying to tie your answers to an identity.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Take Screenshots and Notes
 
 ![writing in a notepad and on a laptop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/07/open-notebook-laying-in-front-of-a-laptop.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  If the quiz you took asked for personal information or had you submit custom replies in a post or comment, bookmark it and take screenshots. Write down the username of the person who originally posted the quiz, too, although this is probably fake.
 
  Screenshot or write down your answers to the quiz next. If possible, delete your quiz response from the post. In most cases, this won't be possible and information might have already been gathered before you press "Submit".
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Report the Scam Quiz
 
@@ -105,6 +98,13 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
  You could warn your family and friends of the quiz, but don't share it in case someone clicks on it without reading your warning.
 
  Finally,[submit a report](https://www.identitytheft.gov/#/) to the Federal Trade Commission to alert them to a potential identity theft risk. This will help protect you and others from identity theft if the quiz gave away sensitive information to a fraudster or scammer. If you have an identity protection service or insurance plan, contact those representatives, as well.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Change Your Security Question Answers
 
@@ -133,19 +133,22 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-cutting-through-platform-barriers-sharing-tweets-videos-to-snapchat/"><u>[New] In 2024, Cutting Through Platform Barriers Sharing Tweets' Videos to Snapchat</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-understanding-adobe-storage-alternatives-explained/"><u>[New] Understanding Adobe Storage, Alternatives Explained</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-new-ways-to-make-money-on-facebook-and-instagram/"><u>5 New Ways to Make Money on Facebook and Instagram</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/best-ai-rap-voice-generators-you-should-try/"><u>Best AI Rap Voice Generators You Should Try</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-barriers-the-future-of-us-antitrust-policy/"><u>Breaking Down Barriers: The Future of U.S. Antitrust Policy</u></a></li>
-<li><a href="https://facebook.techidaily.com/bridging-conversations-across-platforms-whatsapp-and-fb-avatars/"><u>Bridging Conversations Across Platforms: WhatsApp & FB Avatars</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-the-code-to-authenticity-in-online-profiles/"><u>Cracking the Code to Authenticity in Online Profiles</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-content-and-cashflow-how-meta-boosts-money-making-reels/"><u>Creating Content and Cashflow: How Meta Boosts Money-Making Reels</u></a></li>
-<li><a href="https://discover-great.techidaily.com/fluide-interpolation-dimages-par-ia-amelioration-des-fps-et-transitions/"><u>Fluide Interpolation D'Images Par IA : Amélioration Des FPS Et Transitions</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-conquer-windows-10-a-mov-filming-masterclass/"><u>In 2024, Conquer Windows 10 A MOV Filming Masterclass</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-asus-rog-phone-7-ultimate-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Asus ROG Phone 7 Ultimate FRP In 3 Different Ways</u></a></li>
-<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo V30 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/unveiling-the-power-of-hugging-face-exploring-its-purpose-and-applications/"><u>Unveiling the Power of Hugging Face: Exploring Its Purpose & Applications</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-preserving-periscope-content-tips-from-the-pros/"><u>[New] Preserving Periscope Content Tips From the Pros</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-state-of-the-art-gaming-capture-systems-not-just-fbx-files/"><u>2024 Approved State-of-the-Art Gaming Capture Systems, Not Just FBX Files</u></a></li>
+<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-vivo-v30-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/explore-these-fantastic-free-roku-streaming-options/"><u>Explore These Fantastic Free Roku Streaming Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-for-the-modern-project-manager-unveiling-8-essentials/"><u>Facebook for the Modern Project Manager: Unveiling 8 Essentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-a-friendship-history-on-facebook/"><u>How to See a Friendship History on Facebook</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-from-apple-iphone-se-2020-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud From Apple iPhone SE (2020) Smoothly</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-epic-launcher-sign-in-on-pc/"><u>Mastering the Art of Epic Launcher Sign-In on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/renaissance-of-second-life-a-metaverse-perspective/"><u>Renaissance of Second Life: A Metaverse Perspective?</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-impact-us-sees-excess-negatives/"><u>Social Media Impact: US Sees Excess Negatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-future-of-project-management-unraveling-facebooks-8-functionalities/"><u>The Future of Project Management: Unraveling Facebook's 8 Functionalities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-facebook-tools-enhancing-teamwork-and-project-success/"><u>Top 8 Facebook Tools Enhancing Teamwork & Project Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-vr-platform-privacy-fb-vs-meta-insights/"><u>Understanding VR Platform Privacy: FB Vs. Meta Insights</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlock-the-power-of-cloud-gaming-expert-tips-and-tricks-using-xbox-game-pass-ultimate/"><u>Unlock the Power of Cloud Gaming: Expert Tips & Tricks Using Xbox Game Pass Ultimate</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/updated-in-2024-revealing-translation-methods-netflix-subtitle-software-comprehensive-guide/"><u>Updated In 2024, Revealing Translation Methods Netflix Subtitle Software Comprehensive Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-privacy-matters-more-than-followers-a-list-of-10-reasons-to-drop-facebook/"><u>Why Privacy Matters More Than 'Followers' - A List of 10 Reasons to Drop Facebook</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/window-warriors-fixed-wobbling-arrows-await/"><u>Window Warriors, Fixed Wobbling Arrows Await</u></a></li>
 </ul></div>
 

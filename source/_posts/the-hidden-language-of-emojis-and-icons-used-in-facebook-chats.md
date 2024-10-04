@@ -1,7 +1,7 @@
 ---
 title: The Hidden Language of Emojis & Icons Used in Facebook Chats
-date: 2024-09-14T20:25:23.787Z
-updated: 2024-09-21T23:31:05.771Z
+date: 2024-09-28T18:48:29.255Z
+updated: 2024-10-03T17:05:30.960Z
 tags:
   - facebook
 categories:
@@ -40,6 +40,13 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
 
  At this point, the recipient will see your message as soon as they open the Messenger app. But if they're not online, they may not be able to see it yet.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Filled Blue Circle + Check
 
 ![blue circle white tick](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/blue-circle-white-tick.jpg)
@@ -52,27 +59,33 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
 
 ![red hazard triangle](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/05/red-hazard-triangle.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A red triangle with an exclamation point should only appear if your message isn't sent due to an internet connection outage. It is arguably the least common Messenger symbol.
 
  A message should appear alongside the red triangle that says: "This message didn't send. Check your internet connection and click to try again." Avoid navigating away from the page until you[fix your unstable internet connection](https://www.makeuseof.com/tag/fix-slow-unstable-wi-fi-connection/) , or save a copy of your message offline to ensure your information is not lost.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Green Dot
 
 ![Facebook messenger green icons](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-green-icons.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  A green dot in the lower right corner of your contacts' pictures at the top indicates that they're online and available to chat.
 
@@ -81,10 +94,10 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
  However, you can also[change which Facebook friends can see you online](https://www.makeuseof.com/tag/decide-which-facebook-friends-see-you-online-and-which-dont-the-easy-way/) , which hides the activity status green dot from certain users.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Blue Dot
@@ -103,29 +116,29 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
 
  You can mute a chat in the Messenger app for as long as you want or use one of the default timings to unmute them when the chosen time elapses.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. The Lock Icon
 
 ![Facebook messenger lock icon](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/09/facebook-messenger-lock-icon-2.jpg)
 
- The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ The lock icon next to a chat means the conversation is secret and[end-to-end encrypted](https://www.makeuseof.com/what-is-end-to-end-encryption/) . Only you and the recipient can read your messages unless any of you decide to share them with others.
 
 ## How to Know if Someone Saw Your Facebook Message
 
 ![messenger message seen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/messenger-message-seen.png)
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If someone has seen your Facebook message on the Messenger app, a miniature, circular version of their profile picture should appear underneath the last message they read.
 
@@ -150,5 +163,26 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook.techidaily.com/stay-tuned-demystifying-the-factors-for-facebooks-longevity/"><u>'Stay Tuned': Demystifying the Factors for Facebook's Longevity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-maximizing-channel-potential-across-diverse-digital-venues/"><u>[New] 2024 Approved Maximizing Channel Potential Across Diverse Digital Venues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-monetization-contest-dailymovement-vs-youtubes-earnings-battleground/"><u>[New] 2024 Approved The Monetization Contest DailyMovement vs Youtube's Earnings Battleground</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-100-virtual-bicycle-escapades-to-experience/"><u>[New] Top 100 Virtual Bicycle Escapades to Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-low-cost-footage-source-directory/"><u>[Updated] In 2024, Essential Low-Cost Footage Source Directory</u></a></li>
+<li><a href="https://fox-http.techidaily.com/captivating-cinematic-experiences-exploring-top-6-genres/"><u>Captivating Cinematic Experiences Exploring Top 6 Genres</u></a></li>
+<li><a href="https://techtrends.techidaily.com/conquer-railroads-with-these-10-expert-tips-for-playing-subway-surfers/"><u>Conquer Railroads with These 10 Expert Tips for Playing Subway Surfers</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/experience-the-ultimate-bargain-get-apple-airtags-for-24-less-per-pack-during-walmarts-labor-day-sale-featured-by-zdnet/"><u>Experience the Ultimate Bargain: Get Apple AirTags for $24 Less per Pack During Walmart’s Labor Day Sale, Featured by ZDNET!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-honor-x50-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Honor X50 using Video Repair Utility?</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-swiftly-remove-shared-content-from-your-timeline/"><u>How to Swiftly Remove Shared Content From Your Timeline</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-xiaomi-redmi-13c-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Xiaomi Redmi 13C | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keeping-it-under-wraps-top-10-personal-disclosures-to-dodge/"><u>Keeping It Under Wraps: Top 10 Personal Disclosures to Dodge</u></a></li>
+<li><a href="https://facebook.techidaily.com/master-facebook-moderator-eliminating-online-chatter-from-your-post/"><u>Master Facebook Moderator: Eliminating Online Chatter From Your Post</u></a></li>
+<li><a href="https://facebook.techidaily.com/new-era-of-social-chat-for-facebook-users-announced/"><u>New Era of Social Chat for Facebook Users Announced</u></a></li>
+<li><a href="https://fox-that.techidaily.com/solutions-why-your-iphone-fails-to-vibrate-in-silentring-modes-top-8-troubleshooting-tips/"><u>Solutions: Why Your iPhone Fails to Vibrate in Silent/Ring Modes - Top 8 Troubleshooting Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-profile-picture-change-scheduling/"><u>Strategic Profile Picture Change Scheduling</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-facebook-papers-arent-as-damning-as-they-seem-heres-why/"><u>The Facebook Papers Aren't as Damning as They Seem. Here's Why</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-earning-cash-on-ig-and-fb/"><u>The Ultimate Guide: Earning Cash on IG and FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/unmasking-the-guardian-of-facebooks-secrets/"><u>Unmasking the Guardian of Facebook's Secrets</u></a></li>
+</ul></div>
 

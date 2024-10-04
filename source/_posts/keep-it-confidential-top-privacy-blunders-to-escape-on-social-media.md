@@ -1,7 +1,7 @@
 ---
 title: Keep It Confidential! Top Privacy Blunders to Escape on Social Media
-date: 2024-09-25T16:33:36.813Z
-updated: 2024-09-28T16:47:26.648Z
+date: 2024-09-30T21:59:15.058Z
+updated: 2024-10-03T23:40:16.900Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,16 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  This extends to posting photos of your home. Any photo of where you live gives people more puzzle pieces to help determine where you live, where the blind angles are around doors, windows with broken locks, etc.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Location Data
@@ -60,6 +66,13 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  It's also vital to keep an eye out for the "fun quizzes" that do the rounds on social media every so often. These ask you to answer questions such as where you went to school, what was the name of your first pet, etc.
 
  These types of questions are often used as security questions to protect your online accounts. Thankfully, these weak security questions are being phased out on many sites, but they're still a potential attack surface in many cases. Making these answers public could allow someone to break into your account;[stay safe from social engineering](https://www.makeuseof.com/tag/protect-8-social-engineering-attacks/) by keeping this info private.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Personal Complaints and Rants
 
@@ -82,10 +95,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  Do everyone (including yourself) a favor by never posting anything like that on social media. The few likes you might get aren't worth the damage to your reputation or even going to jail for committing a crime.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Expensive New Purchases
@@ -95,13 +108,6 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  The most important reason is practical: telling the world that you have a shiny new toy could result in some people wanting to steal it or take advantage of you in some way. An extreme case would be announcing that you won the lottery. If people think you're well-off because of what you can afford, they might look to use that to their advantage.
 
  Another effect worth considering is that these posts highlight a major[negative effect of social networks](https://www.makeuseof.com/tag/negative-effects-social-media/) : only seeing the highlights of everyone else's lives makes it easy to feel like yours isn't as amazing.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Personal Advice
 
@@ -117,18 +123,18 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 ![Bill Gates Fake Giveaway](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2014/07/06-Bill-Gates-Foolish-Comments-616x500.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Social networks are prime ways for companies to run giveaways and contests, mainly because it's so easy to click "share" and not think twice about it. While there are plenty of legitimate giveaways on Facebook and the like, you should think carefully before sharing them all of the time.
 
  If you constantly share giveaways, contests, and invites to Facebook games, you're probably annoying your friends. Even more importantly, some of these so-called[social media contests are actually scams in disguise](https://www.makeuseof.com/dont-trust-giveaway-contests-social-media/) . You could unknowingly spread malware or trick people into giving away sensitive data.
 
  To be on the safe side, you should be wary of all posts that heavily encourage sharing and ask for personal details.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 9\. Privileged Inside Information
 
@@ -145,10 +151,10 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
  So if you post something today and regret it two years down the road, you may be able to delete it from your account, but it can never be completely erased from the internet. A good rule of thumb is to never post or share anything that you wouldn't want to put on the front page of a newspaper.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148774/18498" target="_top" id="2148774">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148774" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148774/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What You Shouldn't Share Online
@@ -172,16 +178,22 @@ thumbnail: https://thmb.techidaily.com/0fabbd6ca39e068e6ff5a1dc76e09f39c4c023b26
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-interactive-tips-youtube-to-facebook-shareability/"><u>[New] 2024 Approved Interactive Tips YouTube to Facebook Shareability</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-tips-for-capturing-high-quality-gaming-sessions/"><u>[New] Tips for Capturing High-Quality Gaming Sessions</u></a></li>
-<li><a href="https://facebook.techidaily.com/dodging-lost-phones-authentication-trap-on-facebook/"><u>Dodging Lost Phone's Authentication Trap on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/reviving-erased-social-media-statuses-on-facebook/"><u>Reviving Erased Social Media Statuses on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/shift-gears-modify-facebook-url-for-professionalism/"><u>Shift Gears: Modify Facebook URL for Professionalism</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/six-offbeat-sources-for-customized-video-theme-elements-for-2024/"><u>Six Offbeat Sources for Customized Video Theme Elements for 2024</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-zte-blade-a73-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass ZTE Blade A73 5G FRP</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-vivo-y200e-5g-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Vivo Y200e 5G Phone</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/trasforma-immagini-jpeg-in-gif-gratuitamente-conversione-online-facile-con-movavi/"><u>Trasforma Immagini JPEG in GIF Gratuitamente - Conversione Online Facile Con Movavi</u></a></li>
-<li><a href="https://facebook.techidaily.com/unmasking-the-role-of-app-analytics-in-ad-personalization/"><u>Unmasking the Role of App Analytics in Ad Personalization</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-when-itel-a05s-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Itel A05s Has Black Screen of Death? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/log-off-decoding-instagrams-call-to-social-media-sabbatical/"><u>'Log Off': Decoding Instagram's Call to Social Media Sabbatical</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-eyecatch-protector-cam-cover-for-2024/"><u>[New] Eyecatch Protector Cam Cover for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-guidelines-to-affirm-your-youtube-status/"><u>[Updated] 2024 Approved Guidelines to Affirm Your YouTube Status</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-premier-8-safe-video-communication-programs-for-smbs/"><u>[Updated] In 2024, Premier 8 Safe Video Communication Programs for SMBs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-captivate-masses-social-media-strategies-for-youtube/"><u>2024 Approved Captivate Masses Social Media Strategies for YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/emerging-us-antitrust-legislation-taming-giants-in-tech/"><u>Emerging US Antitrust Legislation: Taming Giants in Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-the-legitimacy-of-facebooks-safety-mail-service-securityfb/"><u>Examining the Legitimacy of Facebook's Safety Mail Service @Security@fb</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-adobe-premiere-pro-vs-sony-vegas-pro-a-side-by-side-comparison/"><u>New In 2024, Adobe Premiere Pro vs Sony Vegas Pro A Side-by-Side Comparison</u></a></li>
+<li><a href="https://facebook.techidaily.com/portals-next-chapter-introducing-the-go-version/"><u>Portal's Next Chapter: Introducing the Go Version</u></a></li>
+<li><a href="https://facebook.techidaily.com/renaming-and-redesigning-your-social-media-hub/"><u>Renaming and Redesigning Your Social Media Hub</u></a></li>
+<li><a href="https://fox-that.techidaily.com/struggling-with-texting-on-your-iphone-here-are-10-essential-fixes/"><u>Struggling with Texting on Your iPhone? Here Are 10 Essential Fixes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/tech-platform-takes-legal-action-against-indian-information-rules/"><u>Tech Platform Takes Legal Action Against Indian Information Rules</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-metaverse-vs-virtual-reality-6-key-differences/"><u>The Metaverse Vs. Virtual Reality: 6 Key Differences</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-metaphorical-comparison-of-the-internet-to-a-universal-free-library-system/"><u>Understanding the Metaphorical Comparison of the Internet to a Universal, Free Library System</u></a></li>
+<li><a href="https://win-blog.techidaily.com/unstuck-dota-2-boot-up-solutions-for-when-the-game-gets-stuck-on-initial-load/"><u>Unstuck Dota 2 Boot-Up: Solutions For When the Game Gets Stuck on Initial Load</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/updating-your-amd-graphics-card-software-for-enhanced-compatibility-with-windows-117xp/"><u>Updating Your AMD Graphics Card Software for Enhanced Compatibility with Windows 11/7/XP</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-dec-is-a-pivotal-month-for-instagrams-chats/"><u>Why Dec Is a Pivotal Month for Instagram's Chats</u></a></li>
 </ul></div>
 

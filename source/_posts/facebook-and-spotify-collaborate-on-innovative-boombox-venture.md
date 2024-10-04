@@ -1,7 +1,7 @@
 ---
 title: Facebook & Spotify Collaborate on Innovative Boombox Venture
-date: 2024-09-25T17:19:36.030Z
-updated: 2024-09-28T16:40:08.913Z
+date: 2024-10-01T20:25:25.842Z
+updated: 2024-10-03T22:09:44.609Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
  We'll have to wait a bit longer for Live Audio Rooms and Soundbites to hit Facebook, however. The platform stated that these features could arrive in the summer of 2021\. A podcast discovery feature is also coming to Facebook, and we can expect it to go live in the coming months.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Audio Is Exploding, But Is It Here to Stay?
@@ -66,20 +66,22 @@ thumbnail: https://thmb.techidaily.com/843a2530bd30cf31b24741cc2e56b474bee5d065d
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/updated-top-10-download-snapchat-ringtones-websites/"><u>[Updated] Top 10 Download Snapchat Ringtones Websites</u></a></li>
-<li><a href="https://facebook.techidaily.com/banish-facebooks-privacy-invasion-with-off-fb-controls/"><u>Banish Facebook's Privacy Invasion with Off-FB Controls</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-boundaries-exploring-virtual-realitys-future/"><u>Beyond Boundaries: Exploring Virtual Reality's Future</u></a></li>
-<li><a href="https://facebook.techidaily.com/considering-facebooks-role-in-streamlining-multi-app-sign-in-processes/"><u>Considering Facebook's Role in Streamlining Multi-App Sign-In Processes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-imovie-para-windows-gratis-e-oficial-download-mais-seguro/"><u>Download iMovie Para Windows Grátis E Oficial - Download Mais Seguro</u></a></li>
-<li><a href="https://windows11.techidaily.com/evaluating-the-variability-between-in-store-and-online-windows-reinstallations/"><u>Evaluating the Variability Between In-Store & Online Windows Reinstallations</u></a></li>
-<li><a href="https://facebook.techidaily.com/facebooks-next-step-enhancing-stories-panel-with-reels-and-rooms/"><u>Facebook's Next Step: Enhancing Stories Panel With Reels & Rooms</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/film-timeframe-determining-gb-storage-requirement-for-2024/"><u>Film Timeframe Determining GB Storage Requirement for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/from-isolation-to-engagement-joining-an-expat-group-on-facebook/"><u>From Isolation to Engagement: Joining an Expat Group on Facebook</u></a></li>
-<li><a href="https://facebook.techidaily.com/guarantee-stranger-free-social-media-views-on-fb/"><u>Guarantee Stranger-Free Social Media Views on FB</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-poco-x5-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Poco X5 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Honor X7b? | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-xs-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone XS to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/resolving-access-issues-with-your-facebook-id/"><u>Resolving Access Issues with Your Facebook ID</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/tips-and-tricks-how-to-configure-view-settings-in-the-finders-interface/"><u>Tips & Tricks: How to Configure View Settings in the Finder's Interface</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-navigating-the-route-to-social-stardom-a-quick-overview-of-6-key-steps-on-instagram/"><u>[Updated] Navigating the Route to Social Stardom A Quick Overview of 6 Key Steps on Instagram</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-drone-racers-companion-basics-to-aces-and-top-5-fpv-brands/"><u>[Updated] The Drone Racer's Companion Basics to Aces and Top 5 FPV Brands</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-hdr-conversion-playbook-starting-with-sdr/"><u>[Updated] The Ultimate HDR Conversion Playbook - Starting with SDR</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-master-photographers-tale-assembly-tool/"><u>2024 Approved Master Photographer's Tale Assembly Tool</u></a></li>
+<li><a href="https://article-files.techidaily.com/asus-mg28uq-4k-monitor-review/"><u>ASUS MG28UQ 4K Monitor Review</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/duality-of-light-mastering-the-art-of-hdr-in-adobe/"><u>Duality of Light Mastering the Art of HDR in Adobe</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-intel-chipset-up-to-date-with-quick-driver-downloads/"><u>Get Your Intel Chipset Up to Date with Quick Driver Downloads!</u></a></li>
+<li><a href="https://facebook.techidaily.com/harnessing-the-power-of-creativity-in-smm-via-ripl/"><u>Harnessing the Power of Creativity in SMM via Ripl</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-boosting-social-reach-share-tiktoks-with-a-twist-of-twitter/"><u>In 2024, Boosting Social Reach Share TikToks with a Twist of Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-new-era-musicians-income-on-facebook-platform/"><u>Navigating the New Era: Musicians' Income on Facebook Platform</u></a></li>
+<li><a href="https://facebook.techidaily.com/racing-the-future-the-genesis-of-metas-supercomputer/"><u>Racing the Future: The Genesis of Meta's Supercomputer</u></a></li>
+<li><a href="https://win-blog.techidaily.com/restoration-tips-re-establishing-links-to-blizzards-game-servers/"><u>Restoration Tips: Re-Establishing Links to Blizzard's Game Servers</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-the-art-of-location-broadcast-on-fbmessenger/"><u>Teaching the Art of Location Broadcast on FBMessenger</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-hidden-posts-on-social-media-clans/"><u>Tips for Hidden Posts on Social Media Clans</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-10-tips-to-enhance-your-social-media-life-using-fb-app/"><u>Top 10 Tips to Enhance Your Social Media Life Using FB App</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-the-potential-posts-for-every-group-on-facebook/"><u>Unlock the Potential: Posts for Every Group on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-potential-the-power-of-online-social-groups/"><u>Unlocking Potential: The Power of Online Social Groups</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Taking Flight on Social Media Through Imagery
-date: 2024-09-20T19:45:06.067Z
-updated: 2024-09-21T20:42:10.351Z
+date: 2024-09-28T17:46:52.154Z
+updated: 2024-10-03T18:09:11.600Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  How much of your face and body should show?[Buffer](https://blog.bufferapp.com/best-profile-picture-science-research-psychology) says that head-to-shoulders is the ideal length, but you can go head-to-torso if you want. A photo of your whole body will probably be too zoomed to see well, since profile pictures are usually very small. A close-up photo of just your face or part of your face can also make it hard to tell who you are.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Smile or Laugh, With Teeth
 
  Should you smile and laugh or play it cool and grim? Should that laugh show your teeth?
@@ -46,20 +53,34 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
  Nowadays, most platforms have adopted the circular profile picture instead of the old square. This is important to remember because when you take your photo, it will be rectangular. Make sure there is nothing important like part of your face in the corner of the photo, so when it gets cropped as you upload it, it doesn't mess up your photo.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Consider Pairing Your Picture With a Matching Cover Photo
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/screenshot-2023-08-13-at-10-00-29-pm.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Some social media platforms also allow you to add a cover photo to your profile, like Facebook, LinkedIn and X. Cover photos are a landscape photo that will display on your profile in addition to your profile picture. There are no hard-and-fast rules about what your cover photo should be, but they are a fun way to show off more of your personality on your profile!
 
  You can add a picture of you and your friends, the city you're from, or your favorite hobby! Remember to keep it relevant if your profile is for a specific type of content, like a small business. To make your profile even more cohesive, add a cover photo that has similar colors to your profile picture, so they match. You can even[create your own cover photos for platforms like Facebook](https://www.makeuseof.com/tag/how-to-create-amazing-facebook-cover-pictures-for-your-timeline/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Use Bright Colors and a Simple Background
 
@@ -67,33 +88,7 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
 
 ![Viewing professional photography and camera shots](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/04/Professional-headshots.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You don't want your background to distract from yourself in your profile photo. Wear something bright that brings the attention to you, and choose a background that isn't too busy. A simple nature landscape or just a plain color wall is best. If you really like a picture but don't like the background, you can easily[change the background in Photoshop](https://www.makeuseof.com/tag/how-to-change-the-background-of-a-photo-in-photoshop/) .
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Use a Versatile Photo That You Can Use Across Most Platforms
 
@@ -120,5 +115,16 @@ thumbnail: https://thmb.techidaily.com/89e14fb11e9e592fbd5c568e89cdfa2567dfefcd7
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-influence-made-possible-today/"><u>[New] 2024 Approved Instagram Influence Made Possible Today</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-architectural-essence-of-facebook/"><u>Decoding the Architectural Essence of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/delay-in-actions-by-facebooks-regulatory-authority/"><u>Delay in Actions by Facebook's Regulatory Authority</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-docks-top-20-platforms-for-people-connecting-online/"><u>Digital Docks: Top 20 Platforms for People Connecting Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-campaigns-8-crowdfire-features-worth-mastering/"><u>Elevate Your Campaigns: 8 Crowdfire Features Worth Mastering</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/from-hushed-villainy-to-sonic-victory-fixing-evil-genius-2-game-noises/"><u>From Hushed Villainy to Sonic Victory: Fixing 'Evil Genius 2' Game Noises</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-12-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme 12 5G Device</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unveiling-the-best-new-and-popular-max-documentaries-in-july-2024/"><u>Unveiling the Best New and Popular Max Documentaries in July 2024</u></a></li>
+</ul></div>
 

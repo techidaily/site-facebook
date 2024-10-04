@@ -1,7 +1,7 @@
 ---
 title: "Hidden Dangers: Opting Out of Facebook's Visit Tracker"
-date: 2024-09-26T17:26:29.265Z
-updated: 2024-09-28T16:21:35.991Z
+date: 2024-10-01T20:10:28.937Z
+updated: 2024-10-03T17:46:29.102Z
 tags:
   - facebook
 categories:
@@ -27,10 +27,10 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 * [How to Disable Link History on Facebook](#how-to-disable-link-history-on-facebook)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Key Takeaways
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
  On the bright side, links visited from the Messenger app and the web version of Facebook aren't logged, even with the feature enabled.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Check if You've Opted In to Facebook's Link History
 
  As mentioned earlier, the Link History feature is only available in the Facebook app for[iOS](https://apps.apple.com/us/app/facebook/id284882215) and[Android](https://www.anrdoezrs.net/links/7251228/type/dlg/sid/UUmuoUeUpU2031457/https://play.google.com/store/apps/details?id=com.facebook.katana&hl=en) . So, you'll need to use the app to check if you've opted in by following these simple steps:
@@ -62,34 +69,20 @@ thumbnail: https://thmb.techidaily.com/d4b0aeca5fbcd6a1a79d8f267934da7fc9e25344d
 
 ![Expanded Settings and privacy section in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/expanded-settings-and-privacy-section-in-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -107,6 +100,13 @@ Close
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -129,19 +129,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/updated-top-10-ultimate-4k-gaming-systems-reviewed-for-2024/"><u>[Updated] Top 10 Ultimate 4K Gaming Systems Reviewed for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-essential-techniques-for-vimeo-video-submission-from-mmc/"><u>2024 Approved Essential Techniques for Vimeo Video Submission From MMC</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-unveiling-best-practices-in-audio-to-text-translation/"><u>2024 Approved Unveiling Best Practices in Audio to Text Translation</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-wacom-intuos-eb-3-graphics-tablet-drivers-for-windows-optimal-performance-guaranteed/"><u>Download Wacom Intuos Eb 3 Graphics Tablet Drivers for Windows - Optimal Performance Guaranteed</u></a></li>
-<li><a href="https://article-helps.techidaily.com/enhance-your-footage-fast-the-ultimate-5-diy-film-tricks-for-2024/"><u>Enhance Your Footage Fast The Ultimate 5 DIY Film Tricks for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-securityfbcom/"><u>Evaluating Trust in Facebook's Safety Email: security@fb.com</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-photodna-works-to-protect-intellectual-property/"><u>How PhotoDNA Works to Protect Intellectual Property</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-unleashing-your-youtube-potential-a-comprehensively-tailored-upload-process/"><u>In 2024, Unleashing Your YouTube Potential A Comprehensively Tailored Upload Process</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/navigating-the-start-of-a-prompt-engineering-career-expert-recommendations-and-guidelines/"><u>Navigating the Start of a Prompt Engineering Career: Expert Recommendations and Guidelines</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-alert-sidestep-these-three-risky-applications/"><u>Privacy Alert: Sidestep These Three Risky Applications</u></a></li>
-<li><a href="https://facebook.techidaily.com/safest-digital-venues-for-engagement/"><u>Safest Digital Venues for Engagement?</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-dos-and-donts-of-ungrouping-from-facebook-pages/"><u>The Do's and Don'ts of Ungrouping From Facebook Pages</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-iphone-15-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass iPhone 15 Activation Lock</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-is-active-presenter-8-the-champion-of-screen-capture-for-2024/"><u>[New] Is Active Presenter 8 the Champion of Screen Capture for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-high-definition-slow-mo-cams/"><u>[New] Ultimate High Definition Slow-Mo Cams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-optimizing-your-project-b-roll-utilization-tips/"><u>[Updated] In 2024, Optimizing Your Project B-Roll Utilization Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-movie-companion-best-free-and-paid-iphone-apps-for-2024/"><u>[Updated] The Ultimate Movie Companion Best Free and Paid iPhone Apps for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/different-methods-to-unlock-your-iphone-15-plus-drfone-by-drfone-ios/"><u>Different Methods To Unlock Your iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/embracing-meta-ai-on-social-platforms-pros-and-cons/"><u>Embracing Meta AI on Social Platforms: Pros & Cons?</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/epson-multifunction-device-shows-unwanted-emptiness/"><u>Epson Multifunction Device Shows Unwanted Emptiness</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-infinix-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Infinix Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Apple iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/invoke-immediate-quiet-ban-on-facebook-notifications/"><u>Invoke Immediate Quiet: Ban on Facebook Notifications</u></a></li>
+<li><a href="https://facebook.techidaily.com/quick-guide-to-addingremoving-facebook-shortcuts/"><u>Quick Guide to Adding/Removing Facebook Shortcuts</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-synergy-unleashed-facebook-meets-instagram/"><u>Social Synergy Unleashed: Facebook Meets Instagram</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-no-cost-methods-for-capturing-sound-from-your-pc/"><u>Top 7 No-Cost Methods for Capturing Sound From Your PC</u></a></li>
 </ul></div>
 

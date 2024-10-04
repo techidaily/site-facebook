@@ -1,7 +1,7 @@
 ---
 title: "Facebook Calls for Caution: Younger Generations Stepping Back From Instagram"
-date: 2024-09-21T17:20:43.463Z
-updated: 2024-09-28T16:25:48.876Z
+date: 2024-09-27T20:13:10.102Z
+updated: 2024-10-03T23:33:23.388Z
 tags:
   - facebook
 categories:
@@ -41,10 +41,10 @@ This feature could possibly address those concerns.
  Related:[Is an Instagram for Kids a Good or Bad Idea? The Pros and Cons](https://www.makeuseof.com/instagram-for-kids-pros-and-cons/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Nudging Teens Away From Potentially Harmful Content
@@ -58,10 +58,10 @@ Here's how Clegg explained it:
  Related:[Why Instagram Is Forcing You to Add Your Birthday](https://www.makeuseof.com/instagram-forcing-you-add-birthday/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook Introducing These Features?
@@ -75,10 +75,10 @@ Here's how Clegg explained it:
  The measures announced by Facebook seem to be an attempt to fix the PR storm erupting from the files and Haugen's interview.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Is Facebook Doing Enough to Protect Children Using Its Platforms?
@@ -106,14 +106,18 @@ Here's how Clegg explained it:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-creating-captivating-insta-vids-3-description-strategies-for-2024/"><u>[New] Creating Captivating Insta Vids 3 Description Strategies for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-phones-speed-up-sound-essential-app-listing/"><u>[New] Phones’ Speed Up Sound Essential App Listing</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-streamlining-virtual-collaborations-a-comprehensive-scheduling-and-recording-manual-for-slack-plus-filmora/"><u>[New] Streamlining Virtual Collaborations A Comprehensive Scheduling & Recording Manual for Slack + Filmora</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-elitemac-pro-high-definition-visuals-plus-audiophile-recordings/"><u>[Updated] In 2024, EliteMac Pro High-Definition Visuals + Audiophile Recordings</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-fix-facebook-notifications-not-loading/"><u>How to Fix Facebook Notifications Not Loading</u></a></li>
-<li><a href="https://facebook.techidaily.com/introducing-dynamic-fb-shortcut-management-techniques/"><u>Introducing Dynamic FB Shortcut Management Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/rebooting-login-info-for-facebook/"><u>Rebooting Login Info for Facebook</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Infinix Hot 30 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/whatsapp-wont-limit-account-functionality-if-you-dont-accept-its-new-privacy-policy/"><u>WhatsApp Won't Limit Account Functionality If You Don't Accept Its New Privacy Policy</u></a></li>
+<li><a href="https://facebook.techidaily.com/not-so-goodbye-exploring-reasons-behind-facebooks-survival/"><u>'Not So Goodbye': Exploring Reasons Behind Facebook’s Survival</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevating-video-appeal-for-profiles/"><u>[New] In 2024, Elevating Video Appeal for Profiles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-video-ventures-youtube-shorts-or-tiktok/"><u>[Updated] In 2024, Video Ventures YouTube Shorts or TikTok?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comparing-sound-systems-how-do-home-theaters-and-stereo-receivers-stack-up/"><u>Comparing Sound Systems: How Do Home Theaters and Stereo Receivers Stack Up?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-wants-10000-workers-to-build-the-metaverse-could-you-be-one-of-them/"><u>Facebook Wants 10,000 Workers to Build the Metaverse: Could You Be One of Them?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/hero4-meets-hero5-a-camera-battle-for-2024/"><u>Hero4 Meets Hero5 A Camera Battle for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/immortalize-instants-with-ease-dive-into-gratis-cloud-services-and-paid-alternatives-for-2024/"><u>Immortalize Instants with Ease Dive Into Gratis Cloud Services & Paid Alternatives for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-your-way-back-into-a-locked-out-facebook/"><u>Navigating Your Way Back Into a Locked-Out Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sharing-made-simple-integrating-fb-content-across-3-services/"><u>Social Sharing Made Simple: Integrating FB Content Across 3 Services</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/speak-in-style-play-to-win-transforming-your-virtual-identity-with-morphvox-for-streaming-games-for-2024/"><u>Speak in Style, Play to Win Transforming Your Virtual Identity with Morphvox for Streaming Games for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-use-of-facebooks-daily-alert-for-rest-breaks/"><u>Strategic Use of Facebook's Daily Alert for Rest Breaks</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-the-pattern-4-signs-that-point-to-lesser-usage-on-fb/"><u>Understanding the Pattern: 4 Signs That Point to Lesser Usage on FB</u></a></li>
 </ul></div>
 

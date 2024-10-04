@@ -1,7 +1,7 @@
 ---
 title: FB Upgrades Text-Based Interaction with New Messaging Innovations in Messenger & Instagram
-date: 2024-09-15T22:33:40.158Z
-updated: 2024-09-21T17:11:57.575Z
+date: 2024-09-28T18:05:39.289Z
+updated: 2024-10-03T20:45:27.478Z
 tags:
   - facebook
 categories:
@@ -32,6 +32,13 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
 
  Using these stickers, the company hopes to raise awareness around the issues that plague the API community. In addition to this, the stickers are meant to help kids explore the culture, values, and unique traditions across API countries. In order to help parents inform their kids and raise awareness around API culture, Facebook has also released a sticker reference guide that explains the significance of each sticker.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hands-Free Audio Messaging in Messenger
 
  Facebook acknowledged the popularity of audio messaging on Messenger and to make it easier, it has added a tap-to-record feature. Using this, users will no longer have to hold down the record button when sending audio messages.
@@ -43,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/6ea42b82e55f6c668ff7a393a7539803912a1c23e
  Facebook states that this new feature will allow users to focus on other tasks while simultaneously recording an audio message.
 
  Coming to Instagram, the company has added a "visual reply" feature that allows users to reply to messages using a photo or video of their choice. Currently, the feature has only made its way to iOS, but Facebook hopes to release it on Android as well.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## New Inbox Management Features
 
@@ -69,12 +83,22 @@ Both Messenger and Instagram have received some inbox-centric changes.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-optimize-your-facebook-streaming-experience-with-these-methods/"><u>[New] 2024 Approved Optimize Your Facebook Streaming Experience with These Methods</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-ultimate-choice-10-excellent-camera-lenses/"><u>[New] 2024 Approved Ultimate Choice 10 Excellent Camera Lenses</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-byte-sized-hits-the-heart-of-viral-content/"><u>[New] In 2024, Byte-Sized Hits The Heart of Viral Content</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-the-world-of-mac-screenshot-with-confidence-for-2024/"><u>[Updated] Navigating the World of Mac Screenshot with Confidence for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-content-anywhere-you-need-it-upload-and-sync-across-platforms/"><u>Facebook Content, Anywhere You Need It: Upload & Sync Across Platforms.</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-chat-enhancements-set-to-transform-user-experience/"><u>Facebook's Chat Enhancements Set to Transform User Experience</u></a></li>
+<li><a href="https://facebook.techidaily.com/hush-the-chatter-removing-comments-from-social-media-feeds/"><u>Hush the Chatter: Removing Comments From Social Media Feeds</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-best-tech-to-preserve-classroom-interactions/"><u>In 2024, Best Tech to Preserve Classroom Interactions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-realme-11-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Realme 11 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlocking-optimal-flight-the-lipo-selection-saga/"><u>In 2024, Unlocking Optimal Flight The LiPo Selection Saga</u></a></li>
+<li><a href="https://program-issues.techidaily.com/multiversus-wont-start-heres-the-solution-for-your-pc-game-crashes/"><u>MultiVersus Won't Start? Here's the Solution for Your PC Game Crashes!</u></a></li>
+<li><a href="https://facebook.techidaily.com/platform-blackout-alert-fb-wa-insta-offline-today/"><u>Platform Blackout Alert: FB, WA, Insta Offline Today</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/real-time-streaming-discover-manycam-professional-virtual-camera-solutions/"><u>Real-Time Streaming: Discover ManyCam - Professional Virtual Camera Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reviving-your-social-media-account-without-old-credentials/"><u>Reviving Your Social Media Account without Old Credentials</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-are-these-certain-ads-on-my-fb-feed/"><u>Why Are These Certain Ads on My Fb Feed?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Regaining Control: Tackling FB Upsets"
-date: 2024-09-14T22:15:00.759Z
-updated: 2024-09-21T21:37:50.858Z
+date: 2024-10-01T21:02:27.878Z
+updated: 2024-10-03T23:17:47.138Z
 tags:
   - facebook
 categories:
@@ -52,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 
  Nonetheless, if the issue persists after closing Facebook from other devices, move on to the next fix.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Exit Suspicious Facebook Sessions
 
  If you logged into your Facebook account on a public device and didn't log out before leaving the computer, the session might still be active. Thus, logging out of such unknown sessions is necessary to ensure it stays open only on one device and gets logged out of others.
@@ -64,10 +71,16 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 3. Go to**Security and login** .  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Opening Security and Login Settings in Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-2-Opening-Security-and-Login-Settings-in-Facebook.jpg)
@@ -75,17 +88,17 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 ![Logging Out of a Session Active on Unknown Device by Clicking on Log Out Button in Facebook Settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-3-Logging-Out-of-a-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Facebook-Settings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
-  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Exit Suspicious Facebook Sessions on the Facebook App
@@ -99,23 +112,16 @@ thumbnail: https://thmb.techidaily.com/4d3965d206c3e8f9b4a9da6d71e7e79363ab237dd
 
 ![Navigating to the Facebook Settings by Clicking on Settings and Privacy Option in Facebook for iOS’ More Menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Navigating-to-the-Facebook-Settings-by-Clicking-on-Settings-and-Privacy-Option-in-Facebook-for-iOS’-More-Menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Opening the Security and Login Settings in Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Opening-the-Security-and-Login-Settings-in-Facebook-for-iOS.jpg)
 
-![Logging Out of the Session Active on Unknown Device by Clicking on Log Out Button in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Logging-Out-of-the-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Settings-of-Facebook-for-iOS.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![Logging Out of the Session Active on Unknown Device by Clicking on Log Out Button in Settings of Facebook for iOS](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Logging-Out-of-the-Session-Active-on-Unknown-Device-by-Clicking-on-Log-Out-Button-in-Settings-of-Facebook-for-iOS.jpg)
 
 Close
 
@@ -176,6 +182,13 @@ Close
 
  For the same reason we cleared the cache on a browser to eliminate chances of cached data causing the problem, you should also clear your app cache. Check out our guide explaining[how to clear the app cache in Android](https://www.makeuseof.com/tag/clear-cache-android/) and[iOS](https://www.makeuseof.com/tag/how-to-clear-cache-on-iphone-ipad/) if you've never done so before.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Report the Issue to Facebook Support
 
  When you've tried all other options to fix the issue at hand, and nothing seems to work, you should report the problem to Facebook. Here is how to do it:
@@ -185,10 +198,25 @@ Close
 3. Select**Help & support** from the menu.  
 ![Opening Help and Support Option from the Menu by Clicking on Profile Icon on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-7-Opening-Help-and-Support-Option-from-the-Menu-by-Clicking-on-Profile-Icon-on-Facebook.jpg)
 4. Click on**Report a problem** .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5. Choose**Something went wrong** in the menu.  
 ![Choosing Something Went Wrong Option by Clicking on Report a Problem Button on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-8-Choosing-Something-Went-Wrong-Option-by-Clicking-on-Report-a-Problem-Button-on-Facebook.jpg)
 6. Fill out the required information and click**Submit** .  
 ![Clicking on Submit Button after Reporting a Problem on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Image-9-Clicking-on-Submit-Button-after-Reporting-a-Problem-on-Facebook.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Don't Let Facebook Log You Out at Random
 
@@ -209,5 +237,18 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-unraveling-instagrams-video-sideways-quandary/"><u>[Updated] Unraveling Instagram's Video Sideways Quandary</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-efficient-backup-of-camera-roll-to-share-via-snapchat/"><u>2024 Approved Efficient Backup of Camera Roll to Share via Snapchat</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quintessential-scores-in-8-distinct-movie-spheres/"><u>2024 Approved Quintessential Scores in 8 Distinct Movie Spheres</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-logitech-g203-controller-software-windows-71011-supported/"><u>Download Logitech G203 Controller Software – Windows 7/10/11 Supported</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-prioritizes-privacy-introduces-end-to-end-encryption-to-messaging-and-direct-chats/"><u>Facebook Prioritizes Privacy: Introduces End-to-End Encryption to Messaging & Direct Chats</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-honor-magic-6-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Honor Magic 6 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-lava-yuva-2-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Lava Yuva 2 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/oculus-starts-rolling-out-new-more-customizable-avatars/"><u>Oculus Starts Rolling Out New, More Customizable Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/shrink-the-footprint-of-tailored-advertisements-online/"><u>Shrink the Footprint of Tailored Advertisements Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/tailoring-facebook-experience-without-excessive-reels/"><u>Tailoring Facebook Experience Without Excessive Reels</u></a></li>
+<li><a href="https://facebook.techidaily.com/unchain-yourself-how-to-disable-fb-monitoring/"><u>Unchain Yourself: How to Disable FB Monitoring</u></a></li>
+</ul></div>
 

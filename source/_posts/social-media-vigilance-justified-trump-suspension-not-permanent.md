@@ -1,7 +1,7 @@
 ---
 title: "Social Media Vigilance: Justified Trump Suspension, Not Permanent"
-date: 2024-09-17T20:39:18.957Z
-updated: 2024-09-21T22:25:40.525Z
+date: 2024-09-26T18:11:39.084Z
+updated: 2024-10-03T21:35:03.605Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
 
  Since the ruling, there has been a large amount of backlash on social media regarding the decision. Users on both sides of the argument have mentioned that the ruling was not right, either because they believe Trump shouldn't have been banned in the first place, or because he shouldn't be allowed back on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Are the Next Steps for Facebook?
 
  Since The Oversight Board ruled that an indefinite suspension was not appropriate, it has told Facebook that it must reassess the decision. The Board has decided this after evaluating that suspending any user for an indefinite amount of time didn't follow any procedure.
@@ -46,19 +53,33 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
 
  The Oversight Board also made a number of other recommendations for Facebook, such as reviewing the platform's role in the events of January 6th, and creating policies on Facebook's response to any similar events in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Is The Oversight Board?
 
  The Facebook Oversight Board is a body of experts that will review "difficult and significant decisions" that the social network makes. Essentially, the Board exists to make sure Facebook doesn't break any rules or laws in its decision-making.
 
 ![Facebook Oversight Board logo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/05/Oversight_Board_Logo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Facebook did set up and fund the Board, but it is an independent body with no Facebook employees involved. The Board has the power to make binding decisions. Members of the public can appeal decisions to the Board.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What About Other Social Media Platforms?
@@ -80,5 +101,16 @@ thumbnail: https://thmb.techidaily.com/8f88442ac6dedc419a65e9e8bd02cadcc874f8f08
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-harnessing-adobe-curves-to-shape-your-images/"><u>2024 Approved Harnessing Adobe Curves to Shape Your Images</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-myths-busted-10-common-misconceptions-you-shouldnt-believe/"><u>Facebook Myths Busted: 10 Common Misconceptions You Shouldn't Believe</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-update-your-hardware-drivers-on-windows-10-and-7-by-drivereasy-guide/"><u>How to use Device Manager to update your hardware drivers on Windows 10 & 7</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-m14-4g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy M14 4G without App | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-create-professional-minecraft-graphics/"><u>In 2024, Create Professional Minecraft Graphics</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-3-strategies-for-enhanced-zoom-video-conversion-techniques/"><u>In 2024, Top 3 Strategies for Enhanced Zoom Video Conversion Techniques</u></a></li>
+<li><a href="https://facebook.techidaily.com/meaning-behind-invisible-user-presence/"><u>Meaning Behind Invisible User Presence</u></a></li>
+<li><a href="https://facebook.techidaily.com/regaining-access-deactivating-fb-2fa-absent-your-phone/"><u>Regaining Access: Deactivating FB 2FA Absent Your Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/reveal-your-most-cherished-chat-app/"><u>Reveal Your Most Cherished Chat App</u></a></li>
+</ul></div>
 

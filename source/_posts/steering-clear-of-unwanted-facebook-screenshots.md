@@ -1,7 +1,7 @@
 ---
 title: Steering Clear of Unwanted Facebook Screenshots
-date: 2024-09-26T17:22:20.578Z
-updated: 2024-09-28T16:50:04.917Z
+date: 2024-09-28T17:03:09.184Z
+updated: 2024-10-03T20:33:51.104Z
 tags:
   - facebook
 categories:
@@ -53,19 +53,6 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
  Make your selection, click on**Photo/Video** to select your snap, then select**Post** .
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Old Photos
 
  OK, so making sure your new photos are private is quite straightforward, but what about your old photos?[Depending on your addiction level](https://www.makeuseof.com/tag/social-media-detox/) , we could be talking about thousands of images.
@@ -85,10 +72,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![facebook limit old photos](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-limit-old-photos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Restrict Access to Everything:** If you've taken a laissez-faire approach to Facebook privacy in the past, you might have too many pictures and too many albums to use either of the above methods. In that case, it's better to change the privacy settings of everything you've ever posted to the network.
@@ -98,10 +85,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
  Go to **Settings and Privacy > Privacy > Limit the audience for posts you've shared with friends of friends or Public** and click on**Limit past posts > Limit Old Posts** to make the changes. Anything you have shared with friends of friends or the general public will change to**Friends only** . The changes cannot be undone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pro Tip: Use the Activity Log
@@ -109,10 +96,16 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ![photos filter facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/photos-filter-facebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  For a quick way of seeing which photos are shared with the public, you can use the Activity Log. It'll save you the time of trawling through endless albums.
@@ -134,6 +127,13 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 ### Tag Suggestions
 
 ![facebook face recognition](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-face-recognition.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can't prevent other people from tagging you in photos, but you can stop your name from being shown to them when they upload a photo. It means when someone uploads a photo, Facebook will not suggest your name to them as a recommended tag, even if it recognizes that the image looks like you.
 
@@ -158,22 +158,20 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook.techidaily.com/1719153008473-hashed-hay-a-novel-animal-pet-naming-trend/"><u>'Hashed Hay': A Novel Animal Pet Naming Trend.</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-prime-free-improvement-suite-pc-and-phone-edition-for-2024/"><u>[New] Prime FREE Improvement Suite PC & Phone Edition for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-audience-take-movaviscreenvisions-new-release/"><u>[Updated] 2024 Approved Audience Take MovaviScreenVision's New Release</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-how-to-record-voice-memo-on-iphone/"><u>[Updated] How to Record Voice Memo on iPhone?</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-navigating-the-world-of-9gag-memes-made-easy/"><u>[Updated] Navigating the World of 9GAG Memes Made Easy</u></a></li>
-<li><a href="https://facebook.techidaily.com/300-deal-on-rifts-data-recovery-post-facebook-hack/"><u>$300 Deal on Rifts: Data Recovery Post-Facebook Hack</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-how-to-record-and-save-streaming-audio-with-ease/"><u>2024 Approved How to Record and Save Streaming Audio with Ease</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-ready-for-meta-ais-social-network-ambition/"><u>Are You Ready for Meta AI’s Social Network Ambition?</u></a></li>
-<li><a href="https://facebook.techidaily.com/battling-fake-news-facebook-introduces-stricter-rules/"><u>Battling Fake News: Facebook Introduces Stricter Rules</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-of-social-media-shackles-untagging-techniques/"><u>Breaking Free of Social Media Shackles: Untagging Techniques</u></a></li>
-<li><a href="https://facebook.techidaily.com/bringing-social-to-your-sidewalits-portal-go/"><u>Bringing Social to Your Sidewalits: Portal Go</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-crescendo-identifying-this-years-most-engaging-online-spaces/"><u>Community Crescendo: Identifying This Year's Most Engaging Online Spaces</u></a></li>
-<li><a href="https://facebook.techidaily.com/covid-deception-12-influencer-misinformation-role/"><u>Covid Deception: 12 Influencer Misinformation Role</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-high-definition-vision-recorder-devices/"><u>In 2024, High Definition Vision Recorder Devices</u></a></li>
-<li><a href="https://network-issues.techidaily.com/precise-adjustment-for-lcd-aspect-ratios/"><u>Precise Adjustment for LCD Aspect Ratios</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshoot-your-ipad-or-iphone-if-the-ios-update-just-wont-resume-downloading/"><u>Troubleshoot Your iPad or iPhone if the iOS Update Just Won't Resume Downloading</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-exploring-the-merits-of-obs-studio-and-fraps-for-recording-screens-for-2024/"><u>[New] Exploring the Merits of OBS Studio & Fraps for Recording Screens for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-experts-guide-to-the-best-ipad-voice-recording-tools-3/"><u>[New] In 2024, Expert's Guide to the Best iPad Voice Recording Tools #3</u></a></li>
+<li><a href="https://driver-error.techidaily.com/update-hardware-and-dev-driver-operational-on-win/"><u>[Update: Hardware & Dev Driver Operational on Win</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-how-to-activate-windows-11-written-for-high-dynamic-range-auto-hdr/"><u>[Updated] 2024 Approved Unveiling How to Activate Windows 11' Written for High Dynamic Range (Auto HDR)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-good-to-great-elevate-reactions-in-youtube-videos-with-these-3-strategies/"><u>[Updated] From Good to Great Elevate Reactions in YouTube Videos with These 3 Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-growth-strategy-attracting-million-strong-fans/"><u>[Updated] In 2024, Youtube Growth Strategy Attracting Million-Strong Fans</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-innovative-metaverse-humor-generating-unique-memes/"><u>[Updated] Innovative Metaverse Humor Generating Unique Memes</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-your-social-presence-with-ripls-best-practices/"><u>Elevate Your Social Presence with Ripl's Best Practices</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-advice-step-by-step-instructions-to-fix-a-blank-screen-on-your-monitor/"><u>Expert Advice: Step-by-Step Instructions to Fix a Blank Screen on Your Monitor</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-public-participation-in-facebook-community-networks/"><u>Exploring Public Participation in Facebook Community Networks</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-launches-new-admin-tools-to-help-moderate-communities/"><u>Facebook Launches New Admin Tools to Help Moderate Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-protocol-for-self-safe-marking/"><u>FB Protocol for Self-Safe Marking</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-concealed-voice-in-online-collectives/"><u>Guide to Concealed Voice in Online Collectives</u></a></li>
+<li><a href="https://facebook.techidaily.com/virtual-identity-evolution-oculuss-latest-avatars/"><u>Virtual Identity Evolution: Oculus's Latest Avatars</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-know-about-impending-thread-shutdown-on-insta/"><u>What to Know About Impending Thread Shutdown on Insta</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Instagram's Health Alert: Rethinking Our Screen Time Habits"
-date: 2024-09-14T22:38:13.758Z
-updated: 2024-09-21T17:45:07.509Z
+date: 2024-10-02T20:23:34.037Z
+updated: 2024-10-03T22:58:46.030Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
 
  Mosseri says the Take a Break feature will be tested with a handful of users, with plans to roll it out in December 2021.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Instagram Wants You to "Take a Break"
 
  Meta has been facing increasing pressure from lawmakers to make its apps safer for users' mental health.
@@ -53,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
  Haugen's claims added weight to those claims as she worked for the company and witnessed what she did firsthand.
 
  Meta’s Global Head of Security Antigone Davis also mentioned Instagram’s Take a Break feature in a Senate hearing over teen mental health back in September. At the hearing, Davis said the company aims to improve younger users' experience on the app by encouraging them to stop browsing after they'd been browsing too long.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Will Instagram's Opt-In Feature Be Effective?
 
@@ -75,12 +89,22 @@ thumbnail: https://thmb.techidaily.com/9482ded5e871af812d18f96a64c4deb315943988e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/eachers-channel-blueprint-10-essential-tips-for-youtube-educators/"><u>[New] Teachers’ Channel Blueprint 10 Essential Tips for YouTube Educators</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-top-10-gratis-onlinedesktop-video-collaboration-tools-for-2024/"><u>[New] Top 10 Gratis Online/Desktop Video Collaboration Tools for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-unleash-creativity-build-logos-using-free-template-inspiration/"><u>[Updated] 2024 Approved Unleash Creativity Build Logos Using Free Template Inspiration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-how-to-share-vimeo-video-in-instagram-stories-for-2024/"><u>[Updated] How to Share Vimeo Video in Instagram Stories for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/debugging-woes-heres-how-to-keep-halo-infinite-running-without-interruptions-on-pc/"><u>Debugging Woes? Here's How to Keep Halo Infinite Running Without Interruptions on PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/december-sees-instagram-thread-ending/"><u>December Sees Instagram Thread Ending</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-code-of-social-media-marketing-is-it-true-for-facebook/"><u>Deciphering the Code of Social Media Marketing: Is It True for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-secret-lore-of-fb-friending/"><u>Deciphering the Secret Lore of FB Friending</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-diaries-deciphered-are-phones-making-marketing-decisions/"><u>Digital Diaries Deciphered: Are Phones Making Marketing Decisions?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-giant-sues-over-governmental-encroachment-of-user-privacy/"><u>Digital Giant Sues Over Governmental Encroachment of User Privacy</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-mergers-exploring-the-ties-between-fb-and-insta/"><u>Digital Mergers: Exploring the Ties Between FB and Insta</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-strategies-for-troubleshooting-missing-dciman3-dll-errors/"><u>Effective Strategies for Troubleshooting Missing Dciman3# Dll Errors</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevate-engagement-rates-with-well-crafted-videos-on-the-worlds-largest-social-network/"><u>Elevate Engagement Rates with Well-Crafted Videos on the World's Largest Social Network</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Samsung Galaxy S24 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/pro-audio-software-win-edition/"><u>Pro Audio Software Win Edition</u></a></li>
+</ul></div>
 

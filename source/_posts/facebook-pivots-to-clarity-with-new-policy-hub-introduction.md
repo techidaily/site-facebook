@@ -1,7 +1,7 @@
 ---
 title: Facebook Pivots to Clarity with New Policy Hub Introduction
-date: 2024-09-26T17:24:46.877Z
-updated: 2024-09-28T16:33:03.885Z
+date: 2024-09-26T18:13:13.152Z
+updated: 2024-10-03T16:16:56.951Z
 tags:
   - facebook
 categories:
@@ -41,16 +41,10 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
  A spokesperson for Facebook said "We’ll continue to add more information and build out the Transparency Center as our integrity efforts continue to evolve". From this, it seems clear that Facebook is taking the Center seriously and will continue to update it over time.
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook's New Focus on Transparency
@@ -74,22 +68,17 @@ thumbnail: https://thmb.techidaily.com/d021ea19d35ef3673abfe0bc9bdff457eb34791e5
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-precision-planning-of-collaborative-slack-plus-filmora-meetings/"><u>[Updated] 2024 Approved Precision Planning of Collaborative Slack + Filmora Meetings</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-six-simple-ways-to-ease-vr-headset-nausea/"><u>[Updated] Six Simple Ways to Ease VR Headset Nausea</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-oppo-a56s-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Oppo A56s 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-navigating-quick-file-scan-in-windows/"><u>2024 Approved Navigating Quick File Scan in Windows</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-seamless-sharing-of-oversized-content-from-iphone-to-macos/"><u>2024 Approved Seamless Sharing of Oversized Content From iPhone to macOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/balancing-privacy-and-fun-managing-teenage-fb-accounts/"><u>Balancing Privacy and Fun: Managing Teenage FB Accounts</u></a></li>
-<li><a href="https://facebook.techidaily.com/comprehensive-tactics-for-retrieving-a-hidden-facebook-account/"><u>Comprehensive Tactics for Retrieving a Hidden Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/did-facebook-expose-your-contact-info/"><u>Did Facebook Expose Your Contact Info?</u></a></li>
-<li><a href="https://facebook.techidaily.com/harness-the-power-of-linkedin-and-facebook-for-career-advancement/"><u>Harness the Power of LinkedIn & Facebook for Career Advancement</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-fix-drive-not-found-for-260ci-wia-drivers-when-using-a-usb-port/"><u>How to Fix 'Drive Not Found' For 260CI WiA Drivers When Using a USB Port</u></a></li>
-<li><a href="https://facebook.techidaily.com/instagram-20-redux-a-strategic-makeover/"><u>Instagram 2.0 Redux: A Strategic Makeover?</u></a></li>
-<li><a href="https://facebook.techidaily.com/protecting-adolescent-online-presence-facebook-privacy-tips/"><u>Protecting Adolescent Online Presence - Facebook Privacy Tips</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/quick-fix-update-your-windows-10-drivers-with-these-simple-steps/"><u>Quick Fix: Update Your Windows 10 Drivers with These Simple Steps</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/samsung-galaxy-z-fold-7-unveiled-find-out-pricing-launch-timeline-features-and-latest-updates/"><u>Samsung Galaxy Z Fold 7 Unveiled: Find Out Pricing, Launch Timeline, Features & Latest Updates</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-beginners-guide-to-creating-compelling-videos-on-facebook/"><u>The Beginner's Guide to Creating Compelling Videos on Facebook</u></a></li>
-<li><a href="https://games-able.techidaily.com/top-9-gaming-hubs-champions-collectives/"><u>Top 9 Gaming Hubs: Champions' Collectives</u></a></li>
-<li><a href="https://facebook.techidaily.com/transition-your-online-footprint-update-your-date-of-birth-fb/"><u>Transition Your Online Footprint: Update Your Date of Birth (FB)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-gameplay-an-in-depth-look-at-the-dominant-xbox-one-x/"><u>Elevating Your Gameplay: An In-Depth Look at the Dominant Xbox One X</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-cross-cultural-communication-via-fb-content/"><u>Enhancing Cross-Cultural Communication via FB Content</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fix-marvell-91xx-driver-issue-on-windows-11-solved/"><u>Fix Marvell 91Xx Driver Issue on Windows 11 [Solved]</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-dismantle-a-digital-footprint-a-comprehensive-guide-for-businesses-on-facebook/"><u>How to Dismantle a Digital Footprint: A Comprehensive Guide for Businesses on Facebook</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-launch-errors-in-back-4-blood-for-windows-users-version-11107/"><u>How to Overcome Launch Errors in Back 4 Blood for Windows Users (Version 11/10/7)</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-redefine-your-birthday-on-the-worlds-most-popular-social-network/"><u>How to Redefine Your Birthday on the World’s Most Popular Social Network</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-unravel-your-console-dismantling-an-xbox-series-controller/"><u>How to Unravel Your Console: Dismantling an Xbox Series Controller</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-nokia-c22-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-social-commerce-secure-eliminating-scams-and-swindles-on-fb-markets/"><u>Keep Your Social Commerce Secure – Eliminating Scams and Swindles on FB Markets</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-correcting-libcurldll-not-found-errors-on-your-pc/"><u>Step-by-Step: Correcting Libcurl.dll Not Found Errors on Your PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/teaching-you-share-your-whereabouts-via-fb-chat/"><u>Teaching You: Share Your Whereabouts via FB Chat</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-nokia-c110-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Nokia C110 Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Immediate Alerts for Ephemeral Screen Captures
-date: 2024-09-20T18:57:35.831Z
-updated: 2024-09-21T18:22:31.227Z
+date: 2024-09-26T20:51:28.203Z
+updated: 2024-10-03T19:07:24.776Z
 tags:
   - facebook
 categories:
@@ -52,13 +52,41 @@ thumbnail: https://thmb.techidaily.com/f379595bc7b1cd3050b5ae0744653e1ab5e0a3846
 
 ![Starting a new conversation on Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery-4-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Starting a secret conversation in Messenger](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery5-2.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Messenger secret conversations](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/01/gallery6-2.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
  Once you do the above, if your chat partner takes a screenshot of your secret conversation before the message disappears, Messenger will immediately let you know.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Other Updates to Messenger
 
@@ -79,12 +107,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-secrets-to-unlocking-costless-image-streams/"><u>[New] Secrets to Unlocking Costless Image Streams</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/hort-form-media-exploration/"><u>[New] Short Form Media Exploration</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-fine-tune-your-cinematography-mastering-kinemaster-zoom-features/"><u>[Updated] Fine-Tune Your Cinematography Mastering Kinemaster Zoom Features</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-ultimate-audio-alerts-high-quality-pages-for-2024/"><u>[Updated] Ultimate Audio Alerts High-Quality Pages for 2024</u></a></li>
+<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-user-experience-mastering-site-analytics-and-personalization/"><u>Cookiebot-Enhanced User Experience: Mastering Site Analytics & Personalization</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-to-correct-error-code-0x80072f8f-on-your-windows-operating-system/"><u>Expert Tips to Correct Error Code 0X80072F8F on Your Windows Operating System</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-list-of-regrets-a-compilation-of-5-major-mishaps-to-its-community/"><u>Facebook’s List of Regrets: A Compilation of 5 Major Mishaps to Its Community</u></a></li>
+<li><a href="https://facebook.techidaily.com/future-worlds-at-our-fingertips-discovering-the-reality-of-metaverse-on-facebook/"><u>Future Worlds at Our Fingertips: Discovering The Reality of Metaverse on Facebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-economical-pc-playback-devices/"><u>In 2024, Economical PC Playback Devices</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-core-upgrades-of-windows-11/"><u>In 2024, The Core Upgrades of Windows 11</u></a></li>
+<li><a href="https://facebook.techidaily.com/on-the-go-living-portal-gets-a-portable-makeover/"><u>On-the-Go Living: Portal Gets a Portable Makeover</u></a></li>
+<li><a href="https://facebook.techidaily.com/sovereign-suing-social-giants-trump-vs-google-facebook/"><u>Sovereign Suing Social Giants: Trump Vs. Google, Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-essential-guide-to-user-exclusion-for-businesses-on-facebook/"><u>The Essential Guide to User Exclusion for Businesses on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-advanced-account-protection-with-fb-mtgc/"><u>Unlock Advanced Account Protection with FB MTGC</u></a></li>
+<li><a href="https://facebook.techidaily.com/writers-world-expanded-with-facebooks-5-million-for-new-digital-platform-venture/"><u>Writers' World Expanded with Facebook's $5 Million for New Digital Platform Venture</u></a></li>
+</ul></div>
 

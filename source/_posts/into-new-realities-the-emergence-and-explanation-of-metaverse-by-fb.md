@@ -1,7 +1,7 @@
 ---
 title: "Into New Realities: The Emergence and Explanation of Metaverse by FB"
-date: 2024-09-26T17:16:05.280Z
-updated: 2024-09-28T16:00:43.105Z
+date: 2024-09-30T21:01:34.481Z
+updated: 2024-10-03T21:16:47.677Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  With most acquisitions done in private, it’s likely that this number is even higher. But why would Facebook want to spend so much to acquire companies from a variety of industries? While we don't know for sure, what we do know is that they can benefit from knowing customers, unlike other companies.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Effects of a Granular Customer Profile
@@ -48,20 +48,13 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 ![Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You may be wondering why it matters that a single company has so much access to your personal data. For the common person, it may even appear like these concerns are overblown. After all, who would want the data of a random guy doing ordinary things? Well, the answer is many people.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Data Brokering and Targeted Ads
 
@@ -70,6 +63,13 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
  Related:[Reasons Why Facebook Is a Security and Privacy Nightmare](https://www.makeuseof.com/tag/facebook-security-privacy-nightmare/)
 
  On the positive side, an established metaverse means better products that serve your specific niche interests and more relevant ads. However, it can quickly transcend into a chaotic mess of social surveillance and ethical conundrums.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Algorithmic Biases
 
@@ -87,16 +87,16 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
  Because the regulation often inhibits progress, many would tout the lag of regulation around technology to be a boon. However, the regulation also works to protect end-users from exploitation, especially due to ignorance. For this reason, many data brokers think more about profit than they do about protecting their consumers.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A Battle Among Giants
 
 ![Facebook App Store](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/08/Facebook-App-Store.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In 2021, Apple declared war on Facebook and other tech giants by significantly reducing their ad revenue by enabling consumers to opt out of data collection from third-party providers. While this doesn’t mean that no one has access to your data, it did significantly hamper the effectiveness of ads everywhere, especially Facebook.
 
@@ -127,21 +127,17 @@ thumbnail: https://thmb.techidaily.com/cce90de001854095939cd22c7e555d9393bc0bdf8
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-boxing-brilliance-versus-broadband-bonanza/"><u>[New] Boxing Brilliance versus Broadband Bonanza</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-video-views-to-vault-closure-income-insights-for-youtubers/"><u>[Updated] 2024 Approved From Video Views to Vault Closure Income Insights for Youtubers</u></a></li>
-<li><a href="https://howto.techidaily.com/8-solutions-to-solve-youtube-app-crashing-on-oneplus-nord-3-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Solutions to Solve YouTube App Crashing on OnePlus Nord 3 5G | Dr.fone</u></a></li>
-<li><a href="https://facebook.techidaily.com/ensuring-safe-browsing-facebooks-privacy-and-security-blueprint/"><u>Ensuring Safe Browsing: Facebook's Privacy & Security Blueprint</u></a></li>
-<li><a href="https://app-tips.techidaily.com/facing-the-end-of-windows-10-support-explore-your-five-last-options-now/"><u>Facing the End of Windows 10 Support? Explore Your Five Last Options Now!</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/guide-to-activating-two-factor-verification-on-twitch-for-added-safety/"><u>Guide to Activating Two-Factor Verification on Twitch for Added Safety</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/mastering-the-digital-world-with-guidance-from-toms-hardware-reviews/"><u>Mastering the Digital World with Guidance From Tom’s Hardware Reviews</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimizing-your-personal-branding-on-social-media-with-fb/"><u>Optimizing Your Personal Branding on Social Media with FB</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/snapstreak-savvy-guidance-to-prevent-interruptions/"><u>Snapstreak Savvy Guidance to Prevent Interruptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/strategic-liking-a-guide-for-the-discreet-user/"><u>Strategic Liking: A Guide for the Discreet User</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-7-best-social-strategy-apps-for-post-synchronization/"><u>The 7 Best Social Strategy Apps for Post Synchronization</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-hidden-dangers-in-user-interface-traps/"><u>The Hidden Dangers in User Interface Traps</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-next-digital-frontier-decoding-the-metaverse/"><u>The Next Digital Frontier: Decoding the Metaverse</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/top-choice-microphones-for-youtube-creators-for-2024/"><u>Top Choice Microphones for YouTube Creators for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/troubleshooting-steps-to-prevent-rogue-company-from-freezing-on-your-computer/"><u>Troubleshooting Steps to Prevent Rogue Company From Freezing on Your Computer</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-aftermath-social-media-deletion-realities/"><u>Understanding the Aftermath: Social Media Deletion Realities</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-crafting-captivating-content-secrets-to-thriving-in-tiktok-marketing/"><u>[New] 2024 Approved Crafting Captivating Content Secrets to Thriving in TikTok Marketing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-preventing-disorientation-in-virtual-environments/"><u>[New] Preventing Disorientation in Virtual Environments</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-mastering-subtitle-integration-on-instagram-tv/"><u>[Updated] In 2024, Mastering Subtitle Integration on Instagram TV</u></a></li>
+<li><a href="https://win-dash.techidaily.com/emulating-excellence-how-windows-can-adopt-these-7-powerful-linux-traits/"><u>Emulating Excellence: How Windows Can Adopt These 7 Powerful Linux Traits</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-tools-provided-for-common-facebook-issues/"><u>Exploring Tools Provided for Common Facebook Issues</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-see-who-follows-you-on-facebook/"><u>How to See Who Follows You on Facebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>In 2024, Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-lava-blaze-2-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best Lava Blaze 2 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-tecno-spark-10c-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Tecno Spark 10C Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/sheryl-sandbergs-leadership-legacy-in-tech/"><u>Sheryl Sandberg’s Leadership Legacy in Tech</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-modern-age-of-sharing-four-methods-for-a-tailored-newsfeed/"><u>The Modern Age of Sharing: Four Methods for a Tailored Newsfeed</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-keeping-your-data-private-in-fb/"><u>The Ultimate Guide to Keeping Your Data Private in FB</u></a></li>
 </ul></div>
 

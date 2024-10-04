@@ -1,7 +1,7 @@
 ---
 title: Social Media Frontlines of Biden's Fight Against Virus
-date: 2024-09-18T22:54:47.468Z
-updated: 2024-09-21T18:08:02.347Z
+date: 2024-09-28T16:17:44.811Z
+updated: 2024-10-03T20:48:34.835Z
 tags:
   - facebook
 categories:
@@ -42,11 +42,25 @@ thumbnail: https://thmb.techidaily.com/893ed101846c23a15225b4055236cf141325f0b73
 
  Biden will film a direct-to-camera public service announcement that'll be spread across digital platforms, while vice president Kamala Harris will take part in social media publicity—which includes an interview with weekly newspaper[Carolina Peacemaker](http://www.peacemakeronline.com/) .
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Social Media Against COVID-19
 
  Recently,[Facebook made it easier to find yourself a COVID-19 vaccine](https://www.makeuseof.com/facebook-makes-easier-find-covid-19-vaccine/) if you live in the US. Before that, the platform[launched new profile frames](https://www.makeuseof.com/facebooks-latest-profile-frames-encourage-friends-get-covid-19-vaccines/) in support of the vaccines, and even[froze the page of the Venezuelan president](https://www.makeuseof.com/facebook-freezes-president-maduro-page-fake-covid-cure/) because he promoted a false "miracle cure."
 
 ![Facebook Twitter Russian Trolls](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2020/09/facebook-twitter-russian-trolls.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Image Credit: Pixabay/Pexels
 
@@ -67,18 +81,22 @@ thumbnail: https://thmb.techidaily.com/893ed101846c23a15225b4055236cf141325f0b73
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-artful-approaches-to-elevating-your-fb-ad-reach/"><u>[New] Artful Approaches to Elevating Your FB Ad Reach</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-elite-action-capture-best-15-handheld-cams-for-2024/"><u>[New] Elite Action Capture Best 15 Handheld Cams for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-secrets-revealed-how-to-capture-your-facebook-sessions-for-2024/"><u>[New] Secrets Revealed How to Capture Your Facebook Sessions for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-filmmaking-foundations-understanding-screenplays/"><u>[Updated] In 2024, Filmmaking Foundations Understanding Screenplays</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-navigating-through-an-absent-obs-camera-input/"><u>[Updated] Navigating Through an Absent OBS Camera Input</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-insiders-guide-to-youtube-tv-features-and-functions-for-2024/"><u>[Updated] The Insider's Guide to YouTube TV Features & Functions for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-steps-into-podcasting-arena-challenges-clubhouse/"><u>Facebook Steps Into Podcasting Arena, Challenges Clubhouse</u></a></li>
+<li><a href="https://facebook.techidaily.com/global-gathering-grounds-social-platforms-that-unite-us/"><u>Global Gathering Grounds: Social Platforms That Unite Us</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-enhance-your-facebook-account-safety-via-2fa/"><u>Guide to Enhance Your Facebook Account Safety via 2FA</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-change-your-sim-pin-code-on-your-tecno-spark-20-proplus-phone-by-drfone-android/"><u>In 2024, How To Change Your SIM PIN Code on Your Tecno Spark 20 Pro+ Phone</u></a></li>
+<li><a href="https://facebook.techidaily.com/mastering-your-digital-legacy-on-facebook/"><u>Mastering Your Digital Legacy on Facebook</u></a></li>
+<li><a href="https://win-studio.techidaily.com/microsoft-cybersecurity-conference-focuses-on-avoiding-a-worldwide-tech-crisis-can-the-strategies-succeed/"><u>Microsoft Cybersecurity Conference Focuses on Avoiding a Worldwide Tech Crisis - Can the Strategies Succeed?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-the-nuances-of-online-romance-your-facebook-guide/"><u>Navigating the Nuances of Online Romance: Your Facebook Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/sticking-to-old-whatsapp-rules-functionality-remains-full/"><u>Sticking to Old WhatsApp Rules: Functionality Remains Full</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-cautious-collectors-compendium-for-social-media-scraps/"><u>The Cautious Collector’s Compendium for Social Media Scraps</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Battle Heats Up: $5 Million From Social Network Counteracts Substack's Appeal"
-date: 2024-09-20T19:20:14.730Z
-updated: 2024-09-21T17:05:29.015Z
+date: 2024-10-02T21:14:53.823Z
+updated: 2024-10-03T19:45:45.071Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/836b19a99b81c291189dfbcf8add59f634c1fb8aa
 
  As with Substack, journalists on Facebook's platform will be able to monetize their work through selling subscriptions. In the future, other monetization tools will be available, although Facebook has yet to reveal what these might be.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook's News Drive
 
  Whether Facebook can make a success of this new venture remains to be seen. The social networking giant says that it will be investing $1 billion in news over the next three years, of which this current $5 million is just a tiny percentage.
@@ -57,18 +64,24 @@ thumbnail: https://thmb.techidaily.com/836b19a99b81c291189dfbcf8add59f634c1fb8aa
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-step-up-your-gaming-with-advanced-ps4-capture-techniques/"><u>[New] In 2024, Step Up Your Gaming with Advanced PS4 Capture Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-speedy-screen-grab-creation-techniques/"><u>[Updated] 2024 Approved Speedy Screen Grab Creation Techniques</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-selecting-holy-songs-for-ringtone-amplification/"><u>[Updated] Selecting Holy Songs for Ringtone Amplification</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-transformational-techniques-bold-borders-on-instagram-photos/"><u>2024 Approved Transformational Techniques Bold Borders on Instagram Photos</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-portable-portal-now-traveling-at-your-fingertips/"><u>Facebook's Portable Portal, Now Traveling at Your Fingertips</u></a></li>
+<li><a href="https://facebook.techidaily.com/guide-to-fixing-facebook-security-code-delivery-issue/"><u>Guide to Fixing Facebook Security Code Delivery Issue</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-honor-play-40c-is-unlocked-by-drfone-android/"><u>How To Check if Your Honor Play 40C Is Unlocked</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-messages-from-vivo-s17t-by-fonelab-android-recover-messages/"><u>How to retrieve erased messages from Vivo S17t</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Nubia Z50S Pro? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/interpreting-evasive-language-within-fbc-discussions/"><u>Interpreting Evasive Language Within FBC Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/reactivating-trumps-virtual-footprint/"><u>Reactivating Trumps' Virtual Footprint</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-social-space-facebooks-privacy-control-hacks/"><u>Secure Your Social Space: Facebook’s Privacy Control Hacks</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-virtual-connections-decrease-fb-contacts/"><u>Streamlining Virtual Connections: Decrease FB Contacts</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-of-storytelling-weaving-a-captivating-online-narrative/"><u>The Power of Storytelling: Weaving a Captivating Online Narrative</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-to-understand-leveraging-the-knowledge-from-facebooks-hub/"><u>The Power to Understand: Leveraging the Knowledge From Facebook’s Hub</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-oppo-f25-pro-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Oppo F25 Pro 5G Phones</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/understanding-others-chatgpts-role-in-ei/"><u>Understanding Others: ChatGPT's Role in EI</u></a></li>
+</ul></div>
 

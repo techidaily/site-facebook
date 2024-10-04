@@ -1,7 +1,7 @@
 ---
 title: How To Turn Off All Facebook Notifications
-date: 2024-09-23T17:32:02.620Z
-updated: 2024-09-28T16:43:24.465Z
+date: 2024-09-29T16:09:33.037Z
+updated: 2024-10-03T16:20:54.297Z
 tags:
   - facebook
 categories:
@@ -50,13 +50,6 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
 
 ![facebook notification mark read](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-mark-read.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To mark all of your Facebook notifications as read, follow the guide below:
 
 1. Head to**Facebook.com** and log into your account.
@@ -69,6 +62,13 @@ thumbnail: https://thmb.techidaily.com/6193b23bc0e674c0853b0708bb0c2b43a5237bddc
  Hopefully, the last two sections have helped you get your existing Facebook notifications under control. But that's only half of the battle. You need to make sure you're not getting pestered by all that notification spam in the future, otherwise, you'll quickly end up back in the same position.
 
  There are two ways to approach the problem. You can either turn off notifications for particular types of alerts as they arrive, or you can deploy a more holistic approach from Facebook's Settings menu.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Turn Off Facebook Notifications as They Arrive
 
@@ -89,6 +89,13 @@ Follow the steps below to learn about the process on the web app:
 ### How to Turn Off Facebook Notifications by Category
 
 ![facebook notification settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notification-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If you dig into the Facebook Settings menu, you can turn off notifications for each type of alert (e.g. birthdays, people you may know, events, pages you follow, etc).
 
@@ -111,24 +118,24 @@ Follow the steps below to learn about the process on the web app:
 
  Remember—this is the nuclear option. You won't receive alerts of any kind if you follow these instructions.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Stop Facebook Notifications on Android
 
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![facebook notifications android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/facebook-notifications-android-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -150,13 +157,6 @@ Close
 2. Select**Notifications** from the menu.
 3. Scroll down to**Facebook** and tap on the entry.
 4. At the top of the new window, slide the toggle next to**Allow Notifications** into the**Off** position.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## More Ways to Make Facebook Work for You
 
@@ -181,24 +181,20 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-journey-through-powerdirector-2024-complete-review-and-walkthrough/"><u>[New] Journey Through PowerDirector 2024 Complete Review & Walkthrough</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-heart-of-adventure-polaroid-cubeplus-video-analysis/"><u>[Updated] 2024 Approved The Heart of Adventure Polaroid Cube+ Video Analysis</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-how-to-use-google-trends-to-come-up-with-video-ideas-easy-guide-for-2024/"><u>[Updated] How to Use Google Trends to Come up with Video Ideas [Easy Guide] for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-to-listen-to-podcasts-on-your-iphone/"><u>2024 Approved How to Listen to Podcasts on Your iPhone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-tutorial-guide-to-fade-out-music-in-premiere-pro/"><u>2024 Approved Tutorial Guide To Fade Out Music In Premiere Pro</u></a></li>
-<li><a href="https://facebook.techidaily.com/archiving-antics-concealing-status-updates-and-stories/"><u>Archiving Antics: Concealing Status Updates and Stories</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-digital-dustbin-efficiently-erase-facebook-comments/"><u>Avoid Digital Dustbin: Efficiently Erase Facebook Comments</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoid-privacy-changes-no-effect-on-whatsapps-full-access/"><u>Avoid Privacy Changes: No Effect on WhatsApp's Full Access</u></a></li>
-<li><a href="https://facebook.techidaily.com/avoiding-dangers-in-digital-trade-9-essential-tips/"><u>Avoiding Dangers in Digital Trade: 9 Essential Tips</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/bard-vs-chatgpt-vs-offline-alpaca-an-in-depth-comparison-of-llms-to-find-the-best-option-for-you/"><u>Bard Vs. ChatGPT Vs. Offline Alpaca: An In-Depth Comparison of LLMs to Find the Best Option for You</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-count-why-user-numbers-dont-define-us/"><u>Beyond the Count: Why User Numbers Don't Define Us</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-free-from-facebooks-grip/"><u>Breaking Free From Facebook's Grip</u></a></li>
-<li><a href="https://facebook.techidaily.com/chamber-conquest-strategies-for-communication-newbies/"><u>Chamber Conquest Strategies for Communication Newbies</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-virtual-haven-configuring-and-using-the-facebook-portal-tv/"><u>Creating a Virtual Haven: Configuring and Using the Facebook Portal TV</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-social-ties-facebook-memory-blocking-guide/"><u>Cut Social Ties: Facebook Memory Blocking Guide</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-asus-rog-phone-8-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Asus ROG Phone 8 Pro</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-tecno-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Tecno Device</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-the-latest-usb-30-drivers-on-your-windows-computer/"><u>Install the Latest USB 3.0 Drivers on Your Windows Computer</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-watermark-free-video-editing-the-top-10-free-online-options/"><u>Updated 2024 Approved Watermark-Free Video Editing The Top 10 Free Online Options</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-humorous-vines-the-ultimate-10-list/"><u>[New] 2024 Approved Humorous Vines The Ultimate 10 List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-navigating-spotifys-advertising-landscape/"><u>[New] 2024 Approved Navigating Spotify's Advertising Landscape</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-vidmore-screen-recorder-how-to-use-it/"><u>[New] In 2024, Vidmore Screen Recorder - How to Use It</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/collecting-classics-copyrights-released/"><u>Collecting Classics Copyrights Released</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-safety-protocols-for-platforms/"><u>Evaluating Safety Protocols for Platforms</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-iphone-15-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked iPhone 15 Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-making-the-most-out-of-creative-commons-licenses/"><u>In 2024, Making the Most Out of Creative Commons Licenses</u></a></li>
+<li><a href="https://facebook.techidaily.com/interaction-innovators-highlighting-todays-leading-digital-communities/"><u>Interaction Innovators: Highlighting Today's Leading Digital Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/national-survey-reveals-platforms-cause-greater-harm/"><u>National Survey Reveals: Platforms Cause Greater Harm</u></a></li>
+<li><a href="https://facebook.techidaily.com/say-no-to-facebook-keep-your-online-movements-private/"><u>Say No to Facebook: Keep Your Online Movements Private</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/successfully-implementing-hevc-video-format-into-adobe-premiere-pro-step-by-step-guide/"><u>Successfully Implementing HEVC Video Format Into Adobe Premiere Pro: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-power-duo-facebook-and-collaboration-8-key-insights/"><u>The Power Duo: Facebook & Collaboration - 8 Key Insights</u></a></li>
+<li><a href="https://facebook.techidaily.com/transforming-your-facebook-brand-with-a-new-username/"><u>Transforming Your Facebook Brand with a New Username</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-15-free-video-editing-tools-for-starters-simplified-and-user-friendly/"><u>Updated 2024 Approved 15 Free Video Editing Tools for Starters Simplified and User-Friendly</u></a></li>
+<li><a href="https://facebook.techidaily.com/why-meta-rules-should-make-us-nervous/"><u>Why Meta Rules Should Make Us Nervous</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Reasoning Behind Meta Holding Off on End-to-End Encryption by '23
-date: 2024-09-26T17:17:35.156Z
-updated: 2024-09-28T16:08:27.856Z
+date: 2024-09-30T18:11:47.871Z
+updated: 2024-10-03T22:12:51.134Z
 tags:
   - facebook
 categories:
@@ -37,10 +37,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Has Meta Delayed End-to-End Encryption?
@@ -54,10 +54,10 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
@@ -83,22 +83,18 @@ thumbnail: https://thmb.techidaily.com/e66e28dff9a78d29ac6c41d0e2dd487a7c339d734
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-experience-professional-video-calling-explore-the-top-5-devices/"><u>[New] Experience Professional Video Calling - Explore The Top 5 Devices</u></a></li>
-<li><a href="https://facebook.techidaily.com/8-life-hacks-to-break-your-screen-addiction-habit/"><u>8 Life Hacks to Break Your Screen Addiction Habit</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-likes-and-shares-understanding-facebooks-metaverse-vision/"><u>Beyond Likes and Shares: Understanding Facebook’s Metaverse Vision</u></a></li>
-<li><a href="https://facebook.techidaily.com/boosting-fb-post-interaction-top-12-strategies-revealed/"><u>Boosting FB Post Interaction: Top 12 Strategies Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-barriers-how-to-spot-emerging-fb-groups/"><u>Breaking Barriers: How to Spot Emerging FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/cracking-down-on-digital-goliaths-the-path-of-government-regulation/"><u>Cracking Down on Digital Goliaths: The Path of Government Regulation</u></a></li>
-<li><a href="https://facebook.techidaily.com/craft-your-identity-oculuss-latest-avatar-features/"><u>Craft Your Identity: Oculus’s Latest Avatar Features</u></a></li>
-<li><a href="https://facebook.techidaily.com/cut-the-clutter-guide-for-tidying-up-your-fb-threads/"><u>Cut the Clutter: Guide for Tidying Up Your Fb Threads</u></a></li>
-<li><a href="https://facebook.techidaily.com/data-defense-strategy-avoid-privacy-threats-here/"><u>Data Defense Strategy: Avoid Privacy Threats Here</u></a></li>
-<li><a href="https://techtrends.techidaily.com/essential-pre-holiday-tip-why-hold-off-on-shopping-online-for-your-festive-presents/"><u>Essential Pre-Holiday Tip: Why Hold Off on Shopping Online For Your Festive Presents</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-your-realme-gt-5-lock-screen-password-by-drfone-android/"><u>How to Reset your Realme GT 5 Lock Screen Password</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-y27-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo Y27 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-unveiling-the-art-of-flipping-photo-shades/"><u>In 2024, Unveiling the Art of Flipping Photo Shades</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/intel-unveils-upcoming-z890-chipset-compatible-core-ultra-arrow-lake-processors-leaked-images-reveal-new-desktop-cpu-names/"><u>Intel Unveils Upcoming Z890 Chipset-Compatible Core Ultra Arrow Lake Processors – Leaked Images Reveal New Desktop CPU Names</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/oceanecho-testing-underwater-fidelity-standards/"><u>OceanEcho Testing: Underwater Fidelity Standards</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-what-is-anime-filter-on-snapchat-how-to-get-it/"><u>[New] What Is Anime Filter On Snapchat? [How to Get It]</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enhance-video-storytelling-with-smart-chapter-insertion-techniques-on-youtube/"><u>[Updated] 2024 Approved Enhance Video Storytelling with Smart Chapter Insertion Techniques on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-exquisite-stardew-valley-enhancements-revealed-top-7/"><u>[Updated] In 2024, Exquisite Stardew Valley Enhancements Revealed (Top 7)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-quietly-stream-youtube-on-iphone-and-android-for-2024/"><u>[Updated] Quietly Stream YouTube on iPhone & Android for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-drawing-programs-a-compreenasaurus-rex-guide-to-chromebooks-art-tools/"><u>2024 Approved Ideal Drawing Programs A Compreenasaurus Rex Guide to Chromebook's Art Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/compiling-top-notch-video-grabbers-for-win11-devices-for-2024/"><u>Compiling Top-Notch Video Grabbers for Win11 Devices for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fake-followers-or-real-friends-unmask-deceit-online/"><u>Fake Followers or Real Friends? Unmask Deceit Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/from-rare-to-revelled-elevate-group-notoriety-on-fb/"><u>From Rare to Revelled: Elevate Group Notoriety on FB</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-best-first-flight-drones-for-youngsters-and-new-pilots/"><u>In 2024, Best First Flight Drones for Youngsters & New Pilots</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/profit-pushers-unveiling-5-new-earning-strategies-on-fbig/"><u>Profit Pushers: Unveiling 5 New Earning Strategies on FB/IG</u></a></li>
+<li><a href="https://facebook.techidaily.com/subtle-show-of-approval-fb-like-anonymity-tips/"><u>Subtle Show of Approval: FB Like Anonymity Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/triumphant-comeback-trump-in-the-digital-age/"><u>Triumphant Comeback: Trump in the Digital Age</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Hidden Dangers of Keeping Your FB History
-date: 2024-09-25T17:06:54.784Z
-updated: 2024-09-28T16:47:40.794Z
+date: 2024-10-01T17:42:45.690Z
+updated: 2024-10-03T16:05:29.183Z
 tags:
   - facebook
 categories:
@@ -39,13 +39,6 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
  Using the Activity log, you can delete your watch history,[delete comments from Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-post-comment/) , and more. We'll show you how to clear your watch history on both the Android app and the website.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Delete Your Facebook Watch History on Android
 
  To delete your Facebook watch history on the Android app, follow these steps:
@@ -54,15 +47,29 @@ thumbnail: https://thmb.techidaily.com/66380fee6148181c7fbef919ab70be5b7f03dcd6b
 
 ![screenshot showing facebook profile menu page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-fb-profile-menu-page.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![screenshot showing facebook activity log page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-facebook-activity-log-page-on-android.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![screenshot showing watched videos page on android](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-watched-videos-page-on-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -81,33 +88,12 @@ Close
 1. ![clear video watch history on the facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/clear-video-watch-history-pc-screenshot.jpg)  
  Go to[Facebook.com](https://www.facebook.com/) and open your profile.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 2. Click on the**three-dot icon** , then click**Activity log** .
 3. ![profile page screenshot on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/profile-page-screenshot-on-facebook-web-desktop.jpg)  
  Click on**Videos you’ve watched** .
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 4. ![screenshot showing activity log page on facebook website](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-page-on-facebook-web.jpg)  
  You will see a list of all the videos you have watched on Facebook. To clear your watch history, click on**Clear Video Watch History** .
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Clear Your Live Video History on the Web
 
@@ -119,6 +105,26 @@ Close
 4. ![screenshot showing activity log sidebar on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/screenshot-showing-activity-log-sidebar-on-facebook.jpg)  
  You can then clear any videos you find there.  
 ![live videos youve watched page screenshot on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/live-videos-youve-watched-page-screenshot-on-facebook.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Why You Should Delete Your Facebook Watch History
 
@@ -145,22 +151,19 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-best-android-videography-6-must-try-music-videos-apps-for-2024/"><u>[New] Best Android Videography 6 Must-Try Music Videos Apps for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-which-iphone-video-editor-stands-tall-cameo-vs-filmorago/"><u>[New] Which iPhone Video Editor Stands Tall? Cameo Vs. FilmoraGo</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-ways-to-clean-up-your-facebook-account/"><u>5 Ways to Clean Up Your Facebook Account</u></a></li>
-<li><a href="https://facebook.techidaily.com/accusation-facebook-forbids-authentic-ads/"><u>Accusation: Facebook Forbids Authentic Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/alert-for-hidden-chat-photos-messenger-screen-shot-triggers/"><u>Alert for Hidden Chat Photos: Messenger Screen Shot Triggers</u></a></li>
-<li><a href="https://facebook.techidaily.com/beyond-the-algorithm-10-compelling-arguments-for-quitting-social-media/"><u>Beyond the Algorithm: 10 Compelling Arguments for Quitting Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-a-brand-image-with-standout-timeline-images/"><u>Building a Brand Image with Standout Timeline Images</u></a></li>
-<li><a href="https://facebook.techidaily.com/community-control-crusade-commanding-conversations-with-facebooks-advanced-tools/"><u>Community Control Crusade: Commanding Conversations with Facebook’s Advanced Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/connectivitys-perks-uncovering-the-benefits-of-social-media/"><u>Connectivity's Perks: Uncovering the Benefits of Social Media</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-methods-to-reset-and-protect-your-fb-password/"><u>Critical Methods to Reset and Protect Your Fb Password</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/five-strategies-to-fix-your-steam-account-sign-in-problems/"><u>Five Strategies to Fix Your Steam Account Sign-In Problems</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/imovie-rhythms-crafting-audio-visual-symphony-for-2024/"><u>IMovie Rhythms Crafting Audio-Visual Symphony for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-apple-id-is-greyed-out-from-apple-iphone-12-mini-how-to-bypass-by-drfone-ios/"><u>In 2024, Apple ID is Greyed Out From Apple iPhone 12 mini How to Bypass?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-oppo-a78-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Oppo A78? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/seamless-controller-transfers-between-playstation-and-switch/"><u>Seamless Controller Transfers Between PlayStation & Switch</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-guide-solving-paramount-plus-streaming-issues-on-amazon-fire-tv/"><u>Troubleshooting Guide: Solving Paramount Plus Streaming Issues on Amazon Fire TV</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/zero-downloads-the-ultimate-list-of-seamless-gif-to-video-tools-for-2024/"><u>Zero Downloads The Ultimate List of Seamless GIF to Video Tools for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pro-3-in-perspective-the-latest-from-ion-air-reviewed/"><u>[New] 2024 Approved Pro 3 in Perspective The Latest From ION Air Reviewed</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-visual-storytelling-key-shot-techniques-for-beginners-for-2024/"><u>[New] Mastering Visual Storytelling Key Shot Techniques for Beginners for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-splitcam-review-is-it-the-best-video-recorder/"><u>[Updated] SplitCam Review Is It The Best Video Recorder?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transform-photo-editing-with-top-lunapic-hacks/"><u>[Updated] Transform Photo Editing with Top LunaPic Hacks</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-least-expensive-skyvault-service-for-big-files/"><u>2024 Approved The Least Expensive SkyVault Service for Big Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/elevating-your-hd-media-posting-mastery-on-social/"><u>Elevating Your HD Media: Posting Mastery on Social</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-on-this-day-enhancing-nostalgia-and-connection/"><u>Facebook On This Day: Enhancing Nostalgia and Connection</u></a></li>
+<li><a href="https://facebook.techidaily.com/hurdles-in-the-horizon-facebooks-predictions/"><u>Hurdles in the Horizon: Facebook's Predictions</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-previous-friendships-in-fb/"><u>Navigating Previous Friendships in FB</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigating-the-future-the-influence-of-ai-in-shaping-web-browsing-and-site-ranking/"><u>Navigating the Future: The Influence of AI in Shaping Web Browsing and Site Ranking</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-review-of-vn-video-editor-apk-features-and-performance/"><u>New 2024 Approved Review of VN Video Editor APK Features and Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategic-approach-sharing-work-opportunities-on-facebook/"><u>Strategic Approach: Sharing Work Opportunities on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-best-facebook-home-assistants/"><u>Unveiling the Best Facebook Home Assistants</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-flip-and-rotate-avi-videos-for-free-best-tools/"><u>Updated 2024 Approved Flip and Rotate AVI Videos for Free Best Tools</u></a></li>
 </ul></div>
 

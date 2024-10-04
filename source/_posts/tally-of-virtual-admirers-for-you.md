@@ -1,7 +1,7 @@
 ---
 title: Tally of Virtual Admirers for You
-date: 2024-09-18T23:36:17.484Z
-updated: 2024-09-21T23:31:50.523Z
+date: 2024-10-01T23:12:53.366Z
+updated: 2024-10-03T19:50:07.771Z
 tags:
   - facebook
 categories:
@@ -43,6 +43,13 @@ Close
 3. Scroll to the bottom of the page. Then under**Followers** , tap**See all** to load a list of all your Facebook followers.
 4. Look to the top-right corner of the page (opposite**Followers**) to see the number of people that follow you on Facebook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to See Your Followers on Facebook on a Desktop Browser
 
  While you can see your Facebook followers on the web version of Facebook, you can't see the total number of people following you. If you want to see who is following you on Facebook, here's what to do if you're using the browser version...
@@ -54,6 +61,13 @@ Close
 1. Once logged in, click your name at the top of the left sidebar to open your profile.
 2. Click the**More** dropdown.
 3. From the dropdown list, select**Followers** to view all your Facebook followers.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can't See Your Facebook Followers? Here's Why
 
@@ -80,44 +94,37 @@ To do this on the desktop browser:
 ![Facebook homepage profile icon settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-homepage-profile-icon-settings.jpg)
 4. From the left sidebar of the Settings menu, click**Privacy** .  
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![Facebook profile settings privacy option](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-settings-privacy-option.jpg)
 5. Select**Public Posts** from the left sidebar.
 6. Look to the right of the**Who Can Follow Me** option and click the**Friends** dropdown.
 7. Select**Public** to allow anyone to follow you, including those who aren't your friends on Facebook.  
 ![Facebook profile setting follower settings desktop](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/05/facebook-profile-setting-follower-settings-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To change your followers' preference on the Facebook mobile app:
 
 ![Facebook profile](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-profile-2.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-settings-menu.jpeg)
+
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Facebook follower settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/09/Facebook-follower-settings-menu.jpeg)
 
@@ -147,5 +154,22 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-facebook-video-downloader-round-up-1-5-edition-for-2024/"><u>[Updated] Facebook Video Downloader Round-Up #1-5 Edition for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-acethinker-screen-recorder-review-and-alternative/"><u>2024 Approved AceThinker Screen Recorder Review and Alternative</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-the-ownership-of-online-visual-content/"><u>Deciphering the Ownership of Online Visual Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-digital-expressions-fbs-visual-codes-and-their-significance/"><u>Decoding Digital Expressions: FB's Visual Codes and Their Significance</u></a></li>
+<li><a href="https://facebook.techidaily.com/delving-into-why-apple-maintains-distinct-digital-direction/"><u>Delving Into Why Apple Maintains Distinct Digital Direction</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-the-economic-value-of-metas-endorsement/"><u>Dissecting the Economic Value of Meta's Endorsement</u></a></li>
+<li><a href="https://facebook.techidaily.com/donald-trump-is-suing-google-facebook-and-twitter-over-censorship/"><u>Donald Trump Is Suing Google, Facebook, and Twitter Over Censorship</u></a></li>
+<li><a href="https://facebook.techidaily.com/earning-potential-for-creators-metas-impact-on-reel-money-making/"><u>Earning Potential for Creators: Meta's Impact on Reel Money-Making</u></a></li>
+<li><a href="https://facebook.techidaily.com/easily-change-profile-contact-information/"><u>Easily Change Profile Contact Information</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-hardware-with-toms-gear-guide/"><u>Exploring Hardware with Tom's Gear Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-securely-extract-and-convert-youtube-audios-as-mp3-for-2024/"><u>How To Securely Extract and Convert YouTube Audios as MP3 for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigate-job-landscape-6-chatgpt-techniques-for-success/"><u>Navigate Job Landscape: 6 ChatGPT Techniques for Success</u></a></li>
+<li><a href="https://win11.techidaily.com/the-leading-improvements-windows-11-feb-release/"><u>The Leading Improvements: Windows 11, FEB Release</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/zoom-your-stories-to-attention-on-instagram-for-2024/"><u>Zoom Your Stories to Attention on Instagram for 2024</u></a></li>
+</ul></div>
 

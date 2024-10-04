@@ -1,7 +1,7 @@
 ---
 title: "FB's Green Horizon: Shift to 100%% Clean Energy"
-date: 2024-09-19T20:26:21.042Z
-updated: 2024-09-22T00:02:45.446Z
+date: 2024-09-29T16:07:33.751Z
+updated: 2024-10-03T21:49:02.938Z
 tags:
   - facebook
 categories:
@@ -40,9 +40,23 @@ thumbnail: https://thmb.techidaily.com/9dc3437ed1a0c4e12ecf0fe73c74b8d72b51654a1
 
  Now, Facebook’s offices and data centers are all supported by clean energy thanks to the production of more than 6 gigawatts of wind and solar energy across 18 states and five countries.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Facebook Has Already Set Its Next Environmental Target
 
 ![wind energy](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/wind-plant.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The company has already set a new goal that should be achieved by 2030\. Facebook is planning to reach zero emissions across not just its own global operations, but also its suppliers. Here’s what else the company has to say about its future environmental plans:
 
@@ -67,12 +81,16 @@ So, things may, finally, be moving in the right direction.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-plotting-powerful-promotional-portraits/"><u>[Updated] 2024 Approved Plotting Powerful Promotional Portraits</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/effortless-cover-letter-writing-using-chatgpt-top-strategies-revealed/"><u>Effortless Cover Letter Writing Using ChatGPT: Top Strategies Revealed</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-apply-dark-aesthetics-on-facebook/"><u>How to Apply Dark Aesthetics on Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/multi-platform-marketing-distribute-instagram-reels-to-facebook/"><u>Multi-Platform Marketing: Distribute Instagram Reels to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/silent-social-media-archiving-to-mask-facebook-footprints/"><u>Silent Social Media: Archiving to Mask Facebook Footprints</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/step-by-step-instructions-for-securing-your-favorite-vh1-songs-on-mac-or-pc/"><u>Step-by-Step Instructions for Securing Your Favorite VH1 Songs on Mac or PC</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlocking-the-full-potential-of-your-logitech-mx-master-step-by-step-guide/"><u>Unlocking the Full Potential of Your Logitech MX Master: Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-believes-social-networks-outweigh-benefits/"><u>US Believes: Social Networks Outweigh Benefits</u></a></li>
+<li><a href="https://howto.techidaily.com/vivo-s18e-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo S18e Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+</ul></div>
 

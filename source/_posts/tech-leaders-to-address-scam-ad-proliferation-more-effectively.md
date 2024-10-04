@@ -1,7 +1,7 @@
 ---
 title: Tech Leaders to Address Scam Ad Proliferation More Effectively
-date: 2024-09-25T16:09:32.220Z
-updated: 2024-09-28T16:52:32.637Z
+date: 2024-09-30T20:43:59.351Z
+updated: 2024-10-03T16:02:41.824Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ Adam French, Consumer Rights Expert at Which?, said:
  Furthermore, the study also revealed the qualms victims had with the reporting process and response of these companies. Victims felt that although Facebook's reporting process was fairly straightforward, the company wouldn't do anything about the advert. On the other hand, users found the reporting process of Google to be cumbersome. Essentially, victims did not know how to report the fraudulent ad to Google.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Response by Facebook and Google
@@ -78,24 +78,24 @@ Facebook further stated:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-say-goodbye-to-boring-photos-addons-for-iphones-and-android-screenshots/"><u>[New] Say Goodbye to Boring Photos – Addons for iPhones and Android Screenshots</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-screenplay-creation-hub-for-2024/"><u>[New] Top Screenplay Creation Hub for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/1716068827610-updated-2024-approved-best-free-android-capture-app-zero-ads/"><u>[Updated] 2024 Approved Best Free Android Capture App, Zero Ads!</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-quick-voice-fixes-for-your-snapchat-snaps-using-dual-methods/"><u>[Updated] In 2024, Quick Voice Fixes for Your Snapchat Snaps Using Dual Methods</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-2024mkvsrt3/"><u>1. 最新メソッド：2024年MKVファイルからSRT字幕を効率よく取得する3つの技術</u></a></li>
-<li><a href="https://facebook.techidaily.com/authenticity-arenas-metas-vs-blue-ticked-treasures/"><u>Authenticity Arenas: Metas Vs. Blue Ticked Treasures</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-oppo-find-x7-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Oppo Find X7 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-g54-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from G54 5G</u></a></li>
-<li><a href="https://facebook.techidaily.com/fbs-wearable-experiment-could-include-two-detachable-cameras/"><u>FB's Wearable Experiment: Could Include Two Detachable Cameras?</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-vivo-v29-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Vivo V29 by Name | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/master-the-monitor-game-samsungs-ue590-review-inside-out/"><u>Master the Monitor Game - Samsung's UE590 Review Inside Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/network-economics-growth-and-gold-in-social-space/"><u>Network Economics: Growth & Gold in Social Space</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-startup-delays-effective-solutions-for-speeding-up-windows-7-boots/"><u>Resolving Startup Delays: Effective Solutions for Speeding Up Windows 7 Boots</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-your-social-space-adding-users-to-your-private-facebook-circle/"><u>Secure Your Social Space: Adding Users to Your Private Facebook Circle</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-shift-spectrum-tracing-facebooks-journey-to-meta/"><u>Social Shift Spectrum: Tracing Facebook’s Journey to Meta</u></a></li>
-<li><a href="https://facebook.techidaily.com/socializing-made-simple-add-new-people-on-facebook-messenger/"><u>Socializing Made Simple: Add New People on Facebook Messenger</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-bitter-truth-unraveling-five-key-failures-in-facebooks-user-journey/"><u>The Bitter Truth: Unraveling Five Key Failures in Facebook’s User Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-joy-of-authenticity-why-leave-facebook-behind/"><u>The Joy of Authenticity: Why Leave Facebook Behind</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-did-the-social-media-titans-temporarily-tremble/"><u>Why Did the Social Media Titans Temporarily Tremble?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-financial-forecast-shooting-a-music-video/"><u>[New] Financial Forecast Shooting a Music Video</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-looms-labyrinth-navigating-screen-record-art-for-2024/"><u>[New] Loom's Labyrinth Navigating Screen Record Art for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unrestricted-gaming-beats-digital-download/"><u>[New] Unrestricted Gaming Beats Digital Download</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-capture-life-in-high-definition-on-a-budget-(1k-for-2024/"><u>[Updated] Capture Life in High Definition on a Budget (<$1K) for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[Updated] In 2024, Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-from-sketches-to-screens-animation-via-windows-movie-maker/"><u>2024 Approved From Sketches to Screens Animation via Windows Movie Maker</u></a></li>
+<li><a href="https://techtrends.techidaily.com/are-you-really-getting-dolby-atmos-sound/"><u>Are You Really Getting Dolby Atmos Sound?</u></a></li>
+<li><a href="https://facebook.techidaily.com/fb-upgrades-text-based-interaction-with-new-messaging-innovations-in-messenger-and-instagram/"><u>FB Upgrades Text-Based Interaction with New Messaging Innovations in Messenger & Instagram</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-fix-base-system-device-driver-issue-in-device-manager/"><u>How to Fix Base System Device Driver Issue in Device Manager</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-a-comprehensive-guide-to-mastering-ipogo-for-pokemon-go-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, A Comprehensive Guide to Mastering iPogo for Pokémon GO On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/meta-rewinds-time-for-trumps-profile/"><u>Meta Rewinds Time for Trump's Profile</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-xiaomi-redmi-k70e-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Xiaomi Redmi K70E Phone Now with These Tips</u></a></li>
+<li><a href="https://facebook.techidaily.com/recognizing-9-flaws-that-suggest-hacked-profiles/"><u>Recognizing 9 Flaws That Suggest Hacked Profiles</u></a></li>
+<li><a href="https://facebook.techidaily.com/riding-against-tides-why-facebook-may-survive/"><u>Riding Against Tides: Why Facebook May Survive</u></a></li>
+<li><a href="https://facebook.techidaily.com/sprucing-up-your-social-network-scene/"><u>Sprucing Up Your Social Network Scene</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-economics-of-engaging-with-each-other-online/"><u>The Economics of Engaging with Each Other Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ultimate-guide-to-propel-engagement-in-fb-discussions/"><u>The Ultimate Guide to Propel Engagement in FB Discussions</u></a></li>
+<li><a href="https://facebook.techidaily.com/trump-files-suit-alleging-suppression-by-google-twitter/"><u>Trump Files Suit Alleging Suppression by Google, Twitter</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfollow-unfriend-actions-prior-to-facebook-deletion/"><u>Unfollow, Unfriend: Actions Prior to Facebook Deletion</u></a></li>
 </ul></div>
 

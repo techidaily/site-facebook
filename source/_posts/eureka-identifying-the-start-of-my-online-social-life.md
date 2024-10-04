@@ -1,7 +1,7 @@
 ---
 title: Eureka! Identifying the Start of My Online Social Life
-date: 2024-09-26T16:05:24.744Z
-updated: 2024-09-28T16:59:39.045Z
+date: 2024-09-29T16:05:28.540Z
+updated: 2024-10-03T21:34:39.821Z
 tags:
   - facebook
 categories:
@@ -74,6 +74,19 @@ Close
 
 ![Use the welcome email to find your join date on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/04/facebook-welcome-email.png)
 
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  When you find the Facebook email that either asks you to confirm your email address or offers instructions on getting started with Facebook, that email’s date should be your Facebook account creation date.
 
  This is the best method if you no longer have access to your Facebook account or you recently created your account—meaning the welcome email is easily accessible. But if you regularly delete your emails, you won't be able to check your Facebook account creation date via this method.
@@ -93,37 +106,17 @@ Close
 ![facebook photo albums page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/facebook-photo-albums-page-1.jpg)
 5. Click**Profile pictures** on the album screen to open your profile photos album.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 6. Find the oldest profile picture in this album. Unless you’ve uploaded loads of profile pictures, you shouldn’t have any issues getting to the oldest picture.
 7. When your oldest profile picture opens in full-screen, check the date of the upload on the right of the photo.  
 ![first profile picture on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/first-profile-picture-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  That date should be the day you made your Facebook profile or very close to that date.
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Find Out How Old Your Facebook Account Is Using Old Posts
@@ -138,20 +131,27 @@ Close
 
 ![posts history on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/posts-history-on-facebook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Now scroll down to the oldest post on the list. To make the list shorter, use the**Date** filter to select the oldest possible date for posts.
 
 ![date filter for posts on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/06/date-filter-for-posts-on-facebook.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You don't need a third-party app; you can do it all by using the built-in search functionality leveraging our[Facebook search tips](https://www.makeuseof.com/tag/5-facebook-search-tips/) .
 
  However, like the previous method, the date of your first post might not be the exact day you created your Facebook account. Also, if you regularly[delete your Facebook posts](https://www.makeuseof.com/how-to-delete-facebook-posts/) , this method will not help.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Find Out When You Joined Facebook
 
@@ -174,17 +174,16 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-crafting-a-personalized-ringtone-from-tiktok-sounds/"><u>[New] Crafting a Personalized Ringtone From TikTok Sounds</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-ultimate-humor-image-creator-for-2024/"><u>[New] Ultimate Humor Image Creator for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-comprehensive-study-on-razers-camera-quality/"><u>[Updated] Comprehensive Study on Razer's Camera Quality</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-discover-the-leading-free-ios-video-editor-a-comprehensive-guide/"><u>[Updated] In 2024, Discover the Leading Free iOS Video Editor A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/3-ways-facebook-is-giving-you-more-control-over-your-news-feed/"><u>3 Ways Facebook Is Giving You More Control Over Your News Feed</u></a></li>
-<li><a href="https://facebook.techidaily.com/contemplating-the-impact-of-ditching-your-networked-life/"><u>Contemplating the Impact of Ditching Your Networked Life</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-your-online-world-with-simplified-fb-settings/"><u>Crafting Your Online World with Simplified FB Settings</u></a></li>
-<li><a href="https://facebook.techidaily.com/critical-points-to-land-freelance-employment/"><u>Critical Points to Land Freelance Employment</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-quick-guide-to-motorola-moto-g24-frp-bypass-instantly-by-drfone-android/"><u>In 2024, A Quick Guide to Motorola Moto G24 FRP Bypass Instantly</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/lossless-mp4-video-rotation-techniques-for-90-180-or-270-degrees-without-quality-compromise/"><u>Lossless MP4 Video Rotation Techniques for 90, 180, or 270 Degrees Without Quality Compromise</u></a></li>
-<li><a href="https://techtrends.techidaily.com/optimizing-viewing-experience-ideal-resolution-setups-on-samsung-qled-displays/"><u>Optimizing Viewing Experience: Ideal Resolution Setups on Samsung QLED Displays</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723003943986-quick-fixes-resolving-division-2-game-crashes-in-no-time/"><u>Quick Fixes: Resolving Division 2 Game Crashes in No Time!</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transform-your-photos-mastering-time-lapse-with-samsung-mobile/"><u>[New] Transform Your Photos Mastering Time Lapse with Samsung Mobile</u></a></li>
+<li><a href="https://facebook.techidaily.com/examining-filter-bubble-transparency-act-details/"><u>Examining Filter Bubble Transparency Act Details</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fullscreen-not-showing-problem-with-monitor-and-win11/"><u>Fullscreen Not Showing, Problem with Monitor & Win11?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/handheld-happiness-on-a-budget-exploring-features-and-limitations-of-the-nintendo-switch-lite/"><u>Handheld Happiness on a Budget: Exploring Features and Limitations of the Nintendo Switch Lite</u></a></li>
+<li><a href="https://facebook.techidaily.com/modifying-your-social-media-login-info/"><u>Modifying Your Social Media Login Info</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-beyond-facebook/"><u>Redefining Relationships Beyond Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-sensitivity-what-not-to-post-for-your-security/"><u>Social Sensitivity: What Not to Post for Your Security</u></a></li>
+<li><a href="https://fox-that.techidaily.com/tackle-ghost-touch-malfunctions-in-ios-devices-discover-10-methods-for-repair/"><u>Tackle Ghost Touch Malfunctions in iOS Devices: Discover 10 Methods for Repair</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlock-your-content-potential-best-ideas-for-youtube-themes/"><u>Unlock Your Content Potential Best Ideas for YouTube Themes</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unveiling-top-quality-hdr-camera-brands-and-models/"><u>Unveiling Top-Quality HDR Camera Brands and Models</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-xiaomi-redmi-k70-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Xiaomi Redmi K70 Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

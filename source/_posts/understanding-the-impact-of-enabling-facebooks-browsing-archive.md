@@ -1,7 +1,7 @@
 ---
 title: Understanding the Impact of Enabling Facebook’s Browsing Archive
-date: 2024-09-27T16:33:15.739Z
-updated: 2024-09-28T16:07:14.389Z
+date: 2024-09-26T21:55:06.408Z
+updated: 2024-10-03T23:22:07.290Z
 tags:
   - facebook
 categories:
@@ -34,16 +34,10 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
  In January 2024, Meta introduced a Link History feature in the Facebook mobile app. This allows you to view a list of all the websites you've visited from the social network. However, enabling Link History comes at the cost of your privacy.
 
 <!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Facebook's Link History Feature Works
@@ -71,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 ![Prompt to allow link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/prompt-to-allow-link-history-in-the-facebook-app.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![Facebook app showing a list of links visited](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-app-showing-a-list-of-links-visited.png)
@@ -82,13 +76,6 @@ thumbnail: https://thmb.techidaily.com/bb05cc1f39777472d93269752aa648567cff43de2
 Close
 
  If you see a screen prompting you to**Allow link history** , you haven't opted in yet. However, if you see a list of links you've visited before, you have already opted into use Facebook's Link History feature.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Disable Link History on Facebook
 
@@ -101,18 +88,25 @@ Close
 
 ![Settings and Privacy section of the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/settings-and-privacy-section-of-the-facebook-app.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Facebook settings menu](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/facebook-settings-menu.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![Toggling link history off in Facebook browser settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/toggling-link-history-off-in-facebook-browser-settings.png)
 
 ![Confirmation prompt to disable link history in the Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/01/confirmation-prompt-to-disable-link-history-in-the-facebook-app.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Close
 
@@ -135,19 +129,18 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-how-to-revive-a-stuck-obs-fullscreen/"><u>[New] How to Revive a Stuck OBS Fullscreen</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-2024-approved-from-calm-to-captivating-techniques-for-motion-blur-mastery/"><u>[Updated] 2024 Approved From Calm to Captivating Techniques for Motion Blur Mastery</u></a></li>
-<li><a href="https://solve-news.techidaily.com/1726028886546-dvdandroid/"><u>DVDファイルをAndroidデバイスに移行する簡単ガイド「無料・有料」方法</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/high-definition-capturing-for-switch-gamers/"><u>High Definition Capturing for Switch Gamers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-100-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor 100 to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/initiating-understanding-of-screen-resolution-and-quality/"><u>Initiating Understanding of Screen Resolution and Quality</u></a></li>
-<li><a href="https://facebook.techidaily.com/invisible-interactions-friendlist-coverage/"><u>Invisible Interactions: Friendlist Coverage</u></a></li>
-<li><a href="https://facebook.techidaily.com/secure-and-update-child-details-on-messenger-kids-app/"><u>Secure & Update Child Details on Messenger Kids App</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-success-equals-cash-income-for-digital-hubs/"><u>Social Success Equals Cash: Income for Digital Hubs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/streamline-your-tiktok-experience-on-mac-and-windows-for-2024/"><u>Streamline Your TikTok Experience on Mac and Windows for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/suing-for-privacy-whatsapp-vs-indian-government-regulations/"><u>Suing for Privacy: WhatsApp vs Indian Government Regulations</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-why-chatgpt-may-not-be-your-best-choice-from-the-mac-app-store/"><u>Understanding Why ChatGPT May Not Be Your Best Choice From the Mac App Store</u></a></li>
-<li><a href="https://facebook.techidaily.com/unlocking-secrets-how-to-use-friendly-feedback-tools/"><u>Unlocking Secrets: How to Use Friendly Feedback Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/what-is-unfollow-and-follow-on-facebook-and-when-to-use-it/"><u>What Is Unfollow and Follow on Facebook? (And When to Use It)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-pro-photography-insiders-top-picks-for-6-premium-4k-dslrs/"><u>2024 Approved Pro Photography Insiders Top Picks for 6 Premium 4K DSLRs</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-could-reels-elevate-over-tiktok-struggles/"><u>Facebook, Could Reels Elevate over TikTok Struggles?</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-fresh-perspective-assessing-the-impact-of-instagram-on-youthful-minds/"><u>Facebook's Fresh Perspective: Assessing the Impact of Instagram on Youthful Minds</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-instagram-insights-identifying-your-posts-audience/"><u>In 2024, Instagram Insights Identifying Your Post's Audience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-why-linksys-wrt3200acm-leads-as-a-premier-open-source-networking-device/"><u>In Depth Analysis: Why Linksys WRT3200ACM Leads as a Premier Open Source Networking Device</u></a></li>
+<li><a href="https://facebook.techidaily.com/in-depth-tutorial-your-facebook-journey-maped-and-analyzed/"><u>In-Depth Tutorial: Your Facebook Journey Maped and Analyzed</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/1723262413640-introducing-the-am01-by-ayaneo-the-perfect-blend-of-classic-appeal-and-modern-power-available-now-in-stores/"><u>Introducing the AM01 by Ayaneo: The Perfect Blend of Classic Appeal and Modern Power – Available Now in Stores</u></a></li>
+<li><a href="https://facebook.techidaily.com/revamping-your-online-community-engagement/"><u>Revamping Your Online Community Engagement</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-ripple-effect-of-your-facebook-actions-on-brands/"><u>The Ripple Effect of Your Facebook Actions on Brands</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/unraveling-zdsofts-screen-monitor-magic/"><u>Unraveling ZDSoft's Screen Monitor Magic</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/vlc-tutorial-the-art-of-video-angling-for-2024/"><u>VLC Tutorial The Art of Video Angling for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/your-newsfeed-redefined-4-innovative-approaches-for-content-customization/"><u>Your Newsfeed, Redefined: 4 Innovative Approaches for Content Customization</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/1726226195908-mp43gp-movavi/"><u>コストレスで高速なオンラインMP4/3GP動画変換 - Movaviを超えて</u></a></li>
 </ul></div>
 

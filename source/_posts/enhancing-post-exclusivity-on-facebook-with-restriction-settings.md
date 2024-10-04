@@ -1,7 +1,7 @@
 ---
 title: Enhancing Post Exclusivity on Facebook with Restriction Settings
-date: 2024-09-26T17:28:31.981Z
-updated: 2024-09-28T16:24:53.565Z
+date: 2024-09-26T19:45:46.783Z
+updated: 2024-10-03T17:59:30.456Z
 tags:
   - facebook
 categories:
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
  Keep in mind that adding someone to your Restricted list is not the same as[blocking them on Facebook](https://www.makeuseof.com/how-to-block-facebook/) . Blocking someone prevents them from interacting with you at all; the Restricted list only hides your posts from them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to See Your Restricted List on Facebook
@@ -48,10 +48,10 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Restricted List](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-restricted-list-2023.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  You can also add a friend to the Restricted list on their Facebook page. Visit a profile on Facebook, click the**Friends** button, and click**Edit Friend List** . Here, check the**Restricted** box to accomplish the same goal.
@@ -59,19 +59,19 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 ![Facebook Add to Restricted list](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/01/facebook-add-to-restricted.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  People won't get an alert when you add them to your Restricted list. But if they're knowledgeable about how Facebook works (and depending on how much you post), they might notice that they don't see as much content from you anymore. Because of this, you may wish to add someone to your Restricted list right after friending them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Keep Your Friends at a Safe Distance
@@ -95,20 +95,24 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-spikes-in-subscribers-implementing-top-12-video-promotion-techniques/"><u>[New] 2024 Approved Spikes in Subscribers Implementing Top 12 Video Promotion Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-ushering-bliss-in-unboxing-7-strategies/"><u>[Updated] 2024 Approved Ushering Bliss in Unboxing 7 Strategies</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-optimal-hd-video-memory-creators/"><u>[Updated] Optimal HD Video Memory Creators</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-quickedit-videotool/"><u>[Updated] QuickEdit VideoTool</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-elevate-your-images-learn-photo-curvature-in-ps/"><u>2024 Approved Elevate Your Images Learn Photo Curvature in PS</u></a></li>
-<li><a href="https://facebook.techidaily.com/a-new-chapter-without-carolyn-in-facebook-ads/"><u>A New Chapter Without Carolyn in Facebook Ads</u></a></li>
-<li><a href="https://facebook.techidaily.com/adaptive-timing-for-profile-picture-evolution/"><u>Adaptive Timing for Profile Picture Evolution</u></a></li>
-<li><a href="https://facebook.techidaily.com/big-data-battle-whatsapp-challenges-indian-privacy-act/"><u>Big Data Battle: WhatsApp Challenges Indian Privacy Act</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-powerful-branding-on-fb-8-compelling-arguments-for-business-pages/"><u>Building Powerful Branding on FB: 8 Compelling Arguments for Business Pages</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-effective-bilingualmultilingual-social-media-messages/"><u>Crafting Effective Bilingual/Multilingual Social Media Messages</u></a></li>
-<li><a href="https://facebook.techidaily.com/crossover-creation-facebooks-new-joint-venture-with-spotify/"><u>Crossover Creation: Facebook's New Joint Venture with Spotify</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-itel-p40-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Itel P40? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/meet-the-minimums-premiere-pro-system-requirements-explained/"><u>Meet the Minimums Premiere Pro System Requirements Explained</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-10-modifications-enhancing-chatgpts-performance/"><u>Top 10 Modifications: Enhancing ChatGPT's Performance</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transforming-zoom-calls-enhance-your-visuals-here-for-2024/"><u>Transforming Zoom Calls Enhance Your Visuals Here for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dive-into-the-digital-ocean-unveiling-facebooks-video-depth/"><u>[New] In 2024, Dive Into the Digital Ocean Unveiling Facebook's Video Depth</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-transform-your-discord-experience-learn-message-pinning/"><u>[New] In 2024, Transform Your Discord Experience Learn Message Pinning</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-dissecting-youtubes-criteria-for-featured-community-inputs/"><u>2024 Approved Dissecting YouTube's Criteria for Featured Community Inputs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/youtube-video-to-text-converters-on-line/"><u>Best YouTube Video to Text Converters On-Line</u></a></li>
+<li><a href="https://windows11.techidaily.com/discreetly-putting-an-end-to-invisible-window-tasks/"><u>Discreetly Putting an End to Invisible Window Tasks</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-create-an-apple-developer-account-from-apple-iphone-11-pro-max-by-drfone-ios/"><u>How To Create an Apple Developer Account From Apple iPhone 11 Pro Max</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/outsmarting-elite-social-schemes-with-tactics/"><u>Outsmarting Elite Social Schemes with Tactics</u></a></li>
+<li><a href="https://facebook.techidaily.com/privacy-shield-when-will-messenger-get-end-to-end-encryption/"><u>Privacy Shield: When Will Messenger Get End-to-End Encryption?</u></a></li>
+<li><a href="https://facebook.techidaily.com/shared-spaces-online-7-methods-of-collective-engagement/"><u>Shared Spaces Online: 7 Methods of Collective Engagement</u></a></li>
+<li><a href="https://win-answers.techidaily.com/stop-state-of-decay-2-from-freezing-2024s-comprehensive-solutions-for-gamers/"><u>Stop State of Decay 2 From Freezing: 2024'S Comprehensive Solutions for Gamers</u></a></li>
+<li><a href="https://facebook.techidaily.com/streamlining-your-facebook-extensions-use/"><u>Streamlining Your Facebook Extensions Use</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-disruptive-power-of-ios-145-for-facebooks-ad-business/"><u>The Disruptive Power of iOS 14.5 for Facebook's Ad Business</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-enigma-of-gone-from-facebook/"><u>The Enigma of Gone-From-Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-security-status-of-fb-chat-rooms/"><u>The Security Status of FB Chat Rooms</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-ultimate-portable-solution-sabrents-travel-mouse-equipped-with-high-precision-cables/"><u>The Ultimate Portable Solution: Sabrent's Travel Mouse, Equipped with High-Precision Cables</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlock-psychological-potential-with-isbms-modernized-cbt-framework/"><u>Unlock Psychological Potential with ISBM's Modernized CBT Framework</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-the-code-messengers-disappearing-dialogue/"><u>Unlocking the Code: Messenger’s Disappearing Dialogue</u></a></li>
 </ul></div>
 

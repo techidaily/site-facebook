@@ -1,7 +1,7 @@
 ---
 title: English Sports Teams Begin Their Boycott of Social Media
-date: 2024-09-25T16:57:07.453Z
-updated: 2024-09-28T17:18:59.911Z
+date: 2024-10-01T20:17:24.892Z
+updated: 2024-10-03T21:25:33.655Z
 tags:
   - facebook
 categories:
@@ -31,10 +31,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  The blackout began at 15:00 BST (11:00 EST) on Friday April 30th, and sports personalities involved will not be back on social media until Tuesday May 4th, with the boycott lifting at 23:59 BST on Monday.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What Will the Social Media Blackout Involve?
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  During the blackout, you won't see posts from sporting bodies or athletes on Instagram, Twitter, Facebook, or any other social media platform.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Are Sports Teams Boycotting Social Media?
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
  Perhaps without the stars and teams that bring so many users to social platforms, the platform owners will start to think about how racism is rife and that they need to do a lot more to eradicate it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Taking a Stand Against Racism
@@ -86,24 +86,21 @@ thumbnail: https://thmb.techidaily.com/1e11de4cf4f80ef092048741d4366db23f2bbee14
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-streamlining-monetization-strategies-on-youtube/"><u>[New] In 2024, Streamlining Monetization Strategies on YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-8-top-video-screen-grabbers/"><u>[Updated] In 2024, 8 Top Video Screen Grabbers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastering-360-fb-live-broadcasts/"><u>[Updated] In 2024, Mastering 360 FB Live Broadcasts</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-top-10-games-like-gta-v-for-2024/"><u>[Updated] Top 10 Games Like GTA V for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitter-videos-shared-directly-from-phones-for-2024/"><u>[Updated] Twitter Videos Shared Directly From Phones for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-start-guide-to-editing-with-snapseed/"><u>2024 Approved Quick Start Guide to Editing with Snapseed</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-your-brand-publicizing-positions-via-fb/"><u>Building Your Brand: Publicizing Positions via FB</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-infinix-hot-40-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Infinix Hot 40 Quickly? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-best-7-macos-video-player-selections/"><u>In 2024, Best 7 MacOS Video Player Selections</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-quick-visual-enhancements-using-portable-lut-tools/"><u>In 2024, Quick Visual Enhancements Using Portable LUT Tools</u></a></li>
-<li><a href="https://facebook.techidaily.com/intrigue-behind-social-media-suspension/"><u>Intrigue Behind Social Media Suspension</u></a></li>
-<li><a href="https://facebook.techidaily.com/maintaining-public-trust-by-stopping-online-misleading-facts/"><u>Maintaining Public Trust by Stopping Online Misleading Facts</u></a></li>
-<li><a href="https://facebook.techidaily.com/networking-nightmare-all-social-media-downed/"><u>Networking Nightmare: All Social Media Downed</u></a></li>
-<li><a href="https://facebook.techidaily.com/optimize-your-social-media-presence-a-reel-creation-blueprint/"><u>Optimize Your Social Media Presence: A Reel Creation Blueprint</u></a></li>
-<li><a href="https://facebook.techidaily.com/overlooked-technological-progress-spotlight-on-the-top-4-underserved-stories/"><u>Overlooked Technological Progress: Spotlight on the Top 4 Underserved Stories</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-14-pro-max-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 14 Pro Max You Should Try Out</u></a></li>
-<li><a href="https://facebook.techidaily.com/will-the-verdict-fall-soon-facebooks-governance-on-trump-ban/"><u>Will the Verdict Fall Soon? Facebook's Governance on Trump Ban</u></a></li>
-<li><a href="https://facebook.techidaily.com/your-online-actions-shape-brand-perceptions/"><u>Your Online Actions Shape Brand Perceptions</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719154532783-zuckerberg-discloses-pet-goats-name-is-blockchain/"><u>Zuckerberg Discloses: Pet Goat's Name Is 'Blockchain'.</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-essential-tactics-for-elevating-your-facebook-profile-ranks/"><u>2024 Approved Essential Tactics for Elevating Your Facebook Profile Ranks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-secrets-unlocked-10-online-retailers-specializing-in-puzzle-boxes/"><u>2024 Approved Secrets Unlocked 10 Online Retailers Specializing in Puzzle Boxes</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-turning-youtube-music-into-mp3-files-with-macos/"><u>2024 Approved Turning YouTube Music Into MP3 Files with MacOS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/a-lifetime-love-affair-with-top-15-classic-stop-motion-movies/"><u>A Lifetime Love Affair with Top 15 Classic Stop-Motion Movies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722092192707-avoid-artificer-assistance-for-windows-11-activation-explore-safer-options/"><u>Avoid Artificer Assistance for Windows 11 Activation - Explore Safer Options!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/excellence-in-4k-leading-blu-ray-players-compared-for-2024/"><u>Excellence in 4K Leading Blu-Ray Players Compared for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/fortify-your-fb-shielding-against-prying-onlookers/"><u>Fortify Your Fb Shielding Against Prying Onlookers</u></a></li>
+<li><a href="https://facebook.techidaily.com/hack-prevention-tactic-300-price-tag-on-quest-headsets/"><u>Hack Prevention Tactic: 300 Price Tag on Quest Headsets</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-enable-anonymous-posting-in-a-facebook-group/"><u>How to Enable Anonymous Posting in a Facebook Group</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/latest-guide-on-ipad-23-and-apple-iphone-15-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Latest Guide on iPad 2/3 and Apple iPhone 15 Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-top-8-masterful-audio-designs-in-film/"><u>New Top 8 Masterful Audio Designs in Film</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefine-your-online-presence-why-its-time-to-say-no-to-facebook/"><u>Redefine Your Online Presence: Why It's Time to Say No to Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/undercover-data-collection-on-pinterest-and-tumblr-to-maintain-free-status/"><u>Undercover Data Collection on Pinterest & Tumblr to Maintain Free Status</u></a></li>
+<li><a href="https://facebook.techidaily.com/unveiling-the-algorithm-behind-my-fb-promotions/"><u>Unveiling the Algorithm Behind My Fb Promotions</u></a></li>
+<li><a href="https://facebook.techidaily.com/us-antitrust-regulations-impacting-silicon-valley-giants/"><u>US Antitrust Regulations: Impacting Silicon Valley Giants</u></a></li>
 </ul></div>
 

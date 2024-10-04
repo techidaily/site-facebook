@@ -1,7 +1,7 @@
 ---
 title: "Snapshot: The Pivotal Announcements in Google’s 2022"
-date: 2024-09-16T16:59:36.361Z
-updated: 2024-09-21T17:12:51.488Z
+date: 2024-10-02T22:01:48.036Z
+updated: 2024-10-03T21:24:08.131Z
 tags:
   - facebook
 categories:
@@ -34,9 +34,23 @@ thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ec
 
  But things didn't stop there. Concerns soon arose in the US, which resulted in Google agreeing to pay a huge settlement of almost $400 million to 40 states for allegedly misleading users on location tracking. This settlement requires Google to be more forthcoming and transparent with users, including about its location tracking parameters, in 2023.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. The UK Ads Revenue Lawsuit
 
 ![photo of digital advertising screens](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/billboard-ads-digital.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In late 2022, it was revealed that over 130,000 UK businesses were suing Google over lost ad revenue, which allegedly amounted to £13.6 billion, or just under $17 billion.
 
@@ -48,28 +62,28 @@ thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ec
 
 ![youtube logo on phone screen](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/utube-phone-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In October 2006, when social media was still in its early days, Google announced that it had acquired YouTube for $1.65 billion. Sixteen years later, in January 2022,[Google decided to shut down YouTube Originals](https://www.makeuseof.com/why-google-killed-youtube-originals/) .
 
  As the name suggests, YouTube Originals focused on content entirely original to YouTube that had a higher production budget than your average video. These could be movies, TV shows, or even recorded Google events. YouTube Originals came about in 2016 and was only around for six years before Google pulled the plug.
 
  It seems that Google did this so that it could focus on investing in other projects, such as the Black Voice Fund and Creator Shorts Fund. However, it was evident to the public that YouTube Originals shows, such as Cobra Kai, didn't do as well as expected, which also may have played a role in Google's decision to shut down this YouTube feature in 2022.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. The Violation of Sonos Patents
 
 ![photo of black sonos speaker](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/12/speaker-sonos-1-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Both Sonos and Google produce smart speaker products, such as the Sonos One SL and[various Google Nest devices](https://www.makeuseof.com/google-nest-device-comparison/) . But in 2020, these two companies clashed heads when Sonos filed a lawsuit against Google for allegedly violating its audio technology patents. Sonos claimed in this suit that Google was copying its audio technology in the development of its smart speakers.
@@ -97,10 +111,10 @@ thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ec
  Google settled the court charges with the FTC in late November 2022, agreeing to pay a substantial $9.4 million fine for this deceptive advertising scheme.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. The $25B UK and Netherlands Lawsuits
@@ -128,5 +142,26 @@ thumbnail: https://thmb.techidaily.com/11e98257d7e7257e5883dcc5757d573b33d04f0ec
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-slow-motion-journey-for-aspiring-ig-video-makers-for-2024/"><u>[New] The Slow-Motion Journey for Aspiring IG Video Makers for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-8-ultimate-windows-10-video-grabber-apps-you-must-try/"><u>[Updated] In 2024, 8 Ultimate Windows 10 Video Grabber Apps You Must Try</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-top-8-best-4k-blu-ray-players/"><u>[Updated] Top 8 Best 4K Blu-Ray Players</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-restarting-your-pc-with-a-hard-reboot-on-windows-11/"><u>Guide to Restarting Your PC with a Hard Reboot on Windows 11</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-balancing-pace-for-better-snapchat-views/"><u>In 2024, Balancing Pace for Better Snapchat Views</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-vivo-y02t-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Vivo Y02T to Outlook | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-passfab-apple-iphone-15-pro-max-backup-unlocker-top-4-alternatives-by-drfone-ios/"><u>In 2024, PassFab Apple iPhone 15 Pro Max Backup Unlocker Top 4 Alternatives</u></a></li>
+<li><a href="https://facebook.techidaily.com/instructions-handling-minors-in-facebook-groups/"><u>Instructions: Handling Minors in Facebook Groups</u></a></li>
+<li><a href="https://games-able.techidaily.com/leveraging-the-power-of-steam-currency/"><u>Leveraging the Power of Steam Currency</u></a></li>
+<li><a href="https://facebook.techidaily.com/liberate-your-mindset-the-case-against-facebook/"><u>Liberate Your Mindset: The Case Against Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-mapping-techniques-finding-facebook-profilepage-links/"><u>Social Mapping Techniques: Finding Facebook Profile/Page Links</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-installing-new-software-for-dells-2330d-and-2330dn-printer-models/"><u>Step-by-Step Guide: Installing New Software for Dell's 2330D and 2330Dn Printer Models</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-mini-marvel-unpacking-features-of-the-new-gen-3-echo-dot-with-alexa-built-in-our-comprehensive-assessment/"><u>The Mini Marvel - Unpacking Features of the New Gen 3 Echo Dot with Alexa Built-In: Our Comprehensive Assessment</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-new-age-of-profiles-unbiased-and-nonpartisan-expression/"><u>The New Age of Profiles: Unbiased and Nonpartisan Expression</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-must-have-features-in-crowdflower-software-for-marketers/"><u>Top 8 Must-Have Features in CrowdFlower Software for Marketers</u></a></li>
+<li><a href="https://facebook.techidaily.com/uncovering-truths-from-the-hidden-files-of-facebook/"><u>Uncovering Truths From The Hidden Files of Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/unfolding-the-storyline-of-your-digital-companions/"><u>Unfolding the Storyline of Your Digital Companions</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-portions-of-facebooks-725m-settlement-fund/"><u>Unlocking Portions of Facebook's $725M Settlement Fund</u></a></li>
+<li><a href="https://facebook.techidaily.com/watchdog-tips-for-protecting-fb-privacy-against-uninvited-guests/"><u>Watchdog Tips for Protecting FB Privacy Against Uninvited Guests</u></a></li>
+</ul></div>
 

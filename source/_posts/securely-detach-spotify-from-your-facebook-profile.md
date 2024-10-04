@@ -1,7 +1,7 @@
 ---
 title: Securely Detach Spotify From Your Facebook Profile
-date: 2024-09-19T18:03:06.055Z
-updated: 2024-09-21T20:20:26.361Z
+date: 2024-09-26T18:27:40.621Z
+updated: 2024-10-03T17:14:40.702Z
 tags:
   - facebook
 categories:
@@ -36,11 +36,25 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Spotify password reset web page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/spotify-password-reset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Disconnect Your Spotify Account From Facebook
 
  Now, if you go to Spotify across the mobile app, web app, and desktop app, you'll notice that it doesn't mention anywhere about unlinking Facebook from your account. You can affect Facebook's permissions in terms of the data it receives from your Spotify account, but nothing about unlinking.
 
  So instead, you have to unlink Spotify directly from Facebook, and you can do it on the web app and the Facebook app.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Desktop)
 
@@ -54,16 +68,10 @@ Here's what you should do to unlink Facebook from Spotify.
 ![The Apps and websites page on the Facebook web app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/facebook-apps-websites.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Disconnect Your Spotify Account From Facebook (Mobile)
@@ -79,18 +87,18 @@ Here's what you should do to unlink Facebook from Spotify.
 
 ![The Permissions section of Settings on the Facebook iOS app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9602.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![The Spotify connection tile on Facebook iOS app settings](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/04/img_9603.jpg)
 
 Close
 
  Whichever platform you do this on, you should have successfully unlinked Facebook from your Spotify account and can now log in without it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Enjoy Spotify Without Facebook
 
@@ -111,5 +119,20 @@ Close
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-gopro-hero4-vs-drift-ghost-ultimate-performance-showdown-for-2024/"><u>[New] GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-keeping-the-memories-efficiently-taking-screenshots-on-xbox-one/"><u>[New] In 2024, Keeping the Memories Efficiently Taking Screenshots on Xbox One</u></a></li>
+<li><a href="https://facebook.techidaily.com/data-theft-in-the-age-of-digital-platforms/"><u>Data Theft in the Age of Digital Platforms</u></a></li>
+<li><a href="https://facebook.techidaily.com/deciphering-public-antipathy-towards-social-media-ecosystems/"><u>Deciphering Public Antipathy Towards Social Media Ecosystems</u></a></li>
+<li><a href="https://facebook.techidaily.com/decoding-the-use-ceiling-for-facebooks-neighborhood-users/"><u>Decoding the Use Ceiling for Facebook's Neighborhood Users</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/decoding-the-world-of-internet-memes/"><u>Decoding the World of Internet Memes</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-responsibility-essential-non-shareables-for-personal-security/"><u>Digital Responsibility: Essential Non-Shareables for Personal Security</u></a></li>
+<li><a href="https://facebook.techidaily.com/direct-access-to-spotify-features-within-facebook/"><u>Direct Access to Spotify Features Within Facebook</u></a></li>
+<li><a href="https://facebook.techidaily.com/dodging-shadowban-traps-in-social-media-networks/"><u>Dodging Shadowban Traps in Social Media Networks</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-xiaomi-redmi-k70e-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-smooth-start-gradual-appearance/"><u>In 2024, Smooth Start Gradual Appearance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/tiny-snippets-deciphered-important-facts/"><u>Tiny Snippets Deciphered Important Facts</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-steps-for-successful-startup-of-gta-5-game-installations/"><u>Troubleshooting Steps for Successful Startup of GTA 5 Game Installations</u></a></li>
+</ul></div>
 

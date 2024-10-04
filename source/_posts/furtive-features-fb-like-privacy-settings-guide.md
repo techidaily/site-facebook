@@ -1,7 +1,7 @@
 ---
 title: "Furtive Features: FB Like Privacy Settings Guide"
-date: 2024-09-22T16:37:34.578Z
-updated: 2024-09-28T17:19:13.968Z
+date: 2024-09-29T22:44:37.242Z
+updated: 2024-10-03T21:23:20.988Z
 tags:
   - facebook
 categories:
@@ -28,6 +28,13 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 
  You can hide likes on your Facebook posts through either the mobile app or on your desktop. Below, you'll find out how to do both of these.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hiding the Facebook Reaction Count on Mobile
 
 ![Menu options in Facebook Android app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-android-menu-options.jpg)
@@ -37,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/f35c2ac390106705ee1454ace680e37ced6ad5998
 ![Reaction preference settings on Facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Reaction-count-settings-facebook.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Close
@@ -64,22 +71,22 @@ To hide the number of reactions on your posts, follow these steps.
 
 ![The settings and privacy section on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/settings-privacy-section-facebook-web.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Your new settings are saved automatically.
 
 ![Reaction preferences on Facebook web](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/06/Facebook-web-reaction-preferences.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding Facebook's Reaction Preferences
@@ -93,13 +100,6 @@ Your new settings are saved automatically.
  You will continue to see reaction counts in other places—for example, content in Facebook’s Marketplace section. And if someone wants to do the count manually, they can.
 
  If you're still having a negative experience with the platform after hiding likes on your Facebook posts, you may want to consider either taking a break or[permanently deleting your Facebook account](https://www.makeuseof.com/tag/delete-facebook-account/) .
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Depressurize Your Experience on Facebook
 
@@ -120,18 +120,18 @@ Your new settings are saved automatically.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-the-art-of-directly-posting-tiktok-videos-on-facebook/"><u>[Updated] The Art of Directly Posting TikTok Videos on Facebook</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-itel-s23-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Itel S23</u></a></li>
-<li><a href="https://article-helps.techidaily.com/engaging-conversations-with-your-youtube-audience-for-2024/"><u>Engaging Conversations with Your YouTube Audience for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/engineer-meme-creation-in-adobe-for-2024/"><u>Engineer Meme Creation in Adobe for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/exploring-photodnas-purpose-and-mechanics/"><u>Exploring PhotoDNA's Purpose & Mechanics</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-the-art-of-video-production-on-instagram-how-to-insert-music-efficiently/"><u>Mastering the Art of Video Production on Instagram: How To Insert Music Efficiently</u></a></li>
-<li><a href="https://facebook.techidaily.com/navigating-privacy-on-facebook-a-handy-list-of-7-steps/"><u>Navigating Privacy on Facebook: A Handy List of 7 Steps</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-surprise-whats-not-in-your-feed/"><u>Social Media Surprise: What's Not in Your Feed?</u></a></li>
-<li><a href="https://win-blog.techidaily.com/valorant-wont-open-heres-how-you-can-resolve-pc-boot-problems/"><u>Valorant Won't Open? Here's How You Can Resolve PC Boot Problems</u></a></li>
-<li><a href="https://facebook.techidaily.com/when-does-fb-activity-hit-its-apex/"><u>When Does FB Activity Hit Its Apex?</u></a></li>
-<li><a href="https://facebook.techidaily.com/who-receives-5m-lifeline-from-tech-colossus/"><u>WHO Receives $5M Lifeline From Tech Colossus</u></a></li>
-<li><a href="https://facebook.techidaily.com/why-facebook-could-be-opening-a-retail-store-near-you-soon/"><u>Why Facebook Could Be Opening a Retail Store Near You Soon</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/zz-top-music-video-responses-and-why-they-roar-for-2024/"><u>YT Buzz Top Music Video Responses & Why They Roar for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-conducting-the-crescendo-infusing-instagram-reels-with-sounds/"><u>2024 Approved Conducting the Crescendo Infusing Instagram Reels with Sounds</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-inside-stardust-a-comprehensive-guide-to-mastery-in-stardew-and-its-intriguing-ginger-isle/"><u>2024 Approved Inside Stardust A Comprehensive Guide to Mastery in Stardew and Its Intriguing Ginger Isle</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-close-look-at-dji-phantom-3s-high-end-capabilities/"><u>A Close Look at DJI Phantom 3'S High-End Capabilities</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/connect-easily-to-messaging-apps-enroll-in-chatgpt-telegram-without-using-your-number/"><u>Connect Easily to Messaging Apps: Enroll in ChatGPT, Telegram Without Using Your Number</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-swipe-and-tap-worth-investing-in/"><u>Facebook's Swipe and Tap: Worth Investing In?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-g54-5g-using-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix corrupt video files of G54 5G using Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-guide-to-top-12-html5-video-engines/"><u>In 2024, The Ultimate Guide to Top 12 HTML5 Video Engines</u></a></li>
+<li><a href="https://facebook.techidaily.com/leveraging-channels-for-swift-social-group-ties/"><u>Leveraging Channels for Swift Social Group Ties</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-through-unsettling-trends-in-facebook-metaverse/"><u>Navigating Through Unsettling Trends in Facebook Metaverse</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-monitoring-the-key-to-reducing-deceptive-advertising/"><u>Social Media Monitoring: The Key to Reducing Deceptive Advertising</u></a></li>
+<li><a href="https://facebook.techidaily.com/steps-to-disguise-contributors-in-digital-forums/"><u>Steps to Disguise Contributors in Digital Forums</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-must-know-considerations-for-eliminating-social-platforms/"><u>The Must-Know Considerations for Eliminating Social Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-samsung-galaxy-m14-5g-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Samsung Galaxy M14 5G Users</u></a></li>
 </ul></div>
 

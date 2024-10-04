@@ -1,7 +1,7 @@
 ---
 title: "End-to-End Encryption on Hold: Meta's Rationale Deadline"
-date: 2024-09-16T16:53:06.460Z
-updated: 2024-09-21T23:06:56.966Z
+date: 2024-09-27T17:37:26.040Z
+updated: 2024-10-03T19:25:06.185Z
 tags:
   - facebook
 categories:
@@ -36,6 +36,13 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
 
  To many users, the integration is a scary prospect from a privacy perspective. In order to help reassure users that their Meta experience would be kept private across all platforms, Meta has been working to integrate cross-platform end-to-end encryption (E2EE).
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Why Has Meta Delayed End-to-End Encryption?
 
  The plan has been delayed due to what[Meta says](https://www.telegraph.co.uk/business/2021/11/20/people-shouldnt-have-choose-privacy-safety-says-facebook-safety/) is a desire to engage with all concerned parties to ensure end-to-end encryption is not abused by bad actors. However, when you read between the lines, it appears Meta has buckled to pressure from law enforcement and regulators, who have been adamantly opposed to Meta's E2EE plans.
@@ -45,6 +52,13 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
  Law enforcers in the US, Australia, and the UK have been urging Meta to ensure its E2EE plans would allow them to secretly read encrypted chats when necessary. Meta originally rejected the idea, but now seems willing to play ball with governments, which are determined not to be locked out.
 
  Meta and big tech have come under[pressure from regulators](https://www.makeuseof.com/is-big-tech-in-trouble/) around the world in recent years and months. Indeed, just a few days ago, Ireland's regulator slapped a[$267M fine on WhatsApp for data privacy violations](https://www.makeuseof.com/why-whatsapp-changing-privacy-policy-in-europe/) .
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Can a Balance Be Found?
 
@@ -67,18 +81,20 @@ thumbnail: https://thmb.techidaily.com/b0c789775642f2ac1a082c3710ec3e71a5c2db920
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-personalize-your-youtube-movies-length/"><u>[New] Personalize Your YouTube Movie's Length</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-essential-free-video-editing-apps-for-iphonesipads/"><u>[Updated] 2024 Approved Essential Free Video Editing Apps for iPhones/iPads</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-nokia-c210-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-itel-p40plus-frp-by-drfone-android/"><u>Full Guide to Bypass Itel P40+ FRP</u></a></li>
+<li><a href="https://facebook.techidaily.com/hidden-threats-at-your-doorstep-evading-fraudulent-transactions-online/"><u>Hidden Threats at Your Doorstep: Evading Fraudulent Transactions Online</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-deactivating-linkedin-a-comprehensive-guide-to-closing-down/"><u>In 2024, Deactivating LinkedIn A Comprehensive Guide to Closing Down</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-vivo-s18e-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Vivo S18e</u></a></li>
+<li><a href="https://facebook.techidaily.com/ios-145-the-unexpected-consequence-for-facebook/"><u>IOS 14.5: The Unexpected Consequence for Facebook?</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigate-the-newsfeed-with-4-easy-customization-tactics/"><u>Navigate the Newsfeed with 4 Easy Customization Tactics</u></a></li>
+<li><a href="https://common-error.techidaily.com/solving-the-microsoft-print-to-pdf-malfunction-in-windows-11-systems/"><u>Solving the Microsoft Print to PDF Malfunction in Windows 11 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/strategies-for-masterful-fb-image-selection-and-display/"><u>Strategies for Masterful FB Image Selection and Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-5-senior-friendly-networking-sites/"><u>Top 5 Senior-Friendly Networking Sites</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-crc-problems-a-guide-to-mend-your-data-accuracy/"><u>Troubleshooting CRC Problems – A Guide to Mend Your Data Accuracy</u></a></li>
+</ul></div>
 

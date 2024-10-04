@@ -1,7 +1,7 @@
 ---
 title: "Revelation: Poll Indicates Distrust in Big Technology Firms"
-date: 2024-09-22T16:28:39.075Z
-updated: 2024-09-28T16:58:48.834Z
+date: 2024-09-30T21:07:17.063Z
+updated: 2024-10-03T20:04:03.743Z
 tags:
   - facebook
 categories:
@@ -39,10 +39,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  In addition, though targeted ads may be the holy grail that keeps big tech in business, 66% of users say they are not helpful. 82% say targeted ads are annoying and 74% say they are invasive.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Facebook Is the Least Trusted
@@ -54,16 +54,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  However, Facebook is off the charts, with an overwhelming 72% sitting in the distrust camp. Only 20% of users trust Facebook and 8% have no opinion.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why Is Facebook So Distrusted?
@@ -71,10 +65,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 ![facebook logo shown crossed out on a mobile phone](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/12/facebook-eraser.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Almost 90% of users say Facebook has either a negative or neutral impact on society. Only 10% think Facebook has a positive impact on society. So why is this?
@@ -92,10 +86,10 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
  Amazon also gets positive reviews, despite often being in the news for alleged worker mistreatment. Most people believe its Alexa product probably eavesdrops on them. However, users may appreciate Amazon's focus on customer satisfaction with low prices and fast delivery.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Regulation Is Coming
@@ -123,20 +117,14 @@ thumbnail: https://thmb.techidaily.com/909f3c7957e52f6fe9de5cd9ae15915a5af92e863
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-tips-on-how-skip-edgenuity-videos/"><u>[New] 2024 Approved Tips on How Skip Edgenuity Videos</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-joke-journey-begins-for-free-our-meme-toolset/"><u>[Updated] Joke Journey Begins for Free - Our Meme Toolset</u></a></li>
-<li><a href="https://fox-info.techidaily.com/5-secrets-to-successful-and-memorable-titles-for-2024/"><u>5 Secrets to Successful and Memorable Titles for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/acquire-metas-gold-level-verification/"><u>Acquire Meta's Gold Level Verification</u></a></li>
-<li><a href="https://facebook.techidaily.com/are-you-ready-to-embrace-metamorphosis-with-meta-ai-sites/"><u>Are You Ready to Embrace Metamorphosis with Meta AI Sites?</u></a></li>
-<li><a href="https://facebook.techidaily.com/battle-against-facebooks-covert-watchers/"><u>Battle Against Facebook’s Covert Watchers</u></a></li>
-<li><a href="https://facebook.techidaily.com/breathe-new-life-into-your-facebook-profile-name/"><u>Breathe New Life Into Your Facebook Profile Name</u></a></li>
-<li><a href="https://facebook.techidaily.com/connecting-generations-or-fragmenting-them/"><u>Connecting Generations or Fragmenting Them?</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-a-bulletproof-fb-privacy-framework-for-youngsters/"><u>Creating a Bulletproof FB Privacy Framework for Youngsters</u></a></li>
-<li><a href="https://facebook.techidaily.com/customize-friendly-upgrading-your-social-media-experience/"><u>Customize-Friendly: Upgrading Your Social Media Experience</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-leverage-these-10-devices-for-crystal-clear-zooms/"><u>In 2024, Leverage These 10 Devices for Crystal Clear Zooms</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-motorola-moto-g24-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Motorola Moto G24 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-top-10-famous-movies-made-by-final-cut-pro-for-2024/"><u>New Top 10 Famous Movies Made By Final Cut Pro for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resolved-audio-issue-sound-from-speakers-not-headphones/"><u>Resolved! Audio Issue - Sound From Speakers, Not Headphones</u></a></li>
-<li><a href="https://techidaily.com/things-you-dont-know-about-xiaomi-redmi-note-13-proplus-5g-reset-code-drfone-by-drfone-reset-android-reset-android/"><u>Things You Dont Know About Xiaomi Redmi Note 13 Pro+ 5G Reset Code | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-ultimate-list-premier-networks-for-live-viewing/"><u>[New] 2024 Approved Ultimate List Premier Networks for Live Viewing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-bend-and-shape-your-text-with-3d-effects-in-illustrator/"><u>[New] Bend and Shape Your Text with 3D Effects in Illustrator</u></a></li>
+<li><a href="https://facebook.techidaily.com/evaluating-trust-in-facebooks-safety-email-(securityfbcom)/"><u>Evaluating Trust in Facebook's Safety Email: <security@fb.com></u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-the-meaning-behind-pfp-in-todays-tiktok-world/"><u>In 2024, The Meaning Behind PFP in Today's TikTok World</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-15-film-enhancing-luts-for-gopro-cameras/"><u>In 2024, Top 15 Film-Enhancing LUTs for GoPro Cameras</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transform-your-visuals-with-these-11-expert-strategies/"><u>In 2024, Transform Your Visuals with These 11 Expert Strategies</u></a></li>
+<li><a href="https://facebook.techidaily.com/metaverse-vs-virtual-reality-insights-6-key-distinctions-explored/"><u>Metaverse Vs. Virtual Reality Insights: 6 Key Distinctions Explored</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-social-media-backlash-to-like-or-not-to-like/"><u>The Social Media Backlash: To Like or Not to Like?</u></a></li>
+<li><a href="https://facebook.techidaily.com/updating-your-fb-avatar-simplified-steps/"><u>Updating Your FB Avatar: Simplified Steps</u></a></li>
 </ul></div>
 

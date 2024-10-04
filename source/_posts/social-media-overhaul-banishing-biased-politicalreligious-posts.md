@@ -1,7 +1,7 @@
 ---
 title: "Social Media Overhaul: Banishing Biased Political/Religious Posts"
-date: 2024-09-20T23:31:19.231Z
-updated: 2024-09-21T21:46:58.232Z
+date: 2024-09-30T19:03:01.220Z
+updated: 2024-10-03T19:19:31.866Z
 tags:
   - facebook
 categories:
@@ -44,6 +44,13 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
 
  But the new update seems to take a step further, removing this information from profiles completely.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Say Goodbye to Sensitive Information Fields on Facebook
 
  How this update will play out in terms of targeted advertising remains to be seen. While the removal of this information prevents users from directly noting this information in profile fields, advertisers still have plenty of other ways to target you according to these categories by using other data points.
@@ -61,18 +68,22 @@ thumbnail: https://thmb.techidaily.com/08c3aa17e0d4eaa82a6912035c2625c6aeb814a3c
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/new-unparalleled-editing-experience-vimeo-edition-awaits-for-2024/"><u>[New] Unparalleled Editing Experience Vimeo Edition Awaits for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elevate-your-gaming-experience-innovative-ways-to-record-vr-games/"><u>Elevate Your Gaming Experience Innovative Ways to Record VR Games</u></a></li>
+<li><a href="https://facebook.techidaily.com/fostering-friendship-safe-social-media-etiquette/"><u>Fostering Friendship: Safe Social Media Etiquette</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-beijing-bid-wins-2022-winter-olympics-highlights/"><u>In 2024, Beijing Bid Wins 2022 Winter Olympics Highlights</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-pro-tips-for-iphone-burst-photo-sequences/"><u>In 2024, Pro Tips for iPhone Burst Photo Sequences</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-resolve-your-apple-iphone-6s-keeps-asking-for-outlook-password-drfone-by-drfone-ios/"><u>In 2024, Resolve Your Apple iPhone 6s Keeps Asking for Outlook Password | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/intimate-images-and-internet-metas-preventive-policies/"><u>Intimate Images and Internet: Meta's Preventive Policies</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-networking-evolved-fb-launches-next-gen-oversight-tools/"><u>Social Networking Evolved: FB Launches Next-Gen Oversight Tools</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-resurgence-of-a-social-media-phenomenon/"><u>The Resurgence of a Social Media Phenomenon</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-oneplus-ace-2-frp-bypass-by-drfone-android/"><u>Ultimate Guide on OnePlus Ace 2 FRP Bypass</u></a></li>
+<li><a href="https://facebook.techidaily.com/unlocking-secrets-the-meanings-behind-common-chat-emoji-uses-in-fb/"><u>Unlocking Secrets: The Meanings Behind Common Chat Emoji Uses in FB</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-remains-when-fb-is-gone/"><u>What Remains When FB Is Gone?</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-to-anticipate-with-facebooks-interface-revamp/"><u>What to Anticipate with Facebook’s Interface Revamp</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-application-space-consumption-guide/"><u>Windows Application Space Consumption Guide</u></a></li>
+</ul></div>
 

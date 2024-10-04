@@ -1,7 +1,7 @@
 ---
 title: The Guide to Handling Inactive Accounts of the Departed
-date: 2024-09-24T16:21:12.170Z
-updated: 2024-09-28T16:34:55.061Z
+date: 2024-10-02T16:41:37.518Z
+updated: 2024-10-03T22:20:40.819Z
 tags:
   - facebook
 categories:
@@ -46,28 +46,15 @@ To get a Facebook account memorialized, follow these steps:
  If your case is genuine, Facebook allows you to hold a fundraiser and let people worldwide help you manage money for the deceased person. Use[valuable tips to make your fundraising campaign a success](https://www.makeuseof.com/tag/crowdfunding-campaign-tips/) .
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Get a Facebook Account Removed After the Person Dies
 
 ![Facebook logo being smudged](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2022/10/pexels-thought-catalog-2228555.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049391/7443" target="_top" id="2049391">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049391" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049391/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  For some people, having a memorial account of the deceased person is a way to keep them in their thoughts, but others might think the opposite. Request an account deletion beforehand if you do not wish to keep your information online after death.
 
@@ -82,10 +69,10 @@ To get a Facebook account memorialized, follow these steps:
 2. In the**Full Name** section, enter your official credentials.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Add your email address currently in use under the**Your** **Contact Email** section. Facebook might contact you and acquire more details if needed.
@@ -97,10 +84,10 @@ To get a Facebook account memorialized, follow these steps:
 2. Choose the reason why you are requesting the removal of this account. Facebook also entertains special requests only after the account has been memorialized. Tap the**I Understand** check box.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 3. Enter the documents required by Facebook to confirm the death of that person. It can be an original death certificate. For those who do not have access to a death certificate, you can provide anything like a birth certificate, power of attorney, or an obituary. Here is a list of the[acceptable documentation needed for Facebook account deletion](https://www.facebook.com/help/1518259735093203/?helpref=related%5Farticles) .
@@ -111,6 +98,13 @@ To get a Facebook account memorialized, follow these steps:
  Facebook takes a couple of days to review a request. After that, the account will be deleted if you can satisfy Facebook that the person has actually passed away.
 
  If your account is to be deleted, the legacy contact will be able to[download the Facebook account data](https://www.makeuseof.com/tag/download-entire-facebook-history-data-downloader/) to save what's necessary.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Get Your Loved Ones Memorialized or Removed From Facebook Once They Die
 
@@ -135,24 +129,21 @@ To get a Facebook account memorialized, follow these steps:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-scrutinizing-the-new-parrot-ar-drone-edition/"><u>[Updated] 2024 Approved Scrutinizing the New Parrot AR Drone Edition</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-essential-guide-unraveling-ios-screen-capture-magic-for-2024/"><u>[Updated] Essential Guide Unraveling IO's Screen Capture Magic for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-connect-worlds-quickly-sharing-tiktoks-with-facebook/"><u>[Updated] In 2024, Connect Worlds Quickly Sharing TikToks with Facebook</u></a></li>
-<li><a href="https://android-frp.techidaily.com/about-oppo-a58-4g-frp-bypass-by-drfone-android/"><u>About Oppo A58 4G FRP Bypass</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/affordable-entertainment-alert-dive-into-singing-bliss-with-karaokeusa-for-less-than-150/"><u>Affordable Entertainment Alert: Dive Into Singing Bliss with KaraokeUSA for Less than $150!</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719149968116-anticipated-ruling-by-social-medias-governance-authority-on-trump/"><u>Anticipated Ruling by Social Media’s Governance Authority on Trump.</u></a></li>
-<li><a href="https://facebook.techidaily.com/be-unseen-by-facebooks-monitoring-tech/"><u>Be Unseen by Facebook's Monitoring Tech</u></a></li>
-<li><a href="https://facebook.techidaily.com/blocking-new-contact-suggestions-in-fb/"><u>Blocking New Contact Suggestions in FB</u></a></li>
-<li><a href="https://facebook.techidaily.com/breaking-down-friend-spotting-the-top-3-tagging-strategies-on-fb/"><u>Breaking Down Friend Spotting: The Top 3 Tagging Strategies on FB</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/capturing-thrills-is-gopros-hero-black-superior-to-x1000v/"><u>Capturing Thrills Is GoPro's Hero Black Superior to X1000V?</u></a></li>
-<li><a href="https://facebook.techidaily.com/celebrating-all-inclusive-groups-on-facebook-statuses/"><u>Celebrating All: Inclusive Groups on Facebook Statuses</u></a></li>
-<li><a href="https://facebook.techidaily.com/crafting-content-with-care-social-media-ethics-revealed/"><u>Crafting Content with Care: Social Media Ethics Revealed</u></a></li>
-<li><a href="https://facebook.techidaily.com/cultivating-goodwill-during-your-group-disassociation-journey/"><u>Cultivating Goodwill During Your Group Disassociation Journey</u></a></li>
-<li><a href="https://facebook.techidaily.com/cyber-wellness-wakeup-call-avoid-these-social-shares/"><u>Cyber Wellness Wakeup Call: Avoid These Social Shares</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/downloading-samfw-frp-tool-30-for-samsung-galaxy-a34-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Samsung Galaxy A34 5G</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-apple-iphone-xr-device-from-icloud-by-drfone-ios/"><u>How to Remove Apple iPhone XR Device from iCloud</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-vivo-x-flip-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Vivo X Flip Device SIM</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-your-new-tablet-spotlight-on-samsung-galaxy-tab-ss7plus/"><u>The Ultimate Guide to Choosing Your New Tablet - Spotlight on Samsung Galaxy Tab S^[S7+]</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719152836104-zucks-goat-a-monetary-metaphor-in-animal-form/"><u>Zuck's Goat: A Monetary Metaphor in Animal Form.</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-exclusive-hub-free-images-galore-across-the-web-for-2024/"><u>[New] Exclusive Hub Free Images Galore Across the Web for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-hands-on-approach-to-ios-audio-capture/"><u>[New] Hands-On Approach to iOS Audio Capture</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-beginners-besties-essential-gopro-upgrades-list/"><u>[New] The Beginner's Besties - Essential GoPro Upgrades List</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-family-bonding-setting-up-your-facebook-portal-for-video-calls/"><u>Enhancing Family Bonding: Setting Up Your Facebook Portal for Video Calls</u></a></li>
+<li><a href="https://facebook.techidaily.com/every-voice-heard-strategies-for-full-group-mentions-on-fb/"><u>Every Voice Heard: Strategies for Full Group Mentions on FB</u></a></li>
+<li><a href="https://extra-information.techidaily.com/finding-premium-photography-without-spending/"><u>Finding Premium Photography Without Spending</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-realme-c55-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Realme C55 to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/identity-theft-threat-spotting-and-solving-facebook-hacks/"><u>Identity Theft Threat: Spotting & Solving Facebook Hacks</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-lava-blaze-2-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/marketing-momentum-shifts-as-carolyn-leaves/"><u>Marketing Momentum Shifts as Carolyn Leaves</u></a></li>
+<li><a href="https://facebook.techidaily.com/network-renaissance-facebooks-transformation-journey-to-meta/"><u>Network Renaissance: Facebook’s Transformation Journey to Meta</u></a></li>
+<li><a href="https://extra-information.techidaily.com/optimal-orientation-top-tripods-for-iphones-and-androids/"><u>Optimal Orientation Top Tripods for iPhones & Androids</u></a></li>
+<li><a href="https://facebook.techidaily.com/secure-your-place-in-verified-meta-circle/"><u>Secure Your Place in Verified Meta Circle</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-risks-lurking-in-entertainment-based-fb-quizzes/"><u>The Risks Lurking in Entertainment-Based FB Quizzes</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-in-2024-the-premier-a-tunes-for-mobile-musicians-worldwide/"><u>Updated In 2024, The Premier A-Tunes for Mobile Musicians Worldwide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Tips for Crafting Descriptive Facebook Posts
-date: 2024-09-22T17:10:58.698Z
-updated: 2024-09-28T16:41:53.876Z
+date: 2024-09-27T16:46:00.677Z
+updated: 2024-10-03T22:50:00.366Z
 tags:
   - facebook
 categories:
@@ -40,18 +40,18 @@ thumbnail: https://thmb.techidaily.com/99131a0c0da4530303a8f3d5a541a1cf2cb9af3e3
 
  You can add alt text to your images using the Facebook app, as well as on the web version of Facebook. We’ll show you how to add alt text on both interfaces.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Alt Text to Images on the Facebook App
 
 ![screnshot of facebook app upload post interface](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screnshot-of-facebook-app-upload-post-interface.jpg)
 
 ![screenshot showing edit photo interface on Facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-edit-photo-interface-on-Facebook-app.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![screenshot showing add alt text interface on facebook app](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-add-alt-text-interface-on-facebook-app.jpg)
 
@@ -69,10 +69,10 @@ Here’s how you add alt text to images while uploading them:
  There you have it. Your photos will now upload with your desired alt text.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Add Alt Text to Facebook Images on the Web
@@ -91,13 +91,6 @@ Here’s how you add alt text to images while uploading them:
 
  Now you can upload Facebook images with whatever alt text you want from your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Add Alt Text to Facebook Photos You've Already Uploaded
 
 ![screenshot showing facebook photo](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-facebook-photo.jpg)
@@ -105,6 +98,13 @@ Here’s how you add alt text to images while uploading them:
 ![screenshot showing image options on facebook](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-image-options-on-facebook.jpg)
 
 ![screenshot showing how to add alt text to already uploaded image](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2021/11/screenshot-showing-how-to-add-alt-text-to-already-uploaded-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Close
 
@@ -120,10 +120,10 @@ Close
  Related:[How to Download Facebook Photos and Videos](https://www.makeuseof.com/tag/7-ways-to-download-facebook-photos-videos-that-actually-still-work-in-2016/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Make Your Facebook Photos More Accessible
@@ -147,24 +147,24 @@ Close
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-pursuing-peak-performance-selecting-premium-drone-motors/"><u>[New] In 2024, Pursuing Peak Performance Selecting Premium Drone Motors</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-professional-video-finishing-touches-device-based-filters-for-2024/"><u>[New] Professional Video Finishing Touches Device-Based Filters for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-resolve-deceptive-user-appearance-within-chat-environments/"><u>[New] Resolve Deceptive User Appearance Within Chat Environments</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-visual-giggle-factory-memebake-zone/"><u>2024 Approved Visual Giggle Factory Memebake Zone</u></a></li>
-<li><a href="https://facebook.techidaily.com/advanced-strategies-for-elevating-your-email-security-via-2fa/"><u>Advanced Strategies for Elevating Your Email Security via 2FA</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ling-chords-and-crafting-a-unique-youtube-playlist/"><u>Compiling Chords and Crafting a Unique YouTube Playlist</u></a></li>
-<li><a href="https://facebook.techidaily.com/dive-deep-into-digital-profits-unveiling-5-social-media-earning-methods/"><u>Dive Deep Into Digital Profits: Unveiling 5 Social Media Earning Methods</u></a></li>
-<li><a href="https://facebook.techidaily.com/eliciting-errors-how-ux-pushes-you-down-privacy-lanes/"><u>Eliciting Errors: How UX Pushes You Down Privacy Lanes</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/enhance-your-quest-with-uninterrupted-play-solving-dying-lights-graphics-and-fps-hiccups/"><u>Enhance Your Quest with Uninterrupted Play: Solving Dying Light's Graphics and FPS Hiccups</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-most-recent-graphics-card-software-download-drivers-for-your-gtx-1650-super-on-windows-platforms/"><u>Get the Most Recent Graphics Card Software - Download Drivers for Your GTX 1650 SUPER on Windows Platforms</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-to-making-your-mark-with-facebook-events/"><u>How-To: Making Your Mark with Facebook Events</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-increase-conversions-with-these-top-marketing-phrases/"><u>In 2024, Increase Conversions with These Top Marketing Phrases</u></a></li>
-<li><a href="https://facebook.techidaily.com/resolving-non-loading-fb-messages-and-posts/"><u>Resolving Non-Loading FB Messages & Posts</u></a></li>
-<li><a href="https://facebook.techidaily.com/securing-your-on-this-day-fb-memories-cleanup-guide/"><u>Securing Your On This Day: FB Memories Cleanup Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-platforms-demanded-for-enhanced-anti-scam-measures/"><u>Social Media Platforms Demanded for Enhanced Anti-Scam Measures</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-art-of-assembling-people-through-fb-groups/"><u>The Art of Assembling People Through FB Groups</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-impact-of-renaming-the-social-media-news-feed-as-just-feed/"><u>The Impact of Renaming the Social Media News Feed as Just 'Feed'</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/ultimate-guide-to-online-education-access-the-best-sites-with-comprehensive-video-tutorials/"><u>Ultimate Guide to Online Education: Access the Best Sites with Comprehensive Video Tutorials</u></a></li>
-<li><a href="https://article-helps.techidaily.com/unleash-creativity-in-editing-leveraging-storyremix-with-windows-11-photos-for-2024/"><u>Unleash Creativity in Editing Leveraging StoryRemix with Windows 11 Photos for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-a-glimpse-into-future-facebook-ad-tactics-for-24-for-2024/"><u>[Updated] A Glimpse Into Future-Facebook Ad Tactics for '24 for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-beyond-basic-editing-innovative-use-of-luts-for-photography/"><u>2024 Approved Beyond Basic Editing Innovative Use of LUTs for Photography</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-expert-guide-how-to-keep-a-log-of-google-voice-chats/"><u>2024 Approved Expert Guide How to Keep a Log of Google Voice Chats</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/6-metodos-de-grabacion-libres-para-google-hangouts-en-2024-una-guia-completa-con-movavi/"><u>6 Métodos De Grabación Libres Para Google Hangouts en 2024: Una Guía Completa Con Movavi</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/app-selection-guide-for-phones/"><u>ASMR App Selection Guide for Phones</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-poco-x6-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/effortlessly-update-and-fix-hp-envy-7640-graphics-card-drivers/"><u>Effortlessly Update and Fix HP ENVY 7640 Graphics Card Drivers</u></a></li>
+<li><a href="https://facebook.techidaily.com/enhancing-group-dynamics-with-structured-rules-on-fb/"><u>Enhancing Group Dynamics with Structured Rules on FB</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/hoewelachtige-methoden-om-schermotten-te-regelen-in-windows-11-de-oplossingen/"><u>Hoewelachtige Methoden Om Schermotten Te Regelen in Windows 11: De Oplossingen</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-facebook-is-defining-satirical-expression/"><u>How Facebook Is Defining Satirical Expression</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-itel-p55plus-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Itel P55+ Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-your-facebook-sanctity-intact-detect-breaches/"><u>Keep Your Facebook Sanctity Intact – Detect Breaches</u></a></li>
+<li><a href="https://facebook.techidaily.com/presidents-platform-status-in-question/"><u>President's Platform Status in Question</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-significance-showdown-decoding-status-hierarchies-in-twitter-and-meta/"><u>Social Significance Showdown: Decoding Status Hierarchies in Twitter and Meta</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-tale-of-two-sides-to-joining-expat-groups-online/"><u>The Tale of Two Sides to Joining Expat Groups Online</u></a></li>
+<li><a href="https://facebook.techidaily.com/tips-for-untaging-yourself-in-online-communities/"><u>Tips for Untaging Yourself in Online Communities</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-8-crowdflower-tools-that-boost-campaign-performance/"><u>Top 8 CrowdFlower Tools That Boost Campaign Performance</u></a></li>
+<li><a href="https://facebook.techidaily.com/underappreciated-innovations-the-most-important-unnoticed-tech-news/"><u>Underappreciated Innovations: The Most Important Unnoticed Tech News</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/vanish-3-battle-disguise-4-steps-up-for-2024/"><u>Vanish 3 Battle Disguise 4 Steps Up for 2024</u></a></li>
 </ul></div>
 
